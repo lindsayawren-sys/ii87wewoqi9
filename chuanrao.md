@@ -1,61 +1,58 @@
-# 华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨
+# 2025年全国消协组织为消费者挽回经济损失9.3亿元
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 新能源及有色组 昨日碳酸锂盘面增仓上行，主力合约2609增仓27138手，涨幅2.6%，收盘上涨至180200元/吨，目前总合约持仓量43.59万手，碳酸锂盘面价格连续上涨。 现货：根据SMM数据，电池级碳酸锂报170000-175000元/吨，较前一交易日变化3000元/吨，工业级碳酸锂报价165000-170000元/吨，较前一交易日变化2000元/
+中新网6月4日电 据中国消费者协会网站消息，6月4日，中消协在京发布《中国消费者权益保护状况年度报告(2025)》(以下简称年度报告)。年度报告显示，2025年，全国消协组织共受理消费者投诉201.6万件，接待消费者来访和咨询60.9万人次，为消费者挽回经济损失9.3亿元。年度报告全面总结了2025年我国消费者权益保护在立法、行政、司法以及社会各方面所取得的成绩，梳理了当前消费
 
 ## 正文
 
-来源：华泰期货 作者： 新能源及有色组 昨日碳酸锂盘面增仓上行，主力合约2609增仓27138手，涨幅2.6%，收盘上涨至180200元/吨，目前总合约持仓量43.59万手，碳酸锂盘面价格连续上涨。
+中新网6月4日电 据中国消费者协会网站消息，6月4日，中消协在京发布《中国消费者权益保护状况年度报告(2025)》(以下简称年度报告)。
 
-现货：根据SMM数据，电池级碳酸锂报170000-175000元/吨，较前一交易日变化3000元/吨，工业级碳酸锂报价165000-170000元/吨，较前一交易日变化2000元/吨。
+年度报告显示，2025年，全国消协组织共受理消费者投诉201.6万件，接待消费者来访和咨询60.9万人次，为消费者挽回经济损失9.3亿元。
 
-6%锂精矿价格2490美元/吨，较前一日变化65美元/吨。
+年度报告全面总结了2025年我国消费者权益保护在立法、行政、司法以及社会各方面所取得的成绩，梳理了当前消费者权益保护工作面临的问题和挑战，提出了2026年消费者权益保护工作建议。
 
-库存：根据SMM最新统计数据，现货库存为102814吨，环比+1012吨。
+年度报告显示，2025年，各有关部门持续优化消费环境，大力培育消费新场景，促进消费潜力不断释放，强化监管执法，严厉打击违法行为，切实维护广大消费者合法权益。
 
-其中冶炼厂库存为18806吨，环比+163吨；下游库存为45649吨，环比-320吨；其他库存为38360吨，环比+1170吨。
+全国人大常委会修改通过《中华人民共和国反不正当竞争法》《中华人民共和国食品安全法》《中华人民共和国网络安全法》，维护公平竞争市场秩序和良好的消费环境。
 
-近期盘面价格连续上涨，主要受到供给侧扰动影响：宜春四矿或将于五月换证停产，引发市场情绪，但考虑到锂矿企业在停产前已经提前加速原矿开采，停产在2个月以上或将影响宜春供应，叠加津巴布韦锂矿断档，考虑到两个月海运周期，如果五一后津巴布韦未恢复发运，7月或将出现较供给缺口。
+全国政协聚焦优化消费品以旧换新政策、提振消费、整治“内卷式”竞争等方面提出高质量提案，开展社会适老化改造民主监督视察，有力推进消费提质升级和消费者权益保护。
 
-此外，澳洲维瓦能源炼油厂发生爆炸引发市场对澳矿供给担忧，供给端维持偏紧格局。
+最高人民法院出台相关司法解释，发布涉消费争议的指导性案例和典型案例，明确消费维权难点问题的法律适用规则，充分发挥司法裁判的示范和引领作用。
 
-目前碳酸锂库存仍位于低位，供给端扰动频繁，近期震荡走强，随着市场多空分歧加剧，未来持续关注供给变动、下游备货节奏、以及大宗商品市场氛围，短期建议区间操作为主。
+最高人民检察院发布多领域检察公益诉讼案例和办理未成年人保护公益诉讼案件工作指引，促进协同共治，加强民生保护。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:12 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 10:57 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:01 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:16 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 10:59 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:17 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:06 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:03 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:11 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:02 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:14 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:01 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:05 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:10 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:28 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:07 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:20 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:25 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:20 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:08 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:10 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:27 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:07 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:13 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:21 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:10 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:03 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](http://www.share.kurohicncr.top/Article/details/6217684.shtml)
-- 2026-06-29 11:04 - [一季度青海消费市场实现平稳开局](http://www.blog.kurohicncr.top/Article/details/97879.shtml)
-- 2026-06-29 11:21 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.blog.kurohicncr.top/Article/details/62852.shtml)
-- 2026-06-29 11:04 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](http://www.blog.kurohicncr.top/Article/details/72314288095.shtml)
-- 2026-06-29 11:09 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.share.minike.top/Article/details/0547466.shtml)
-- 2026-06-29 10:59 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.share.kurohicncr.top/Article/details/40306897.shtml)
-- 2026-06-29 11:18 - [日本青森县东部海域发生5.1级地震 多地有震感](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.share.minike.top/Article/details/058816793002.shtml)
-- 2026-06-29 11:04 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.share.kurohicncr.top/Article/details/9447739276.shtml)
-- 2026-06-29 11:16 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](http://www.blog.minike.top/Article/details/308089.shtml)
-- 2026-06-29 11:17 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](http://www.share.minike.top/Article/details/0683591.shtml)
-- 2026-06-29 11:26 - [“香港工程传奇展览@首都”在国家科技传播中心举办](http://www.blog.minike.top/Article/details/27252.shtml)
-- 2026-06-29 11:16 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](http://www.blog.minike.top/Article/details/13069269.shtml)
-- 2026-06-29 11:22 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](http://www.blog.kurohicncr.top/Article/details/9860995183.shtml)
-- 2026-06-29 11:17 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.share.minike.top/Article/details/6037805.shtml)
+- 2026-06-29 11:18 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](http://www.share.minike.top/Article/details/183435469413.shtml)
+- 2026-06-29 11:02 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.kurohicncr.top/Article/details/58408817850.shtml)
+- 2026-06-29 11:23 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [美国称将调整其对北约部队的贡献](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.blog.kurohicncr.top/Article/details/8004948922.shtml)
+- 2026-06-29 11:13 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.share.minike.top/Article/details/92643828.shtml)
+- 2026-06-29 11:04 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.share.kurohicncr.top/Article/details/827358190.shtml)
+- 2026-06-29 11:12 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](http://www.share.kurohicncr.top/Article/details/225167.shtml)
+- 2026-06-29 11:09 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.share.minike.top/Article/details/184136642869.shtml)
+- 2026-06-29 11:26 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](http://www.blog.kurohicncr.top/Article/details/60186145.shtml)
+- 2026-06-29 11:29 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:05 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.share.kurohicncr.top/Article/details/5657303268.shtml)
+- 2026-06-29 11:18 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.blog.minike.top/Article/details/324754495252.shtml)
+- 2026-06-29 11:04 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.blog.minike.top/Article/details/2752496151.shtml)
+- 2026-06-29 11:21 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](https://github.com/lisacumin64-arch)

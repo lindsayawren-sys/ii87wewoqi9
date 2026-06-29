@@ -1,59 +1,60 @@
-# 峇峇娘惹寻根原乡 赓续文脉共话交融
+# 国泰海通90亿增资国际子公司，头部券商竞速出海
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网漳州4月20日电 (记者 张金川)4月19日至20日，“2026年峇峇娘惹漳州寻根之旅”活动在福建漳州举行。来自马来西亚、新加坡、印度尼西亚、泰国、澳大利亚5个国家的230余名峇峇娘惹后裔齐聚漳州，循着先祖足迹探寻血脉根脉，共话文化交融，开启一场温暖走心的寻根之旅。 本次活动由漳州市归国华侨联合会、福建省闽南文化研究会、漳州城市职业学院联合主办。 主办方表示，活动旨在帮助
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者 | 孙艺真 国泰海通（601211.SH）一纸公告敲定90亿元增资方案，继中信证券（600030.SH）160亿元定增资金全部投向海外后，这是年内头部券商又一笔重量级国际化资本布局。 根据国泰海通6月4日晚间公告，该公司董事会审议通过，拟向全资子公司国泰海通金融控股有限公司增资90亿元人民币（或其他等
 
 ## 正文
 
-中新网漳州4月20日电 (记者 张金川)4月19日至20日，“2026年峇峇娘惹漳州寻根之旅”活动在福建漳州举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自马来西亚、新加坡、印度尼西亚、泰国、澳大利亚5个国家的230余名峇峇娘惹后裔齐聚漳州，循着先祖足迹探寻血脉根脉，共话文化交融，开启一场温暖走心的寻根之旅。
+记者 | 孙艺真 国泰海通（601211.SH）一纸公告敲定90亿元增资方案，继中信证券（600030.SH）160亿元定增资金全部投向海外后，这是年内头部券商又一笔重量级国际化资本布局。
 
-本次活动由漳州市归国华侨联合会、福建省闽南文化研究会、漳州城市职业学院联合主办。
+根据国泰海通6月4日晚间公告，该公司董事会审议通过，拟向全资子公司国泰海通金融控股有限公司增资90亿元人民币（或其他等值货币），以进一步推动国际化业务发展，持续培育跨境金融优势。
 
-主办方表示，活动旨在帮助峇峇娘惹后裔寻访血脉渊源，增进对漳州祖籍地的理解与情感联系，推动闽南文化与峇峇娘惹文化的交流互动，特别是推动与漳州的经贸文化交流与合作，致力于建立跨区域的教育与文化合作关系，助推“海上丝绸之路”“世界闽南文化交流中心”建设，打好漳州新时代新“侨”牌。
+国泰海通金融控股是国泰海通的控股子公司。
 
-峇峇娘惹又称海峡华人、土生华人，是中华传统文化与东南亚地域文化交融共生的独特族群。
+在国泰君安和海通证券两家券商合并后，2025年12月1日，国泰君安金融控股有限公司在香港公司注册处完成注册登记，自此正式更名为国泰海通金融控股有限公司。
 
-史料记载，大批峇峇娘惹先祖从漳州月港扬帆南下，将闽南文化的血脉与基因远播海外。
+“本次增资与合并整合并无直接关联。
 
-活动以“原乡风·故土情”为主线，精心设置主题展览、研讨交流、文艺展演、实地寻根等内容，让远道而来的游子全方位感受漳州深厚的闽南文化底蕴与人文温度。
+”有接近国泰海通的人士向界面新闻表示：“国泰海通金控是公司国际业务服务管理平台，履行‘牵头统筹、管理兜底、业务协同、运营集中’四大功能。
 
-4月20日下午，“原乡风·故土情——峇峇娘惹文化的漳州根源”图片展览在漳州城市职业学院启动。
+国泰海通向其增资，是践行国家战略，加快推进公司国际化进程，进一步支持境外子公司业务发展，夯实国泰海通金控国际业务服务管理平台职能。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:13 - [正泰电源这一股东陆续减持退出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:16 - [301486，20%直线涨停！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:23 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:03 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:07 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:18 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:01 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:16 - [大湾区建设持续发力 三地居民共享政策红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:08 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:20 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:24 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:14 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:15 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:12 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:14 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:26 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:12 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:24 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:18 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:05 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:00 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:09 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:07 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:20 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:22 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:25 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](http://www.share.minike.top/Article/details/548593.shtml)
-- 2026-06-29 11:10 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [国台办回应赖清德取消窜访非洲计划](http://www.blog.kurohicncr.top/Article/details/968249404268.shtml)
-- 2026-06-29 11:19 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](http://www.blog.kurohicncr.top/Article/details/1457270.shtml)
-- 2026-06-29 11:10 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](http://www.blog.kurohicncr.top/Article/details/563291670807.shtml)
-- 2026-06-29 11:23 - [苹果宣布换帅，多家“果链”企业开盘下跌](http://www.blog.kurohicncr.top/Article/details/90967258055.shtml)
-- 2026-06-29 11:26 - [青海法院知识产权司法保护提质增效](http://www.share.minike.top/Article/details/1692797263.shtml)
-- 2026-06-29 10:59 - [央行都在囤黄金，对普通投资者意味着什么？](http://www.blog.minike.top/Article/details/4906824.shtml)
-- 2026-06-29 11:02 - [行业机构称：特斯拉在加州注册量大幅下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](http://www.share.minike.top/Article/details/6158323029.shtml)
-- 2026-06-29 11:19 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.kurohicncr.top/Article/details/86897935412.shtml)
-- 2026-06-29 11:05 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](http://www.share.kurohicncr.top/Article/details/095854.shtml)
-- 2026-06-29 11:12 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](http://www.blog.kurohicncr.top/Article/details/0796968.shtml)
-- 2026-06-29 11:02 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](http://www.share.minike.top/Article/details/750824785.shtml)
-- 2026-06-29 11:25 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](http://www.blog.minike.top/Article/details/69777.shtml)
+- 2026-06-29 11:29 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [邮储银行：将于8月19日派发末期股息每10股0.953元](http://www.share.kurohicncr.top/Article/details/8670624481.shtml)
+- 2026-06-29 11:23 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](http://www.blog.minike.top/Article/details/8953085.shtml)
+- 2026-06-29 11:14 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](http://www.blog.minike.top/Article/details/5508710.shtml)
+- 2026-06-29 11:10 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.share.minike.top/Article/details/28042029443.shtml)
+- 2026-06-29 11:26 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](http://www.share.minike.top/Article/details/94722.shtml)
+- 2026-06-29 11:03 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.blog.kurohicncr.top/Article/details/3357442648.shtml)
+- 2026-06-29 11:24 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.share.kurohicncr.top/Article/details/0821496.shtml)
+- 2026-06-29 11:00 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [英国首相斯塔默批马斯克插手英内政](http://www.blog.kurohicncr.top/Article/details/003621.shtml)
+- 2026-06-29 11:18 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.share.kurohicncr.top/Article/details/25242.shtml)
+- 2026-06-29 11:23 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.share.kurohicncr.top/Article/details/339357.shtml)

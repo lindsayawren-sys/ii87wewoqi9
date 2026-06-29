@@ -1,56 +1,46 @@
-# 突发！苹果官宣：库克9月卸任CEO，特努斯接任
+# 国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-库克将担任苹果董事长。 当地时间周一，苹果官网宣布，在执掌公司近二十年后，蒂姆・库克（Tim Cook）将卸任首席执行官一职，并出任执行董事长，该任命自今年9月1日起生效。 接替库克的是约翰・特努斯（John Ternus），他目前担任这家科技巨头的硬件工程高级副总裁。就任CEO后，特努斯将加入苹果董事会。同日，苹果非执行董事长亚瑟・莱文森（Arthur Levinson）将出
+国家经济委员会主任凯文·哈塞特对CNBC表示，“最近降息空间很大”。 他说：“美联储来了个新人，”他指的是凯文·沃什 他说：“他必须运用经济论证和经济分析来说服同僚，现在是降息的时机”责任编辑：李安桐
 
 ## 正文
 
-库克将担任苹果董事长。
+国家经济委员会主任凯文·哈塞特对CNBC表示，“最近降息空间很大”。
 
-当地时间周一，苹果官网宣布，在执掌公司近二十年后，蒂姆・库克（Tim Cook）将卸任首席执行官一职，并出任执行董事长，该任命自今年9月1日起生效。
-
-接替库克的是约翰・特努斯（John Ternus），他目前担任这家科技巨头的硬件工程高级副总裁。
-
-就任CEO后，特努斯将加入苹果董事会。
-
-同日，苹果非执行董事长亚瑟・莱文森（Arthur Levinson）将出任这家iPhone制造商的首席独立董事。
-
-苹果在新闻稿中表示：“库克将在夏季继续担任CEO，与特努斯密切合作，确保平稳交接。
-
-” 这是苹果自2011年以来首次CEO换届。
-
-现年65岁的库克当年在史蒂夫・乔布斯去世前不久接任掌舵，特努斯将成为苹果第八任首席执行官。
+他说：“美联储来了个新人，”他指的是凯文·沃什 他说：“他必须运用经济论证和经济分析来说服同僚，现在是降息的时机”责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 11:01 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 10:58 - [交通运输部：一季度完成跨区域人员流动量177.7亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:17 - [碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:07 - [外资“盯上”A股，哪类资产受青睐？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:20 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:14 - [亚盛医药-B授出受限制股份单位及购股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:22 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:20 - [正泰电源这一股东陆续减持退出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:09 - [301486，20%直线涨停！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:08 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:27 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:01 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:16 - [印度1—3月经济同比增速达7.8%，表现超市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:12 - [桦欣控股公布将于6月5日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:20 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:23 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:09 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:24 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:03 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:13 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:29 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:21 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:11 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](http://www.share.kurohicncr.top/Article/details/161496278351.shtml)
-- 2026-06-29 11:13 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](http://www.share.minike.top/Article/details/257537505874.shtml)
-- 2026-06-29 10:58 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.blog.minike.top/Article/details/7765708.shtml)
-- 2026-06-29 11:05 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:15 - [花旗：裕元集团给予“买入”评级 目标价21港元](http://www.share.minike.top/Article/details/401224.shtml)
-- 2026-06-29 11:19 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](http://www.share.minike.top/Article/details/347640283026.shtml)
-- 2026-06-29 11:05 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [国台办回应赖清德取消窜访非洲计划](http://www.blog.minike.top/Article/details/440652950463.shtml)
-- 2026-06-29 10:57 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](http://www.blog.kurohicncr.top/Article/details/91047.shtml)
-- 2026-06-29 11:12 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](http://www.share.kurohicncr.top/Article/details/28877329996.shtml)
-- 2026-06-29 10:59 - [苹果宣布换帅，多家“果链”企业开盘下跌](http://www.blog.minike.top/Article/details/78289.shtml)
-- 2026-06-29 11:23 - [青海法院知识产权司法保护提质增效](http://www.share.minike.top/Article/details/21130214778.shtml)
-- 2026-06-29 11:23 - [央行都在囤黄金，对普通投资者意味着什么？](http://www.blog.kurohicncr.top/Article/details/0795368056.shtml)
-- 2026-06-29 11:04 - [行业机构称：特斯拉在加州注册量大幅下滑](http://www.blog.minike.top/Article/details/549694.shtml)
+- 2026-06-29 11:01 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/21949997114.shtml)
+- 2026-06-29 11:26 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](http://www.share.minike.top/Article/details/298320.shtml)
+- 2026-06-29 11:00 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](http://www.blog.kurohicncr.top/Article/details/69691.shtml)
+- 2026-06-29 11:01 - [韩国股市一度重挫5% 芯片股随美国同业下滑](http://www.blog.kurohicncr.top/Article/details/64766481195.shtml)
+- 2026-06-29 11:06 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](http://www.blog.minike.top/Article/details/450368998.shtml)
+- 2026-06-29 11:29 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](http://www.blog.kurohicncr.top/Article/details/09279082.shtml)
+- 2026-06-29 11:25 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [邮储银行：将于8月19日派发末期股息每10股0.953元](http://www.share.kurohicncr.top/Article/details/4718795420.shtml)
+- 2026-06-29 11:26 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](http://www.blog.kurohicncr.top/Article/details/315594895070.shtml)
+- 2026-06-29 11:26 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](http://www.share.kurohicncr.top/Article/details/5453348.shtml)
+- 2026-06-29 11:15 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.blog.minike.top/Article/details/214776181707.shtml)
+- 2026-06-29 11:23 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](http://www.blog.kurohicncr.top/Article/details/61026300097.shtml)
+- 2026-06-29 11:10 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.share.kurohicncr.top/Article/details/0194239356.shtml)
+- 2026-06-29 11:29 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.blog.kurohicncr.top/Article/details/91719336.shtml)

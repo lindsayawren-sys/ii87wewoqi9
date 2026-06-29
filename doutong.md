@@ -1,57 +1,49 @@
-# 菲利普斯66与金德摩根推进美国西海岸燃油管道项目
+# 国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-菲利普斯66公司与金德摩根公司宣布，将推进“西部门户管道”项目的建设。此前，该项目的第二轮开放季已获得足够的长期托运商承诺。 该成品油管道系统旨在将美国中西部和墨西哥湾沿岸炼油厂的燃油供应连接至亚利桑那州凤凰城及加州市场，并通过金德摩根现有的CALNEV管道连接至内华达州拉斯维加斯。 项目将结合新建管道与现有资产改造：从德克萨斯州博格尔到凤凰城将新建管道。同时，金德摩根从加州科
+针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。责任编辑：刘万里 SF014
 
 ## 正文
 
-菲利普斯66公司与金德摩根公司宣布，将推进“西部门户管道”项目的建设。
+针对近日媒体反映的“望奎双汇猪肉抗生素超标问题”，国务院食安办高度重视，会同公安部、农业农村部、市场监管总局成立工作组，赴实地督促指导核查处置工作，严肃查处违法违规行为，切实守牢食用农产品质量安全底线。
 
-此前，该项目的第二轮开放季已获得足够的长期托运商承诺。
-
-该成品油管道系统旨在将美国中西部和墨西哥湾沿岸炼油厂的燃油供应连接至亚利桑那州凤凰城及加州市场，并通过金德摩根现有的CALNEV管道连接至内华达州拉斯维加斯。
-
-项目将结合新建管道与现有资产改造：从德克萨斯州博格尔到凤凰城将新建管道。
-
-同时，金德摩根从加州科尔顿到凤凰城的现有SFPP管道将被反向，以实现从东向西向加州输送成品油。
-
-此外，菲利普斯66运营的黄金管道也将被反向，以便将中大陆炼油厂的燃油输送至博格尔，为西部门户管道提供供应。
-
-菲利普斯66董事长兼首席执行官马克·拉希尔表示，客户在开放季期间的响应表明该地区对额外成品油物流能力的需求迫切，该项目将提高西海岸市场的供应灵活性和可靠性。
-
-该项目已获足够托运商承诺，但最终推进仍需达成最终运输服务协议、合资企业协议并获得各自董事会的批准。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [春季脱发高发 专家提醒警惕脏腑失衡隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:17 - [高盛任命金融科技银行家Gido担任金融机构组主席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 10:57 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:06 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:26 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 10:58 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 10:59 - [首届中非企业家高端论坛在非盟总部举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:16 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:22 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:15 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:25 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:28 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:29 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:12 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:20 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:14 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:11 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:01 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:06 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:06 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:18 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:17 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:05 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:08 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:13 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:08 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:06 - [从“酱油色”到“翡翠绿”，这株草专“喝”脏水](http://www.blog.minike.top/Article/details/6020919.shtml)
-- 2026-06-29 11:07 - [第十三批12位在韩志愿军烈士遗骸今日回国 “荣归50”“红鹰” 接迎任务飞机呼号公布](http://www.blog.kurohicncr.top/Article/details/36356.shtml)
-- 2026-06-29 11:20 - [东西问丨特朗普“推特治国2.0”，这次对伊朗不好使了](http://www.share.minike.top/Article/details/663565501.shtml)
-- 2026-06-29 11:02 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.kurohicncr.top/Article/details/56011835.shtml)
-- 2026-06-29 11:06 - [伊朗官员：最高领袖完全健康](http://www.share.minike.top/Article/details/074266546.shtml)
-- 2026-06-29 11:25 - [礼来斥资70亿美元收购Kelonia，加注体内CAR-T癌症疗法](http://www.blog.kurohicncr.top/Article/details/2957170395.shtml)
-- 2026-06-29 11:17 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.kurohicncr.top/Article/details/79246336.shtml)
-- 2026-06-29 11:18 - [韩正会见孟加拉国民族主义党高级干部考察团](http://www.blog.minike.top/Article/details/8070797184.shtml)
-- 2026-06-29 11:17 - [广州纪念詹天佑诞辰165周年](http://www.share.kurohicncr.top/Article/details/75564.shtml)
-- 2026-06-29 11:13 - [北京市欧美同学会生物医药健康委员会调研国际医药创新公园](http://www.blog.kurohicncr.top/Article/details/392813.shtml)
-- 2026-06-29 11:15 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](http://www.share.minike.top/Article/details/80587935811.shtml)
-- 2026-06-29 11:11 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](http://www.share.kurohicncr.top/Article/details/58766564561.shtml)
-- 2026-06-29 10:59 - [韩元走弱促使企业结汇 韩国外汇存款创历史最大降幅](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [杭州萧山机场海关查获1起入境旅客携带超量物品进境案件](http://www.blog.kurohicncr.top/Article/details/6563807696.shtml)
-- 2026-06-29 11:13 - [贵州牵手济州 共谋黔韩企业合作新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:14 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.share.kurohicncr.top/Article/details/913314876612.shtml)
+- 2026-06-29 11:10 - [铁路端午假期运输首日火车票今天起售](http://www.share.kurohicncr.top/Article/details/846836.shtml)
+- 2026-06-29 11:18 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:02 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](http://www.blog.minike.top/Article/details/71696.shtml)
+- 2026-06-29 11:25 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](http://www.blog.minike.top/Article/details/9198623.shtml)
+- 2026-06-29 11:12 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.blog.minike.top/Article/details/645616067.shtml)
+- 2026-06-29 11:06 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.share.kurohicncr.top/Article/details/856188718330.shtml)
+- 2026-06-29 11:19 - [航宇科技6月5日大宗交易成交332.31万元](http://www.share.minike.top/Article/details/8101839430.shtml)
+- 2026-06-29 11:06 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.blog.kurohicncr.top/Article/details/5085927.shtml)
+- 2026-06-29 11:01 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.blog.minike.top/Article/details/51538137128.shtml)
+- 2026-06-29 11:20 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.minike.top/Article/details/437753.shtml)
+- 2026-06-29 11:14 - [佐力药业：公司无逾期对外担保](http://www.blog.minike.top/Article/details/75357010907.shtml)
+- 2026-06-29 11:10 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.blog.minike.top/Article/details/605205822476.shtml)

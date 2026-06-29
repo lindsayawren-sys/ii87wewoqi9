@@ -1,57 +1,61 @@
-# 五方共建大湾区船员权益保障中心 推六项保障举措
+# 韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网广州4月20日电 (郭军 陈秀慧 陈聪)广东省首个专注于船员权益保障的专业服务机构——粤港澳大湾区(南沙)船员权益保障中心(下称“保障中心”)20日扩容，以深化水上“一站式”解纷中心建设。 当日，广州海事法院、广州市南沙区人力资源和社会保障局、广州南沙龙穴街道办事处、广州黄埔国际海员俱乐部、广州南沙海事处等五家单位20日签署合作协议，在原来由海事、人社、街道共建保障中心的
+韩国股市周五大幅下挫，创下自3月底以来最大单周跌幅，因全球科技股回调及美伊和谈陷入僵局，严重打击了投资者的风险偏好。韩元兑美元汇率跌至2009年以来最低水平，同时债券收益率飙升，促使包括财政部长具允哲在内的政府官员发出口头警告，反对投机性的单边押注。 在华尔街，博通股价暴跌逾12%，拖累其他地区半导体股走低，此前这家芯片制造商的业绩令那些押注其定制人工智能芯片需求激增的投资者大
 
 ## 正文
 
-中新网广州4月20日电 (郭军 陈秀慧 陈聪)广东省首个专注于船员权益保障的专业服务机构——粤港澳大湾区(南沙)船员权益保障中心(下称“保障中心”)20日扩容，以深化水上“一站式”解纷中心建设。
+韩国股市周五大幅下挫，创下自3月底以来最大单周跌幅，因全球科技股回调及美伊和谈陷入僵局，严重打击了投资者的风险偏好。
 
-当日，广州海事法院、广州市南沙区人力资源和社会保障局、广州南沙龙穴街道办事处、广州黄埔国际海员俱乐部、广州南沙海事处等五家单位20日签署合作协议，在原来由海事、人社、街道共建保障中心的基础上，进一步扩大“朋友圈”。
+韩元兑美元汇率跌至2009年以来最低水平，同时债券收益率飙升，促使包括财政部长具允哲在内的政府官员发出口头警告，反对投机性的单边押注。
 
-签约仪式上，各方围绕船员权益保障工作现状、存在的问题及协同发力方向进行了深入交流，一致认为，当前船员劳动纠纷呈现类型多样、诉求复杂等特点，亟须构建多部门联动、高效衔接的工作机制。
+在华尔街，博通股价暴跌逾12%，拖累其他地区半导体股走低，此前这家芯片制造商的业绩令那些押注其定制人工智能芯片需求激增的投资者大失所望。
 
-广州南沙海事处副处长罗超表示，协议落地将进一步强化制度供给和机制保障，有效整合海事监管、司法服务、人社保障、基层治理、海员暖心服务等资源优势，进一步增强水上纠纷化解能力，推动形成信息共享、快速响应、协同处置的工作格局，努力实现“小事不出船、大事不出港、矛盾不上交”。
+费城半导体指数下跌2.2%。
 
-围绕构建高效协同的船员权益保障体系，各方联合推出“六大船员权益保障举措”：一是健全纠纷多元化解机制，加强劳动仲裁与涉诉指导衔接，提升纠纷化解效率；二是推进信息共享与数据互通，强化风险预警和源头防控能力；三是联合开展政策宣贯与普法宣传，提升船员依法维权意识；四是协同开展海事劳工条件检查，督促落实相关公约和法规要求；五是规范船员劳动合同和就业协议管理，从源头保障船员合法权益；六是强化船员服务保障，注重人文关怀，做好船员及其家属关爱服务。
+韩国基准KOSPI指数收盘下跌478.82点，跌幅5.54%，报8160.59点，创下自5月15日以来最大单日百分比跌幅。
 
-据悉，保障中心此前由广州南沙海事处、南沙区人力资源和社会保障局、南沙区人民政府龙穴街道办事处共同建设，也是交通运输部首批先行先试“水上枫桥”船员权益保障中心。
+本周累计下跌3.7%。
 
-自2024年3月成立以来，保障中心始终坚守“以船员为中心”的理念，打造集咨询服务、纠纷调解、法律援助于一体的“一站式”服务平台，成功化解7起船员欠薪、工伤等纠纷案件，为43名船员追回薪资超420万元，相关工作经验入选广东自贸区复制推广改革创新清单。
+盘中KOSPI指数一度下跌6.96%，触发“侧车”交易暂停机制。
 
-(完)
+芯片制造商三星电子下跌6.4%，同行SK海力士下跌9.9%。
 
 ## 相关推荐
 
-- 2026-06-29 11:09 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:11 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:23 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:15 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:12 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:09 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:13 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:03 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:03 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:16 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:11 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:20 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:19 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:15 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:24 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:24 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:16 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:23 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:25 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:29 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:22 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:06 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:23 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:03 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:28 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](http://www.blog.minike.top/Article/details/7990271492.shtml)
-- 2026-06-29 11:07 - [海南离岛免税实施15年累计购物金额2864亿元](http://www.share.kurohicncr.top/Article/details/008985.shtml)
-- 2026-06-29 11:26 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](http://www.blog.kurohicncr.top/Article/details/791241336.shtml)
-- 2026-06-29 11:26 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](http://www.blog.minike.top/Article/details/220940668.shtml)
-- 2026-06-29 11:20 - [一季度青海消费市场实现平稳开局](http://www.blog.kurohicncr.top/Article/details/9465708.shtml)
-- 2026-06-29 11:26 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.share.kurohicncr.top/Article/details/6417173.shtml)
-- 2026-06-29 11:12 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](http://www.blog.minike.top/Article/details/14405.shtml)
-- 2026-06-29 11:21 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.blog.kurohicncr.top/Article/details/103066595216.shtml)
-- 2026-06-29 11:13 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/683971.shtml)
-- 2026-06-29 11:03 - [日本青森县东部海域发生5.1级地震 多地有震感](http://www.share.kurohicncr.top/Article/details/669010178616.shtml)
-- 2026-06-29 11:26 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.blog.kurohicncr.top/Article/details/01521940.shtml)
-- 2026-06-29 10:57 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.share.kurohicncr.top/Article/details/68557546624.shtml)
-- 2026-06-29 11:24 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](http://www.blog.kurohicncr.top/Article/details/81290877.shtml)
-- 2026-06-29 11:20 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](http://www.share.minike.top/Article/details/4823341356.shtml)
+- 2026-06-29 11:10 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.blog.minike.top/Article/details/671081671.shtml)
+- 2026-06-29 11:23 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.share.minike.top/Article/details/362453438282.shtml)
+- 2026-06-29 11:02 - [外媒：以色列和黎巴嫩同意停火 但有前提](http://www.share.kurohicncr.top/Article/details/79950317.shtml)
+- 2026-06-29 11:29 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.share.minike.top/Article/details/1999345.shtml)
+- 2026-06-29 11:07 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.kurohicncr.top/Article/details/296232220913.shtml)
+- 2026-06-29 11:05 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.share.kurohicncr.top/Article/details/03224288.shtml)
+- 2026-06-29 11:04 - [美国称将调整其对北约部队的贡献](http://www.blog.kurohicncr.top/Article/details/602478.shtml)
+- 2026-06-29 11:11 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.share.minike.top/Article/details/7835705.shtml)
+- 2026-06-29 11:14 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.blog.kurohicncr.top/Article/details/3702960.shtml)
+- 2026-06-29 11:08 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.blog.minike.top/Article/details/79761551442.shtml)
+- 2026-06-29 11:06 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](http://www.share.kurohicncr.top/Article/details/5894640.shtml)
+- 2026-06-29 11:03 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.share.kurohicncr.top/Article/details/740175187.shtml)
+- 2026-06-29 11:14 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](http://www.share.kurohicncr.top/Article/details/979285346056.shtml)
+- 2026-06-29 11:28 - [学生票大升级！这些出行便利已成固定政策](http://www.blog.kurohicncr.top/Article/details/370072.shtml)

@@ -1,61 +1,50 @@
-# 截至3月底全国5G基站总数已达495.8万个
+# 美国制裁古巴国家主席 进一步加大施压力度
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 今年一季度信息通信基础设施建设情况如何？取得了哪些新进展？21日，国新办举行新闻发布会，介绍2026年一季度工业和信息化发展情况，并答记者问。 会上，工业和信息化部新闻发言人、信息通信发展司司长谢存介绍，今年是“十五五”开局之年，工业和信息化系统深入贯彻落实党中央、国务院决策部署，推进信息通信基础设施建设取得积极进展，着力夯实经济社会数智化转型底座。 一是网
+美国制裁古巴国家主席Miguel Díaz-Canel及其家人，进一步对该国加压。 根据周四发布的新指引，古巴武装力量及其国内监视网络 —— 保卫革命委员会 —— 也被列入美国财政部黑名单。 美国政府已实施事实上的燃料封锁，并持续加大对哈瓦那统治者的压力，以期结束持续67年的一党统治。责任编辑：江学思
 
 ## 正文
 
-中新网4月21日电 今年一季度信息通信基础设施建设情况如何？
+美国制裁古巴国家主席Miguel Díaz-Canel及其家人，进一步对该国加压。
 
-取得了哪些新进展？
+根据周四发布的新指引，古巴武装力量及其国内监视网络 —— 保卫革命委员会 —— 也被列入美国财政部黑名单。
 
-21日，国新办举行新闻发布会，介绍2026年一季度工业和信息化发展情况，并答记者问。
+美国政府已实施事实上的燃料封锁，并持续加大对哈瓦那统治者的压力，以期结束持续67年的一党统治。
 
-会上，工业和信息化部新闻发言人、信息通信发展司司长谢存介绍，今年是“十五五”开局之年，工业和信息化系统深入贯彻落实党中央、国务院决策部署，推进信息通信基础设施建设取得积极进展，着力夯实经济社会数智化转型底座。
-
-一是网络能力更强。
-
-截至3月底，全国5G基站总数已达495.8万个，具备千兆网络服务能力的10G PON端口数达3201万个，全国86个城市的168个小区、工厂和园区开展万兆光网试点部署，5G-A(5G演进网络)目前已覆盖330个城市。
-
-移动物联网蓬勃发展，终端用户达29.48亿户。
-
-二是网络覆盖更广。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:00 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:23 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:13 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:06 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:11 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:13 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 10:57 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 10:59 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:26 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:11 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:05 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:26 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:24 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:14 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:12 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:00 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:07 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:24 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:11 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:07 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:27 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:24 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:17 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:28 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:02 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:25 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [一季度青海消费市场实现平稳开局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.blog.minike.top/Article/details/70935696.shtml)
-- 2026-06-29 11:20 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](http://www.share.kurohicncr.top/Article/details/66234.shtml)
-- 2026-06-29 11:23 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.blog.kurohicncr.top/Article/details/5290677.shtml)
-- 2026-06-29 11:17 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.share.minike.top/Article/details/951998970.shtml)
-- 2026-06-29 11:01 - [日本青森县东部海域发生5.1级地震 多地有震感](http://www.share.minike.top/Article/details/9554193.shtml)
-- 2026-06-29 11:23 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.share.kurohicncr.top/Article/details/91480833.shtml)
-- 2026-06-29 11:26 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.share.kurohicncr.top/Article/details/620597.shtml)
-- 2026-06-29 11:04 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](http://www.blog.kurohicncr.top/Article/details/77004681.shtml)
-- 2026-06-29 11:02 - [“香港工程传奇展览@首都”在国家科技传播中心举办](http://www.share.minike.top/Article/details/102084.shtml)
-- 2026-06-29 11:08 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](http://www.blog.kurohicncr.top/Article/details/67863276219.shtml)
-- 2026-06-29 11:04 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.share.minike.top/Article/details/29099856.shtml)
-- 2026-06-29 11:08 - [如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机](http://www.blog.kurohicncr.top/Article/details/45840449.shtml)
+- 2026-06-29 11:15 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.kurohicncr.top/Article/details/3374919300.shtml)
+- 2026-06-29 11:04 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.blog.kurohicncr.top/Article/details/79344.shtml)
+- 2026-06-29 11:06 - [美国称将调整其对北约部队的贡献](http://www.share.kurohicncr.top/Article/details/79318915.shtml)
+- 2026-06-29 11:07 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.blog.kurohicncr.top/Article/details/95483268.shtml)
+- 2026-06-29 11:27 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.blog.kurohicncr.top/Article/details/84910625112.shtml)
+- 2026-06-29 11:08 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.blog.minike.top/Article/details/45040748262.shtml)
+- 2026-06-29 11:24 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.blog.minike.top/Article/details/89344.shtml)
+- 2026-06-29 11:29 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.blog.minike.top/Article/details/767067751.shtml)
+- 2026-06-29 11:29 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.blog.minike.top/Article/details/4864435.shtml)
+- 2026-06-29 11:26 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.share.kurohicncr.top/Article/details/789948.shtml)
+- 2026-06-29 11:05 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](http://www.blog.minike.top/Article/details/74662.shtml)
+- 2026-06-29 11:08 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](https://github.com/lisacumin64-arch)

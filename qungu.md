@@ -1,56 +1,57 @@
-# 花旗：裕元集团给予“买入”评级 目标价21港元
+# 欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，裕元集团（00551）发盈警，预计今年首季股东应占溢利将同比大幅下跌50%至55%，而去年同期经调整利润为7，580万美元。该行认为盈警符合预期，因首季通常为行业淡季，同比变动的波动程度可能较大。管理层亦认同首季是毛利率表现最差的季度，并预期今年余下时间毛利率将按季逐步改善。该行认为，裕元目前估值仍具吸引力，市盈率（PE）逾8倍，市账率（PB）为0.7倍，料今年
+欧洲股市周四反弹，医疗保健股上涨，Abivax SA和Zealand Pharma A/S涨幅居前。 斯托克欧洲600指数收盘上涨0.5%，摆脱早盘跌势。医疗保健、金融服务和零售板块领涨，矿业股和电信股表现最差。 Abivax大涨18%，此前该股因一项关键临床试验中的癌症病例而暴跌。Stifel分析师表示，市场最初反应“过度”。 医疗保健板块中，Zealand Pharma亦大
 
 ## 正文
 
-花旗发布研报称，裕元集团（00551）发盈警，预计今年首季股东应占溢利将同比大幅下跌50%至55%，而去年同期经调整利润为7，580万美元。
+欧洲股市周四反弹，医疗保健股上涨，Abivax SA和Zealand Pharma A/S涨幅居前。
 
-该行认为盈警符合预期，因首季通常为行业淡季，同比变动的波动程度可能较大。
+斯托克欧洲600指数收盘上涨0.5%，摆脱早盘跌势。
 
-管理层亦认同首季是毛利率表现最差的季度，并预期今年余下时间毛利率将按季逐步改善。
+医疗保健、金融服务和零售板块领涨，矿业股和电信股表现最差。
 
-该行认为，裕元目前估值仍具吸引力，市盈率（PE）逾8倍，市账率（PB）为0.7倍，料今年股息率约8%。
+Abivax大涨18%，此前该股因一项关键临床试验中的癌症病例而暴跌。
 
-若股价因是次盈警而回落，将视之为良好的买入机会； 该行予裕元目标价21港元及“买入”评级。
+Stifel分析师表示，市场最初反应“过度”。
 
-责任编辑：卢昱君
+医疗保健板块中，Zealand Pharma亦大涨，涨幅9%。
+
+此前德意志银行在实验性减重注射药物survodutide取得积极结果后，上调了该股目标价。
+
+其他个股方面，干邑生产商人头马君度上涨9.8%，此前该公司在美洲市场强劲增长，遏制了在欧洲市场需求低迷带来的损失。
 
 ## 相关推荐
 
-- 2026-06-29 10:57 - [青海法院知识产权司法保护提质增效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:21 - [央行都在囤黄金，对普通投资者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:23 - [行业机构称：特斯拉在加州注册量大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:01 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:01 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:15 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:19 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 10:59 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:26 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:01 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:21 - [伊朗航空宣布自4月22日起恢复国内航班运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:16 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:25 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:04 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:15 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:07 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:03 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:05 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:09 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:03 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:07 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:07 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:10 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:12 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:16 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [高盛任命金融科技银行家Gido担任金融机构组主席](http://www.blog.minike.top/Article/details/24428.shtml)
-- 2026-06-29 11:09 - [特朗普称最终将达成重大协议](http://www.share.minike.top/Article/details/60717.shtml)
-- 2026-06-29 11:06 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](http://www.share.minike.top/Article/details/03213.shtml)
-- 2026-06-29 11:26 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [合并助力建筑公司CannonDesign实现全球布局](http://www.blog.kurohicncr.top/Article/details/2323466900.shtml)
-- 2026-06-29 11:02 - [首届中非企业家高端论坛在非盟总部举行](http://www.share.kurohicncr.top/Article/details/1893100751.shtml)
-- 2026-06-29 11:05 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](http://www.blog.kurohicncr.top/Article/details/29680.shtml)
-- 2026-06-29 11:18 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](http://www.share.minike.top/Article/details/414366314596.shtml)
-- 2026-06-29 11:24 - [巴黎检方：马斯克缺席传唤](http://www.blog.minike.top/Article/details/27948.shtml)
-- 2026-06-29 11:02 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](http://www.share.minike.top/Article/details/5106180825.shtml)
-- 2026-06-29 11:05 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](http://www.share.kurohicncr.top/Article/details/857826.shtml)
-- 2026-06-29 10:59 - [猪价反弹底部确认，政策释放“稳价”信号](http://www.blog.kurohicncr.top/Article/details/33488.shtml)
-- 2026-06-29 11:18 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](http://www.blog.minike.top/Article/details/86676656.shtml)
+- 2026-06-29 11:00 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [CBCX:金价回稳关注利率线索](http://www.blog.minike.top/Article/details/51113048006.shtml)
+- 2026-06-29 11:29 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.share.kurohicncr.top/Article/details/038513048.shtml)
+- 2026-06-29 11:16 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.blog.minike.top/Article/details/91475132.shtml)
+- 2026-06-29 11:06 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.blog.minike.top/Article/details/0002180810.shtml)
+- 2026-06-29 11:07 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.blog.kurohicncr.top/Article/details/255358783029.shtml)
+- 2026-06-29 11:06 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.minike.top/Article/details/437410.shtml)
+- 2026-06-29 11:06 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.share.minike.top/Article/details/738087.shtml)
+- 2026-06-29 11:15 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.share.minike.top/Article/details/102653.shtml)
+- 2026-06-29 11:18 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.share.minike.top/Article/details/05116096.shtml)
+- 2026-06-29 11:03 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](http://www.blog.kurohicncr.top/Article/details/5901453082.shtml)
+- 2026-06-29 11:05 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](http://www.blog.minike.top/Article/details/523919.shtml)
+- 2026-06-29 11:23 - [广东省口岸有关数据（2026年1-4月）](http://www.blog.minike.top/Article/details/6048492.shtml)
+- 2026-06-29 11:07 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](http://www.blog.minike.top/Article/details/79145679.shtml)

@@ -1,56 +1,51 @@
-# 正泰电源这一股东陆续减持退出
+# 王宏岩中再产险副总经理的任职资格获监管核准
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 正泰电源（维权）股东珠海悦宁及一致行动人珠海康东计划减持不超过3%股份，按当前股价计算，价值约3.2亿元，此前已累计套现约2.8亿元。此外，公司一季度业绩变脸：营收微增1.41%，净利润同比下滑19.3%，经营活动现金流为负。 4月20日，江苏正泰电源（002150）发布公告称，因自身资金
+6月5日金融一线消息，国家金融监督管理总局近日发布批复，核准王宏岩中国财产再保险有限责任公司副总经理的任职资格。 公开信息显示，王宏岩，出生于1978年12月，管理学博士，高级会计师。王宏岩曾任中国财产再保险有限责任公司财务与资产管理部总经理助理、副总经理、副总经理（主持工作）、总经理、财务管理部总经理、资产管理部总经理，曾任中再巨灾风险管理股份有限公司董事。 2023年8月，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月5日金融一线消息，国家金融监督管理总局近日发布批复，核准王宏岩中国财产再保险有限责任公司副总经理的任职资格。
 
-来源：国际金融报 正泰电源（维权）股东珠海悦宁及一致行动人珠海康东计划减持不超过3%股份，按当前股价计算，价值约3.2亿元，此前已累计套现约2.8亿元。
+公开信息显示，王宏岩，出生于1978年12月，管理学博士，高级会计师。
 
-此外，公司一季度业绩变脸：营收微增1.41%，净利润同比下滑19.3%，经营活动现金流为负。
+王宏岩曾任中国财产再保险有限责任公司财务与资产管理部总经理助理、副总经理、副总经理（主持工作）、总经理、财务管理部总经理、资产管理部总经理，曾任中再巨灾风险管理股份有限公司董事。
 
-4月20日，江苏正泰电源（002150）发布公告称，因自身资金需求，持有公司906万股（占公司总股本比例2.51%）的股东珠海悦宁及其一致行动人、持有公司股份1241万股（占公司总股本比例 3.44%）的珠海康东，计划在本公告披露之日起15个交易日后的三个月内以集中竞价方式、大宗交易方式，合计减持公司股份不超过1082.6万股，即不超过公司当前总股本的3.00%。
+2023年8月，国家金融监督管理总局核准其中国财产再保险有限责任公司总经理助理的任职资格；2023年11月，核准其中再资产管理股份有限公司董事的任职资格；2025年7月，核准其中国财产再保险有限责任公司董事和董事会秘书的任职资格。
 
-股东多次减持套现 公开资料显示，珠海悦宁与珠海康东的普通合伙人及执行事务合伙人均为西藏昱驰企业管理有限公司，二者构成一致行动关系。
-
-4月20日，正泰电源收盘价为29.95元/股，跌幅1.96%。
-
-按照公告日股价计算，此次拟减持的上述股份金额约为3.2亿元。
-
-值得注意的是，自2025年8月以来，上述股东已进行过多轮减持。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 11:04 - [大湾区建设持续发力 三地居民共享政策红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:25 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:15 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:10 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:23 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 10:59 - [五方共建大湾区船员权益保障中心 推六项保障举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:25 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:22 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:01 - [菲律宾一客车坠谷致2死39伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:00 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:00 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:14 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:03 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:09 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:12 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:07 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:00 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:05 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:08 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:12 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:11 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [行业机构称：特斯拉在加州注册量大幅下滑](http://www.share.kurohicncr.top/Article/details/70993874646.shtml)
-- 2026-06-29 11:23 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](http://www.blog.kurohicncr.top/Article/details/49121.shtml)
-- 2026-06-29 11:11 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](http://www.share.minike.top/Article/details/2687354254.shtml)
-- 2026-06-29 11:08 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [日韩股市开盘 日经指数低开0.4%](http://www.blog.minike.top/Article/details/646981953.shtml)
-- 2026-06-29 11:04 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.share.minike.top/Article/details/062699553.shtml)
-- 2026-06-29 11:09 - [伊朗航空宣布自4月22日起恢复国内航班运营](http://www.blog.minike.top/Article/details/994056.shtml)
-- 2026-06-29 11:21 - [大摩：长和给予增持评级 目标价61港元](http://www.share.kurohicncr.top/Article/details/8090476421.shtml)
-- 2026-06-29 11:16 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/109421570.shtml)
-- 2026-06-29 11:10 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [海南离岛免税实施15年累计购物金额2864亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.blog.kurohicncr.top/Article/details/436709014.shtml)
+- 2026-06-29 11:15 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.blog.minike.top/Article/details/11775.shtml)
+- 2026-06-29 11:10 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](http://www.blog.minike.top/Article/details/74456700374.shtml)
+- 2026-06-29 11:01 - [英国首相斯塔默批马斯克插手英内政](http://www.share.kurohicncr.top/Article/details/249235393.shtml)
+- 2026-06-29 11:10 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.blog.minike.top/Article/details/44602566144.shtml)
+- 2026-06-29 11:26 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.share.kurohicncr.top/Article/details/03918053559.shtml)
+- 2026-06-29 11:20 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [新大众文艺：人民文艺的时代强音](http://www.blog.minike.top/Article/details/780279121960.shtml)
+- 2026-06-29 11:05 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.blog.minike.top/Article/details/379183853.shtml)
+- 2026-06-29 11:12 - [青海省“全民禁毒宣传月”系列活动启动](http://www.share.kurohicncr.top/Article/details/768117.shtml)
+- 2026-06-29 11:27 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.blog.kurohicncr.top/Article/details/212406.shtml)
+- 2026-06-29 11:29 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.share.kurohicncr.top/Article/details/373288880.shtml)
+- 2026-06-29 11:01 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lisacumin64-arch)

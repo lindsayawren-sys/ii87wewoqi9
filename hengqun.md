@@ -1,54 +1,57 @@
-# 极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%
+# 新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-极视角（06636）盘中涨超30%，股价高见128.3港元，再创上市新高，较招股价40港元已涨超200%。截至发稿，股价上涨25.77%，现报123港元，成交额2.21亿港元。 根据公开资料显示，极视角是一家AI计算器视觉解决方案提供商，为各行各业的企业提供涵盖开发、部署及管理的端到端企业级解决方案。根据弗若斯特沙利文的资料，按2024年的收入计，公司于中国新兴计算器视觉解决方
+发布时间：2026年06月05日 10:07 来源：中国新闻网 6月3日11时25分，新疆伊宁县公安局特警大队在皇宫巴扎巡逻时接到求助：群众哈尔德拜·阿力坚挑选马驹时不慎被马蹄踢中眉骨，伤口撕裂、血流不止。 民警迅速赶至现场，发现伤者眉骨创面较大、出血迅猛，现场无法处置，当即决定紧急送医。民警一边疏散群众、打通救援通道，一边安抚伤者情绪，随后用警车平稳快速将其送往伊宁县人民医院
 
 ## 正文
 
-极视角（06636）盘中涨超30%，股价高见128.3港元，再创上市新高，较招股价40港元已涨超200%。
+发布时间：2026年06月05日 10:07 来源：中国新闻网 6月3日11时25分，新疆伊宁县公安局特警大队在皇宫巴扎巡逻时接到求助：群众哈尔德拜·阿力坚挑选马驹时不慎被马蹄踢中眉骨，伤口撕裂、血流不止。
 
-截至发稿，股价上涨25.77%，现报123港元，成交额2.21亿港元。
+民警迅速赶至现场，发现伤者眉骨创面较大、出血迅猛，现场无法处置，当即决定紧急送医。
 
-根据公开资料显示，极视角是一家AI计算器视觉解决方案提供商，为各行各业的企业提供涵盖开发、部署及管理的端到端企业级解决方案。
+民警一边疏散群众、打通救援通道，一边安抚伤者情绪，随后用警车平稳快速将其送往伊宁县人民医院。
 
-根据弗若斯特沙利文的资料，按2024年的收入计，公司于中国新兴计算器视觉解决方案市场中排名第八。
+抵达后，民警协助办理预检分诊、信息登记，确保伤者及时接受治疗。
 
-公司业务主要分为两个部分，首先是AI计算器视觉解决方案，公司提供标准AI计算器视觉解决方案、定制AI计算器视觉解决方案及软件定义的一体化AI解决方案。
+目前伤者生命体征平稳，已无大碍。
 
-其次是大模型解决方案，公司利用多智能体优化、RAG及基于场景的算法等先进技术，提供为企业专业用途设计的定制化大模型解决方案。
-
-责任编辑：卢昱君
+(作者：艾克兰木 梁佳豪 谢占英) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:15 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:14 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:15 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:25 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:18 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:07 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:24 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:22 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:14 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:01 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:11 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:10 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:23 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:05 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:17 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:12 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:13 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:10 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:21 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:17 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:04 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:10 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:20 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:28 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:58 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.share.minike.top/Article/details/41076615.shtml)
-- 2026-06-29 11:08 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/6780115.shtml)
-- 2026-06-29 11:04 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](http://www.blog.minike.top/Article/details/59772.shtml)
-- 2026-06-29 11:16 - [大湾区建设持续发力 三地居民共享政策红利](http://www.blog.kurohicncr.top/Article/details/34869.shtml)
-- 2026-06-29 11:05 - [从云端到长安 中外少年携手共筑文化桥梁](http://www.share.kurohicncr.top/Article/details/49494999244.shtml)
-- 2026-06-29 10:58 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.blog.minike.top/Article/details/15929695.shtml)
-- 2026-06-29 11:16 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [特朗普称最终将达成重大协议](http://www.share.kurohicncr.top/Article/details/51454049.shtml)
-- 2026-06-29 11:21 - [五方共建大湾区船员权益保障中心 推六项保障举措](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](http://www.share.kurohicncr.top/Article/details/2675896253.shtml)
-- 2026-06-29 11:27 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](http://www.blog.minike.top/Article/details/262629356.shtml)
-- 2026-06-29 11:20 - [菲律宾一客车坠谷致2死39伤](http://www.blog.kurohicncr.top/Article/details/119952954.shtml)
-- 2026-06-29 11:24 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.share.minike.top/Article/details/9063162.shtml)
-- 2026-06-29 11:04 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.minike.top/Article/details/420586.shtml)
+- 2026-06-29 11:05 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.blog.minike.top/Article/details/8402862398.shtml)
+- 2026-06-29 11:17 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.blog.minike.top/Article/details/56811.shtml)
+- 2026-06-29 11:26 - [全国小麦收获有序推进 已近五成](http://www.share.minike.top/Article/details/889390985.shtml)
+- 2026-06-29 11:04 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.share.minike.top/Article/details/958185203104.shtml)
+- 2026-06-29 11:27 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.share.kurohicncr.top/Article/details/930559514695.shtml)
+- 2026-06-29 11:27 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](http://www.blog.kurohicncr.top/Article/details/3075832623.shtml)
+- 2026-06-29 11:00 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.minike.top/Article/details/030884666324.shtml)
+- 2026-06-29 11:12 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.minike.top/Article/details/80645.shtml)
+- 2026-06-29 11:09 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.kurohicncr.top/Article/details/23254387793.shtml)
+- 2026-06-29 11:02 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.share.minike.top/Article/details/726931346972.shtml)
+- 2026-06-29 11:02 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.blog.kurohicncr.top/Article/details/59994.shtml)
+- 2026-06-29 11:20 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.share.minike.top/Article/details/0234713.shtml)
+- 2026-06-29 11:28 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.blog.minike.top/Article/details/11712.shtml)
+- 2026-06-29 11:17 - [美国制裁古巴国家主席 进一步加大施压力度](http://www.share.kurohicncr.top/Article/details/037550210.shtml)

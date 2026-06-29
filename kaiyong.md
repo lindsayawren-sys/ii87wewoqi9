@@ -1,56 +1,57 @@
-# 影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具
+# 上海市委统战部在黄浦区召开基层统战工作现场会
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-影石Insta360在美国广播电视展（NAB 2026）展出了全系列影像产品。其中Luna 系列手持云台相机、Mic Pro 旗舰无线麦克风两款重磅新品全球首次公开展出，全面呈现影石面向专业创作者的下一代产品布局。 Luna 系列：徕卡联合研发，口袋级专业双摄创作工具 影石与徕卡联合研发的Luna 系列手持云台相机正式公开，包含双摄旗舰 Luna Ultra 与单摄版 Luna
+进一步夯实基层基础，基层统战工作现场会来到黄浦→ 6月3日下午，市委统战部在黄浦区打浦桥街道党群服务中心召开基层统战工作现场会，深入贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，推动落实统战工作责任制，总结经验、交流工作，进一步夯实统战工作基层基础。市委统战部副部长沈立新，黄浦区委常委、统战部部长陈颖出席会议并讲话。 会议指出，近年来，全市各区、各相关单位深入贯彻中
 
 ## 正文
 
-影石Insta360在美国广播电视展（NAB 2026）展出了全系列影像产品。
+进一步夯实基层基础，基层统战工作现场会来到黄浦→ 6月3日下午，市委统战部在黄浦区打浦桥街道党群服务中心召开基层统战工作现场会，深入贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，推动落实统战工作责任制，总结经验、交流工作，进一步夯实统战工作基层基础。
 
-其中Luna 系列手持云台相机、Mic Pro 旗舰无线麦克风两款重磅新品全球首次公开展出，全面呈现影石面向专业创作者的下一代产品布局。
+市委统战部副部长沈立新，黄浦区委常委、统战部部长陈颖出席会议并讲话。
 
-Luna 系列：徕卡联合研发，口袋级专业双摄创作工具 影石与徕卡联合研发的Luna 系列手持云台相机正式公开，包含双摄旗舰 Luna Ultra 与单摄版 Luna Pro，提供黑白双色可选。
+会议指出，近年来，全市各区、各相关单位深入贯彻中央、市委关于加强基层统战工作的部署要求，认真落实统战工作责任，完善大统战工作格局，建机制、搭平台，统筹各方资源力量服务中心大局，有效发挥了统一战线凝聚人心、汇聚力量的政治作用。
 
-工作人员介绍，Luna Ultra 搭载1 英寸大底传感器、F1.8 大光圈、14 档动态范围，长焦表现突出，支持10-bit 色深与 4K 杜比视界，现场展出高规格样片，画质表现比肩专业相机。
+会议强调，基层统战工作是基层党建工作的重要组成部分。
 
-Luna 系列以便携一站式创作为核心，将专业级影像能力与云台一体化整合，定位 “口袋里的专业创作工具”，降低专业内容拍摄门槛。
+各级党委(党组)要加强对统战工作的领导，落实统战工作主体责任，健全工作机制，将统战工作摆上重要议事日程。
 
-Mic Pro：彩色墨水屏 + AI 降噪，重新定义无线收音 影石同步展出旗舰无线麦克风Mic Pro，以个性化与专业收音为核心，为创作者提供全新音频方案。
+要推动统战工作融入基层党建和社会治理体系，在党建引领下，把统战资源融入基层网格，把网格力量转化为统战工作抓手，更好服务社区治理。
 
-产品搭载可自定义彩色电子墨水屏，支持上传专属 Logo、文字与视觉元素，让收音工具成为个性化创作标识。
+要做实思想政治引领主责主业，坚持用党的创新理论凝心铸魂，寓思想政治引领于务实服务之中，不断巩固团结奋斗的共同思想政治基础。
 
-Mic Pro 采用三麦克风阵列 + AI 智能降噪算法，在复杂环境下仍能保持清晰收音，并可直连 Luna 系列、全景相机等影石全品类设备，完善音频生态，简化设备连接与操作成本。
+要因地制宜、分类施策，更加精准地加强对各类统战团体的联系和指导，培育特色工作品牌，发挥统战成员智力密集、联系广泛的优势，有效服务经济社会发展大局。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:00 - [亚盛医药-B授出受限制股份单位及购股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:00 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 10:58 - [正泰电源这一股东陆续减持退出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:15 - [301486，20%直线涨停！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:00 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:08 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:13 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:03 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:11 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:22 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:25 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:26 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:10 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:29 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:01 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:27 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:00 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:17 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:07 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:07 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:02 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](http://www.share.kurohicncr.top/Article/details/8236995931.shtml)
-- 2026-06-29 11:15 - [花旗：裕元集团给予“买入”评级 目标价21港元](http://www.share.kurohicncr.top/Article/details/089380335.shtml)
-- 2026-06-29 11:21 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](http://www.share.minike.top/Article/details/842235142.shtml)
-- 2026-06-29 11:18 - [美国众议院调查针对伊朗战争相关交易](http://www.blog.kurohicncr.top/Article/details/29771.shtml)
-- 2026-06-29 11:24 - [国台办回应赖清德取消窜访非洲计划](http://www.share.minike.top/Article/details/15657.shtml)
-- 2026-06-29 10:59 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](http://www.blog.minike.top/Article/details/2603848866.shtml)
-- 2026-06-29 11:24 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [苹果宣布换帅，多家“果链”企业开盘下跌](http://www.share.minike.top/Article/details/797244232.shtml)
-- 2026-06-29 11:09 - [青海法院知识产权司法保护提质增效](http://www.blog.minike.top/Article/details/71443.shtml)
-- 2026-06-29 10:59 - [央行都在囤黄金，对普通投资者意味着什么？](http://www.blog.minike.top/Article/details/5244137588.shtml)
-- 2026-06-29 11:16 - [行业机构称：特斯拉在加州注册量大幅下滑](http://www.share.kurohicncr.top/Article/details/63162.shtml)
-- 2026-06-29 11:05 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](http://www.blog.minike.top/Article/details/7835323.shtml)
-- 2026-06-29 10:59 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.kurohicncr.top/Article/details/32847.shtml)
-- 2026-06-29 11:20 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](http://www.blog.minike.top/Article/details/20638148.shtml)
+- 2026-06-29 11:23 - [韩国股市一度重挫5% 芯片股随美国同业下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](http://www.blog.minike.top/Article/details/386102774121.shtml)
+- 2026-06-29 11:21 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](http://www.blog.minike.top/Article/details/54425391.shtml)
+- 2026-06-29 11:28 - [渤海银行：凌颖杰董事的任职资格已获核准](http://www.share.minike.top/Article/details/9883878783.shtml)
+- 2026-06-29 11:17 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](http://www.share.kurohicncr.top/Article/details/3808669687.shtml)
+- 2026-06-29 11:25 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.share.minike.top/Article/details/292517.shtml)
+- 2026-06-29 11:25 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](http://www.share.minike.top/Article/details/021712441.shtml)
+- 2026-06-29 11:02 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.share.minike.top/Article/details/478478793.shtml)
+- 2026-06-29 11:09 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.share.minike.top/Article/details/978180282.shtml)
+- 2026-06-29 11:06 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.blog.minike.top/Article/details/291346.shtml)
+- 2026-06-29 11:24 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](http://www.blog.kurohicncr.top/Article/details/762479018448.shtml)
+- 2026-06-29 11:16 - [英国首相斯塔默批马斯克插手英内政](http://www.share.kurohicncr.top/Article/details/66720.shtml)
+- 2026-06-29 11:10 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.blog.minike.top/Article/details/0505715.shtml)

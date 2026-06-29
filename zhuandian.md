@@ -1,56 +1,51 @@
-# 全球两大传奇枪械制造商爆发激烈内斗
+# 中国人保原党委委员、副总裁于泽被“双开”
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-一系列被视作怠慢、失联与取消会议的事件，严重冲击了贝雷塔与斯特姆・鲁格之间的关系 作者：阿利斯泰尔・麦克唐纳、汉娜・克鲁格 上月，彼得罗・古萨利・贝雷塔试图联系美国枪械制造商斯特姆・鲁格（Sturm Ruger）的董事长 —— 其所在公司是鲁格的第一大股东。 但古萨利・贝雷塔称，他被告知董事长小约翰・科森蒂诺正在休假，而且要休整整一个月。 “这无法接受。” 执掌贝雷塔控股的古萨
+中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对中国人民保险集团股份有限公司原党委委员、副总裁于泽严重违纪违法问题进行了立案审查调查。 经查，于泽丧失理想信念，背弃初心使命，私自携带、阅看有严重政治问题的书籍，对抗组织审查；违反中央八项规定精神，违规借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；在职务晋升等工作中为他人谋取利益并收受财物
 
 ## 正文
 
-一系列被视作怠慢、失联与取消会议的事件，严重冲击了贝雷塔与斯特姆・鲁格之间的关系 作者：阿利斯泰尔・麦克唐纳、汉娜・克鲁格 上月，彼得罗・古萨利・贝雷塔试图联系美国枪械制造商斯特姆・鲁格（Sturm Ruger）的董事长 —— 其所在公司是鲁格的第一大股东。
+中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对中国人民保险集团股份有限公司原党委委员、副总裁于泽严重违纪违法问题进行了立案审查调查。
 
-但古萨利・贝雷塔称，他被告知董事长小约翰・科森蒂诺正在休假，而且要休整整一个月。
+经查，于泽丧失理想信念，背弃初心使命，私自携带、阅看有严重政治问题的书籍，对抗组织审查；违反中央八项规定精神，违规借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；在职务晋升等工作中为他人谋取利益并收受财物，私自扣压检举、控告材料；廉洁底线失守，借用管理和服务对象大额钱款，违规报销个人费用；玩物丧志；毫无纪法底线，将公权力异化为谋取个人私利的工具，大搞权钱交易，利用职务便利为他人在项目承揽、职工录用等方面谋利，并非法收受巨额财物。
 
-“这无法接受。
+于泽严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-” 执掌贝雷塔控股的古萨利・贝雷塔表示。
-
-这家拥有 500 年历史的枪械家族企业自去年 5 月开始购入鲁格股票，目前已持有鲁格近 10% 的股份。
-
-过去七个月里，从被视作刻意冷落、多次联系无果到会议接连取消，科森蒂诺所称长达一月的缺席，只是最新一桩事件，严重动摇了这两家全球顶尖枪械制造商的关系。
-
-如今双方已然陷入名副其实的 “交锋”：互相发布股东委托书声明、指控对方违反保密协议，大西洋两岸至少有七家顾问公司在为双方计费工作。
-
-曾有人从中斡旋寻求共识，却在 WhatsApp 上谈崩。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予于泽开除党籍处分；由国家监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:15 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:07 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:13 - [标普A红利ETF华宝（562060）单日揽金超1.2亿元，业绩窗口期红利策略或持续占优！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:23 - [600606，致歉！更正业绩预告，最多亏损265亿元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:09 - [胜宏科技首挂上市 早盘上涨51.71%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:17 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:01 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:12 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:15 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:28 - [精耕细作，童书消费步入品质时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:21 - [ST星农大宗交易成交203.00万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:07 - [瑞梅铁路梅江特大桥中跨顺利合龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:20 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:18 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:24 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:24 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:09 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:01 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:23 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:04 - [天原股份：公司不存在资金链风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:07 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:02 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:57 - [TGS延长美国海湾多年期海底节点采集合同](http://www.blog.minike.top/Article/details/0556079.shtml)
-- 2026-06-29 11:21 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.blog.kurohicncr.top/Article/details/9516774925.shtml)
-- 2026-06-29 11:05 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](http://www.share.minike.top/Article/details/9059236120.shtml)
-- 2026-06-29 11:05 - [特朗普称Anthropic“表现良好”，愿与五角大楼达成协议](http://www.blog.minike.top/Article/details/64520.shtml)
-- 2026-06-29 11:18 - [峇峇娘惹寻根原乡 赓续文脉共话交融](http://www.blog.minike.top/Article/details/86314.shtml)
-- 2026-06-29 11:05 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](http://www.blog.kurohicncr.top/Article/details/0537657.shtml)
-- 2026-06-29 11:06 - [交通运输部：一季度完成跨区域人员流动量177.7亿人次](http://www.share.kurohicncr.top/Article/details/561462412.shtml)
-- 2026-06-29 11:25 - [碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”](http://www.blog.minike.top/Article/details/7962948.shtml)
-- 2026-06-29 11:04 - [外资“盯上”A股，哪类资产受青睐？](http://www.share.minike.top/Article/details/5232035497.shtml)
-- 2026-06-29 11:05 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [亚盛医药-B授出受限制股份单位及购股权](http://www.share.minike.top/Article/details/2910303153.shtml)
-- 2026-06-29 11:22 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [正泰电源这一股东陆续减持退出](http://www.blog.minike.top/Article/details/3477757.shtml)
-- 2026-06-29 11:27 - [301486，20%直线涨停！](http://www.blog.minike.top/Article/details/132911.shtml)
-- 2026-06-29 11:00 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](http://www.share.minike.top/Article/details/2044087.shtml)
+- 2026-06-29 11:06 - [世赛新增项目，为啥是这7个？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](http://www.share.kurohicncr.top/Article/details/662272973226.shtml)
+- 2026-06-29 11:28 - [上海市委统战部在黄浦区召开基层统战工作现场会](http://www.share.kurohicncr.top/Article/details/27109012.shtml)
+- 2026-06-29 11:12 - [突然，20%涨停！“225倍大神”，最新引爆！](http://www.share.kurohicncr.top/Article/details/043742.shtml)
+- 2026-06-29 11:01 - [国泰海通90亿增资国际子公司，头部券商竞速出海](http://www.blog.kurohicncr.top/Article/details/0388792793.shtml)
+- 2026-06-29 11:19 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](http://www.blog.kurohicncr.top/Article/details/42501991.shtml)
+- 2026-06-29 11:10 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](http://www.share.kurohicncr.top/Article/details/409263.shtml)
+- 2026-06-29 11:03 - [印度1—3月经济同比增速达7.8%，表现超市场预期](http://www.share.minike.top/Article/details/99002904.shtml)
+- 2026-06-29 11:12 - [桦欣控股公布将于6月5日上午起复牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](http://www.blog.minike.top/Article/details/62413221.shtml)
+- 2026-06-29 11:23 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](http://www.share.minike.top/Article/details/06920883.shtml)
+- 2026-06-29 11:19 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.share.kurohicncr.top/Article/details/815898109.shtml)
+- 2026-06-29 11:18 - [王宏岩中再产险副总经理的任职资格获监管核准](http://www.share.minike.top/Article/details/5737016677.shtml)
+- 2026-06-29 11:28 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](http://www.blog.minike.top/Article/details/26212.shtml)
+- 2026-06-29 11:00 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](http://www.share.kurohicncr.top/Article/details/912095491.shtml)

@@ -1,46 +1,58 @@
-# 华电新能：2025年归母净利润72.63亿元，同比下降17.76%
+# 拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-华电新能4月20日公告，2025年实现营业收入389.8亿元，同比增长14.76%；归属于上市公司股东的净利润72.63亿元，上年同期88.31亿元，同比下降17.76%；基本每股收益0.18元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！刚刚解除限售后，青岛银行大股东宣布其减持计划。 近日，青岛银行公告，持股9.15%的股东青岛海尔产业发展有限公司（下称“海尔产业发展”）计划以大宗交易方式减持公司股份1.07亿股，占公司总股本的1.84%。这也是今年以来A股上市银行首例5%以上主要股东披露的减持计划。 而就在数日前的5月28日，青岛银行公告
 
 ## 正文
 
-华电新能4月20日公告，2025年实现营业收入389.8亿元，同比增长14.76%；归属于上市公司股东的净利润72.63亿元，上年同期88.31亿元，同比下降17.76%；基本每股收益0.18元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+刚刚解除限售后，青岛银行大股东宣布其减持计划。
+
+近日，青岛银行公告，持股9.15%的股东青岛海尔产业发展有限公司（下称“海尔产业发展”）计划以大宗交易方式减持公司股份1.07亿股，占公司总股本的1.84%。
+
+这也是今年以来A股上市银行首例5%以上主要股东披露的减持计划。
+
+而就在数日前的5月28日，青岛银行公告上述股东所持4.1亿股首发前限售股于6月1日解除限售。
+
+限售股解禁与减持计划接踵而至，引发市场关注。
+
+不过，从全市场来看，一边是年内首例大股东减持，另一边是险资、地方国资及银行董监高密集增持，A股银行板块股东行为分化显著。
+
+在基本面筑底与资金面扰动的交织下，券商分析师对银行板块后续走势仍持积极态度。
 
 ## 相关推荐
 
-- 2026-06-29 11:13 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:11 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:18 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:12 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:27 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:12 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:21 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:25 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:11 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:10 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:20 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:06 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:00 - [国台办回应赖清德取消窜访非洲计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:10 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:12 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:07 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:09 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:19 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:28 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:15 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:03 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:29 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:09 - [韩国股市一度重挫5% 芯片股随美国同业下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:12 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:15 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:08 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/97286160829.shtml)
-- 2026-06-29 11:10 - [日本青森县东部海域发生5.1级地震 多地有震感](http://www.blog.minike.top/Article/details/221890963284.shtml)
-- 2026-06-29 11:03 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.blog.kurohicncr.top/Article/details/258157771.shtml)
-- 2026-06-29 11:17 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.share.minike.top/Article/details/81251129343.shtml)
-- 2026-06-29 11:17 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](http://www.blog.minike.top/Article/details/162827.shtml)
-- 2026-06-29 11:03 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](http://www.blog.minike.top/Article/details/0099704371.shtml)
-- 2026-06-29 10:58 - [“香港工程传奇展览@首都”在国家科技传播中心举办](http://www.share.kurohicncr.top/Article/details/3482001.shtml)
-- 2026-06-29 11:15 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](http://www.blog.minike.top/Article/details/359711410481.shtml)
-- 2026-06-29 11:05 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](http://www.blog.minike.top/Article/details/31767529855.shtml)
-- 2026-06-29 11:05 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.share.kurohicncr.top/Article/details/736695750231.shtml)
-- 2026-06-29 11:17 - [如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机](http://www.share.minike.top/Article/details/510868796.shtml)
-- 2026-06-29 11:11 - [工信部：一季度中国规模以上工业增加值同比增长6.1%](http://www.blog.kurohicncr.top/Article/details/017506870.shtml)
-- 2026-06-29 11:13 - [泰国东部经济走廊与广东企业签署合作备忘录](http://www.blog.kurohicncr.top/Article/details/76794574111.shtml)
-- 2026-06-29 11:22 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [特朗普：希望有人收购陷入困境的精神航空公司](http://www.share.kurohicncr.top/Article/details/783299.shtml)
+- 2026-06-29 11:12 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.blog.kurohicncr.top/Article/details/95663.shtml)
+- 2026-06-29 11:17 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.share.kurohicncr.top/Article/details/35596.shtml)
+- 2026-06-29 11:05 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](http://www.share.minike.top/Article/details/92175953762.shtml)
+- 2026-06-29 11:07 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.blog.minike.top/Article/details/553738.shtml)
+- 2026-06-29 11:16 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](http://www.share.minike.top/Article/details/935312678740.shtml)
+- 2026-06-29 11:17 - [学生票大升级！这些出行便利已成固定政策](http://www.share.minike.top/Article/details/77638964044.shtml)
+- 2026-06-29 11:20 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.share.minike.top/Article/details/8303725224.shtml)
+- 2026-06-29 11:21 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.share.minike.top/Article/details/141994007.shtml)
+- 2026-06-29 11:09 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.blog.minike.top/Article/details/81472449.shtml)
+- 2026-06-29 11:02 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](http://www.blog.kurohicncr.top/Article/details/818466935362.shtml)
+- 2026-06-29 11:26 - [西陇科学：公司及控股子公司均不存在逾期担保情况](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:08 - [铁路端午假期运输首日火车票今日起售](http://www.blog.minike.top/Article/details/249519.shtml)
+- 2026-06-29 11:03 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](http://www.share.kurohicncr.top/Article/details/740473678908.shtml)
+- 2026-06-29 11:04 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](http://www.share.kurohicncr.top/Article/details/5192521.shtml)

@@ -1,58 +1,61 @@
-# OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口
+# 人保财险被指“提高保费再返现”，监管介入调查多项违规属实！
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-受全球元器件价格持续疯涨等因素影响，中国智能手机行业正遭遇近五年来规模最大、覆盖最广的涨价潮。就在这样一个关口，刚刚发布的影像旗舰机OPPO Find X9s Pro成了全行业特别的那一个：它不仅配置提升，而且在整机成本大幅上涨的前提下，定价还保持了与前代Find X9sPro同等水平，同为5299元起售，成为2026年最后一款不涨价的旗舰新机。 但Find X9s Pro 如
+来源：消费日报财经 近日，来自江西宜春的货车司机胡先生向本报记者反映称，中国人民财产保险股份有限公司（下称：人保财险）在为他的车辆报价投保过程中，以“太平洋客户专属优惠”为名诱导，最终保费反增两千余元，并遭遇要求更换投保人、返现、隐瞒附加险、列入黑名单等系列问题。经国家金融监督管理总局宜春监管分局核查，人保财险多项违规行为属实。 事实上，胡先生反映的违规套利与返现一直是保险行业
 
 ## 正文
 
-受全球元器件价格持续疯涨等因素影响，中国智能手机行业正遭遇近五年来规模最大、覆盖最广的涨价潮。
+来源：消费日报财经 近日，来自江西宜春的货车司机胡先生向本报记者反映称，中国人民财产保险股份有限公司（下称：人保财险）在为他的车辆报价投保过程中，以“太平洋客户专属优惠”为名诱导，最终保费反增两千余元，并遭遇要求更换投保人、返现、隐瞒附加险、列入黑名单等系列问题。
 
-就在这样一个关口，刚刚发布的影像旗舰机OPPO Find X9s Pro成了全行业特别的那一个：它不仅配置提升，而且在整机成本大幅上涨的前提下，定价还保持了与前代Find X9sPro同等水平，同为5299元起售，成为2026年最后一款不涨价的旗舰新机。
+经国家金融监督管理总局宜春监管分局核查，人保财险多项违规行为属实。
 
-但Find X9s Pro 如果想要全年维持目前售价，恐怕很难。
+事实上，胡先生反映的违规套利与返现一直是保险行业的顽疾，2026年1月至4月，全国已有38家财险公司收到监管罚单，被罚没金额合计超6000万元，处罚事由主要涉及未按照规定使用保险条款费率、虚列费用、违规返利等问题。
 
-不久前，国家发改委价格监测中心发布了《存储芯片价格持续上涨并向下游传导》报告指出，受AI服务器算力需求激增的驱动，存储芯片价格将延续上涨态势。
+今年5月，全国多地金融监管部门集中开出18张保险行政处罚罚单，处罚多集中在“向投保人给予保险合同约定以外利益”。
 
-也就是说，手机还有可能继续涨价。
+1 “提高保费再返现”涉多项违规 资料显示，中国人民财产保险股份有限公司前身是1949年10月成立的中国人民保险公司，总部设在北京，是中国人民保险集团股份有限公司的主业，是国内历史悠久、业务规模大、综合实力强的大型国有财产保险公司，保费规模居全球财险市场前列。
 
-回顾2026年上半年，旗舰新品普遍进入涨价周期：三星Galaxy S26标准版上调1000元，小米17 Ultra涨幅达1200元，vivo X300s 16GB+1TB版本甚至上浮1500元。
+公司于2003年11月6日在香港联交所主板挂牌上市，成为中国内地第一家在海外上市的金融企业。
 
-权威咨询机构Omdia发布2026年一季度中国市场手机出货量报告，苹果、华为、OPPO位列前三，成为少数在逆势中稳住阵脚的品牌之一。
+2025年，人保财险合计保险服务收入为5115.94亿元，总资产达8604.98亿元，人保财险MSCI ESG评级为AAA级。
 
-全球范围， 根据IDC 数据，OPPO在全球 500-550 美元这个“高端入口”价格带份额第一，领跑所有中国头部厂商。
+在合规方面，人保财险两家分公司此前因“列支虚假车险手续费”接连被罚，公司2025年全系统消费投诉 【下载黑猫投诉客户端】量高达44万余件，其中车险类投诉占比超过八成。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:01 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:20 - [菲律宾一客车坠谷致2死39伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:17 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:05 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:24 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:22 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:18 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:13 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:18 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 10:59 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:16 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:15 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:05 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:29 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:12 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:09 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:10 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:17 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:04 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:11 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:10 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:06 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:09 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:18 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:26 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:07 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:10 - [日韩股市开盘 日经指数低开0.4%](http://www.blog.kurohicncr.top/Article/details/295576971847.shtml)
-- 2026-06-29 11:14 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.share.kurohicncr.top/Article/details/26471303753.shtml)
-- 2026-06-29 11:01 - [伊朗航空宣布自4月22日起恢复国内航班运营](http://www.share.minike.top/Article/details/794953610610.shtml)
-- 2026-06-29 11:00 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/5131214770.shtml)
-- 2026-06-29 10:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.kurohicncr.top/Article/details/51030911183.shtml)
-- 2026-06-29 11:03 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](http://www.share.kurohicncr.top/Article/details/1635606043.shtml)
-- 2026-06-29 11:14 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](http://www.share.minike.top/Article/details/8852335201.shtml)
-- 2026-06-29 11:21 - [海南离岛免税实施15年累计购物金额2864亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](http://www.blog.minike.top/Article/details/0449668.shtml)
-- 2026-06-29 10:59 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](http://www.share.minike.top/Article/details/503408758198.shtml)
-- 2026-06-29 10:59 - [一季度青海消费市场实现平稳开局](http://www.share.kurohicncr.top/Article/details/654672318.shtml)
-- 2026-06-29 11:20 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.blog.minike.top/Article/details/0995129726.shtml)
-- 2026-06-29 11:18 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](http://www.blog.minike.top/Article/details/123221189.shtml)
-- 2026-06-29 11:24 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.blog.kurohicncr.top/Article/details/91145496429.shtml)
+- 2026-06-29 11:08 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.blog.minike.top/Article/details/314843442911.shtml)
+- 2026-06-29 11:24 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](http://www.blog.kurohicncr.top/Article/details/415305.shtml)
+- 2026-06-29 11:18 - [新大众文艺：人民文艺的时代强音](http://www.share.kurohicncr.top/Article/details/0392058.shtml)
+- 2026-06-29 11:26 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.share.kurohicncr.top/Article/details/9296006.shtml)
+- 2026-06-29 11:19 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.minike.top/Article/details/94148848.shtml)
+- 2026-06-29 11:10 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.share.minike.top/Article/details/7562297178.shtml)
+- 2026-06-29 11:18 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.blog.minike.top/Article/details/6974099386.shtml)
+- 2026-06-29 11:05 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.blog.minike.top/Article/details/9102482.shtml)
+- 2026-06-29 11:13 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:02 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.share.kurohicncr.top/Article/details/16704285.shtml)
+- 2026-06-29 11:16 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.blog.kurohicncr.top/Article/details/5800075.shtml)
+- 2026-06-29 11:13 - [美国称将调整其对北约部队的贡献](http://www.share.minike.top/Article/details/69444855.shtml)
+- 2026-06-29 11:12 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.blog.kurohicncr.top/Article/details/23956495.shtml)

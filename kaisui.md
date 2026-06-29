@@ -1,51 +1,60 @@
-# 中国新闻社参评第36届中国新闻奖新闻访谈、新闻直播、视听设计（音视频编排）作品初评公示
+# 真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖新闻访谈、新闻直播、视听设计(音视频编排)专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐2件新闻作品参加新闻访谈、新闻直播的初评，现予以公示。公示期为2026年4月21日至4月27日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。联系电话：01
+黎巴嫩真主党领导人拒绝以色列与黎巴嫩政府在美国斡旋下达成的最新停火协议，与此同时，以色列仍在黎巴嫩南部与东部持续针对这支武装组织展开军事攻势。 以色列军队数十年来首次大规模深入黎巴嫩腹地之后，美以黎三方于周三发布联合声明，公布这份由美国居间促成的停火协定，协议并未约定以色列撤军时限。 真主党领导人纳伊姆・卡西姆周四发布书面声明称，真主党要求以色列从黎巴嫩全境全面撤军；只要黎方村
 
 ## 正文
 
-根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖新闻访谈、新闻直播、视听设计(音视频编排)专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐2件新闻作品参加新闻访谈、新闻直播的初评，现予以公示。
+黎巴嫩真主党领导人拒绝以色列与黎巴嫩政府在美国斡旋下达成的最新停火协议，与此同时，以色列仍在黎巴嫩南部与东部持续针对这支武装组织展开军事攻势。
 
-公示期为2026年4月21日至4月27日，共5个工作日。
+以色列军队数十年来首次大规模深入黎巴嫩腹地之后，美以黎三方于周三发布联合声明，公布这份由美国居间促成的停火协定，协议并未约定以色列撤军时限。
 
-如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。
+真主党领导人纳伊姆・卡西姆周四发布书面声明称，真主党要求以色列从黎巴嫩全境全面撤军；只要黎方村镇持续遭遇轰炸损毁、平民不断遇难，真主党就不会终止针对以色列的打击行动。
 
-联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 中国新闻奖推荐作品目录 新闻访谈 1.《【最华人】谷世安：带加拿大医生重走白求恩之路》 作者(主创人员)：俞岚、周锐、刘羡、孙静波、莫红娥、徐洋、张舰元 编辑：陈薇伊、李慧玲、戴晨 2.《弹劾案通过 韩国总统尹锡悦被罢免》 作者(主创人员)：俞岚、吴庆才、刘旭、郭梦媛、张家翰、杨亚龙 编辑：王凯、卢岩
+“我们只谋求通过全面停火终止所有侵略、促成以军撤离。
+
+只要领土仍被占领，我们不会向任何一方承诺放弃抵抗。
+
+” 卡西姆表示。
+
+在炮火逼迫下要求真主党武装撤出黎巴嫩南部，等同于 “投降与溃败，帮敌人实现战略目的”。
+
+就在真主党官宣拒签协议之际，以色列持续空袭黎巴嫩南部，黎巴嫩地方当局通报空袭已造成至少 4 人丧生，一名联合国维和人员在交火中不幸殉难。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [12只科创板股今日大宗交易平台发生交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:25 - [百融云-W合计授出80.3万份股份奖励](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:19 - [金宏气体：2025年度公司氦气产品销售额超1.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:03 - [一张手绘“村图”能管43年，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 10:59 - [美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:14 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:10 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:06 - [工信部回应存储器价格上涨：将多措并举保障产业链供应链稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:07 - [礼来制药同意收购抗癌药物开发商Kelonia，交易价值达70亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:17 - [7岁男孩表演少林拳，一招一式刚劲有力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 10:59 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:11 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:06 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:00 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:04 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:02 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:19 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:10 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:22 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:20 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:13 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:03 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:09 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:01 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:26 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:22 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:24 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:00 - [视频丨日本放宽武器出口限制引发各界批评](http://www.share.kurohicncr.top/Article/details/159031945145.shtml)
-- 2026-06-29 11:11 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](http://www.share.minike.top/Article/details/96437155.shtml)
-- 2026-06-29 11:14 - [深圳市中小微外贸企业数字化服务生态2.0发布](http://www.share.kurohicncr.top/Article/details/13712257082.shtml)
-- 2026-06-29 11:08 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](http://www.blog.kurohicncr.top/Article/details/224921757.shtml)
-- 2026-06-29 11:01 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.kurohicncr.top/Article/details/6875729549.shtml)
-- 2026-06-29 10:59 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](http://www.share.minike.top/Article/details/1577390.shtml)
-- 2026-06-29 11:17 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.share.minike.top/Article/details/91506828.shtml)
-- 2026-06-29 11:02 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](http://www.blog.minike.top/Article/details/6070928608.shtml)
-- 2026-06-29 11:20 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](http://www.blog.kurohicncr.top/Article/details/05582315.shtml)
-- 2026-06-29 11:13 - [向日葵2025年净亏损438.48万元](http://www.share.minike.top/Article/details/5003719.shtml)
-- 2026-06-29 11:19 - [肖捷会见欧洲议会副议长奥马吉](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](http://www.share.minike.top/Article/details/236112217.shtml)
-- 2026-06-29 11:12 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.blog.kurohicncr.top/Article/details/9442253.shtml)
-- 2026-06-29 11:09 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](http://www.blog.minike.top/Article/details/916642397624.shtml)
+- 2026-06-29 11:19 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.minike.top/Article/details/5205190.shtml)
+- 2026-06-29 11:00 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/30777139.shtml)
+- 2026-06-29 11:15 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.minike.top/Article/details/807763701438.shtml)
+- 2026-06-29 11:23 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.minike.top/Article/details/122267.shtml)
+- 2026-06-29 11:02 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.minike.top/Article/details/381098470.shtml)
+- 2026-06-29 11:27 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.kurohicncr.top/Article/details/24090956.shtml)
+- 2026-06-29 11:02 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:15 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.blog.minike.top/Article/details/691992399662.shtml)
+- 2026-06-29 11:03 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.kurohicncr.top/Article/details/28573311553.shtml)
+- 2026-06-29 11:06 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.blog.minike.top/Article/details/8893304.shtml)
+- 2026-06-29 11:28 - [光大期货：6月5日金融日报](https://github.com/lisacumin64-arch)

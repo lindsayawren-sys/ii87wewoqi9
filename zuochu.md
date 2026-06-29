@@ -1,57 +1,56 @@
-# 深圳市中小微外贸企业数字化服务生态2.0发布
+# 外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月20日电 (记者 索有为)“共筑新生态，赋能新未来”——深圳市中小微外贸企业数字化服务生态2.0发布会暨暖企“五送”行动启动会20日在深圳举行，释放出深圳以制度创新与服务升级支撑外贸高质量发展的明确信号。 该活动由深圳市商务局指导，中国出口信用保险公司深圳分公司主办(下称“中国信保深圳分公司”)。深圳市商务局、国家金融监督管理总局深圳监管局、国家外汇管理局深圳市分
+发布时间：2026年06月05日 20:24 来源：中国新闻网 6月5日，中国公共外交协会在北京举办“共建中拉命运共同体五大工程一周年：实践与展望”主题“临甲7号沙龙”。外交部拉美司司长张润在活动中发言时表示，面对当前复杂多变的国际形势，中方推进中拉关系的意愿不会改变，实现共同发展的决心不会改变，共同推进“南南合作”的目标不会改变。需要指出的是，中拉关系只有互利共赢，没有地缘算
 
 ## 正文
 
-中新网深圳4月20日电 (记者 索有为)“共筑新生态，赋能新未来”——深圳市中小微外贸企业数字化服务生态2.0发布会暨暖企“五送”行动启动会20日在深圳举行，释放出深圳以制度创新与服务升级支撑外贸高质量发展的明确信号。
+发布时间：2026年06月05日 20:24 来源：中国新闻网 6月5日，中国公共外交协会在北京举办“共建中拉命运共同体五大工程一周年：实践与展望”主题“临甲7号沙龙”。
 
-该活动由深圳市商务局指导，中国出口信用保险公司深圳分公司主办(下称“中国信保深圳分公司”)。
+外交部拉美司司长张润在活动中发言时表示，面对当前复杂多变的国际形势，中方推进中拉关系的意愿不会改变，实现共同发展的决心不会改变，共同推进“南南合作”的目标不会改变。
 
-深圳市商务局、国家金融监督管理总局深圳监管局、国家外汇管理局深圳市分局、深圳市财政局等单位代表以及超120家中小微外贸企业代表参会。
+需要指出的是，中拉关系只有互利共赢，没有地缘算计，不针对第三方，也不应受第三方干扰。
 
-深圳市商务局党组成员、副局长池卫国在致辞中表示，深圳市商务局2020年与中国信保深圳分公司紧密协作，推出“深圳版”中小微企业出口信用保险“大统保”政策，创新实行“政府统一投保，企业免费享受”承保模式。
+拉美国家走什么道路，要由拉美人民自己选择，与谁交朋友，要由拉美国家自己决定。
 
-截至目前，该政策年支持企业数量由1万家增至2.4万家，累计惠及企业超13万家次，为企业规避海外风险，拓展国际市场提供了坚实支撑。
+中方主张和平解决国际争端和热点问题，反对动辄诉诸武力或以武力相威胁，反对外部势力以任何借口干涉拉美和加勒比国家内政。
 
-据了解，深圳市商务局联合中国信保深圳分公司对中小微外贸企业服务进行优化升级，发布“加强政策性出口信用保险支持外贸17条举措”，推出数字化服务生态2.0版本。
+中方坚决反对美国对古巴封锁制裁，将继续坚定支持古巴人民走符合本国国情的发展道路，反对外来干涉和封锁。
 
-此次发布的数字化服务生态2.0，聚焦“信用赋能”与“生态链接”，在三个维度发挥关键节点作用：一是做中小微企业海外发展全生命周期的赋能者，为处于“走出去”阶段的中小企业，重点提供“海外投资布局、本地化营销、境内外供应链服务链畅通”等服务；二是做产业链信用价值的“挖掘者”，进一步贯通中小微企业海外销售与国内采购之间的贸易信用融资流；三是做中小微企业“出海”生态新优势的“搭建者”，为广大中小微外贸企业搭建开放多元的服务优势资源精准直联平台——去中间化、降成本、提质增效，推动“跨境服务业+中小微外贸制造业”双向融合。
-
-中国信保深圳分公司党委书记、总经理向宇在致辞中表示，通过“政信银企”协同机制，同步启动暖企“五送”行动，下基层走企业，把今年服务外贸的最新“帮扶政策、金融措施”等组合拳，精准送达企业一线。
+(记者 谢龙飞 制作 侯诗蕊） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:01 - [向日葵2025年净亏损438.48万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:12 - [肖捷会见欧洲议会副议长奥马吉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:07 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 10:59 - [浙江绍兴：校内旧书市集共享阅读乐趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:07 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:06 - [重庆法院2025年新收各类知识产权案件14438件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:02 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:00 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 10:59 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:08 - [美国能源部预计汽油成本居高不下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:25 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:15 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:08 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:19 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:12 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:25 - [光大期货：6月5日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:09 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:25 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:08 - [3分钟，垂直涨停！封单超6万手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:03 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:17 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:03 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:09 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](http://www.share.minike.top/Article/details/39567.shtml)
-- 2026-06-29 11:07 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [菲律宾一客车坠谷致2死39伤](http://www.blog.minike.top/Article/details/39954039.shtml)
-- 2026-06-29 11:25 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.share.minike.top/Article/details/1123071887.shtml)
-- 2026-06-29 11:24 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](http://www.blog.minike.top/Article/details/95994033.shtml)
-- 2026-06-29 10:58 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.share.kurohicncr.top/Article/details/41919571.shtml)
-- 2026-06-29 11:05 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/78460470903.shtml)
-- 2026-06-29 11:03 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](http://www.blog.minike.top/Article/details/447353562.shtml)
-- 2026-06-29 11:09 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](http://www.share.minike.top/Article/details/60000555667.shtml)
-- 2026-06-29 11:17 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.blog.minike.top/Article/details/7952169.shtml)
-- 2026-06-29 11:12 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.share.minike.top/Article/details/8672501.shtml)
-- 2026-06-29 11:17 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](http://www.blog.minike.top/Article/details/43906.shtml)
-- 2026-06-29 11:15 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](http://www.blog.minike.top/Article/details/180493.shtml)
+- 2026-06-29 11:19 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.blog.kurohicncr.top/Article/details/471037.shtml)
+- 2026-06-29 11:08 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.share.kurohicncr.top/Article/details/60299.shtml)
+- 2026-06-29 11:03 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.blog.minike.top/Article/details/70783797190.shtml)
+- 2026-06-29 11:19 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.share.kurohicncr.top/Article/details/75070.shtml)
+- 2026-06-29 11:07 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](http://www.share.kurohicncr.top/Article/details/091335.shtml)
+- 2026-06-29 11:26 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](http://www.blog.minike.top/Article/details/1953614.shtml)
+- 2026-06-29 11:10 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](http://www.share.kurohicncr.top/Article/details/3210298.shtml)
+- 2026-06-29 11:01 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](http://www.blog.minike.top/Article/details/38774.shtml)
+- 2026-06-29 11:11 - [读懂中国是福山们的必修课](http://www.share.kurohicncr.top/Article/details/160849466.shtml)
+- 2026-06-29 11:03 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](http://www.blog.kurohicncr.top/Article/details/948145412.shtml)
+- 2026-06-29 11:23 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.share.kurohicncr.top/Article/details/366814.shtml)
+- 2026-06-29 11:18 - [美国债市：国债全线上涨 油价下跌提供支撑](http://www.share.kurohicncr.top/Article/details/868343780.shtml)
+- 2026-06-29 11:09 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](http://www.blog.minike.top/Article/details/312107.shtml)

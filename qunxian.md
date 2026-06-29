@@ -1,61 +1,57 @@
-# 艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办
+# 瑞梅铁路梅江特大桥中跨顺利合龙
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月20日电 德国艺术家乌拉·冯·勃兰登堡在中国的首次大型机构个展“温柔地步入蓝色戏法的良夜”，日前在深圳海上世界文化艺术中心启幕。 作为国际当代艺术领域的重要人物，乌拉·冯·勃兰登堡的创作涵盖装置、影像、绘画、表演等多种媒介，并长期围绕剧场、仪式、色彩与历史叙事等核心议题展开。本展览旨在为观众呈现冯·勃兰登堡的代表性场域特定装置及影像作品、棉布及纸本上绘画作品，以及
+中新网广州6月5日电 (记者 郭军)6月5日凌晨，随着最后一方混凝土精准入模、振捣密实，由中国铁路广州局集团深圳工程建设指挥部负责建设、中铁十五局集团承建施工的瑞梅铁路梅江特大桥中跨顺利合龙，标志着大桥建设正式进入附属工程阶段，为瑞梅铁路全线如期建成通车筑牢关键根基。 梅江特大桥是瑞梅铁路广东段控制性工程，为瑞梅铁路与龙龙高铁共桥位合建的三线铁路桥。桥梁全长929.826米，中
 
 ## 正文
 
-中新网深圳4月20日电 德国艺术家乌拉·冯·勃兰登堡在中国的首次大型机构个展“温柔地步入蓝色戏法的良夜”，日前在深圳海上世界文化艺术中心启幕。
+中新网广州6月5日电 (记者 郭军)6月5日凌晨，随着最后一方混凝土精准入模、振捣密实，由中国铁路广州局集团深圳工程建设指挥部负责建设、中铁十五局集团承建施工的瑞梅铁路梅江特大桥中跨顺利合龙，标志着大桥建设正式进入附属工程阶段，为瑞梅铁路全线如期建成通车筑牢关键根基。
 
-作为国际当代艺术领域的重要人物，乌拉·冯·勃兰登堡的创作涵盖装置、影像、绘画、表演等多种媒介，并长期围绕剧场、仪式、色彩与历史叙事等核心议题展开。
+梅江特大桥是瑞梅铁路广东段控制性工程，为瑞梅铁路与龙龙高铁共桥位合建的三线铁路桥。
 
-本展览旨在为观众呈现冯·勃兰登堡的代表性场域特定装置及影像作品、棉布及纸本上绘画作品，以及多样化概念雕塑和物件。
+桥梁全长929.826米，中跨160米，采用(88+160+88)米预应力混凝土连续梁，挂篮悬臂浇筑法施工，是目前粤东地区在建跨度最大的铁路连续梁桥之一。
 
-作为乌拉·冯·勃兰登堡在中国机构的首次大型个展，展出作品共计25组/件，创作年份跨越15年。
+中跨合龙是连续梁施工的核心关键工序，对梁体线形、结构应力、合龙精度有着极高要求。
 
-展览亮点包括其创作于2011年的大型场域特定装置《幕布》，该作品由七幅手绘织物构成，以建筑般的尺度介入展厅，将空间转化为一个可穿行的剧场布景。
+面对诸多施工难点，各参建单位协同发力、科学施策。
 
-另一件2025年的影像新作《由红至绿，所有黄色褪去》也于其间展出。
+项目团队联合多方专家反复研讨，优化挂篮施工及合龙专项方案，确定低温时段合龙、劲性骨架锁定、分级预应力张拉等标准化作业流程。
 
-此次展览标题“温柔地步入蓝色戏法的良夜”，引自英国诗人狄兰·托马斯的诗歌作品《不要温和地走入那个良夜》。
+依托自动化监测设备24小时追踪梁体温度、形变与应力数据，多次复测梁端高程、轴线位置，严格落实质量“三检制”，将施工误差严控在5毫米以内，全流程严守安全、质量底线，保障合龙作业平稳推进。
 
-据介绍，为深化展览体验，展期内还将策划系列演出、讲座及工作坊等公共活动。
+梅江特大桥中跨合龙，打通了全线架梁运输的关键通道，是项目建设取得的重大里程碑成果。
 
 ## 相关推荐
 
-- 2026-06-29 11:01 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:13 - [新华微评：方块字何以走向全世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:04 - [矽电股份2025年度归母净利润约5283万元 同比下降42.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:04 - [2026北京车展前瞻：双馆扩容，新旧交锋，供应链争夺话语权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:03 - [第十三批在韩中国人民志愿军烈士遗骸即将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:13 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:02 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 10:58 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:21 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:18 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:18 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:09 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:16 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:00 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:26 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:29 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:01 - [天原股份：公司不存在资金链风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:24 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:00 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:16 - [中新健康｜芒种养生，重在健脾化湿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:26 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:14 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:16 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:19 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:00 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:13 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:00 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [亚盛医药-B授出受限制股份单位及购股权](http://www.share.kurohicncr.top/Article/details/9490246486.shtml)
-- 2026-06-29 11:18 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/130701.shtml)
-- 2026-06-29 11:04 - [正泰电源这一股东陆续减持退出](http://www.share.kurohicncr.top/Article/details/59275670070.shtml)
-- 2026-06-29 11:08 - [301486，20%直线涨停！](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](http://www.share.kurohicncr.top/Article/details/1505011.shtml)
-- 2026-06-29 11:24 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/6156861199.shtml)
-- 2026-06-29 11:16 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](http://www.blog.kurohicncr.top/Article/details/961684712554.shtml)
-- 2026-06-29 11:19 - [大湾区建设持续发力 三地居民共享政策红利](http://www.blog.minike.top/Article/details/19928480183.shtml)
-- 2026-06-29 11:14 - [从云端到长安 中外少年携手共筑文化桥梁](http://www.share.minike.top/Article/details/53174.shtml)
-- 2026-06-29 11:22 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.blog.minike.top/Article/details/5244627.shtml)
-- 2026-06-29 10:57 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [特朗普称最终将达成重大协议](http://www.share.minike.top/Article/details/0647203.shtml)
+- 2026-06-29 11:21 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](http://www.blog.minike.top/Article/details/0698865.shtml)
+- 2026-06-29 11:18 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](http://www.blog.minike.top/Article/details/412488.shtml)
+- 2026-06-29 11:03 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.share.kurohicncr.top/Article/details/6535162388.shtml)
+- 2026-06-29 11:01 - [王宏岩中再产险副总经理的任职资格获监管核准](http://www.share.minike.top/Article/details/406968640941.shtml)
+- 2026-06-29 11:25 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](http://www.share.kurohicncr.top/Article/details/2114118.shtml)
+- 2026-06-29 11:01 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](http://www.blog.minike.top/Article/details/5175485057.shtml)
+- 2026-06-29 11:09 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.blog.minike.top/Article/details/11101706564.shtml)
+- 2026-06-29 11:22 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [全国小麦收获有序推进 已近五成](http://www.share.kurohicncr.top/Article/details/22766.shtml)
+- 2026-06-29 11:15 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.blog.kurohicncr.top/Article/details/8644242.shtml)
+- 2026-06-29 11:20 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.blog.minike.top/Article/details/2304906.shtml)
+- 2026-06-29 11:09 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](http://www.blog.minike.top/Article/details/9186312515.shtml)

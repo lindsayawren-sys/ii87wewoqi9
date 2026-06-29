@@ -1,57 +1,49 @@
-# 中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程
+# 湖南省人大常委会原党组成员、副主任叶红专被开除党籍
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信建投证券研究 文|许琳 朱玥 薛鹭 2026年碳酸锂涨价预期兑现，钠电经济性优势逐步显现。我们预计头部钠电厂商2026年年底有望实现锂钠平价，2027年钠电将开启平价放量时代。大型储能为钠电商业化主战场，海外业主愿意支付安全溢价，海外储能电站将率先放量。中期钠电池将凭借低温性能、安全性等优势在动力领域获
+中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对湖南省人大常委会原党组成员、副主任叶红专严重违纪违法问题进行了立案审查调查。 经查，叶红专丧失理想信念，背弃初心使命，政绩观严重偏差，违规举债，搞“形象工程”“政绩工程”，对抗组织审查；违反中央八项规定精神，违规接受宴请，将应当由本人支付的费用由他人支付；违反组织原则，不按规定报告个人有关事项，在干
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对湖南省人大常委会原党组成员、副主任叶红专严重违纪违法问题进行了立案审查调查。
 
-中信建投证券研究 文|许琳 朱玥 薛鹭 2026年碳酸锂涨价预期兑现，钠电经济性优势逐步显现。
+经查，叶红专丧失理想信念，背弃初心使命，政绩观严重偏差，违规举债，搞“形象工程”“政绩工程”，对抗组织审查；违反中央八项规定精神，违规接受宴请，将应当由本人支付的费用由他人支付；违反组织原则，不按规定报告个人有关事项，在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失守，违规收受礼金，通过民间借贷获取大额回报，利用职权为亲属的经营活动谋取利益；不正确履职，给国家造成巨额经济损失；将党和人民赋予的公权力异化为谋取私利的工具，大肆收钱敛财，利用职务便利为他人在项目承揽、款项拨付等方面谋利，并非法收受巨额财物。
 
-我们预计头部钠电厂商2026年年底有望实现锂钠平价，2027年钠电将开启平价放量时代。
+叶红专严重违反党的政治纪律、组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-大型储能为钠电商业化主战场，海外业主愿意支付安全溢价，海外储能电站将率先放量。
-
-中期钠电池将凭借低温性能、安全性等优势在动力领域获得一席之地。
-
-我们预计钠电池2030年市场需求有望达500GWh。
-
-重视钠电产业化放量机会，优先布局电池、铝箔环节。
-
-碳酸锂涨价预期叠加钠电降本，27年钠电进入平价放量时代。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予叶红专开除党籍处分；按规定取消其享受的待遇；终止其湖南省第十二次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 11:15 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:03 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:07 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:18 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:19 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:17 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:00 - [伊朗航空宣布自4月22日起恢复国内航班运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:22 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:23 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:21 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:04 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:21 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:12 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:07 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:10 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:14 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:03 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:09 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:13 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:24 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:07 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:09 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:00 - [合并助力建筑公司CannonDesign实现全球布局](http://www.blog.kurohicncr.top/Article/details/890486.shtml)
-- 2026-06-29 11:00 - [首届中非企业家高端论坛在非盟总部举行](http://www.share.minike.top/Article/details/17383254.shtml)
-- 2026-06-29 10:59 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](http://www.share.minike.top/Article/details/8998793144.shtml)
-- 2026-06-29 11:15 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](http://www.blog.minike.top/Article/details/381242.shtml)
-- 2026-06-29 10:59 - [巴黎检方：马斯克缺席传唤](http://www.share.kurohicncr.top/Article/details/47776225058.shtml)
-- 2026-06-29 11:12 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](http://www.blog.kurohicncr.top/Article/details/505966.shtml)
-- 2026-06-29 11:23 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](http://www.blog.minike.top/Article/details/21455797.shtml)
-- 2026-06-29 11:15 - [猪价反弹底部确认，政策释放“稳价”信号](http://www.share.kurohicncr.top/Article/details/6596343.shtml)
-- 2026-06-29 11:06 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](http://www.blog.kurohicncr.top/Article/details/9120082683.shtml)
-- 2026-06-29 11:03 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](http://www.blog.kurohicncr.top/Article/details/836936415847.shtml)
-- 2026-06-29 11:05 - [全国首创知识产权代理跨境联营新机制在穗发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.share.kurohicncr.top/Article/details/9788150.shtml)
-- 2026-06-29 11:18 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/723006205503.shtml)
+- 2026-06-29 11:00 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.share.minike.top/Article/details/2144784.shtml)
+- 2026-06-29 11:27 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.share.minike.top/Article/details/8700086.shtml)
+- 2026-06-29 11:03 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.blog.minike.top/Article/details/35355.shtml)
+- 2026-06-29 11:06 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.share.kurohicncr.top/Article/details/82529756772.shtml)
+- 2026-06-29 11:29 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.minike.top/Article/details/3543075654.shtml)
+- 2026-06-29 11:23 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.share.kurohicncr.top/Article/details/72274.shtml)
+- 2026-06-29 11:17 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](http://www.blog.kurohicncr.top/Article/details/385875.shtml)
+- 2026-06-29 11:08 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.share.minike.top/Article/details/996356863392.shtml)
+- 2026-06-29 11:14 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.blog.minike.top/Article/details/770590.shtml)

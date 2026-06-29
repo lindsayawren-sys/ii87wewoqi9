@@ -1,46 +1,51 @@
-# 苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%
+# 特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-4月21日，苑东生物(688513.SH)发布公告显示，该公司2026年第一季度实现营业收入3.26亿元，较上年同期增长6.75%；归属于上市公司股东的净利润为5083.10万元，同比下降16.11%。业绩变动主要系报告期销售回款增加及其他与经营活动有关的款项支付减少所致。（央广财经）（文章来源：央广财经）
+美国总统唐纳德·特朗普表示，美伊协议的主要内容是伊朗不得拥有核武器，以及霍尔木兹海峡将立即开放。 特朗普在白宫对记者表示。 他还表示，美国将取得胜利，无论是通过协议文本还是通过军事手段。 原责任编辑：江学思
 
 ## 正文
 
-4月21日，苑东生物(688513.SH)发布公告显示，该公司2026年第一季度实现营业收入3.26亿元，较上年同期增长6.75%；归属于上市公司股东的净利润为5083.10万元，同比下降16.11%。
+美国总统唐纳德·特朗普表示，美伊协议的主要内容是伊朗不得拥有核武器，以及霍尔木兹海峡将立即开放。
 
-业绩变动主要系报告期销售回款增加及其他与经营活动有关的款项支付减少所致。
+特朗普在白宫对记者表示。
 
-（央广财经）（文章来源：央广财经）
+他还表示，美国将取得胜利，无论是通过协议文本还是通过军事手段。
+
+原责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:24 - [国台办回应赖清德取消窜访非洲计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 10:59 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:18 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:11 - [苹果宣布换帅，多家“果链”企业开盘下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:05 - [青海法院知识产权司法保护提质增效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:25 - [央行都在囤黄金，对普通投资者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:22 - [行业机构称：特斯拉在加州注册量大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:09 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:11 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:06 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:02 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:01 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:21 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:24 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:12 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:27 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:24 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:27 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:11 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:28 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:14 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:20 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:59 - [工信部：一季度中国规模以上工业增加值同比增长6.1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [泰国东部经济走廊与广东企业签署合作备忘录](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](http://www.blog.minike.top/Article/details/22914756747.shtml)
-- 2026-06-29 11:20 - [特朗普：希望有人收购陷入困境的精神航空公司](http://www.blog.kurohicncr.top/Article/details/909727.shtml)
-- 2026-06-29 11:25 - [春季脱发高发 专家提醒警惕脏腑失衡隐患](http://www.blog.minike.top/Article/details/96600.shtml)
-- 2026-06-29 11:17 - [高盛任命金融科技银行家Gido担任金融机构组主席](http://www.blog.kurohicncr.top/Article/details/16208160.shtml)
-- 2026-06-29 11:06 - [特朗普称最终将达成重大协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](http://www.share.minike.top/Article/details/87110518053.shtml)
-- 2026-06-29 11:01 - [亚盛医药-B多项研究入选2026年ASCO](http://www.blog.minike.top/Article/details/65615695.shtml)
-- 2026-06-29 11:03 - [合并助力建筑公司CannonDesign实现全球布局](http://www.blog.kurohicncr.top/Article/details/236494909037.shtml)
-- 2026-06-29 11:15 - [首届中非企业家高端论坛在非盟总部举行](http://www.share.kurohicncr.top/Article/details/2882161.shtml)
-- 2026-06-29 11:21 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](http://www.blog.kurohicncr.top/Article/details/78763489.shtml)
-- 2026-06-29 10:57 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/9815895205.shtml)
-- 2026-06-29 11:16 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](http://www.blog.kurohicncr.top/Article/details/6313167874.shtml)
-- 2026-06-29 11:23 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](http://www.share.kurohicncr.top/Article/details/57377142.shtml)
+- 2026-06-29 11:16 - [西陇科学：公司及控股子公司均不存在逾期担保情况](http://www.blog.kurohicncr.top/Article/details/694764550344.shtml)
+- 2026-06-29 11:12 - [铁路端午假期运输首日火车票今日起售](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](http://www.share.kurohicncr.top/Article/details/1216982.shtml)
+- 2026-06-29 11:28 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](http://www.share.kurohicncr.top/Article/details/954671693799.shtml)
+- 2026-06-29 11:21 - [威龙股份首季业绩承压，亏损幅度有所扩大](http://www.share.minike.top/Article/details/206833.shtml)
+- 2026-06-29 11:27 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](http://www.blog.kurohicncr.top/Article/details/668072.shtml)
+- 2026-06-29 11:05 - [CBCX:金价回稳关注利率线索](http://www.blog.minike.top/Article/details/037983274813.shtml)
+- 2026-06-29 11:15 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.share.minike.top/Article/details/131013187.shtml)
+- 2026-06-29 11:03 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](http://www.share.kurohicncr.top/Article/details/279299079096.shtml)
+- 2026-06-29 11:26 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.share.minike.top/Article/details/7369032933.shtml)
+- 2026-06-29 11:26 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.blog.kurohicncr.top/Article/details/55087502.shtml)
+- 2026-06-29 11:18 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.share.kurohicncr.top/Article/details/64899.shtml)
+- 2026-06-29 11:15 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.kurohicncr.top/Article/details/33079134207.shtml)
+- 2026-06-29 11:28 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.blog.kurohicncr.top/Article/details/487498.shtml)
+- 2026-06-29 11:07 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.minike.top/Article/details/26446.shtml)

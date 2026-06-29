@@ -1,59 +1,60 @@
-# 知名作家齐聚江西南昌 共绘长征精神文学地图
+# 美债市场“野兽”咆哮回归 凸性对冲恐加剧波动
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月20日电 (熊锦阳)4月20日，第五届全民阅读大会“文学浸万家——重读文学经典”活动在江西省南昌市红谷滩区举行。多位当代著名作家、学者齐聚“英雄城”，共绘长征精神文学地图。 作为首个全国“全民阅读活动周”的重要组成部分，此次活动以文学为桥，推动经典走进大众，助力书香中国建设，同时结合红军长征胜利90周年，深挖红色文学内涵，传承红色基因。 “阅读是一个民族的长久功课
+上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。 当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。 对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。这种策略被
 
 ## 正文
 
-中新网南昌4月20日电 (熊锦阳)4月20日，第五届全民阅读大会“文学浸万家——重读文学经典”活动在江西省南昌市红谷滩区举行。
+上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。
 
-多位当代著名作家、学者齐聚“英雄城”，共绘长征精神文学地图。
+当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。
 
-作为首个全国“全民阅读活动周”的重要组成部分，此次活动以文学为桥，推动经典走进大众，助力书香中国建设，同时结合红军长征胜利90周年，深挖红色文学内涵，传承红色基因。
+对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。
 
-“阅读是一个民族的长久功课，文学经典则是精神家园最坚实的基石。
+这种策略被称为凸性对冲。
 
-”中国作协党组书记、主席张宏森表示，在《全民阅读促进条例》正式实施之年，中国作协将锚定文化强国建设目标，深入实施“新时代山乡巨变创作计划”“新时代文学攀登计划”，持续开展文学惠民活动，推动优质文学资源直达基层，让“爱读书、读好书、善读书”成为全民生活常态。
+“这可是件大事，”他说。
 
-活动现场氛围浓厚，名家云集、干货满满。
+“我们很长一段时间都没讨论过它了。
 
-作家何建明作为代表发言，分享了文学创作与全民阅读的深度关联；阿来、彭学明、祝勇、蔡崇达四位作家分别以《阅读：发现不同的自己》《文学滋养的人生》《经典的召唤》《走向人心深处的努力》为题，结合自身创作经历，畅谈阅读对个人成长、文学创作的深远影响，引发现场读者共鸣。
+” 这种策略的复兴势头正逐渐增强，有可能给31万亿美元美债市场注入新的波动性。
 
-结合红军长征胜利90周年，活动特别设置红色阅读推广环节。
+受中东动荡局势、美联储领导层更换、政府债务激增以及人工智能投资热潮（通过大量发行新债进行融资）影响，美债市场本已饱受冲击。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [峇峇娘惹寻根原乡 赓续文脉共话交融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 10:58 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:07 - [交通运输部：一季度完成跨区域人员流动量177.7亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:11 - [碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:18 - [外资“盯上”A股，哪类资产受青睐？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 10:58 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:03 - [亚盛医药-B授出受限制股份单位及购股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:12 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:00 - [正泰电源这一股东陆续减持退出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:09 - [301486，20%直线涨停！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:23 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:00 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:16 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:00 - [国泰海通90亿增资国际子公司，头部券商竞速出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:25 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:28 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:16 - [印度1—3月经济同比增速达7.8%，表现超市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:03 - [桦欣控股公布将于6月5日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:16 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:13 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:12 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:13 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:22 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:30 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:06 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:28 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:11 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.share.minike.top/Article/details/6963600996.shtml)
-- 2026-06-29 11:24 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](http://www.share.minike.top/Article/details/76948509767.shtml)
-- 2026-06-29 11:09 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.blog.kurohicncr.top/Article/details/275601495787.shtml)
-- 2026-06-29 11:14 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](http://www.blog.minike.top/Article/details/340814111939.shtml)
-- 2026-06-29 11:17 - [花旗：裕元集团给予“买入”评级 目标价21港元](http://www.share.kurohicncr.top/Article/details/1460346.shtml)
-- 2026-06-29 11:02 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [国台办回应赖清德取消窜访非洲计划](http://www.share.kurohicncr.top/Article/details/135565667.shtml)
-- 2026-06-29 11:17 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](http://www.blog.minike.top/Article/details/64931.shtml)
-- 2026-06-29 11:05 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](http://www.blog.minike.top/Article/details/262881350.shtml)
-- 2026-06-29 11:13 - [苹果宣布换帅，多家“果链”企业开盘下跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [青海法院知识产权司法保护提质增效](http://www.share.minike.top/Article/details/2757731688.shtml)
-- 2026-06-29 11:20 - [央行都在囤黄金，对普通投资者意味着什么？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](http://www.share.minike.top/Article/details/53956.shtml)
+- 2026-06-29 11:08 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/67261.shtml)
+- 2026-06-29 11:20 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](http://www.share.minike.top/Article/details/001892613.shtml)
+- 2026-06-29 11:23 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](http://www.blog.minike.top/Article/details/7096289211.shtml)
+- 2026-06-29 11:02 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [韩国股市一度重挫5% 芯片股随美国同业下滑](http://www.blog.minike.top/Article/details/1754878177.shtml)
+- 2026-06-29 11:05 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](http://www.blog.kurohicncr.top/Article/details/024847133.shtml)
+- 2026-06-29 11:10 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](http://www.share.kurohicncr.top/Article/details/93182424539.shtml)
+- 2026-06-29 11:22 - [渤海银行：凌颖杰董事的任职资格已获核准](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:14 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](http://www.blog.minike.top/Article/details/619766.shtml)
+- 2026-06-29 11:25 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](http://www.blog.minike.top/Article/details/8604243439.shtml)
+- 2026-06-29 11:24 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.blog.kurohicncr.top/Article/details/9199385602.shtml)
+- 2026-06-29 11:05 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](http://www.blog.minike.top/Article/details/7117978590.shtml)
+- 2026-06-29 11:05 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.blog.minike.top/Article/details/87411438371.shtml)

@@ -1,55 +1,57 @@
-# 港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年
+# ST星农大宗交易成交203.00万元
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-4月21日消息，港股航空股持续反弹，其中，中国东方航空涨超3%，美兰空港涨超2%，国泰航空、北京首都机场涨超1%。 消息上，央视财经从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。“五一”假期期间（5月1日至5日），国际客运航班计划增长5.5%。目前国内至东南亚的核心干线，如飞往曼谷、新加坡、吉隆坡、金边等主要城市的航班，全部保持正常通航，基础班次
+ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。证券时报·数据宝统计显示
 
 ## 正文
 
-4月21日消息，港股航空股持续反弹，其中，中国东方航空涨超3%，美兰空港涨超2%，国泰航空、北京首都机场涨超1%。
+ST星农（维权）6月5日大宗交易平台出现一笔成交，成交量35.00万股，成交金额203.00万元，大宗交易成交价为5.80元，相对今日收盘价溢价1.58%。
 
-消息上，央视财经从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。
+该笔交易的买方营业部为浙商证券股份有限公司德清余英坊证券营业部，卖方营业部为广发证券股份有限公司湖州高富路证券营业部。
 
-“五一”假期期间（5月1日至5日），国际客运航班计划增长5.5%。
+进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为1010.10万元。
 
-目前国内至东南亚的核心干线，如飞往曼谷、新加坡、吉隆坡、金边等主要城市的航班，全部保持正常通航，基础班次稳定，部分小众旅游城市、低密度支线航线做了阶段性减班。
+证券时报·数据宝统计显示，ST星农今日收盘价为5.71元，下跌1.55%，日换手率为1.61%，成交额为2437.87万元，全天主力资金净流出54.47万元，近5日该股累计上涨2.51%，近5日资金合计净流出632.32万元。
 
-同时，从多家航空公司了解到，目前“五一”假期期间航班量与去年相比保持增长。
+两融数据显示，该股最新融资余额为1863.16万元，近5日增加16.12万元，增幅为0.87%。
 
-国海证券分析指出，4月票价跳涨，裸票价实现同比增长，改善逐渐兑现，或能有效对冲部分油价上行风险。
+据天眼查APP显示，星光农机股份有限公司成立于2004年02月25日，注册资本26521.46万人民币。
 
-责任编辑：郝欣煜
+（数据宝）6月5日ST星农大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:09 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:03 - [新华微评：方块字何以走向全世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:07 - [矽电股份2025年度归母净利润约5283万元 同比下降42.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:08 - [2026北京车展前瞻：双馆扩容，新旧交锋，供应链争夺话语权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:27 - [第十三批在韩中国人民志愿军烈士遗骸即将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:00 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:12 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 10:57 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:21 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:25 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:24 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:12 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:11 - [天原股份：公司不存在资金链风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:13 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:22 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:11 - [中新健康｜芒种养生，重在健脾化湿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:17 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:27 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:28 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:14 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:18 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:08 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:29 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [外资“盯上”A股，哪类资产受青睐？](http://www.blog.kurohicncr.top/Article/details/77640439928.shtml)
-- 2026-06-29 11:10 - [京津冀首个国家级都市圈启动一年来，变了什么？](http://www.blog.minike.top/Article/details/9090567641.shtml)
-- 2026-06-29 11:13 - [亚盛医药-B授出受限制股份单位及购股权](http://www.share.kurohicncr.top/Article/details/566748381.shtml)
-- 2026-06-29 11:07 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/86891025094.shtml)
-- 2026-06-29 11:21 - [正泰电源这一股东陆续减持退出](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [301486，20%直线涨停！](http://www.share.minike.top/Article/details/480041.shtml)
-- 2026-06-29 10:59 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](http://www.blog.kurohicncr.top/Article/details/0774743.shtml)
-- 2026-06-29 11:17 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](http://www.share.kurohicncr.top/Article/details/576995380.shtml)
-- 2026-06-29 10:59 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.blog.kurohicncr.top/Article/details/57486.shtml)
-- 2026-06-29 10:57 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/27881399.shtml)
-- 2026-06-29 10:57 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](http://www.blog.minike.top/Article/details/621926053526.shtml)
-- 2026-06-29 11:09 - [大湾区建设持续发力 三地居民共享政策红利](http://www.share.minike.top/Article/details/732324.shtml)
-- 2026-06-29 11:09 - [从云端到长安 中外少年携手共筑文化桥梁](http://www.share.minike.top/Article/details/129639815979.shtml)
-- 2026-06-29 11:22 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.blog.minike.top/Article/details/4187730768.shtml)
-- 2026-06-29 11:05 - [日经指数上涨0.9% 受电子和科技股带动](http://www.blog.minike.top/Article/details/439880.shtml)
+- 2026-06-29 11:14 - [桦欣控股公布将于6月5日上午起复牌](http://www.blog.minike.top/Article/details/50448110.shtml)
+- 2026-06-29 11:25 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](http://www.blog.minike.top/Article/details/09025136.shtml)
+- 2026-06-29 11:03 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](http://www.share.kurohicncr.top/Article/details/6818595.shtml)
+- 2026-06-29 11:20 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.blog.minike.top/Article/details/8041773541.shtml)
+- 2026-06-29 11:23 - [王宏岩中再产险副总经理的任职资格获监管核准](http://www.blog.minike.top/Article/details/088700.shtml)
+- 2026-06-29 11:22 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](http://www.share.minike.top/Article/details/579292873.shtml)
+- 2026-06-29 11:28 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.share.minike.top/Article/details/8363572772.shtml)
+- 2026-06-29 11:29 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.share.minike.top/Article/details/880355.shtml)
+- 2026-06-29 11:18 - [全国小麦收获有序推进 已近五成](http://www.share.kurohicncr.top/Article/details/36321132.shtml)
+- 2026-06-29 11:26 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.blog.minike.top/Article/details/9826265895.shtml)
+- 2026-06-29 11:27 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](http://www.share.kurohicncr.top/Article/details/09684234603.shtml)
+- 2026-06-29 11:00 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.minike.top/Article/details/74553886.shtml)
+- 2026-06-29 11:22 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.kurohicncr.top/Article/details/56402629772.shtml)

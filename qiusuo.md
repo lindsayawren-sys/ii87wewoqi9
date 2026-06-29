@@ -1,60 +1,49 @@
-# 从丝路古道到算力高地 甘肃擘画“AI”未来
+# 浙商银行：不再设置监事会
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网兰州4月20日电 (戴文昌)从驼铃悠悠的丝路古道，到算力澎湃的数字高地。甘肃依托国家“东数西算”战略布局，以智能科技赋能产业升级，全力打造西部数字经济创新发展高地，擘画AI发展新未来。 20日，2026年甘肃省人工智能产业创新发展大会在兰州举行。来自中国多个科研院所的专家学者，围绕AI气象应用、生成式AI、新型电力系统AI、具身智能操作系统等前沿领域分享研究成果，同步展示
+6月5日金融一线消息，浙商银行发布公告称，自2026年6月4日起，根据公司章程规定，不再设置监事会，由董事会审计委员会承接法律法规规定的监事会职权。 同时，监事会议事规则、监事会提名委员会议事规则和监事会监督委员会议事规则同步废止，公司各项规章制度中涉及监事会、监事的规定将不再适用。 责任编辑：秦艺
 
 ## 正文
 
-中新网兰州4月20日电 (戴文昌)从驼铃悠悠的丝路古道，到算力澎湃的数字高地。
+6月5日金融一线消息，浙商银行发布公告称，自2026年6月4日起，根据公司章程规定，不再设置监事会，由董事会审计委员会承接法律法规规定的监事会职权。
 
-甘肃依托国家“东数西算”战略布局，以智能科技赋能产业升级，全力打造西部数字经济创新发展高地，擘画AI发展新未来。
+同时，监事会议事规则、监事会提名委员会议事规则和监事会监督委员会议事规则同步废止，公司各项规章制度中涉及监事会、监事的规定将不再适用。
 
-20日，2026年甘肃省人工智能产业创新发展大会在兰州举行。
-
-来自中国多个科研院所的专家学者，围绕AI气象应用、生成式AI、新型电力系统AI、具身智能操作系统等前沿领域分享研究成果，同步展示AI优秀示范案例，助力甘肃数字经济高质量发展。
-
-“我们要把算力优势变成产业优势，把数据资源变成经济资源。
-
-”中国工程院院士、甘肃省气象学会理事长张强指出，甘肃具备清洁能源和算力资源双重优势，不应仅满足于“资源输出”，更要迈向“价值转化”。
-
-他建议立足本地生态与气象需求，打造特色气象大模型与新能源智能管理系统，让AI精准服务民生事业，将算力和数据资源转化为产业与经济优势。
-
-清华大学人工智能研究院常务副院长孙茂松提出差异化发展思路。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 11:03 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:16 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:22 - [一针“串”世界 25国外籍人士郑州话“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:22 - [“市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:16 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:21 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:16 - [好评中国丨硬核数据再上新，中国经济“春潮”迭起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:08 - [李家超橄榄球赛场“招商引资”：我们这里机遇无限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:19 - [百胜中国：4月20日起，肯德基糖醋酱、甜辣酱改为收费产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:26 - [酒价内参4月22日价格发布：古井贡古20上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:27 - [德国商业银行正式拒绝裕信银行敌意收购策略 收购战言辞交锋升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:15 - [习近平举行仪式欢迎莫桑比克总统查波访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:18 - [海军四川舰赴南海开展试验训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:05 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:08 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:19 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:25 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:21 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:04 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:25 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:22 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:21 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:28 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:23 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:07 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:00 - [特朗普：普尔特不会被正式任命为国家情报总监](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](http://www.share.kurohicncr.top/Article/details/29869.shtml)
-- 2026-06-29 11:10 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](http://www.share.kurohicncr.top/Article/details/19269.shtml)
-- 2026-06-29 11:01 - [邵艺辉：建议年轻人多阅读多写作](http://www.share.kurohicncr.top/Article/details/2598310.shtml)
-- 2026-06-29 11:08 - [600355，退市！不进入退市整理期！](http://www.blog.minike.top/Article/details/1462247.shtml)
-- 2026-06-29 11:16 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.minike.top/Article/details/7688960.shtml)
-- 2026-06-29 11:14 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.share.kurohicncr.top/Article/details/03881647133.shtml)
-- 2026-06-29 11:04 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.share.kurohicncr.top/Article/details/504694459.shtml)
-- 2026-06-29 11:01 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](http://www.share.minike.top/Article/details/0474222.shtml)
-- 2026-06-29 11:24 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](http://www.share.minike.top/Article/details/747351932.shtml)
-- 2026-06-29 10:59 - [标普A红利ETF华宝（562060）单日揽金超1.2亿元，业绩窗口期红利策略或持续占优！](http://www.share.kurohicncr.top/Article/details/1104474557.shtml)
-- 2026-06-29 11:07 - [600606，致歉！更正业绩预告，最多亏损265亿元！](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [胜宏科技首挂上市 早盘上涨51.71%](http://www.blog.kurohicncr.top/Article/details/52141.shtml)
-- 2026-06-29 11:05 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](http://www.blog.kurohicncr.top/Article/details/49197085266.shtml)
-- 2026-06-29 11:09 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.blog.kurohicncr.top/Article/details/36874.shtml)
-- 2026-06-29 11:02 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](http://www.blog.minike.top/Article/details/62740404.shtml)
+- 2026-06-29 11:21 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.minike.top/Article/details/331707.shtml)
+- 2026-06-29 11:04 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.kurohicncr.top/Article/details/54114.shtml)
+- 2026-06-29 11:13 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.share.kurohicncr.top/Article/details/84153755.shtml)
+- 2026-06-29 11:09 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.kurohicncr.top/Article/details/99506225.shtml)
+- 2026-06-29 11:14 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.blog.kurohicncr.top/Article/details/35700990.shtml)
+- 2026-06-29 11:00 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.minike.top/Article/details/077500655546.shtml)
+- 2026-06-29 11:27 - [精耕细作，童书消费步入品质时代](http://www.blog.minike.top/Article/details/784931.shtml)
+- 2026-06-29 11:01 - [ST星农大宗交易成交203.00万元](http://www.blog.kurohicncr.top/Article/details/220585117830.shtml)
+- 2026-06-29 11:15 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.minike.top/Article/details/097462916.shtml)
+- 2026-06-29 11:19 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.share.kurohicncr.top/Article/details/14635742.shtml)
+- 2026-06-29 11:20 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:00 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.share.kurohicncr.top/Article/details/30541.shtml)
+- 2026-06-29 11:15 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](http://www.share.minike.top/Article/details/331695315.shtml)
+- 2026-06-29 11:26 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.blog.kurohicncr.top/Article/details/22133792.shtml)
+- 2026-06-29 11:12 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.share.kurohicncr.top/Article/details/531532270884.shtml)

@@ -1,61 +1,60 @@
-# 我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气
+# 日本央行据悉考虑6月升息 日元汇率随之走强
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 据中央气象台网站消息，未来三天，南方地区有降雨过程，局地伴有强对流天气，关注对农业、交通等的影响，做好灾害防御；内蒙古东部、东北地区等地多大风天气，做好森林草原和城镇防火工作；渤海、黄海等海域风力较大，做好海上交通安全管理。 我国中东部有一次较大范围降水过程 21日至23日，受冷暖空气共同影响，我国中东部有一次较大范围降水过程。西南地区东部、江南大部和华南中
+据知情人士称，日本央行官员势将在本月考虑将基准利率上调0.25个百分点，并认为今年晚些时候有可能进一步加息一次。 知情人士说，日本央行可能在6月16日结束的政策会议上讨论将政策利率上调至1%。官员们还认为，鉴于实际利率仍然很低以及通胀持续面临上行风险，未来仍有进一步加息的空间。 鉴于中东局势高度不确定，官员们将在做出最终决定前，尽可能多地收集数据和信息，直至最后一刻。他们表示，
 
 ## 正文
 
-中新网4月21日电 据中央气象台网站消息，未来三天，南方地区有降雨过程，局地伴有强对流天气，关注对农业、交通等的影响，做好灾害防御；内蒙古东部、东北地区等地多大风天气，做好森林草原和城镇防火工作；渤海、黄海等海域风力较大，做好海上交通安全管理。
+据知情人士称，日本央行官员势将在本月考虑将基准利率上调0.25个百分点，并认为今年晚些时候有可能进一步加息一次。
 
-我国中东部有一次较大范围降水过程 21日至23日，受冷暖空气共同影响，我国中东部有一次较大范围降水过程。
+知情人士说，日本央行可能在6月16日结束的政策会议上讨论将政策利率上调至1%。
 
-西南地区东部、江南大部和华南中北部等地有大到暴雨，其中湖南南部和东部、江西中北部、广西北部和广东西北部等地局地大暴雨，并伴有强对流天气；西北地区东南部、黄淮、江淮等地部分地区有小到中雨，其中内蒙古东北部和黑龙江西北部等地部分地区有小到中雪或雨夹雪。
+官员们还认为，鉴于实际利率仍然很低以及通胀持续面临上行风险，未来仍有进一步加息的空间。
 
-预计，4月21日08时至22日08时，重庆东南部、贵州东部、湖南中南部、江西中北部、安徽南部、浙江西部和北部、上海南部、广西东北部等地部分地区有大到暴雨，其中，湖南中部、江西中部、广西东北部等地局地有大暴雨(100～140毫米)。
+鉴于中东局势高度不确定，官员们将在做出最终决定前，尽可能多地收集数据和信息，直至最后一刻。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
+他们表示，可能会有一些反对升息的声音，但不足以左右最终决定。
 
-中央气象台4月21日06时继续发布暴雨黄色预警。
+此次会议的另一重点将是日本央行缩减债券购买的最新计划。
 
-内蒙古和东北地区有大风天气 预计，4月21日08时至22日08时，内蒙古中东部、黑龙江中南部、吉林、辽宁以及新疆南疆盆地、西藏北部、青海西部等地部分地区有5～7级风，阵风8～9级，渤海北部海域、黄海北部海域将有7级、阵风8级的风。
+知情人士说，官员们认为从明年4月起，以目前的速度缩减央行债券购买规模的必要性降低。
 
-中央气象台4月21日06时继续发布大风蓝色预警。
+日本央行将于6月15日至16日召开会议决定政策走向。
 
 ## 相关推荐
 
-- 2026-06-29 11:00 - [浙江绍兴：校内旧书市集共享阅读乐趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:26 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:13 - [重庆法院2025年新收各类知识产权案件14438件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:01 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:26 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:13 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 10:59 - [美国能源部预计汽油成本居高不下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:12 - [知名作家齐聚江西南昌 共绘长征精神文学地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:13 - [突发！苹果官宣：库克9月卸任CEO，特努斯接任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:13 - [郑商所与波交所签署BPI授权协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:10 - [TGS延长美国海湾多年期海底节点采集合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:09 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:17 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:17 - [特朗普称Anthropic“表现良好”，愿与五角大楼达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:24 - [峇峇娘惹寻根原乡 赓续文脉共话交融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:03 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:19 - [光大期货：6月5日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:16 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:03 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:29 - [3分钟，垂直涨停！封单超6万手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:00 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:08 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:26 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:28 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:14 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:18 - [世赛新增项目，为啥是这7个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:04 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:08 - [上海市委统战部在黄浦区召开基层统战工作现场会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:24 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:13 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.kurohicncr.top/Article/details/9671830.shtml)
-- 2026-06-29 11:10 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](http://www.blog.kurohicncr.top/Article/details/581850127483.shtml)
-- 2026-06-29 11:25 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.blog.minike.top/Article/details/661280038.shtml)
-- 2026-06-29 11:16 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/78377365.shtml)
-- 2026-06-29 11:16 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](http://www.share.kurohicncr.top/Article/details/610412.shtml)
-- 2026-06-29 11:19 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.kurohicncr.top/Article/details/795936481524.shtml)
-- 2026-06-29 11:07 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.blog.minike.top/Article/details/594553362205.shtml)
-- 2026-06-29 11:21 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](http://www.blog.minike.top/Article/details/868876944413.shtml)
-- 2026-06-29 11:10 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](http://www.blog.minike.top/Article/details/261441124427.shtml)
-- 2026-06-29 11:11 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](http://www.share.minike.top/Article/details/3845119.shtml)
-- 2026-06-29 11:14 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](http://www.blog.kurohicncr.top/Article/details/3295332.shtml)
-- 2026-06-29 10:57 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](http://www.blog.kurohicncr.top/Article/details/32477514.shtml)
-- 2026-06-29 11:20 - [华泰期货：昨日20号胶大涨，不建议追高](http://www.share.minike.top/Article/details/8169562.shtml)
-- 2026-06-29 11:13 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.share.kurohicncr.top/Article/details/0716845.shtml)
+- 2026-06-29 11:29 - [美国制裁古巴国家主席 进一步加大施压力度](http://www.blog.kurohicncr.top/Article/details/7123724301.shtml)
+- 2026-06-29 11:16 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](http://www.blog.kurohicncr.top/Article/details/848256.shtml)
+- 2026-06-29 11:12 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](http://www.share.kurohicncr.top/Article/details/054593973.shtml)
+- 2026-06-29 11:20 - [中尼合资航司复航加德满都至深圳往返航线](http://www.blog.kurohicncr.top/Article/details/233870532.shtml)
+- 2026-06-29 11:22 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](http://www.share.minike.top/Article/details/75752.shtml)
+- 2026-06-29 11:21 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](http://www.blog.kurohicncr.top/Article/details/6177318821.shtml)
+- 2026-06-29 11:27 - [读懂中国是福山们的必修课](http://www.share.kurohicncr.top/Article/details/0624849.shtml)
+- 2026-06-29 11:18 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](http://www.share.kurohicncr.top/Article/details/663341.shtml)
+- 2026-06-29 11:13 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.blog.kurohicncr.top/Article/details/06201446512.shtml)
+- 2026-06-29 11:28 - [美国债市：国债全线上涨 油价下跌提供支撑](http://www.share.kurohicncr.top/Article/details/982087655739.shtml)
+- 2026-06-29 11:07 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](http://www.blog.minike.top/Article/details/1709592.shtml)
+- 2026-06-29 11:05 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [全国首张“无目的地海上游”出入境通行证在沪签发](http://www.share.kurohicncr.top/Article/details/654225.shtml)
+- 2026-06-29 11:08 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](http://www.blog.kurohicncr.top/Article/details/158690408.shtml)

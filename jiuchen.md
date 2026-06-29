@@ -1,61 +1,61 @@
-# 江西南昌：滕王阁下重温红色记忆 弘扬和传承长征精神
+# 博通财报暴雷：AI指引未达顶标，股价暴跌15%
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月20日电(卢梦梦)“让我们携起手来，共促全民阅读，共建书香社会！让长征精神，永放光芒……”20日下午，在位于江西省南昌市东湖区的滕王阁旅游区，洪亮而有力的诵读声从古戏台传来。 当天下午，由中国文学艺术界联合会(以下简称“中国文联”)主办，中国文联出版办、江西省文学艺术界联合会承办的中国文联红色经典诵读会在滕王阁旅游区古戏台举行。作为第五届全民阅读大会的子活动之一，
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。 美东时间6月3日盘后，博通公布了2026财年第二财季业绩。数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，
 
 ## 正文
 
-中新网南昌4月20日电(卢梦梦)“让我们携起手来，共促全民阅读，共建书香社会！
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。
 
-让长征精神，永放光芒……”20日下午，在位于江西省南昌市东湖区的滕王阁旅游区，洪亮而有力的诵读声从古戏台传来。
+美东时间6月3日盘后，博通公布了2026财年第二财季业绩。
 
-当天下午，由中国文学艺术界联合会(以下简称“中国文联”)主办，中国文联出版办、江西省文学艺术界联合会承办的中国文联红色经典诵读会在滕王阁旅游区古戏台举行。
+数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。
 
-作为第五届全民阅读大会的子活动之一，此次诵读会以“书香江右 艺读长征”为主题，邀请全国多位文艺工作者齐聚一堂，以动情演绎致敬红色经典。
+其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，成为推动增长的核心引擎。
 
-活动中，朗诵艺术家陈铎与瞿弦和分别带来《地球的红飘带》(卷首语节选)和《丰碑》朗诵；一级演员、著名表演艺术家吴京安和丁柳元朗诵了《彭雪枫家书》(节选)及《给红色家书的一封回信：半城入梦爱有回响》。
+然而，亮眼的数据并未能阻止股价“跳水”。
 
-此外，诵读会还增添了好书推荐环节。
+博通当季总营收略低于分析师预期的222.7亿美元，同时基础设施软件业务营收71.8亿美元，也未达到73.2亿美元的预期。
 
-其中，《我的母亲——长征中最小的女红军》一书讲述了长征中最小的女红军——王新兰和战友一起爬雪山、过草地，勇走长征路的故事。
+但真正导致市场抛售的，是管理层对未来业绩的谨慎展望。
 
-现场，著名评书表演艺术家刘兰芳还带来评书表演《长征中最小的女红军》，赢得观众阵阵掌声。
+尽管博通预计第三财季总营收将达294亿美元，超出预期，但其核心的AI芯片收入指引为160亿美元，低于部分分析师预期的172亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:09 - [广西桂林：强降雨致漓江排筏全线封航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:18 - [12只科创板股今日大宗交易平台发生交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:17 - [百融云-W合计授出80.3万份股份奖励](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:15 - [金宏气体：2025年度公司氦气产品销售额超1.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:07 - [一张手绘“村图”能管43年，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:01 - [美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:09 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:14 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 10:59 - [工信部回应存储器价格上涨：将多措并举保障产业链供应链稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:08 - [礼来制药同意收购抗癌药物开发商Kelonia，交易价值达70亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:11 - [7岁男孩表演少林拳，一招一式刚劲有力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:24 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:18 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:25 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:15 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:11 - [小摩：友邦保险维持“增持”评级 目标价112港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:05 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:12 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:05 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:12 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:02 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:21 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:15 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:25 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:14 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:00 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:28 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:01 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:06 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:09 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:59 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](http://www.blog.kurohicncr.top/Article/details/31917369958.shtml)
-- 2026-06-29 11:11 - [深圳市中小微外贸企业数字化服务生态2.0发布](http://www.blog.kurohicncr.top/Article/details/03643.shtml)
-- 2026-06-29 10:57 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](http://www.blog.minike.top/Article/details/47367211.shtml)
-- 2026-06-29 11:10 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](http://www.share.kurohicncr.top/Article/details/58388650560.shtml)
-- 2026-06-29 11:23 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/96878.shtml)
-- 2026-06-29 11:12 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](http://www.share.kurohicncr.top/Article/details/769411.shtml)
-- 2026-06-29 11:06 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.share.minike.top/Article/details/186644695624.shtml)
-- 2026-06-29 11:23 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](http://www.share.kurohicncr.top/Article/details/097851086196.shtml)
-- 2026-06-29 10:57 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [向日葵2025年净亏损438.48万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [肖捷会见欧洲议会副议长奥马吉](http://www.share.minike.top/Article/details/5356637505.shtml)
-- 2026-06-29 11:05 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](http://www.share.kurohicncr.top/Article/details/173756.shtml)
-- 2026-06-29 11:15 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.blog.kurohicncr.top/Article/details/6308817272.shtml)
+- 2026-06-29 11:18 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.share.kurohicncr.top/Article/details/47834783.shtml)
+- 2026-06-29 11:18 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.minike.top/Article/details/322201.shtml)
+- 2026-06-29 11:22 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.share.kurohicncr.top/Article/details/950633.shtml)
+- 2026-06-29 11:18 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/45195.shtml)
+- 2026-06-29 11:18 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.kurohicncr.top/Article/details/0753049640.shtml)
+- 2026-06-29 11:24 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.minike.top/Article/details/65556820.shtml)
+- 2026-06-29 11:00 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.minike.top/Article/details/07945882.shtml)
+- 2026-06-29 11:23 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.minike.top/Article/details/82550768.shtml)
+- 2026-06-29 11:21 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.blog.minike.top/Article/details/6658509.shtml)
+- 2026-06-29 11:29 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.share.minike.top/Article/details/353487164515.shtml)
+- 2026-06-29 11:25 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.minike.top/Article/details/91289.shtml)
+- 2026-06-29 11:09 - [伊朗称美失误致科威特机场受损 美方否认](http://www.blog.minike.top/Article/details/973102.shtml)
+- 2026-06-29 11:27 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lisacumin64-arch)

@@ -1,60 +1,56 @@
-# 七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压
+# 黄仁勋称机器人将成为韩国下一个重要产业
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-头部建筑央企业绩承压，是整个建筑行业发展的缩影。 建筑行业调整转型之际，大型建筑央企正集体面临盈利挑战。 近日，中国建筑（601668.SH）发布2025年业绩报告，显示其去年实现营业收入2.08万亿元，同比下降4.8%；实现归母净利润390.7亿元，同比下降15.4%，已连续两年出现下滑。 其余几家建筑龙头，同样面临业绩短期承压的局面。从核心指标归母净利润看，去年中国中冶（6
+英伟达CEO黄仁勋周五表示，他认为机器人将成为韩国下一个重要产业。 他在抵达韩国金浦机场后向记者发表了上述言论。 “韩国有许多值得投资的领域。机器人将成为韩国下一个重要产业，”他说。 黄仁勋表示，此行已安排与现代、LG、SK、三星及Naver高管举行会晤。 “我给韩国带了什么礼物吗？我给韩国带来了大量商机，”他表示，并补充道：“我还有一些惊喜。” 他表示，英伟达将与韩国制造企业
 
 ## 正文
 
-头部建筑央企业绩承压，是整个建筑行业发展的缩影。
+英伟达CEO黄仁勋周五表示，他认为机器人将成为韩国下一个重要产业。
 
-建筑行业调整转型之际，大型建筑央企正集体面临盈利挑战。
+他在抵达韩国金浦机场后向记者发表了上述言论。
 
-近日，中国建筑（601668.SH）发布2025年业绩报告，显示其去年实现营业收入2.08万亿元，同比下降4.8%；实现归母净利润390.7亿元，同比下降15.4%，已连续两年出现下滑。
+“韩国有许多值得投资的领域。
 
-其余几家建筑龙头，同样面临业绩短期承压的局面。
+机器人将成为韩国下一个重要产业，”他说。
 
-从核心指标归母净利润看，去年中国中冶（601618.SH）降幅超八成，中国交建（601800.SH）等归母净利润降幅超三成。
+黄仁勋表示，此行已安排与现代、LG、SK、三星及Naver高管举行会晤。
 
-“2025年，建筑央企整体面临收入与利润双承压的困境。
+“我给韩国带了什么礼物吗？
 
-市场萎缩行业承压，叠加公司普遍出清风险压实资产质量，造成利润明显下滑。
+我给韩国带来了大量商机，”他表示，并补充道：“我还有一些惊喜。
 
-”长江证券表示。
+” 他表示，英伟达将与韩国制造企业在机器人和AI领域展开合作。
 
 ## 相关推荐
 
-- 2026-06-29 11:09 - [方浩明：中文诗词是促进文明互鉴的最美载体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:24 - [广西桂林：强降雨致漓江排筏全线封航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:03 - [12只科创板股今日大宗交易平台发生交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:23 - [百融云-W合计授出80.3万份股份奖励](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:00 - [金宏气体：2025年度公司氦气产品销售额超1.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:13 - [一张手绘“村图”能管43年，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:18 - [美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:18 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:23 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:06 - [工信部回应存储器价格上涨：将多措并举保障产业链供应链稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:25 - [礼来制药同意收购抗癌药物开发商Kelonia，交易价值达70亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:23 - [7岁男孩表演少林拳，一招一式刚劲有力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:21 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:15 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:00 - [原油：以色列和黎巴嫩停火后WTI下跌 尽管冲突仍在持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:10 - [小摩：友邦保险维持“增持”评级 目标价112港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:26 - [港股互联网低位3连阴，中信建投：阶段性探底逐步完成，互联网与AI平台仍是港股第一主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:17 - [“走进泰国-泰国营商环境、优惠政策及投资机遇”投资推介会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:12 - [珠峰高海拔区域失联尼泊尔向导获救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:15 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:21 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:04 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:05 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:04 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:04 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.blog.minike.top/Article/details/62167.shtml)
-- 2026-06-29 11:05 - [视频丨日本放宽武器出口限制引发各界批评](http://www.blog.kurohicncr.top/Article/details/783391131.shtml)
-- 2026-06-29 11:22 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](http://www.share.kurohicncr.top/Article/details/92556870.shtml)
-- 2026-06-29 11:19 - [深圳市中小微外贸企业数字化服务生态2.0发布](http://www.share.kurohicncr.top/Article/details/80762814.shtml)
-- 2026-06-29 11:24 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](http://www.blog.kurohicncr.top/Article/details/3200426.shtml)
-- 2026-06-29 11:12 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](http://www.blog.kurohicncr.top/Article/details/7233599.shtml)
-- 2026-06-29 11:11 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.kurohicncr.top/Article/details/220100.shtml)
-- 2026-06-29 11:04 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](http://www.blog.kurohicncr.top/Article/details/779214240799.shtml)
-- 2026-06-29 11:02 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](http://www.share.minike.top/Article/details/64960.shtml)
-- 2026-06-29 11:23 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](http://www.share.kurohicncr.top/Article/details/079405.shtml)
-- 2026-06-29 11:15 - [向日葵2025年净亏损438.48万元](http://www.blog.minike.top/Article/details/7300570465.shtml)
-- 2026-06-29 11:25 - [肖捷会见欧洲议会副议长奥马吉](http://www.share.minike.top/Article/details/8148025.shtml)
-- 2026-06-29 11:02 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](http://www.blog.kurohicncr.top/Article/details/254034499146.shtml)
+- 2026-06-29 11:14 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.share.minike.top/Article/details/543568.shtml)
+- 2026-06-29 11:17 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.kurohicncr.top/Article/details/007781171592.shtml)
+- 2026-06-29 11:23 - [连收罚单的华泰财险，还有这些问题要注意](http://www.share.kurohicncr.top/Article/details/474259330.shtml)
+- 2026-06-29 11:00 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.blog.kurohicncr.top/Article/details/0752746.shtml)
+- 2026-06-29 11:11 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.kurohicncr.top/Article/details/014147.shtml)
+- 2026-06-29 11:05 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:08 - [中青旅：公司持续关注近期股价破净情况](http://www.blog.minike.top/Article/details/626748449.shtml)
+- 2026-06-29 11:02 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.share.minike.top/Article/details/690606874407.shtml)
+- 2026-06-29 11:04 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.kurohicncr.top/Article/details/03244.shtml)
+- 2026-06-29 11:12 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:03 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.blog.minike.top/Article/details/671138.shtml)
+- 2026-06-29 11:17 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.kurohicncr.top/Article/details/78553.shtml)
+- 2026-06-29 11:08 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.kurohicncr.top/Article/details/4267133.shtml)

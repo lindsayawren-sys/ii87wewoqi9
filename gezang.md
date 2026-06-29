@@ -1,56 +1,52 @@
-# “市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？
+# 美迪凯发生2笔大宗交易 合计成交1003.13万元
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|孙磊 当前，全球能源市场正经历一场“窒息”危机——氦（He），这位元素周期表中的“二号成员”、看似寻常的稀有气体，正面临全球性的供应短缺。 据新华社消息，位于卡塔尔北部的拉斯拉凡工业城在近期遭导弹袭击并引发火灾。该区域是全球最重要的液化天然气生产基地之一。氦气通常需要从液化天然气中提取，其供应也因
+美迪凯6月5日大宗交易平台共发生2笔成交，合计成交量37.50万股，成交金额1003.13万元。成交价格均为26.75元，相对今日收盘价折价13.99%。进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为2849.22万元。证券时报·数据宝统计显示，美迪凯今日收盘价为31.10元，下跌2.35%，日换手率为12.20%，成交额为15.90亿元，全天主力资金净流出1.
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美迪凯6月5日大宗交易平台共发生2笔成交，合计成交量37.50万股，成交金额1003.13万元。
 
-每经记者|孙磊 当前，全球能源市场正经历一场“窒息”危机——氦（He），这位元素周期表中的“二号成员”、看似寻常的稀有气体，正面临全球性的供应短缺。
+成交价格均为26.75元，相对今日收盘价折价13.99%。
 
-据新华社消息，位于卡塔尔北部的拉斯拉凡工业城在近期遭导弹袭击并引发火灾。
+进一步统计，近3个月内该股累计发生4笔大宗交易，合计成交金额为2849.22万元。
 
-该区域是全球最重要的液化天然气生产基地之一。
+证券时报·数据宝统计显示，美迪凯今日收盘价为31.10元，下跌2.35%，日换手率为12.20%，成交额为15.90亿元，全天主力资金净流出1.30亿元，近5日该股累计上涨51.04%，近5日资金合计净流出2.10亿元。
 
-氦气通常需要从液化天然气中提取，其供应也因此受到波及。
+两融数据显示，该股最新融资余额为4.34亿元，近5日增加7483.78万元，增幅为20.85%。
 
-据中新网消息，美国地质调查局数据显示，2025年卡塔尔氦气年产量达6400万立方米，占全球三分之一以上。
-
-这些氦气须通过霍尔木兹海峡运往世界各地。
-
-自2月28日美以对伊朗发动军事打击以来，霍尔木兹海峡被封堵，全球三分之一氦气面临断供。
+（数据宝）6月5日美迪凯大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [德国商业银行正式拒绝裕信银行敌意收购策略 收购战言辞交锋升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:10 - [习近平举行仪式欢迎莫桑比克总统查波访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:12 - [海军四川舰赴南海开展试验训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:06 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:24 - [江西南昌：滕王阁下重温红色记忆 弘扬和传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 10:58 - [中国新闻社参评第36届中国新闻奖新闻访谈、新闻直播、视听设计（音视频编排）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:21 - [台业界代表呼吁当局理性、务实回应陆方十项涉台新政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:11 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 10:57 - [亿万富翁雅各布斯豪赌保温材料：170亿美元收购TopBuild](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:00 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:07 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:25 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:20 - [特朗普：普尔特不会被正式任命为国家情报总监](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:01 - [黄仁勋称机器人将成为韩国下一个重要产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:25 - [博通财报暴雷：AI指引未达顶标，股价暴跌15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:17 - [真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:02 - [欧盟内部有观点认为应对华“去风险”，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:15 - [GTC泽汇资本:金价区间等待破局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:05 - [陈继明出任中国人民银行上海总部党委委员、副主任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:07 - [AI数据中心战略推动PowerBank全面品牌重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [600606，致歉！更正业绩预告，最多亏损265亿元！](http://www.blog.kurohicncr.top/Article/details/48022384.shtml)
-- 2026-06-29 11:06 - [胜宏科技首挂上市 早盘上涨51.71%](http://www.share.kurohicncr.top/Article/details/2954354269.shtml)
-- 2026-06-29 11:22 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](http://www.blog.kurohicncr.top/Article/details/599646.shtml)
-- 2026-06-29 11:22 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.blog.minike.top/Article/details/855231.shtml)
-- 2026-06-29 11:24 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](http://www.share.minike.top/Article/details/85830967764.shtml)
-- 2026-06-29 11:15 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](http://www.blog.kurohicncr.top/Article/details/382947867731.shtml)
-- 2026-06-29 11:13 - [新华微评：方块字何以走向全世界](http://www.blog.minike.top/Article/details/644294107284.shtml)
-- 2026-06-29 11:01 - [矽电股份2025年度归母净利润约5283万元 同比下降42.5%](http://www.share.kurohicncr.top/Article/details/178703122.shtml)
-- 2026-06-29 11:00 - [2026北京车展前瞻：双馆扩容，新旧交锋，供应链争夺话语权](http://www.blog.minike.top/Article/details/3340277706.shtml)
-- 2026-06-29 11:27 - [第十三批在韩中国人民志愿军烈士遗骸即将启程回国](http://www.share.kurohicncr.top/Article/details/99145951.shtml)
-- 2026-06-29 11:02 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.blog.minike.top/Article/details/040973.shtml)
-- 2026-06-29 11:23 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [视频丨日本放宽武器出口限制引发各界批评](http://www.share.minike.top/Article/details/65018.shtml)
-- 2026-06-29 11:03 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [深圳市中小微外贸企业数字化服务生态2.0发布](http://www.blog.kurohicncr.top/Article/details/6172526.shtml)
+- 2026-06-29 11:27 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.blog.kurohicncr.top/Article/details/88360.shtml)
+- 2026-06-29 11:15 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.share.kurohicncr.top/Article/details/63448203358.shtml)
+- 2026-06-29 11:13 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.share.kurohicncr.top/Article/details/2421816980.shtml)
+- 2026-06-29 11:04 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.share.minike.top/Article/details/404948747208.shtml)
+- 2026-06-29 11:29 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](http://www.share.minike.top/Article/details/01881343266.shtml)
+- 2026-06-29 11:28 - [天原股份：公司不存在资金链风险](http://www.share.kurohicncr.top/Article/details/56808.shtml)
+- 2026-06-29 11:03 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:05 - [中新健康｜芒种养生，重在健脾化湿](http://www.blog.minike.top/Article/details/012124196.shtml)
+- 2026-06-29 11:22 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](http://www.blog.kurohicncr.top/Article/details/145797.shtml)
+- 2026-06-29 11:21 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](http://www.blog.kurohicncr.top/Article/details/96643382.shtml)
+- 2026-06-29 11:15 - [赖清德批小红书，是在怕什么？丨真相](http://www.blog.kurohicncr.top/Article/details/3078543759.shtml)
+- 2026-06-29 11:07 - [连收罚单的华泰财险，还有这些问题要注意](http://www.blog.minike.top/Article/details/981295633.shtml)
+- 2026-06-29 11:01 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](http://www.blog.kurohicncr.top/Article/details/4760082.shtml)

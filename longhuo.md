@@ -1,58 +1,56 @@
-# 特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关
+# 中尼合资航司复航加德满都至深圳往返航线
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，与阿拉伯联合酋长国的货币互换安排正在考虑之中。此前，作为美国盟友的阿联酋提出，可能寻求财政援助，以应对伊朗战争带来的冲击。 周二被问及政府是否正在评估这一计划，特朗普回答说：“是的。”他还表示：“这是一个不错的国家，是我们的好盟友。而且你知道，现在是非常时期。” 据报道，阿联酋曾询问如果战争带来的冲击恶化的情况下潜在的财政支持措施，其中包括货币互换。
+中新社加德满都6月5日电 (记者 崔楠)当地时间6月5日8时许，喜马拉雅航空H9986航班搭载157名旅客降落尼泊尔加德满都特里布万国际机场。至此，该航司加德满都至深圳往返航线正式复航。 当日早些时候，喜航H9985航班搭载98名旅客由加德满都飞抵深圳。 这是时隔6年后，中尼两国合资的喜马拉雅航空恢复加德满都往返深圳的定期航线。该航线复航将进一步便利尼泊尔与中国粤港澳大湾区之间
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，与阿拉伯联合酋长国的货币互换安排正在考虑之中。
+中新社加德满都6月5日电 (记者 崔楠)当地时间6月5日8时许，喜马拉雅航空H9986航班搭载157名旅客降落尼泊尔加德满都特里布万国际机场。
 
-此前，作为美国盟友的阿联酋提出，可能寻求财政援助，以应对伊朗战争带来的冲击。
+至此，该航司加德满都至深圳往返航线正式复航。
 
-周二被问及政府是否正在评估这一计划，特朗普回答说：“是的。
+当日早些时候，喜航H9985航班搭载98名旅客由加德满都飞抵深圳。
 
-”他还表示：“这是一个不错的国家，是我们的好盟友。
+这是时隔6年后，中尼两国合资的喜马拉雅航空恢复加德满都往返深圳的定期航线。
 
-而且你知道，现在是非常时期。
+该航线复航将进一步便利尼泊尔与中国粤港澳大湾区之间人员往来，拓展两国跨喜马拉雅立体互联互通网络。
 
-” 据报道，阿联酋曾询问如果战争带来的冲击恶化的情况下潜在的财政支持措施，其中包括货币互换。
+根据航班计划，该航线每周执飞两班。
 
-这场冲突导致霍尔木兹海峡关闭，石油流动受阻，而伊朗则通过破坏海湾国家的能源基础设施，对美国和以色列的打击实施报复。
+加德满都至深圳航班每周二、周四执飞，深圳至加德满都航班每周三、周五执飞。
 
-特朗普说：“我很惊讶，因为他们其实非常富有。
+目前，喜马拉雅航空还运营加德满都往返拉萨的定期航班。
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:25 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:00 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:05 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:23 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:19 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:21 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:23 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:26 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:22 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 10:57 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:18 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:19 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:11 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:24 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:05 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:17 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:19 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:05 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:17 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:05 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:03 - [韩国股市一度重挫5% 芯片股随美国同业下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:12 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.blog.minike.top/Article/details/658979607952.shtml)
-- 2026-06-29 11:15 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.share.minike.top/Article/details/637970931.shtml)
-- 2026-06-29 11:24 - [日本青森县东部海域发生5.1级地震 多地有震感](http://www.share.minike.top/Article/details/1303663797.shtml)
-- 2026-06-29 11:02 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.share.kurohicncr.top/Article/details/44774.shtml)
-- 2026-06-29 11:12 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.blog.minike.top/Article/details/71290246101.shtml)
-- 2026-06-29 11:14 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](http://www.blog.kurohicncr.top/Article/details/139102552751.shtml)
-- 2026-06-29 11:06 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](http://www.share.kurohicncr.top/Article/details/697364.shtml)
-- 2026-06-29 11:12 - [“香港工程传奇展览@首都”在国家科技传播中心举办](http://www.share.kurohicncr.top/Article/details/44954911.shtml)
-- 2026-06-29 11:10 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](http://www.share.kurohicncr.top/Article/details/257022965.shtml)
-- 2026-06-29 10:57 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.blog.kurohicncr.top/Article/details/0256553.shtml)
-- 2026-06-29 11:11 - [如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机](http://www.share.kurohicncr.top/Article/details/72860.shtml)
-- 2026-06-29 10:58 - [工信部：一季度中国规模以上工业增加值同比增长6.1%](http://www.blog.minike.top/Article/details/809129260.shtml)
-- 2026-06-29 11:06 - [泰国东部经济走廊与广东企业签署合作备忘录](http://www.blog.minike.top/Article/details/09259539615.shtml)
-- 2026-06-29 11:24 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.blog.minike.top/Article/details/79836.shtml)
+- 2026-06-29 11:25 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.share.kurohicncr.top/Article/details/2986969373.shtml)
+- 2026-06-29 11:23 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.share.kurohicncr.top/Article/details/746158.shtml)
+- 2026-06-29 11:11 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.blog.minike.top/Article/details/25214.shtml)
+- 2026-06-29 11:00 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](http://www.share.kurohicncr.top/Article/details/147844700286.shtml)
+- 2026-06-29 11:00 - [学生票大升级！这些出行便利已成固定政策](http://www.share.kurohicncr.top/Article/details/71534046.shtml)
+- 2026-06-29 11:22 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.blog.kurohicncr.top/Article/details/374817985.shtml)
+- 2026-06-29 11:03 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.share.kurohicncr.top/Article/details/609243417498.shtml)
+- 2026-06-29 11:24 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](http://www.blog.kurohicncr.top/Article/details/003140.shtml)
+- 2026-06-29 11:19 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](http://www.share.minike.top/Article/details/380689580383.shtml)
+- 2026-06-29 11:09 - [西陇科学：公司及控股子公司均不存在逾期担保情况](http://www.share.kurohicncr.top/Article/details/1175895.shtml)
+- 2026-06-29 11:26 - [铁路端午假期运输首日火车票今日起售](http://www.share.kurohicncr.top/Article/details/142994.shtml)
+- 2026-06-29 11:06 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](http://www.blog.kurohicncr.top/Article/details/347020.shtml)

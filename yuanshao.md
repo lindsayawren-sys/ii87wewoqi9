@@ -1,50 +1,56 @@
-# 亚盛医药-B授出受限制股份单位及购股权
+# 高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-亚盛医药-B（06855）发布公告，截至本公告日期，已向2022年受限制股份单位计划的3名选定人士（2022年选定人士）授出69.63万份受限制股份单位（2022年奖励），相当于 69.63万股股份（2022年进一步授出），其中向本公司执行董事兼首席执行官杨大俊博士（杨博士）授出39.38万份受限制股份单位；向本公司首席医学官兼主要股东翟一帆博士（翟博士）授出28.39万份受限
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷递 雷递网 乐天 6月5日 珠海格力电器股份有限公司（简称“格力电器”，000651.SZ）昨日发布公告，宣布公司大股东珠海明骏于2026年6月4日通过大宗交易方式减持公司股份42，793，100股，占公司总股本的0.7640%，占剔除回购股份后公司总股本的0.7662%。 本次变动前，珠海明骏及其
 
 ## 正文
 
-亚盛医药-B（06855）发布公告，截至本公告日期，已向2022年受限制股份单位计划的3名选定人士（2022年选定人士）授出69.63万份受限制股份单位（2022年奖励），相当于 69.63万股股份（2022年进一步授出），其中向本公司执行董事兼首席执行官杨大俊博士（杨博士）授出39.38万份受限制股份单位；向本公司首席医学官兼主要股东翟一帆博士（翟博士）授出28.39万份受限制股份单位；及向本公司1名高级管理人员授出1.86万份受限制股份单位。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-截至本公告日期，本公司已根据首次公开发售后购股权计划的条款，向本公司执行董事兼首席执行官杨博士及本公司首席医学官兼主要股东翟博士进一步授出51.32万份购股权（2022年购股权），赋予购股权持有人权利于行使该等购股权时认购合共51.32万股本公司普通股（购股权进一步授出），惟须待杨博士及翟博士接纳后方可作实，其中29.82万份购股权授予杨博士；及21.5万份购股权授予翟博士。
+来源：雷递 雷递网 乐天 6月5日 珠海格力电器股份有限公司（简称“格力电器”，000651.SZ）昨日发布公告，宣布公司大股东珠海明骏于2026年6月4日通过大宗交易方式减持公司股份42，793，100股，占公司总股本的0.7640%，占剔除回购股份后公司总股本的0.7662%。
 
-责任编辑：卢昱君
+本次变动前，珠海明骏及其一致行动人董明珠女士合计持有1，014，846，297股，占公司总股本比例为18.1177%，占剔除回购股份后公司总股本比例为18.1705%，其中，珠海明骏持股为16.1095%，董明珠持股为2.0082%。
+
+本次变动后，珠海明骏及其一致行动人董明珠女士合计持有972，053，197股，占公司总股本比例为17.3537%，占剔除回购股份后公司总股本比例为17.4043%，珠海明骏持股降至15.3456%。
+
+截至今日收盘，格力电器股价为38.46元，市值为2154亿元，若以此计算，高瓴可套现超过16亿元。
+
+投资6年半 仍处于浮亏状态 高瓴是2019年12月签署投资协议，2020年2月完成过户，投资总额为416.62亿元，每股成本为46.17元。
+
+这笔资金的来源为高瓴自有资金约218.5亿元 + 银团贷款约200亿元，全部15%股份质押给招商银行等7家银行，质押期6年，贷款利率约5%-9%。
+
+另据知情人士称，贷款贷款利率目前为3.5%。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:23 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:00 - [大湾区建设持续发力 三地居民共享政策红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:08 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:13 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:14 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:11 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:18 - [五方共建大湾区船员权益保障中心 推六项保障举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:05 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:25 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:15 - [菲律宾一客车坠谷致2死39伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:06 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:21 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 10:57 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:27 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:05 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:26 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:26 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:03 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:22 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:21 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:17 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:25 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:06 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:13 - [青海法院知识产权司法保护提质增效](http://www.blog.minike.top/Article/details/8456721.shtml)
-- 2026-06-29 11:16 - [央行都在囤黄金，对普通投资者意味着什么？](http://www.blog.minike.top/Article/details/95203517955.shtml)
-- 2026-06-29 11:22 - [行业机构称：特斯拉在加州注册量大幅下滑](http://www.share.minike.top/Article/details/3329175946.shtml)
-- 2026-06-29 11:12 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](http://www.blog.minike.top/Article/details/9437836.shtml)
-- 2026-06-29 11:01 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.minike.top/Article/details/66796866740.shtml)
-- 2026-06-29 11:13 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](http://www.blog.kurohicncr.top/Article/details/7921851168.shtml)
-- 2026-06-29 11:11 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.share.minike.top/Article/details/055621198.shtml)
-- 2026-06-29 11:07 - [伊朗航空宣布自4月22日起恢复国内航班运营](http://www.blog.minike.top/Article/details/51610352768.shtml)
-- 2026-06-29 11:14 - [大摩：长和给予增持评级 目标价61港元](http://www.share.kurohicncr.top/Article/details/20609235606.shtml)
-- 2026-06-29 11:18 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.share.kurohicncr.top/Article/details/013421991.shtml)
-- 2026-06-29 11:06 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](http://www.share.minike.top/Article/details/159976.shtml)
-- 2026-06-29 11:18 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](http://www.blog.kurohicncr.top/Article/details/8547325.shtml)
+- 2026-06-29 11:13 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](http://www.share.minike.top/Article/details/60548334534.shtml)
+- 2026-06-29 11:11 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.blog.minike.top/Article/details/9883547.shtml)
+- 2026-06-29 11:26 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.blog.minike.top/Article/details/81802.shtml)
+- 2026-06-29 11:28 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.blog.kurohicncr.top/Article/details/0209617801.shtml)
+- 2026-06-29 11:09 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](http://www.blog.kurohicncr.top/Article/details/7239298.shtml)
+- 2026-06-29 11:07 - [英国首相斯塔默批马斯克插手英内政](http://www.blog.minike.top/Article/details/5289865.shtml)
+- 2026-06-29 11:05 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.blog.kurohicncr.top/Article/details/4626681.shtml)
+- 2026-06-29 11:14 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.blog.kurohicncr.top/Article/details/845011.shtml)
+- 2026-06-29 11:10 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.share.kurohicncr.top/Article/details/2152239.shtml)
+- 2026-06-29 11:19 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:08 - [新大众文艺：人民文艺的时代强音](http://www.share.minike.top/Article/details/298671620024.shtml)
+- 2026-06-29 11:09 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.share.kurohicncr.top/Article/details/44005728.shtml)
+- 2026-06-29 11:20 - [青海省“全民禁毒宣传月”系列活动启动](http://www.share.kurohicncr.top/Article/details/9862026621.shtml)
+- 2026-06-29 11:25 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.share.minike.top/Article/details/5707749433.shtml)
+- 2026-06-29 11:03 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.share.minike.top/Article/details/728480.shtml)

@@ -1,58 +1,60 @@
-# 特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心
+# 光大期货：6月5日金融日报
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，对于那些在最高法院推翻其大部分关税后选择不申请退款的公司，他会“记在心里”。 在被问及亚马逊、苹果等企业是否应申请关税退款时，特朗普周二对CNBC表示：“如果他们不这么做，那很聪明。如果他们不这么做，我会记住他们。” 今年2月，最高法院裁定特朗普依据《国际紧急经济权力法》对几乎所有国家进口商品征收的所谓“对等关税”违法。这一裁决为一项复杂的退款工作铺
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.42%，成交额2.78万亿元。中证1000指数下跌0.15%，中证500指数下跌0.06%，沪深300指数下跌0.69%，上证50指数下跌1.01%。A股市场2026年一季报表现亮眼。 26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，对于那些在最高法院推翻其大部分关税后选择不申请退款的公司，他会“记在心里”。
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，A股市场震荡收跌，Wind全A下跌0.42%，成交额2.78万亿元。
 
-在被问及亚马逊、苹果等企业是否应申请关税退款时，特朗普周二对CNBC表示：“如果他们不这么做，那很聪明。
+中证1000指数下跌0.15%，中证500指数下跌0.06%，沪深300指数下跌0.69%，上证50指数下跌1.01%。
 
-如果他们不这么做，我会记住他们。
+A股市场2026年一季报表现亮眼。
 
-” 今年2月，最高法院裁定特朗普依据《国际紧急经济权力法》对几乎所有国家进口商品征收的所谓“对等关税”违法。
+26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6%，是2023年以来的最高值。
 
-这一裁决为一项复杂的退款工作铺平了道路。
+营收同比增速可以看做是上市公司资产端收益率，该数值过去三年来首次超过主要资金利率，这代表我国实体经济在总量层面进入新的通胀阶段。
 
-特朗普发布上述言论的前一天，美国海关与边境保护局一个专供进口商提交退款申请的在线门户网站上线，退税总额可能超过1600亿美元。
+此外，全A剔除金融在一季度的净利润同比增速为11.7%，盈利端同步继续修复。
 
-不过，这一流程仍充满不确定性。
+同时，A股板块间分化严重。
 
-包括Costco和联邦快递在内的数千家公司已分别向国际贸易法院提起诉讼，以在特朗普政府提出挑战时保留其退款权利。
+一方面，以AI为代表的科技制造业和有色等周期板块增速迅猛。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [突发！苹果官宣：库克9月卸任CEO，特努斯接任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:18 - [郑商所与波交所签署BPI授权协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:18 - [TGS延长美国海湾多年期海底节点采集合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:15 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:15 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 10:57 - [特朗普称Anthropic“表现良好”，愿与五角大楼达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [峇峇娘惹寻根原乡 赓续文脉共话交融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 10:59 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:13 - [交通运输部：一季度完成跨区域人员流动量177.7亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:25 - [碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:01 - [外资“盯上”A股，哪类资产受青睐？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:24 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:05 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:04 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:18 - [世赛新增项目，为啥是这7个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:25 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:11 - [上海市委统战部在黄浦区召开基层统战工作现场会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:26 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:06 - [国泰海通90亿增资国际子公司，头部券商竞速出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:02 - [中铁工业：将持续跟进中铁南方公司土地收储事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:20 - [芒种时节煲一锅泥鳅炖豆腐——小鲜藏至味 苦夏始清补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:04 - [印度1—3月经济同比增速达7.8%，表现超市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:10 - [桦欣控股公布将于6月5日上午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:01 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:24 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:15 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:11 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](http://www.share.minike.top/Article/details/730400310.shtml)
-- 2026-06-29 11:00 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](http://www.share.kurohicncr.top/Article/details/622525648135.shtml)
-- 2026-06-29 10:58 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:15 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](http://www.blog.kurohicncr.top/Article/details/940743208064.shtml)
-- 2026-06-29 11:05 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](http://www.share.kurohicncr.top/Article/details/398848353302.shtml)
-- 2026-06-29 11:09 - [华泰期货：昨日20号胶大涨，不建议追高](http://www.share.kurohicncr.top/Article/details/5378949.shtml)
-- 2026-06-29 11:06 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.share.minike.top/Article/details/497271427.shtml)
-- 2026-06-29 11:02 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/9115611496.shtml)
-- 2026-06-29 11:05 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](http://www.share.minike.top/Article/details/87115129.shtml)
-- 2026-06-29 10:59 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](http://www.share.minike.top/Article/details/443008541589.shtml)
-- 2026-06-29 11:00 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.blog.minike.top/Article/details/546676.shtml)
-- 2026-06-29 11:02 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](http://www.blog.kurohicncr.top/Article/details/731104276.shtml)
-- 2026-06-29 11:11 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](http://www.blog.kurohicncr.top/Article/details/40617288.shtml)
-- 2026-06-29 11:23 - [美国众议院调查针对伊朗战争相关交易](http://www.share.kurohicncr.top/Article/details/26892891684.shtml)
+- 2026-06-29 11:15 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.blog.kurohicncr.top/Article/details/820518498703.shtml)
+- 2026-06-29 11:20 - [美国债市：国债全线上涨 油价下跌提供支撑](http://www.blog.minike.top/Article/details/87166520484.shtml)
+- 2026-06-29 11:15 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [甘肃金昌市统战宣传工作会议召开](http://www.share.kurohicncr.top/Article/details/084780214.shtml)
+- 2026-06-29 11:04 - [香港新设“小马大本营” 寓教于乐普及马术运动](http://www.blog.minike.top/Article/details/28172926.shtml)
+- 2026-06-29 11:23 - [全国首张“无目的地海上游”出入境通行证在沪签发](http://www.blog.minike.top/Article/details/008675722413.shtml)
+- 2026-06-29 11:20 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](http://www.share.kurohicncr.top/Article/details/12380852116.shtml)
+- 2026-06-29 11:29 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.blog.minike.top/Article/details/1115329323.shtml)
+- 2026-06-29 11:17 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](http://www.share.kurohicncr.top/Article/details/23440.shtml)
+- 2026-06-29 11:13 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](http://www.share.kurohicncr.top/Article/details/1487233679.shtml)
+- 2026-06-29 11:28 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](http://www.blog.kurohicncr.top/Article/details/3197098.shtml)
+- 2026-06-29 11:14 - [韩国股市一度重挫5% 芯片股随美国同业下滑](http://www.share.minike.top/Article/details/15397.shtml)
+- 2026-06-29 11:25 - [欧洲股市反弹 医疗保健板块领涨 渣打和汇丰等英国银行股下跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [401(k)困难取款较2020年增长两倍，凸显美国家庭财务压力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [渤海银行：凌颖杰董事的任职资格已获核准](http://www.share.minike.top/Article/details/764475770331.shtml)

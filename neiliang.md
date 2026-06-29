@@ -1,49 +1,58 @@
-# 大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉
+# AI热潮难敌预期过高：博通财报超预期股价反跌14%
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 10:10 来源：中国新闻网 近日，辽宁丹东东港市北井子镇獐岛村，在落潮后俯瞰海滩，潮水并不停歇，而是柔和涌动，呈现着类似瀑布和喷泉同框的神奇画面，令人叹为观止。(作者：孙成武) 责任编辑：【魏聪聪】
+尽管交出了一份创纪录的财报，AI定制芯片巨头博通仍未能满足市场的高期待。美东时间6月4日早盘，博通股价一度大跌超14%，上演“业绩越好、跌得越惨”的经典一幕。 财报显示，博通第二财季总营收达221.9亿美元，同比增长48%，创历史新高；Non-GAAP每股收益为2.44美元，超出市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，营收高达108亿美元，同比增长1
 
 ## 正文
 
-发布时间：2026年04月21日 10:10 来源：中国新闻网 近日，辽宁丹东东港市北井子镇獐岛村，在落潮后俯瞰海滩，潮水并不停歇，而是柔和涌动，呈现着类似瀑布和喷泉同框的神奇画面，令人叹为观止。
+尽管交出了一份创纪录的财报，AI定制芯片巨头博通仍未能满足市场的高期待。
 
-(作者：孙成武) 责任编辑：【魏聪聪】
+美东时间6月4日早盘，博通股价一度大跌超14%，上演“业绩越好、跌得越惨”的经典一幕。
+
+财报显示，博通第二财季总营收达221.9亿美元，同比增长48%，创历史新高；Non-GAAP每股收益为2.44美元，超出市场预期的2.40美元。
+
+其中，备受关注的AI半导体业务表现尤为抢眼，营收高达108亿美元，同比增长143%，成为推动增长的核心引擎。
+
+然而，市场反应的焦点并不在此。
+
+财报发布后，博通盘后股价重挫超13%，市值蒸发数百亿美元。
+
+究其原因，主要有两点：第一，公司本季度221.9亿美元的总营收略低于分析师预期的222.7亿美元；第二，管理层未如市场所愿，上调全年AI芯片“超过1000亿美元”的营收指引。
+
+面对投资者的不满，博通CEO陈福阳在电话会议上显得颇为笃定。
 
 ## 相关推荐
 
-- 2026-06-29 11:01 - [国台办回应赖清德取消窜访非洲计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:12 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:10 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:05 - [苹果宣布换帅，多家“果链”企业开盘下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:26 - [青海法院知识产权司法保护提质增效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:24 - [央行都在囤黄金，对普通投资者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:12 - [行业机构称：特斯拉在加州注册量大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 10:59 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:18 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:00 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:18 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:23 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:06 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:04 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:07 - [伊朗航空宣布自4月22日起恢复国内航班运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:06 - [邮储银行：将于8月19日派发末期股息每10股0.953元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:22 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:27 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:10 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:18 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:29 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:22 - [外交部介绍习近平总书记访问朝鲜有关安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:00 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:06 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:29 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:12 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [泰国东部经济走廊与广东企业签署合作备忘录](http://www.blog.minike.top/Article/details/47373814480.shtml)
-- 2026-06-29 11:01 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](http://www.blog.kurohicncr.top/Article/details/250469.shtml)
-- 2026-06-29 11:04 - [特朗普：希望有人收购陷入困境的精神航空公司](http://www.share.minike.top/Article/details/600412645951.shtml)
-- 2026-06-29 11:06 - [春季脱发高发 专家提醒警惕脏腑失衡隐患](http://www.share.kurohicncr.top/Article/details/47616368.shtml)
-- 2026-06-29 11:22 - [高盛任命金融科技银行家Gido担任金融机构组主席](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:15 - [特朗普称最终将达成重大协议](http://www.blog.kurohicncr.top/Article/details/939385575108.shtml)
-- 2026-06-29 11:01 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](http://www.share.minike.top/Article/details/03059733.shtml)
-- 2026-06-29 11:10 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.minike.top/Article/details/514604.shtml)
-- 2026-06-29 10:59 - [首届中非企业家高端论坛在非盟总部举行](http://www.blog.kurohicncr.top/Article/details/296585999.shtml)
-- 2026-06-29 11:08 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](http://www.share.kurohicncr.top/Article/details/0116985.shtml)
-- 2026-06-29 11:23 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/5760135.shtml)
-- 2026-06-29 11:23 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](http://www.blog.kurohicncr.top/Article/details/89867.shtml)
-- 2026-06-29 11:14 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](http://www.blog.minike.top/Article/details/778245.shtml)
-- 2026-06-29 11:18 - [巴黎检方：马斯克缺席传唤](http://www.blog.minike.top/Article/details/241271.shtml)
+- 2026-06-29 11:03 - [铁路端午假期运输首日火车票今日起售](http://www.blog.minike.top/Article/details/584926947.shtml)
+- 2026-06-29 11:13 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](http://www.share.kurohicncr.top/Article/details/1367450.shtml)
+- 2026-06-29 11:20 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](http://www.blog.minike.top/Article/details/16141180555.shtml)
+- 2026-06-29 11:20 - [威龙股份首季业绩承压，亏损幅度有所扩大](http://www.share.kurohicncr.top/Article/details/964032.shtml)
+- 2026-06-29 11:23 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](http://www.blog.minike.top/Article/details/16947719891.shtml)
+- 2026-06-29 11:11 - [CBCX:金价回稳关注利率线索](http://www.share.kurohicncr.top/Article/details/23470789.shtml)
+- 2026-06-29 11:22 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](http://www.blog.minike.top/Article/details/200038.shtml)
+- 2026-06-29 11:08 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [欧元兑日元逼近收敛上沿，等待方向选择](http://www.share.minike.top/Article/details/24667875.shtml)
+- 2026-06-29 11:14 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.share.minike.top/Article/details/1195678069.shtml)
+- 2026-06-29 11:12 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.blog.kurohicncr.top/Article/details/60515.shtml)
+- 2026-06-29 11:00 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.share.minike.top/Article/details/67785.shtml)
+- 2026-06-29 11:09 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.share.minike.top/Article/details/05249859.shtml)
+- 2026-06-29 11:12 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.kurohicncr.top/Article/details/05649250.shtml)
+- 2026-06-29 11:19 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.share.minike.top/Article/details/91926287.shtml)

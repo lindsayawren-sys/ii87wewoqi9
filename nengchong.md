@@ -1,61 +1,61 @@
-# 新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万
+# 创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-微博热搜上，“多厂商仍未公开辅助驾驶里程”话题引发大量新能源车主共鸣。与此同时，一名新能源车主反映：新车开了一个月，电池包卡扣意外断裂，维修机构告知因卡扣与电池盒是一体结构，判定全损，更换整块电池费用约13万元；此外，蔚来新款ES9因在新国标实施后仍坚持使用隐藏式门把手设计，引发消费者对车辆合规性的担忧。 这三件事有一个共同的主题：新能源车的信息透明度问题。消费者在购车时无法获
+界面新闻记者 | 查沁君 界面新闻编辑 | 文姝琪 一场引发争议的演讲，将粉笔CEO张小龙推上舆论风口。 据多位现场学生及网络流传录音显示，6月3日，在中国人民大学的一场职业规划讲座上，张小龙临时调整了演讲主题，将讨论内容转向AI、就业选择及个人财富经历。 在互动环节气氛冷淡后，张小龙情绪逐渐失控，不仅频繁爆粗口，并被指发表“考公都是混吃等死”等争议言论，随后提前离场。 事件迅
 
 ## 正文
 
-微博热搜上，“多厂商仍未公开辅助驾驶里程”话题引发大量新能源车主共鸣。
+界面新闻记者 | 查沁君 界面新闻编辑 | 文姝琪 一场引发争议的演讲，将粉笔CEO张小龙推上舆论风口。
 
-与此同时，一名新能源车主反映：新车开了一个月，电池包卡扣意外断裂，维修机构告知因卡扣与电池盒是一体结构，判定全损，更换整块电池费用约13万元；此外，蔚来新款ES9因在新国标实施后仍坚持使用隐藏式门把手设计，引发消费者对车辆合规性的担忧。
+据多位现场学生及网络流传录音显示，6月3日，在中国人民大学的一场职业规划讲座上，张小龙临时调整了演讲主题，将讨论内容转向AI、就业选择及个人财富经历。
 
-这三件事有一个共同的主题：新能源车的信息透明度问题。
+在互动环节气氛冷淡后，张小龙情绪逐渐失控，不仅频繁爆粗口，并被指发表“考公都是混吃等死”等争议言论，随后提前离场。
 
-消费者在购车时无法获得足够的信息来评估真实的使用成本和潜在风险，而当问题真正发生时，高额费用或合规争议让他们措手不及。
+事件迅速在社交平台发酵。
 
-辅助驾驶里程为何不公开，消费者怎么看待 辅助驾驶累计里程是衡量一款车型智能驾驶系统成熟度的核心指标之一，里程越高，通常意味着系统经过了更充分的真实道路训练。
+对于一家以公务员考试培训起家的上市公司而言，其创始人公开贬低考公群体，无疑触碰到了最敏感的神经。
 
-然而，许多厂商至今未主动公布这一数据，消费者购车时无法通过这一维度横向比较不同品牌的智能驾驶实际可靠性。
+6月4日上午，粉笔官方发布张小龙署名道歉信，承认自己“言行失当”，向中国人民大学师生致歉。
 
-这种信息不透明可能构成销售误导。
+相比争议言论本身，更值得关注的是另一层矛盾：作为国内头部的公考培训机构之一，张小龙近年来却在不断强调，粉笔未来不能只依赖公考培训业务生存。
 
-如果厂商在宣传中强调“全场景智能驾驶”“高阶智驾”等说法，却不公开支撑这一宣传的关键数据，消费者有理由质疑宣传是否存在夸大成分。
+某种程度上，这场风波恰好暴露出粉笔当下所面临的现实处境。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:11 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:00 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:12 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:03 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:03 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:02 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:19 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:01 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:19 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:00 - [向日葵2025年净亏损438.48万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:05 - [肖捷会见欧洲议会副议长奥马吉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:03 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:08 - [浙江绍兴：校内旧书市集共享阅读乐趣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:13 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:13 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:24 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:16 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:06 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:15 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:07 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:07 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:02 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:01 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:15 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:01 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:24 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:16 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:02 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:12 - [光大期货：6月5日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:12 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.share.kurohicncr.top/Article/details/80331551865.shtml)
-- 2026-06-29 10:57 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/1555993.shtml)
-- 2026-06-29 11:02 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](http://www.blog.minike.top/Article/details/7486383.shtml)
-- 2026-06-29 11:02 - [大湾区建设持续发力 三地居民共享政策红利](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.share.minike.top/Article/details/033684.shtml)
-- 2026-06-29 11:02 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [特朗普称最终将达成重大协议](http://www.share.kurohicncr.top/Article/details/613716.shtml)
-- 2026-06-29 11:22 - [五方共建大湾区船员权益保障中心 推六项保障举措](http://www.blog.kurohicncr.top/Article/details/9390771379.shtml)
-- 2026-06-29 10:58 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](http://www.share.kurohicncr.top/Article/details/4799117421.shtml)
-- 2026-06-29 10:57 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](http://www.blog.kurohicncr.top/Article/details/20903615.shtml)
-- 2026-06-29 11:16 - [菲律宾一客车坠谷致2死39伤](http://www.blog.kurohicncr.top/Article/details/499461430.shtml)
-- 2026-06-29 11:05 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](http://www.blog.kurohicncr.top/Article/details/241454760408.shtml)
+- 2026-06-29 11:06 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.share.minike.top/Article/details/990488956383.shtml)
+- 2026-06-29 11:02 - [全国小麦收获有序推进 已近五成](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.blog.kurohicncr.top/Article/details/654282397.shtml)
+- 2026-06-29 11:07 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](http://www.share.minike.top/Article/details/0024265464.shtml)
+- 2026-06-29 11:19 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.blog.minike.top/Article/details/807571025760.shtml)
+- 2026-06-29 11:22 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.kurohicncr.top/Article/details/01002098164.shtml)
+- 2026-06-29 11:01 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.kurohicncr.top/Article/details/71133.shtml)
+- 2026-06-29 11:15 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.blog.kurohicncr.top/Article/details/6194550106.shtml)
+- 2026-06-29 11:08 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.share.minike.top/Article/details/841103809.shtml)
+- 2026-06-29 11:11 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.share.minike.top/Article/details/57785065241.shtml)
+- 2026-06-29 11:00 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.share.minike.top/Article/details/84268.shtml)
+- 2026-06-29 11:25 - [美国制裁古巴国家主席 进一步加大施压力度](http://www.blog.minike.top/Article/details/22534207.shtml)
+- 2026-06-29 11:14 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](http://www.share.kurohicncr.top/Article/details/132838.shtml)

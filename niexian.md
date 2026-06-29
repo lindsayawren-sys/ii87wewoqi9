@@ -1,59 +1,60 @@
-# Astro Offshore新增多用途支援船，拓展水下作业能力
+# 海关远程视频核查改革落地山西
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-Astro Offshore为其船队新增了一艘超深水多用途支援船，以增强其水下作业能力并拓展国际市场。 该船名为Energy Savannah，将更名为Astro Atlas，是一艘长97米的DP2多用途支援船，是公司船队中最大的船舶。 该船配备一台150吨主动式升沉补偿水下起重机、一台25吨辅助起重机、一个月池以及可容纳100人的住宿区，设计用于支持水下施工、电缆铺设和管道安
+中新网太原6月5日电 (杨静 谭国军)记者5日从太原海关获悉，太原海关所属晋阳海关运用远程视频核查模式，完成对山西三晋碳素股份有限公司的核查工作，标志着该项海关智慧监管便利化举措在山西首次落地应用，惠及本地广大外贸企业。开展企业核查是海关规范进出口秩序、保障外贸合规发展的一项重要工作。为持续深化“放管服”改革、优化口岸营商环境，晋阳海关落实海关总署远程视频核查改革要求，依托数字
 
 ## 正文
 
-Astro Offshore为其船队新增了一艘超深水多用途支援船，以增强其水下作业能力并拓展国际市场。
+中新网太原6月5日电 (杨静 谭国军)记者5日从太原海关获悉，太原海关所属晋阳海关运用远程视频核查模式，完成对山西三晋碳素股份有限公司的核查工作，标志着该项海关智慧监管便利化举措在山西首次落地应用，惠及本地广大外贸企业。
 
-该船名为Energy Savannah，将更名为Astro Atlas，是一艘长97米的DP2多用途支援船，是公司船队中最大的船舶。
+开展企业核查是海关规范进出口秩序、保障外贸合规发展的一项重要工作。
 
-该船配备一台150吨主动式升沉补偿水下起重机、一台25吨辅助起重机、一个月池以及可容纳100人的住宿区，设计用于支持水下施工、电缆铺设和管道安装等海上作业。
+为持续深化“放管服”改革、优化口岸营商环境，晋阳海关落实海关总署远程视频核查改革要求，依托数字化监管手段，打破传统实地核查的时空限制。
 
-该船具备超过3000米的作业水深能力，使Astro Offshore能够进入超深水领域并承接更复杂的海上项目。
+核查过程中，海关关员借助远程视频技术连线，实时查看企业生产经营和货物情况，线上核对账簿记录等资料，实时开展问询核验，全流程规范高效。
 
-该船将根据与Oceaneering International签订的长期租约部署，用于支持深水环境下的水下作业。
+“远程视频核查实施时间灵活，简化了迎检流程，节约了企业的时间和人力物力成本，让我们能集中精力抓生产、拓外贸。
 
-Astro Offshore首席执行官Mark Humphreys表示：“Astro Atlas的引入显著提升了我们的运营能力，并强调了我们对现代化、高规格船队的持续投资，尤其是在超深水环境方面。
+”上述企业关务负责人程煜说。
 
-作为我们迄今为止最大、功能最强的船舶，它使我们能够支持更广泛的复杂海上作业，并更有效地响应不断变化的客户需求。
+海关工作人员介绍，相比传统现场核查，远程视频核查优势突出。
 
-” “根据与Oceaneering International Inc．的租约部署Astro Atlas，增强了我们在更复杂海上环境中提供高规格水下作业能力的能力。
+新模式下单次平均核查时长由以前的一天压缩到2小时内，行政执法成本降低80%以上。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [从丝路古道到算力高地 甘肃擘画“AI”未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:18 - [易德龙一季度归母净利润约3053万元 同比降26.92%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:24 - [东西问丨伊朗战事，暴露美国工业软肋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:03 - [方正证券净利润市占率增速位列第三 自营业务规模复苏但收益率仍有待提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:00 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 10:59 - [午后！A50、港股，突然异动！发生了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:01 - [大风蓝色预警：内蒙古新疆等7省区阵风可达8至9级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:07 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 10:58 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:04 - [一针“串”世界 25国外籍人士郑州话“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:11 - [“市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:25 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:09 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:06 - [浙商银行：不再设置监事会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:12 - [伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [黄金已成全球最大储备资产，4月多国央行恢复净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:17 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:26 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:25 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:01 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:09 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:06 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:02 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:06 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:29 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:29 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:06 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](http://www.blog.minike.top/Article/details/619192.shtml)
-- 2026-06-29 11:11 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](http://www.share.minike.top/Article/details/39848757784.shtml)
-- 2026-06-29 11:11 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](http://www.blog.kurohicncr.top/Article/details/2972445436.shtml)
-- 2026-06-29 11:19 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:58 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.share.minike.top/Article/details/937137.shtml)
-- 2026-06-29 11:08 - [2026中国（宿迁）白酒之都文化旅游节开幕](http://www.share.kurohicncr.top/Article/details/661672.shtml)
-- 2026-06-29 11:24 - [全球两大传奇枪械制造商爆发激烈内斗](http://www.share.minike.top/Article/details/4684991.shtml)
-- 2026-06-29 11:11 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](http://www.blog.minike.top/Article/details/756975.shtml)
-- 2026-06-29 11:09 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](http://www.blog.minike.top/Article/details/653643228.shtml)
-- 2026-06-29 11:18 - [邵艺辉：建议年轻人多阅读多写作](http://www.share.kurohicncr.top/Article/details/767902.shtml)
-- 2026-06-29 11:11 - [600355，退市！不进入退市整理期！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.kurohicncr.top/Article/details/703009126094.shtml)
-- 2026-06-29 11:21 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/366466347572.shtml)
-- 2026-06-29 11:10 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.share.kurohicncr.top/Article/details/246089.shtml)
-- 2026-06-29 11:20 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](http://www.blog.kurohicncr.top/Article/details/757898834.shtml)
+- 2026-06-29 11:16 - [中华企业：公司积极参与上海地产集团城市更新平台建设](http://www.blog.minike.top/Article/details/644478261228.shtml)
+- 2026-06-29 11:20 - [河北首单至土耳其TIR多式联运专线发车](http://www.blog.minike.top/Article/details/20855.shtml)
+- 2026-06-29 11:25 - [中国民主促进会福州市第九次代表大会在福州召开](http://www.blog.kurohicncr.top/Article/details/58134.shtml)
+- 2026-06-29 11:17 - [新疆喀什：360余万亩冬小麦喜迎丰收](http://www.blog.minike.top/Article/details/17685.shtml)
+- 2026-06-29 11:17 - [央行最新！加大“收水”力度！5000亿元，明日操作](http://www.share.minike.top/Article/details/386159477.shtml)
+- 2026-06-29 11:27 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.blog.minike.top/Article/details/017729824790.shtml)
+- 2026-06-29 11:25 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/128742821.shtml)
+- 2026-06-29 11:26 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.minike.top/Article/details/647331340324.shtml)
+- 2026-06-29 11:24 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.kurohicncr.top/Article/details/2986651094.shtml)
+- 2026-06-29 11:03 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.minike.top/Article/details/92336.shtml)
+- 2026-06-29 11:17 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.kurohicncr.top/Article/details/1236443.shtml)
+- 2026-06-29 11:23 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [精耕细作，童书消费步入品质时代](http://www.share.minike.top/Article/details/63006021.shtml)
+- 2026-06-29 11:15 - [ST星农大宗交易成交203.00万元](http://www.blog.kurohicncr.top/Article/details/33060506.shtml)

@@ -1,57 +1,58 @@
-# 碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”
+# 印度1—3月经济同比增速达7.8%，表现超市场预期
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-2026年4月22日，第57个世界地球日来临之际，中信银行信用卡依托全国首个银行业无纸化金融场景碳普惠方法学，以“中信碳账户”为载体，上线碳减排量直兑分期利息抵扣服务，打通低碳行为与金融权益的直接转化通道，标志着“中信碳账户”实现从碳足迹计量、追溯到碳资产价值化的全链路闭环，让个人低碳行为实现价值转化。据悉，截至目前，“中信碳账户”用户已突破3000万户，累计碳减排量超22万吨
+核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。 路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。 本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。后续美国最高法院裁定特朗
 
 ## 正文
 
-2026年4月22日，第57个世界地球日来临之际，中信银行信用卡依托全国首个银行业无纸化金融场景碳普惠方法学，以“中信碳账户”为载体，上线碳减排量直兑分期利息抵扣服务，打通低碳行为与金融权益的直接转化通道，标志着“中信碳账户”实现从碳足迹计量、追溯到碳资产价值化的全链路闭环，让个人低碳行为实现价值转化。
+核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。
 
-据悉，截至目前，“中信碳账户”用户已突破3000万户，累计碳减排量超22万吨。
+路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。
 
-碳减排量直兑利息抵扣 低碳价值普惠民生 为进一步释放碳普惠的民生价值，“中信碳账户”基于科学核算体系，上线碳减排量兑换分期利息优惠券功能，让绿色生活的点滴积累转化为切实的金融福利。
+本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。
 
-用户可凭借账户内累计的碳减排量兑换不同面额的分期利息优惠券，如999克碳减排量可兑换5元优惠券，1999克碳减排量可兑换10元优惠券，9999克碳减排量可兑换30元优惠券等，优惠券可用于抵扣办理账单分期、现金分期及圆梦金产品的分期利息。
+后续美国最高法院裁定特朗普时期征收关税违法，相关税率进一步降至 10%，显著利好印度出口。
 
-其中5元与10元优惠券无使用门槛，优惠金额可叠加国家财政贴息减免，助力用户享受低至0息的分期服务。
+但 2 月末伊朗战事爆发，此后持续冲击印度经济，市场担忧冲突拖累经济、抬升通胀水平。
 
-以深圳市民的日常绿色出行为例，仅1天搭乘超12公里的地铁上下班，累积的碳减排量即可兑换5元分期利息优惠券，2次广深高铁往返出行加上一周每天超12公里的地铁出行，累积的碳减排量最高可兑换30元优惠券。
+印度央行周五宣布：将 2027 年 3 月结束财年的通胀预期上调 50 个基点至 5.1%，同时下调全年经济增速预期，从此前 6.9% 修正至 6.6%。
 
-绿色行为积累的每一克碳减排量，用户均可通过中信银行信用卡动卡空间App中的“中信碳账户”实时查询并兑换使用，让低碳生活转化为实实在在的金融实惠。
+地缘冲突造成全球能源供应紊乱，大幅抬高印度原油进口成本，本就遭遇外资创纪录外流冲击的印度卢比再度承压。
 
-此外，用户还可用碳减排量兑换个性化装扮、低碳实物商品优惠券等。
+此前印度政府暂缓上调国内成品油售价数月，5 月开始落地国际油价上涨带来的调价，全球燃油涨价成本向下游终端传导，这个全球主要经济体将直面通胀上行压力。
 
 ## 相关推荐
 
-- 2026-06-29 11:15 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:22 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:26 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:11 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:01 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:23 - [大湾区建设持续发力 三地居民共享政策红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:24 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:11 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:04 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:01 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:23 - [五方共建大湾区船员权益保障中心 推六项保障举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:09 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:08 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:29 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:00 - [全国小麦收获有序推进 已近五成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:06 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:28 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:24 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:07 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:04 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:23 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:15 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:03 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:08 - [中信建投：2027年钠电平价放量无虞，碳酸锂涨价预期加速进程](http://www.blog.minike.top/Article/details/1700821353.shtml)
-- 2026-06-29 11:11 - [SpaceX上市后将采用双重股权结构，确保马斯克的控制权](http://www.blog.minike.top/Article/details/639680831259.shtml)
-- 2026-06-29 11:01 - [苹果宣布换帅，多家“果链”企业开盘下跌](http://www.share.kurohicncr.top/Article/details/25670296917.shtml)
-- 2026-06-29 11:09 - [青海法院知识产权司法保护提质增效](http://www.blog.kurohicncr.top/Article/details/1847069.shtml)
-- 2026-06-29 11:04 - [央行都在囤黄金，对普通投资者意味着什么？](http://www.blog.minike.top/Article/details/0314108.shtml)
-- 2026-06-29 11:05 - [行业机构称：特斯拉在加州注册量大幅下滑](http://www.share.kurohicncr.top/Article/details/474045.shtml)
-- 2026-06-29 11:26 - [农文旅如何深度融合？挖掘多元价值 焕新乡村产业](http://www.share.minike.top/Article/details/94305.shtml)
-- 2026-06-29 11:27 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.kurohicncr.top/Article/details/25211354.shtml)
-- 2026-06-29 11:17 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](http://www.share.minike.top/Article/details/2208153368.shtml)
-- 2026-06-29 11:09 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](http://www.share.kurohicncr.top/Article/details/058271.shtml)
-- 2026-06-29 11:08 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.share.minike.top/Article/details/40782551.shtml)
-- 2026-06-29 11:14 - [伊朗航空宣布自4月22日起恢复国内航班运营](http://www.blog.kurohicncr.top/Article/details/12297795262.shtml)
-- 2026-06-29 11:22 - [大摩：长和给予增持评级 目标价61港元](http://www.blog.minike.top/Article/details/830195744925.shtml)
+- 2026-06-29 11:27 - [湖南省人大常委会原党组成员、副主任叶红专被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [再升科技：公司获得航空航天质量管理体系AS 9100D认证](http://www.share.minike.top/Article/details/5982537483.shtml)
+- 2026-06-29 11:24 - [英伟达首席执行官：三大存储芯片生产商均有资格供应HBM4芯片](http://www.blog.minike.top/Article/details/1083988.shtml)
+- 2026-06-29 11:18 - [泽连斯基发公开信提议与普京直接会谈以结束俄乌冲突](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [广西西江生态环境质量指数提升显著 保障大湾区优质供水](http://www.share.minike.top/Article/details/08978.shtml)
+- 2026-06-29 11:03 - [尼日利亚一校园7名学生遭绑架 1人成功逃脱](http://www.blog.minike.top/Article/details/59689682128.shtml)
+- 2026-06-29 11:27 - [外交部介绍习近平总书记访问朝鲜有关安排](http://www.blog.kurohicncr.top/Article/details/42376684.shtml)
+- 2026-06-29 11:14 - [天岳先进午前涨近4% 公司为8英寸SiC衬底龙头企业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:05 - [英国首相斯塔默批马斯克插手英内政](http://www.share.kurohicncr.top/Article/details/2624876.shtml)
+- 2026-06-29 11:14 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](http://www.share.kurohicncr.top/Article/details/9589193.shtml)
+- 2026-06-29 11:02 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.share.minike.top/Article/details/23514703352.shtml)
+- 2026-06-29 11:19 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.blog.kurohicncr.top/Article/details/79567910270.shtml)
+- 2026-06-29 11:25 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [新大众文艺：人民文艺的时代强音](http://www.blog.kurohicncr.top/Article/details/59424.shtml)
+- 2026-06-29 11:05 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.share.minike.top/Article/details/929945530.shtml)

@@ -1,60 +1,61 @@
-# 多地楼市新政密集落地 市场积极信号加速释放
+# 总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-近日，房地产市场迎来新一轮政策优化窗口期。珠海、济南、青岛等多地接连发布房地产新政，涵盖优化限购限贷政策、推进“以旧换新”模式、加大高品质住宅供给力度、调整公积金使用规则等多个维度。随着政策效应逐步显现，市场预期正稳步修复，成交量回升、看房热度攀升等积极信号持续释放，楼市企稳向好的基础进一步夯实。作为粤港澳大湾区的重要节点城市，珠海近日正式发布《关于优化调整本市房地产政策措施的
+原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。 “中国可以成功，其他发展中国家同样可以成功。”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增
 
 ## 正文
 
-近日，房地产市场迎来新一轮政策优化窗口期。
+原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。
 
-珠海、济南、青岛等多地接连发布房地产新政，涵盖优化限购限贷政策、推进“以旧换新”模式、加大高品质住宅供给力度、调整公积金使用规则等多个维度。
+“中国可以成功，其他发展中国家同样可以成功。
 
-随着政策效应逐步显现，市场预期正稳步修复，成交量回升、看房热度攀升等积极信号持续释放，楼市企稳向好的基础进一步夯实。
+”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增长注入信心和动力。
 
-作为粤港澳大湾区的重要节点城市，珠海近日正式发布《关于优化调整本市房地产政策措施的通知》，从八个方面出台一揽子优化措施，旨在促进房地产市场平稳健康发展。
+”习近平总书记提出的重要主张、作出的重要论述，植根于中国式现代化的成功实践，彰显了中国与各国在现代化征程上携手同行，共同推进世界现代化、推动构建人类命运共同体的胸怀担当。
 
-具体来看，珠海将推进高品质“好房子”供给，增加改善型与刚需型住房供应；延长住房“以旧换新”补贴政策至今年年底，单套住房补贴金额最高不超过3万元；契税优惠方面，申报缴纳契税时，将不计入横琴粤澳深度合作区的住房套数。
+中国式现代化是全体人民共同富裕的现代化。
 
-此外，珠海还提高了公积金贷款额度，扩大对多子女家庭的购房支持力度。
+在习近平总书记带领下，中国始终把实现人民对美好生活的向往作为现代化建设的出发点和落脚点，稳步推进共同富裕。
 
-同时，鼓励市民购买绿色建筑，助力居住品质升级。
+“十五五”规划纲要坚持以人民为中心的发展思想，牢牢把握共同富裕的目标要求，围绕加大保障和改善民生力度、扎实推进全体人民共同富裕作出战略部署，为未来5年中国经济社会发展擘画蓝图，也为世界提供了一份“机遇清单”。
 
-不仅是珠海，济南、青岛也相继出台了房地产新政，旨在激活当地购房需求。
+提前实现联合国2030年可持续发展议程减贫目标，人均国内生产总值连续3年超过1.3万美元，建成全球规模最大的教育体系、社会保障体系、医疗卫生体系……中国式现代化坚持以人民为中心，不让一个人掉队，也为全球提供了生动示范。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [韩国对日本高层向靖国神社供奉祭品深表失望和遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:17 - [从丝路古道到算力高地 甘肃擘画“AI”未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:24 - [易德龙一季度归母净利润约3053万元 同比降26.92%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:09 - [东西问丨伊朗战事，暴露美国工业软肋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:11 - [方正证券净利润市占率增速位列第三 自营业务规模复苏但收益率仍有待提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:02 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:12 - [午后！A50、港股，突然异动！发生了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:13 - [大风蓝色预警：内蒙古新疆等7省区阵风可达8至9级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 10:57 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:15 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:21 - [一针“串”世界 25国外籍人士郑州话“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:11 - [“市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:20 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:16 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:12 - [国务院常务会议解读｜国务院常务会议部署就业工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:21 - [浙商银行：不再设置监事会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:19 - [伊朗战事冲击能源市场 欧盟称航空燃油供应暂无虞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:21 - [黄金已成全球最大储备资产，4月多国央行恢复净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:25 - [美国WTI原油下跌3%，报道称特朗普不愿重启与伊朗的战争](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:16 - [黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:17 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:17 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:08 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:09 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:20 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:14 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:29 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:24 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:15 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:59 - [7岁男孩表演少林拳，一招一式刚劲有力](http://www.blog.minike.top/Article/details/727994.shtml)
-- 2026-06-29 11:02 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](http://www.share.minike.top/Article/details/397452345.shtml)
-- 2026-06-29 11:07 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](http://www.blog.minike.top/Article/details/10906027.shtml)
-- 2026-06-29 11:03 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](http://www.share.kurohicncr.top/Article/details/018673.shtml)
-- 2026-06-29 10:58 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.share.minike.top/Article/details/85273078.shtml)
-- 2026-06-29 11:13 - [2026中国（宿迁）白酒之都文化旅游节开幕](http://www.share.minike.top/Article/details/08565.shtml)
-- 2026-06-29 11:11 - [全球两大传奇枪械制造商爆发激烈内斗](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](http://www.blog.kurohicncr.top/Article/details/5829053071.shtml)
-- 2026-06-29 11:23 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](http://www.share.minike.top/Article/details/311000924.shtml)
-- 2026-06-29 10:59 - [邵艺辉：建议年轻人多阅读多写作](http://www.share.minike.top/Article/details/134656334295.shtml)
-- 2026-06-29 11:18 - [600355，退市！不进入退市整理期！](http://www.share.minike.top/Article/details/135332687.shtml)
-- 2026-06-29 11:19 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.minike.top/Article/details/84271820.shtml)
-- 2026-06-29 11:06 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/32306007247.shtml)
-- 2026-06-29 11:01 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.share.minike.top/Article/details/00599494.shtml)
+- 2026-06-29 11:25 - [Point72据悉考虑从其他对冲基金付费获取交易情报](http://www.share.minike.top/Article/details/32791657.shtml)
+- 2026-06-29 11:26 - [中华企业：公司积极参与上海地产集团城市更新平台建设](http://www.blog.minike.top/Article/details/1013867.shtml)
+- 2026-06-29 11:18 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:08 - [新疆喀什：360余万亩冬小麦喜迎丰收](http://www.blog.minike.top/Article/details/49977.shtml)
+- 2026-06-29 11:05 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/7193732634.shtml)
+- 2026-06-29 11:06 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.kurohicncr.top/Article/details/12914719.shtml)
+- 2026-06-29 11:15 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.kurohicncr.top/Article/details/99618.shtml)
+- 2026-06-29 11:11 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.kurohicncr.top/Article/details/229424809376.shtml)
+- 2026-06-29 11:06 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.minike.top/Article/details/93062250495.shtml)
+- 2026-06-29 11:05 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.minike.top/Article/details/52002661.shtml)
+- 2026-06-29 11:24 - [精耕细作，童书消费步入品质时代](http://www.share.kurohicncr.top/Article/details/88452.shtml)

@@ -1,53 +1,58 @@
-# 韩国对日本高层向靖国神社供奉祭品深表失望和遗憾
+# 国务院常务会议解读｜国务院常务会议部署就业工作
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新社首尔4月21日电 (记者 刘旭)韩国外交部21日表示，韩国政府对日本高层当天向供奉二战甲级战犯的靖国神社供奉祭品深表失望和遗憾。 韩国政府当天以外交部发言人评论的方式发表声明表示，韩方敦促日方高层正视历史，以行动体现对侵略历史的谦卑忏悔和真诚反思。韩方再次强调，这是构建基于互信、面向未来的韩日关系的重要基础。 21日，日本首相高市早苗以“内阁总理大臣”名义向靖国神社供奉名
+新华社北京6月5日电（记者张晓洁）6月5日召开的国务院常务会议听取关于做好就业工作的汇报，审议通过《实施就业优先战略“十五五”规划》《退役军人就业创业促进条例（草案）》，并作出一系列重要部署。 “十五五”时期，我国经济长期向好的支撑条件和基本趋势没有变，为稳就业提供坚实基础。同时，就业总量压力依然存在，结构性就业矛盾更加突出，外部环境变化会带来一些新情况新问题。 会议指出，要以
 
 ## 正文
 
-中新社首尔4月21日电 (记者 刘旭)韩国外交部21日表示，韩国政府对日本高层当天向供奉二战甲级战犯的靖国神社供奉祭品深表失望和遗憾。
+新华社北京6月5日电（记者张晓洁）6月5日召开的国务院常务会议听取关于做好就业工作的汇报，审议通过《实施就业优先战略“十五五”规划》《退役军人就业创业促进条例（草案）》，并作出一系列重要部署。
 
-韩国政府当天以外交部发言人评论的方式发表声明表示，韩方敦促日方高层正视历史，以行动体现对侵略历史的谦卑忏悔和真诚反思。
+“十五五”时期，我国经济长期向好的支撑条件和基本趋势没有变，为稳就业提供坚实基础。
 
-韩方再次强调，这是构建基于互信、面向未来的韩日关系的重要基础。
+同时，就业总量压力依然存在，结构性就业矛盾更加突出，外部环境变化会带来一些新情况新问题。
 
-21日，日本首相高市早苗以“内阁总理大臣”名义向靖国神社供奉名为“真榊”的祭品。
+会议指出，要以实施就业优先战略为引领，全面贯彻劳动者自主就业、市场调节就业、政府促进就业和鼓励创业的方针，加强产业和就业协同，持续用力推动就业扩容提质，努力实现高质量充分就业。
 
-(完)
+“解决就业问题，根本要靠发展。
+
+”中国人事科学研究院就业创业与政策评价研究室副主任黎宇说，根据会议部署，各地要树立“大就业观”，在促进行业发展中稳住就业岗位，在推动产业升级中扩大就业容量，在强化权益保障中提升就业质量。
+
+精准保障高校毕业生、新就业形态群体、退役军人等重点群体就业是稳就业的重中之重。
+
+会议作出“拓展高校毕业生等青年就业成才渠道，加大重点群体就业支持力度，推动灵活就业、新就业形态健康发展”“采取政府推动、市场引导、社会支持相结合的方式，鼓励和扶持退役军人就业创业”等部署。
 
 ## 相关推荐
 
-- 2026-06-29 11:08 - [大风蓝色预警：内蒙古新疆等7省区阵风可达8至9级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:15 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:07 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:21 - [一针“串”世界 25国外籍人士郑州话“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:12 - [“市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:22 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:17 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:22 - [好评中国丨硬核数据再上新，中国经济“春潮”迭起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:05 - [李家超橄榄球赛场“招商引资”：我们这里机遇无限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:23 - [百胜中国：4月20日起，肯德基糖醋酱、甜辣酱改为收费产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:14 - [酒价内参4月22日价格发布：古井贡古20上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 10:57 - [德国商业银行正式拒绝裕信银行敌意收购策略 收购战言辞交锋升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:01 - [习近平举行仪式欢迎莫桑比克总统查波访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:03 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:00 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:02 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:29 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:03 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:15 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:08 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:02 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:18 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:02 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:18 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:29 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [全球两大传奇枪械制造商爆发激烈内斗](http://www.blog.kurohicncr.top/Article/details/638472.shtml)
-- 2026-06-29 10:59 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](http://www.blog.kurohicncr.top/Article/details/66075480.shtml)
-- 2026-06-29 11:05 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](http://www.blog.kurohicncr.top/Article/details/9513277.shtml)
-- 2026-06-29 10:58 - [邵艺辉：建议年轻人多阅读多写作](http://www.share.kurohicncr.top/Article/details/8727352539.shtml)
-- 2026-06-29 11:16 - [600355，退市！不进入退市整理期！](http://www.blog.kurohicncr.top/Article/details/74557334.shtml)
-- 2026-06-29 11:17 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.kurohicncr.top/Article/details/7343872621.shtml)
-- 2026-06-29 11:09 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.share.kurohicncr.top/Article/details/4359497186.shtml)
-- 2026-06-29 11:07 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.blog.kurohicncr.top/Article/details/757089806388.shtml)
-- 2026-06-29 11:22 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](http://www.blog.minike.top/Article/details/98765.shtml)
-- 2026-06-29 11:26 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](http://www.blog.kurohicncr.top/Article/details/292605384.shtml)
-- 2026-06-29 10:59 - [标普A红利ETF华宝（562060）单日揽金超1.2亿元，业绩窗口期红利策略或持续占优！](http://www.share.minike.top/Article/details/89428439.shtml)
-- 2026-06-29 11:20 - [600606，致歉！更正业绩预告，最多亏损265亿元！](http://www.share.minike.top/Article/details/645721584204.shtml)
-- 2026-06-29 11:17 - [胜宏科技首挂上市 早盘上涨51.71%](http://www.share.kurohicncr.top/Article/details/32372764422.shtml)
-- 2026-06-29 11:17 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](http://www.share.minike.top/Article/details/5676245577.shtml)
-- 2026-06-29 11:10 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.share.minike.top/Article/details/85471.shtml)
+- 2026-06-29 11:07 - [中国人保原党委委员、副总裁于泽被“双开”](http://www.share.kurohicncr.top/Article/details/332592974724.shtml)
+- 2026-06-29 11:06 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.kurohicncr.top/Article/details/806043.shtml)
+- 2026-06-29 11:11 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.share.kurohicncr.top/Article/details/41172135583.shtml)
+- 2026-06-29 11:05 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.blog.minike.top/Article/details/8087721.shtml)
+- 2026-06-29 11:27 - [中国法院去年审结环境资源一审案件22.9万件](http://www.blog.minike.top/Article/details/821101194.shtml)
+- 2026-06-29 11:09 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.blog.minike.top/Article/details/86220331.shtml)
+- 2026-06-29 11:01 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [精耕细作，童书消费步入品质时代](http://www.blog.kurohicncr.top/Article/details/72456.shtml)
+- 2026-06-29 11:13 - [ST星农大宗交易成交203.00万元](http://www.share.minike.top/Article/details/7968251753.shtml)
+- 2026-06-29 11:23 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.blog.kurohicncr.top/Article/details/40886169767.shtml)
+- 2026-06-29 11:29 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.share.minike.top/Article/details/54679859703.shtml)
+- 2026-06-29 11:28 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.blog.minike.top/Article/details/374715799.shtml)
+- 2026-06-29 11:20 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](http://www.blog.kurohicncr.top/Article/details/67585448581.shtml)
+- 2026-06-29 11:16 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.blog.kurohicncr.top/Article/details/58516788504.shtml)

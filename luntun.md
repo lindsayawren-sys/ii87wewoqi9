@@ -1,53 +1,61 @@
-# 联合国官员：同中国开展气候早期预警合作是国际发展合作的典范
+# 央行7天期逆回购连续两日零操作 资金面仍显宽松
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 22:06 来源：中国新闻网 气候变化和绿色发展是全球发展倡议八大重点合作领域之一。在全球发展和南南合作基金框架下，中国与联合国开发计划署(UNDP)签署有关合作文件，在马尔代夫、科摩罗等六国实施“气候信息早期预警系统”项目，帮助当地提高灾害预警和响应能力。近日，UNDP驻马尔代夫代表阿德南·奇马在接受中新社记者专访时表示，这一项目体系实践正是
+每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。 回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。 东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释
 
 ## 正文
 
-发布时间：2026年04月21日 22:06 来源：中国新闻网 气候变化和绿色发展是全球发展倡议八大重点合作领域之一。
+每经记者|张寿林 今天，人民银行公开市场业务操作室披露，根据公开市场业务一级交易商的需求，当日7天期逆回购操作量为零。
 
-在全球发展和南南合作基金框架下，中国与联合国开发计划署(UNDP)签署有关合作文件，在马尔代夫、科摩罗等六国实施“气候信息早期预警系统”项目，帮助当地提高灾害预警和响应能力。
+值得注意的是，这已是公开市场业务7天期逆回购连续第二日零操作。
 
-近日，UNDP驻马尔代夫代表阿德南·奇马在接受中新社记者专访时表示，这一项目体系实践正是国际发展合作的典范。
+回溯5月，央行通过各类货币政策工具合计净回笼流动性3809亿元，结合货币市场多项监测指标来看，近期市场流动性整体处于偏充裕状态。
 
-记者 迟瀚宇 郎佳慧 官逸伦 黄方 北京报道 责任编辑：【于晓】
+东方金诚首席宏观分析师王青指出，近期公开市场逆回购持续调减至0元，释放了稳定资金面、避免主要市场利率过度向下偏离政策利率、防范资金空转的信号，有助于稳定市场预期。
+
+从资金面看，截至6月4日发稿前，DR001加权平均值为1.3247%，DR007加权平均值为1.3478%；6月3日，DR001加权平均值为1.3229%，DR007加权平均值为1.3428%。
+
+货币市场DR007运行于政策利率锚下方较低水平，提示即便流动性连续0元投放，资金面依然宽松。
+
+当前公开市场操作7天期逆回购利率为政策利率锚，利率水平为1.4%。
+
+《每日经济新闻》记者注意到，就在上周四（5月28日），同业存单发行加权平均利率低至1.36%。
 
 ## 相关推荐
 
-- 2026-06-29 11:03 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:11 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:11 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:01 - [如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:11 - [工信部：一季度中国规模以上工业增加值同比增长6.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:18 - [泰国东部经济走廊与广东企业签署合作备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:15 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:10 - [特朗普：希望有人收购陷入困境的精神航空公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:09 - [春季脱发高发 专家提醒警惕脏腑失衡隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:13 - [高盛任命金融科技银行家Gido担任金融机构组主席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:25 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:18 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:25 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:22 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:21 - [首届中非企业家高端论坛在非盟总部举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:05 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:03 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:25 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:08 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:22 - [西陇科学：公司及控股子公司均不存在逾期担保情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [铁路端午假期运输首日火车票今日起售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:08 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:28 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:09 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:21 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:25 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:19 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:29 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:06 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:03 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:58 - [均胜电子拟派发末期股息每10股1.8元](http://www.share.minike.top/Article/details/3488414.shtml)
-- 2026-06-29 11:25 - [“用特朗普方式对付特朗普”：伊朗专挑周末“打脸”，真正的战场不在霍尔木兹！](http://www.share.minike.top/Article/details/70881.shtml)
-- 2026-06-29 11:16 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.share.minike.top/Article/details/6880217.shtml)
-- 2026-06-29 11:25 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.share.kurohicncr.top/Article/details/140512794282.shtml)
-- 2026-06-29 11:03 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](http://www.blog.minike.top/Article/details/887263585.shtml)
-- 2026-06-29 11:07 - [大美边疆看我家丨黑龙江松岭：春雨裹春雪 雪花漫枝头](http://www.blog.kurohicncr.top/Article/details/0049305.shtml)
-- 2026-06-29 11:17 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.minike.top/Article/details/66605587.shtml)
-- 2026-06-29 11:22 - [韩国3月PPI同比涨幅为三年多来最大 因中东冲突引发油价飙升](http://www.share.kurohicncr.top/Article/details/1402315.shtml)
-- 2026-06-29 10:59 - [从“酱油色”到“翡翠绿”，这株草专“喝”脏水](http://www.share.minike.top/Article/details/955733456962.shtml)
-- 2026-06-29 11:10 - [第十三批12位在韩志愿军烈士遗骸今日回国 “荣归50”“红鹰” 接迎任务飞机呼号公布](http://www.share.minike.top/Article/details/96758907.shtml)
-- 2026-06-29 11:18 - [东西问丨特朗普“推特治国2.0”，这次对伊朗不好使了](http://www.blog.kurohicncr.top/Article/details/746459.shtml)
-- 2026-06-29 11:24 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [伊朗官员：最高领袖完全健康](http://www.share.kurohicncr.top/Article/details/690973.shtml)
-- 2026-06-29 11:22 - [礼来斥资70亿美元收购Kelonia，加注体内CAR-T癌症疗法](http://www.blog.minike.top/Article/details/8421091737.shtml)
-- 2026-06-29 11:12 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.kurohicncr.top/Article/details/4554369.shtml)
+- 2026-06-29 11:02 - [长江有色：多头锁定获利叠加中东风险未消除 5日锌价或下跌](http://www.share.kurohicncr.top/Article/details/157165165599.shtml)
+- 2026-06-29 11:06 - [银行股东会不再“走过场”，分红与薪酬争议升温](http://www.blog.minike.top/Article/details/567147188027.shtml)
+- 2026-06-29 11:21 - [研发投入从15.57亿到0：环保上市企业研发呈两极分化](http://www.share.kurohicncr.top/Article/details/7280744.shtml)
+- 2026-06-29 11:28 - [宋磊获批担任国家开发银行首席信息官](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [西部首支电网应急救援技术支撑队在川揭牌成立](http://www.blog.kurohicncr.top/Article/details/57537.shtml)
+- 2026-06-29 11:26 - [入境游迎爆发窗口期 行业龙头加码布局](http://www.share.kurohicncr.top/Article/details/20882099.shtml)
+- 2026-06-29 11:24 - [Partners集团预警：或将对更多基金增设赎回上限](http://www.blog.kurohicncr.top/Article/details/59551466191.shtml)
+- 2026-06-29 11:28 - [特朗普认为赞成限制其战争权力的众议员“不爱国”](http://www.blog.minike.top/Article/details/713425.shtml)
+- 2026-06-29 11:21 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](http://www.share.kurohicncr.top/Article/details/6632241.shtml)
+- 2026-06-29 11:08 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.blog.minike.top/Article/details/8973942.shtml)
+- 2026-06-29 11:27 - [铁路端午假期运输首日火车票今天起售](http://www.share.minike.top/Article/details/276518683.shtml)
+- 2026-06-29 11:25 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:08 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](http://www.blog.kurohicncr.top/Article/details/50015266466.shtml)
+- 2026-06-29 11:24 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](http://www.blog.kurohicncr.top/Article/details/25979837899.shtml)
+- 2026-06-29 11:23 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.blog.kurohicncr.top/Article/details/832585531.shtml)

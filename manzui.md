@@ -1,58 +1,61 @@
-# 中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕
+# 健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-视频｜中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕视频：中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕来源：光明网 光明网讯(记者 茹行止)4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会在北京正式启动。活动现场设置了丰富多彩的诗词文化体验，吸引众多中文和中国古诗词爱好者参与体验。 活动当天，教育
+重疾险，确诊才能赔？医疗险，生病就不能买？ 当公众将目光聚焦分红险、增额终身寿险等储蓄型产品时，传统保障型产品，尤其是重疾险，愈发难卖，这几乎成为近年来从业者的普遍感受。 百万医疗险抢占市场，叠加产品涨价，重疾险保障杠杆持续走低，2021年，重疾险保费收入同比下降6.7%，系2016年以来首次负增长；到2024年，医疗险保费占健康险保费的比例约44%，首次超越重疾险（占比约为4
 
 ## 正文
 
-视频｜中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕视频：中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕来源：光明网 光明网讯(记者 茹行止)4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会在北京正式启动。
+重疾险，确诊才能赔？
 
-活动现场设置了丰富多彩的诗词文化体验，吸引众多中文和中国古诗词爱好者参与体验。
+医疗险，生病就不能买？
 
-活动当天，教育部中外语言交流合作中心发布的一段特别视频中，中外嘉宾通过镜头分享了各自最喜欢的中文诗词，以诗传情，深化中外人文交流与文明互鉴。
+当公众将目光聚焦分红险、增额终身寿险等储蓄型产品时，传统保障型产品，尤其是重疾险，愈发难卖，这几乎成为近年来从业者的普遍感受。
 
-据主办方介绍，“国际中文日”于2020年创立，迄今已成功举办六届。
+百万医疗险抢占市场，叠加产品涨价，重疾险保障杠杆持续走低，2021年，重疾险保费收入同比下降6.7%，系2016年以来首次负增长；到2024年，医疗险保费占健康险保费的比例约44%，首次超越重疾险（占比约为43%），成为健康险市场的第一大险种。
 
-六年来，全球160多个国家的上千家教育文化机构累计举办6000余场中国语言文化活动，吸引海内外4亿民众参与。
+如何拓展保障边界，提升消费者获得感，成为健康险迭代升级的关键。
 
-2026年“国际中文日”主题为“中文：点亮多彩梦想”，将在全球100多个国家举办上千场活动，持续推动中外人文交流与民心相通。
+贝壳财经记者注意到，今年以来，嵌入医疗责任、不确诊也可获得赔付的重疾险，带病可保可赔、降低免赔额，甚至能报销三甲医院国际部的中高端医疗险接连上市。
 
-“诗约四海”全球中文诗友会活动以“人与自然和谐相处”为年度主题，面向全球中文学习者和中华文化爱好者，通过社交媒体挑战、全球视频作品征集、青年推荐官互动、多城线下诗会等系列活动，搭建线上线下联动、跨文化共创的交流平台，呈现中国古诗词韵律、意境、情感之美。
+这些打破原保障边界的保险产品，在条款设计、赔付规则上有何创新？
 
-视频来源：教育部中外语言合作交流中心
+消费者在选购时又该如何避坑？
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:25 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:07 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:05 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:07 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:12 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:01 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:22 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:02 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:15 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:07 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:19 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:17 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:22 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:24 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:20 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:20 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:26 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:22 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:13 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:13 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:27 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:01 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:27 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:28 - [山东文化“春雨”乘旅游列车润泽天山南北](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:12 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:00 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:01 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](http://www.share.kurohicncr.top/Article/details/85578515014.shtml)
-- 2026-06-29 11:26 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](http://www.blog.kurohicncr.top/Article/details/285424.shtml)
-- 2026-06-29 11:10 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.blog.kurohicncr.top/Article/details/727616601067.shtml)
-- 2026-06-29 11:02 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [大湾区建设持续发力 三地居民共享政策红利](http://www.blog.kurohicncr.top/Article/details/7846412.shtml)
-- 2026-06-29 11:15 - [从云端到长安 中外少年携手共筑文化桥梁](http://www.share.minike.top/Article/details/99134069.shtml)
-- 2026-06-29 11:06 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/69239708187.shtml)
-- 2026-06-29 11:10 - [日经指数上涨0.9% 受电子和科技股带动](http://www.blog.minike.top/Article/details/510437154718.shtml)
-- 2026-06-29 11:09 - [特朗普称最终将达成重大协议](http://www.blog.minike.top/Article/details/799618485009.shtml)
-- 2026-06-29 11:02 - [五方共建大湾区船员权益保障中心 推六项保障举措](http://www.share.kurohicncr.top/Article/details/6125927.shtml)
-- 2026-06-29 11:07 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](http://www.share.minike.top/Article/details/93264972900.shtml)
-- 2026-06-29 10:59 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](http://www.share.kurohicncr.top/Article/details/4159563981.shtml)
-- 2026-06-29 11:03 - [菲律宾一客车坠谷致2死39伤](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.share.kurohicncr.top/Article/details/272065160070.shtml)
+- 2026-06-29 11:05 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:02 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.blog.kurohicncr.top/Article/details/57150557.shtml)
+- 2026-06-29 11:29 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [全国小麦收获有序推进 已近五成](http://www.share.minike.top/Article/details/89173686.shtml)
+- 2026-06-29 11:05 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.share.kurohicncr.top/Article/details/06963560.shtml)
+- 2026-06-29 11:17 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.blog.minike.top/Article/details/19174989.shtml)
+- 2026-06-29 11:06 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.minike.top/Article/details/4282137.shtml)
+- 2026-06-29 11:17 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.blog.kurohicncr.top/Article/details/33062187544.shtml)
+- 2026-06-29 11:07 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](http://www.share.kurohicncr.top/Article/details/732060599.shtml)
+- 2026-06-29 11:28 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](http://www.blog.minike.top/Article/details/332140.shtml)
+- 2026-06-29 11:13 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.blog.minike.top/Article/details/7276489374.shtml)
+- 2026-06-29 11:11 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.share.kurohicncr.top/Article/details/76210295987.shtml)
+- 2026-06-29 11:21 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](http://www.blog.minike.top/Article/details/31354.shtml)

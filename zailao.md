@@ -1,56 +1,61 @@
-# 美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金
+# AI数据中心战略推动PowerBank全面品牌重塑
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-美国佛罗里达州民主党联邦众议员Sheila Cherfilus-McCormick因被指控盗取疫情救济资金而辞职。 她在社交媒体上发布的一份声明中说：“与其玩这些政治把戏，我选择离开，这样我就可以把时间投入到为我的邻居们抗争上。” 美国司法部起诉47岁的Cherfilus-McCormick，指控她涉嫌合谋窃取500万美元联邦灾害救助资金，并通过多个账户转移这笔资金以掩盖其来源
+北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。 此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算
 
 ## 正文
 
-美国佛罗里达州民主党联邦众议员Sheila Cherfilus-McCormick因被指控盗取疫情救济资金而辞职。
+北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。
 
-她在社交媒体上发布的一份声明中说：“与其玩这些政治把戏，我选择离开，这样我就可以把时间投入到为我的邻居们抗争上。
+此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。
 
-” 美国司法部起诉47岁的Cherfilus-McCormick，指控她涉嫌合谋窃取500万美元联邦灾害救助资金，并通过多个账户转移这笔资金以掩盖其来源，还将其中部分资金用于她2021年的竞选活动。
+此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算基础设施提供解决方案的新战略领域。
 
-她表示不认罪。
+PowerBank首席执行官Richard Lu博士表示，新品牌向合作伙伴和投资者传递了一个明确信号：公司正坚定地站在能源与数字基础设施的交汇点。
 
-众议院道德委员会认定这名女众议员犯有25项道德违规行为，并原定于周二开会，就如何对她进行惩处做出建议。
+他指出，公司在美国和加拿大拥有超过1吉瓦的太阳能及储能项目储备，这些资产正日益成为分布式AI计算部署的基础。
 
-就在该委员会开会前几分钟，她发布了这份声明。
+随着市场对电力保障可靠、成本较低的AI基础设施需求不断增长，PowerBank凭借这一独特优势，能够有效服务于该新兴市场。
 
-众议院议长迈克·约翰逊上周表示，他支持将Cherfilus-McCormick驱逐出众议院。
+此前，PowerBank已宣布与Nodiac Corp．签署了一份不具约束力的意向书，计划利用其项目组合中的合适站点，共同部署分布式AI计算基础设施。
 
-美国宪法规定，驱逐一名议员需要众议院三分之二多数票表决通过。
+在推进AI新战略的同时，公司的既定项目也在稳步落地，包括2026年春季在纽约州的九个太阳能及储能项目的启动，以及安大略省SFF 06电池储能项目的商业运营。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:17 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:23 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:17 - [工信部回应存储器价格上涨：将多措并举保障产业链供应链稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:05 - [礼来制药同意收购抗癌药物开发商Kelonia，交易价值达70亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:10 - [7岁男孩表演少林拳，一招一式刚劲有力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:15 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:04 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:15 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:21 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:15 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:17 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:22 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:19 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:20 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:08 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:25 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:28 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:25 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:07 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:08 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:05 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:03 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:24 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:02 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](http://www.share.minike.top/Article/details/61816.shtml)
-- 2026-06-29 11:24 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.minike.top/Article/details/7624850.shtml)
-- 2026-06-29 11:01 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](http://www.share.kurohicncr.top/Article/details/00592298.shtml)
-- 2026-06-29 11:16 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.blog.kurohicncr.top/Article/details/0925687.shtml)
-- 2026-06-29 11:23 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](http://www.blog.kurohicncr.top/Article/details/548209708.shtml)
-- 2026-06-29 11:18 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](http://www.blog.minike.top/Article/details/959698118454.shtml)
-- 2026-06-29 11:17 - [向日葵2025年净亏损438.48万元](http://www.blog.kurohicncr.top/Article/details/5526145.shtml)
-- 2026-06-29 11:14 - [肖捷会见欧洲议会副议长奥马吉](http://www.share.kurohicncr.top/Article/details/3804601.shtml)
-- 2026-06-29 11:07 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.blog.minike.top/Article/details/64689130385.shtml)
-- 2026-06-29 11:13 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](http://www.blog.kurohicncr.top/Article/details/06143143476.shtml)
-- 2026-06-29 11:12 - [重庆法院2025年新收各类知识产权案件14438件](http://www.share.kurohicncr.top/Article/details/57798976147.shtml)
-- 2026-06-29 11:03 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](http://www.blog.kurohicncr.top/Article/details/4739358622.shtml)
-- 2026-06-29 11:27 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:13 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:14 - [中青旅：公司持续关注近期股价破净情况](http://www.share.kurohicncr.top/Article/details/5190216.shtml)
+- 2026-06-29 11:17 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.minike.top/Article/details/4852993.shtml)
+- 2026-06-29 11:00 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.share.kurohicncr.top/Article/details/4564810532.shtml)
+- 2026-06-29 11:26 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.share.kurohicncr.top/Article/details/57900685.shtml)
+- 2026-06-29 11:29 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.blog.kurohicncr.top/Article/details/552651668081.shtml)
+- 2026-06-29 11:17 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.blog.minike.top/Article/details/92184.shtml)
+- 2026-06-29 11:08 - [光大期货：6月5日金融日报](http://www.share.kurohicncr.top/Article/details/28760.shtml)
+- 2026-06-29 11:05 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.minike.top/Article/details/399857.shtml)
+- 2026-06-29 11:10 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.kurohicncr.top/Article/details/26978847848.shtml)
+- 2026-06-29 11:21 - [3分钟，垂直涨停！封单超6万手](http://www.blog.kurohicncr.top/Article/details/630659585543.shtml)
+- 2026-06-29 11:06 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.share.kurohicncr.top/Article/details/057293.shtml)

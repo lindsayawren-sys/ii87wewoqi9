@@ -1,61 +1,57 @@
-# 美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局
+# 小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-美国最高法院就“斯里佩奇诉美国证券交易委员会案”进行口头辩论，核心议题是：美国证券交易委员会（SEC）在寻求“追缴非法所得”时，是否必须证明投资者遭受了可量化的财务损害。这一裁决可能重塑SEC的执法权力边界。 本案源于对被告昂卡鲁克·斯里佩奇的指控，SEC称其参与涉及至少20家仙股公司的“拉高出货”骗局，非法获利约660万美元。下级法院已责令其追缴330万美元非法所得及利息，但
+摩根大通发布研报称，香港4月份零售业总销货额同比增长9%，相较于3月份的13%同比增幅有所温和放缓。若与2015至2018年的平均水平相比，4月份的零售销货额低出15%，亦较3月份的低出9%更为疲弱。剔除汽车（同比升46%）及电器制品（同比升22%）等异常强劲增长的类别后，4月整体零售销货额同比增长6%，低于3月的8%增幅。 小摩表示，虽然零售表现稳定，但目前尚未转化为两大香港
 
 ## 正文
 
-美国最高法院就“斯里佩奇诉美国证券交易委员会案”进行口头辩论，核心议题是：美国证券交易委员会（SEC）在寻求“追缴非法所得”时，是否必须证明投资者遭受了可量化的财务损害。
+摩根大通发布研报称，香港4月份零售业总销货额同比增长9%，相较于3月份的13%同比增幅有所温和放缓。
 
-这一裁决可能重塑SEC的执法权力边界。
+若与2015至2018年的平均水平相比，4月份的零售销货额低出15%，亦较3月份的低出9%更为疲弱。
 
-本案源于对被告昂卡鲁克·斯里佩奇的指控，SEC称其参与涉及至少20家仙股公司的“拉高出货”骗局，非法获利约660万美元。
+剔除汽车（同比升46%）及电器制品（同比升22%）等异常强劲增长的类别后，4月整体零售销货额同比增长6%，低于3月的8%增幅。
 
-下级法院已责令其追缴330万美元非法所得及利息，但斯里佩奇上诉主张，SEC必须先证明投资者遭受了可量化的经济损失。
+小摩表示，虽然零售表现稳定，但目前尚未转化为两大香港零售地产指标股-九龙仓置业（01997）及领展房产基金（00823）的正向或甚至是趋稳的续租租金变动。
 
-在口头辩论中，多数大法官对进一步限制SEC追缴权表现出抵触态度。
+该行维持对这两只港股的“中性”评级，但指出领展由于拥有超过6%的股息率以及潜在的资本循环利用，因此具备更多的上行空间。
 
-大法官埃米·巴雷特质疑：“如果只是剥夺其不应得的非法所得，为何算作惩罚？
-
-”司法部律师代表SEC辩称，追缴旨在剥夺违法者不当得利，而非以补偿受害者作为前提。
-
-然而，尼尔·戈萨奇大法官指出，若政府将追缴款项收归国库而非用于赔偿受害者，可能触发宪法第七修正案关于陪审团审判的权利。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:04 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:25 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:21 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:06 - [2026中国（宿迁）白酒之都文化旅游节开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:27 - [全球两大传奇枪械制造商爆发激烈内斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:25 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 10:57 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:18 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:21 - [600355，退市！不进入退市整理期！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:05 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 10:58 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:18 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:12 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:06 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:24 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:10 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:14 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:11 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:02 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:01 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:29 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:18 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:27 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:22 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:22 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:14 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:26 - [精耕细作，童书消费步入品质时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:23 - [ST星农大宗交易成交203.00万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:15 - [瑞梅铁路梅江特大桥中跨顺利合龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [肖捷会见欧洲议会副议长奥马吉](http://www.share.kurohicncr.top/Article/details/0686970.shtml)
-- 2026-06-29 11:26 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](http://www.blog.kurohicncr.top/Article/details/3013544.shtml)
-- 2026-06-29 11:16 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.blog.minike.top/Article/details/16578530120.shtml)
-- 2026-06-29 11:06 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](http://www.share.minike.top/Article/details/9082122.shtml)
-- 2026-06-29 11:09 - [重庆法院2025年新收各类知识产权案件14438件](http://www.blog.minike.top/Article/details/72486.shtml)
-- 2026-06-29 11:00 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](http://www.share.kurohicncr.top/Article/details/66971822.shtml)
-- 2026-06-29 11:10 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](http://www.share.kurohicncr.top/Article/details/1741704.shtml)
-- 2026-06-29 11:25 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](http://www.blog.minike.top/Article/details/57532219.shtml)
-- 2026-06-29 10:59 - [美国能源部预计汽油成本居高不下](http://www.blog.kurohicncr.top/Article/details/06915312366.shtml)
-- 2026-06-29 11:18 - [知名作家齐聚江西南昌 共绘长征精神文学地图](http://www.blog.kurohicncr.top/Article/details/403679.shtml)
-- 2026-06-29 11:15 - [突发！苹果官宣：库克9月卸任CEO，特努斯接任](http://www.blog.minike.top/Article/details/939491448433.shtml)
-- 2026-06-29 11:20 - [郑商所与波交所签署BPI授权协议](http://www.share.kurohicncr.top/Article/details/4566390606.shtml)
-- 2026-06-29 11:11 - [TGS延长美国海湾多年期海底节点采集合同](http://www.blog.kurohicncr.top/Article/details/666836.shtml)
-- 2026-06-29 11:08 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.share.minike.top/Article/details/484687.shtml)
-- 2026-06-29 10:57 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](http://www.share.kurohicncr.top/Article/details/545444486258.shtml)
+- 2026-06-29 11:01 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](http://www.share.minike.top/Article/details/39022.shtml)
+- 2026-06-29 11:26 - [伊朗称美失误致科威特机场受损 美方否认](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:03 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.blog.kurohicncr.top/Article/details/10757590487.shtml)
+- 2026-06-29 11:27 - [光大期货：6月5日金融日报](http://www.blog.minike.top/Article/details/521311460.shtml)
+- 2026-06-29 11:21 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.kurohicncr.top/Article/details/95088003.shtml)
+- 2026-06-29 11:20 - [3分钟，垂直涨停！封单超6万手](http://www.share.kurohicncr.top/Article/details/66376036890.shtml)
+- 2026-06-29 11:09 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](http://www.share.kurohicncr.top/Article/details/6229985.shtml)
+- 2026-06-29 11:08 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](http://www.blog.kurohicncr.top/Article/details/45847328304.shtml)
+- 2026-06-29 11:11 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:11 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](http://www.share.minike.top/Article/details/376195010665.shtml)
+- 2026-06-29 11:18 - [世赛新增项目，为啥是这7个？](http://www.share.minike.top/Article/details/1640523884.shtml)
+- 2026-06-29 11:03 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](http://www.share.kurohicncr.top/Article/details/170938360.shtml)
+- 2026-06-29 11:21 - [上海市委统战部在黄浦区召开基层统战工作现场会](http://www.share.minike.top/Article/details/42544773.shtml)

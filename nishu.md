@@ -1,57 +1,61 @@
-# 著作权纠纷高发 平台应如何做好“守门人”？法院提示→
+# 精耕细作，童书消费步入品质时代
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-今天，北京互联网法院发布涉平台著作权责任案件审理情况。数据显示，2021年至2025年，北京互联网法院累计受理网络著作权侵权案件83575件，审结案件85527件。其中，受理涉在京平台企业著作权纠纷超2.4万件，占全部网络著作权侵权纠纷的29.04%。案件涵盖网络直播、短视频推送、在线音乐播放、电子书阅读、新闻推送、社交网络分享、游戏制作与应用等多种传播形式，反映出以数字传播活
+作为儿童获取知识、塑造价值观的重要载体，童书的重要性不言而喻。童书是儿童消费“刚需”，童书市场也一度被视为出版业的“黄金板块”。近年来，行业深陷原创精品稀缺、市场价格内卷、流量算法裹挟等困境，整体处于下行调整期。一边是家长对优质儿童读物的强烈期盼，另一边是行业亟待突围的现实诉求，童书行业该如何守住价值内容，怎样更好满足消费者细分需求，从而跳出“拼价格”“拼规模”的老路？在某电商
 
 ## 正文
 
-今天，北京互联网法院发布涉平台著作权责任案件审理情况。
+作为儿童获取知识、塑造价值观的重要载体，童书的重要性不言而喻。
 
-数据显示，2021年至2025年，北京互联网法院累计受理网络著作权侵权案件83575件，审结案件85527件。
+童书是儿童消费“刚需”，童书市场也一度被视为出版业的“黄金板块”。
 
-其中，受理涉在京平台企业著作权纠纷超2.4万件，占全部网络著作权侵权纠纷的29.04%。
+近年来，行业深陷原创精品稀缺、市场价格内卷、流量算法裹挟等困境，整体处于下行调整期。
 
-案件涵盖网络直播、短视频推送、在线音乐播放、电子书阅读、新闻推送、社交网络分享、游戏制作与应用等多种传播形式，反映出以数字传播活动为代表的平台经济在北京呈现出极高的活跃度。
+一边是家长对优质儿童读物的强烈期盼，另一边是行业亟待突围的现实诉求，童书行业该如何守住价值内容，怎样更好满足消费者细分需求，从而跳出“拼价格”“拼规模”的老路？
 
-从涉诉权利类型来看，涉平台著作权纠纷中以信息网络传播权受到侵害为由提起诉讼的案件有21058件，占比85.52%。
+在某电商直播间，女主播手持一套童书快速讲道：“这是本关于生命的启蒙书，对孩子成长非常重要。
 
-北京互联网法院提示，在涉平台著作权纠纷案件高发的情况下，平台需承担更多的注意义务。
+全套书其他平台38元，今天直播间6本只要19.8元。
 
-(一)算法广泛应用，平台需要承担的注意义务提升 在“精准投喂”“用户画像”等算法技术广泛应用背景下，平台由被动的存储服务提供者向主动内容分发者转变，需承担更具前瞻性和主动性的“守门人”责任。
+”屏幕上销售数字应声跳动。
 
-一是在涉及“内容推荐”的案件中，首先需要基于推荐的实现手段和技术原理，区分“人工推荐”和“算法自动化推荐”，其次需要分析算法技术如何介入内容传播，从而判断平台是否实质性参与帮助侵权行为。
+在北京某实体书店里，一位母亲在书架前徘徊：“这么多书，看似丰富，实则大同小异，品质也参差不齐。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:05 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:02 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 10:59 - [新华微评：方块字何以走向全世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:14 - [矽电股份2025年度归母净利润约5283万元 同比下降42.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:20 - [2026北京车展前瞻：双馆扩容，新旧交锋，供应链争夺话语权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:15 - [第十三批在韩中国人民志愿军烈士遗骸即将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:26 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:16 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:17 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:13 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:17 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:01 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:04 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:10 - [天原股份：公司不存在资金链风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:23 - [“中国傩戏·傩面具艺术展”在青海西宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:02 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:29 - [中新健康｜芒种养生，重在健脾化湿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:10 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:18 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:08 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:05 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:07 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:29 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:10 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:23 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:17 - [碳减排量直兑利息抵扣 “中信碳账户”打通碳资产价值化“最后一公里”](http://www.share.kurohicncr.top/Article/details/24629.shtml)
-- 2026-06-29 10:57 - [外资“盯上”A股，哪类资产受青睐？](http://www.share.minike.top/Article/details/96611812.shtml)
-- 2026-06-29 11:01 - [京津冀首个国家级都市圈启动一年来，变了什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [亚盛医药-B授出受限制股份单位及购股权](http://www.share.minike.top/Article/details/4693975.shtml)
-- 2026-06-29 11:10 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/00144.shtml)
-- 2026-06-29 11:06 - [正泰电源这一股东陆续减持退出](http://www.blog.kurohicncr.top/Article/details/906489373.shtml)
-- 2026-06-29 11:19 - [301486，20%直线涨停！](http://www.share.minike.top/Article/details/374385414890.shtml)
-- 2026-06-29 11:14 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](http://www.share.kurohicncr.top/Article/details/560453.shtml)
-- 2026-06-29 11:20 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.blog.minike.top/Article/details/0095540701.shtml)
-- 2026-06-29 11:00 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/03268.shtml)
-- 2026-06-29 11:19 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [大湾区建设持续发力 三地居民共享政策红利](http://www.share.kurohicncr.top/Article/details/155901359867.shtml)
-- 2026-06-29 11:23 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/300772935.shtml)
+- 2026-06-29 11:14 - [印度1—3月经济同比增速达7.8%，表现超市场预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [桦欣控股公布将于6月5日上午起复牌](http://www.blog.kurohicncr.top/Article/details/357601530373.shtml)
+- 2026-06-29 11:09 - [二手油车价格暴跌，买车卖车怎么避开这些坑？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [高瓴减持格力电器：或套现16亿 张磊不再甘于当沉默大股东](http://www.share.kurohicncr.top/Article/details/409130170204.shtml)
+- 2026-06-29 11:20 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [王宏岩中再产险副总经理的任职资格获监管核准](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:02 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](http://www.blog.kurohicncr.top/Article/details/36400234.shtml)
+- 2026-06-29 11:23 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.blog.minike.top/Article/details/98291514319.shtml)
+- 2026-06-29 11:04 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.blog.kurohicncr.top/Article/details/882439772754.shtml)
+- 2026-06-29 11:17 - [全国小麦收获有序推进 已近五成](http://www.share.kurohicncr.top/Article/details/056889083.shtml)
+- 2026-06-29 11:00 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.blog.minike.top/Article/details/27431559601.shtml)
+- 2026-06-29 11:29 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.blog.kurohicncr.top/Article/details/229240.shtml)
+- 2026-06-29 11:06 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [消息人士：印度拟取消外资投资国债资本利得税](http://www.share.kurohicncr.top/Article/details/141475988440.shtml)

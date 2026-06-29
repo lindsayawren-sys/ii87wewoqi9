@@ -1,59 +1,56 @@
-# 五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%
+# 同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-4月22日，澎湃新闻记者从铁路上海站（下辖上海站、上海南站、上海虹桥站、上海松江站、上海西站、南翔北站、安亭北站、安亭西站、金山北站、练塘站）获悉，今年“五一”假期8天运输期间（4月29日起至5月6日），铁路上海站预计发送旅客483万人次，日均发送旅客超60万人次，同比增长5.42%。其中，4月30日至5月3日为出行高峰，每日发送旅客均超60万人次，客流最高峰日预计出现在5月1
+一场筹划近两年的股权收购，最终以“定向减资、债权债务相抵”的方式画上句号。近日，同仁堂发布公告称，控股子公司同仁堂商业正式终止对红惠医药51%股权的收购，原定1.05亿元的交易对价通过抵销方式完成清算，未产生实际资金流出。 01净资产缩水、利润波动，收购终止的两大导火索 此次收购终止的直接原因，指向红惠医药的财务状况恶化。根据公告，股权交割专项审计显示，截至2024年10月31
 
 ## 正文
 
-4月22日，澎湃新闻记者从铁路上海站（下辖上海站、上海南站、上海虹桥站、上海松江站、上海西站、南翔北站、安亭北站、安亭西站、金山北站、练塘站）获悉，今年“五一”假期8天运输期间（4月29日起至5月6日），铁路上海站预计发送旅客483万人次，日均发送旅客超60万人次，同比增长5.42%。
+一场筹划近两年的股权收购，最终以“定向减资、债权债务相抵”的方式画上句号。
 
-其中，4月30日至5月3日为出行高峰，每日发送旅客均超60万人次，客流最高峰日预计出现在5月1日，发送旅客达80万人次；5月4日至5日将迎来返程高峰，全站到达旅客超70万人次。
+近日，同仁堂发布公告称，控股子公司同仁堂商业正式终止对红惠医药51%股权的收购，原定1.05亿元的交易对价通过抵销方式完成清算，未产生实际资金流出。
 
-此外，上海多所高校选择在“五一”假期前组织学生前往外地研学旅行，今年“五一”客流高峰预计相较往年会提前启动。
+01净资产缩水、利润波动，收购终止的两大导火索 此次收购终止的直接原因，指向红惠医药的财务状况恶化。
 
-为尽力满足旅客出行需求，铁路上海站在高峰运行图的基础上优化列车开行方案，计划在江苏、浙江、安徽、江西、山东、河南等热门方向增开多趟旅客列车。
+根据公告，股权交割专项审计显示，截至2024年10月31日，红惠医药合并净资产为1.52亿元，已低于2024年1月31日评估基准日经审计的净资产金额，触发了《股权转让协议》中的交割审计条款。
 
-同时，将实时跟踪假期客流情况，通过动车组重联、普速列车加挂车厢等方式动态增加运力。
+与此同时，红惠医药的业绩分析中也暴露出利润波动问题，令交易双方不得不重新审视这笔买卖。
 
-据铁路上海站透露，4月30日，上海南站将迎来三位特殊的“员工”——来自宇树科技的1个机器人和2只机器狗，除常规解答旅客问询、引导旅客出行外，还将带来机器人表演；5月1日，克罗地亚大提琴演奏家安娜·鲁兹内尔将出现在上海松江站候车室内，与多位艺术家一起为旅客奉上“快闪”演出。
+值得注意的是，这并非双方第一次“踩刹车”。
 
-责任编辑：江钰涵
+早在2025年4月4日，同仁堂就曾发布公告，宣布中止执行原协议并延期交割，彼时已支付的5231.86万元转为意向金，管理交接事宜待重新谈判。
+
+四个月后，双方签署《执行约定》为退出铺路，最终通过定向减资方式实现分手。
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:20 - [巴黎检方：马斯克缺席传唤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:07 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:10 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 10:58 - [猪价反弹底部确认，政策释放“稳价”信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:02 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 10:58 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:26 - [全国首创知识产权代理跨境联营新机制在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:19 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:19 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:13 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:24 - [抓住春天养发黄金期！专家支招多吃这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:18 - [浙江安吉：雾漫山巅 野樱如星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:09 - [一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:09 - [“错失恐惧症”仍主导市场，投资者对最新紧张局势反应平淡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:13 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:12 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:03 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:29 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:02 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:00 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:26 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:07 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:24 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:29 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:02 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](http://www.blog.minike.top/Article/details/72845.shtml)
-- 2026-06-29 10:57 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [韩元走弱促使企业结汇 韩国外汇存款创历史最大降幅](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [杭州萧山机场海关查获1起入境旅客携带超量物品进境案件](http://www.share.kurohicncr.top/Article/details/752383293.shtml)
-- 2026-06-29 11:09 - [贵州牵手济州 共谋黔韩企业合作新路径](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [从“流量”到“留量” 解锁农文旅融合“长红”密码](http://www.blog.minike.top/Article/details/193807752711.shtml)
-- 2026-06-29 11:10 - [工信部推进算电协同！创业板50ETF华安（159949）半日成交额5.56亿领跑同类 机构：创业板占优行情或持续](http://www.share.minike.top/Article/details/13337589451.shtml)
-- 2026-06-29 11:13 - [淡马锡支持的CuspAI据悉正洽谈融资，估值将超10亿美元](http://www.share.kurohicncr.top/Article/details/15098.shtml)
-- 2026-06-29 11:16 - [开盘：国内期货主力合约涨多跌少 原油涨超2%](http://www.blog.minike.top/Article/details/392975177644.shtml)
-- 2026-06-29 11:15 - [兆易创新午前涨近3% 公司正式推出GD32F5HC系列32位通用微控制器](http://www.blog.minike.top/Article/details/6004708.shtml)
-- 2026-06-29 11:11 - [日媒：日本央行4月将维持利率不变](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [埃及迎来建设热潮，千亿美元投资重塑国家面貌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.blog.kurohicncr.top/Article/details/737367.shtml)
-- 2026-06-29 11:08 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.share.kurohicncr.top/Article/details/76900004.shtml)
-- 2026-06-29 11:08 - [小摩：料汇丰控股及渣打集团首季增长动能完好 均给予“增持”评级](http://www.blog.minike.top/Article/details/870140100.shtml)
+- 2026-06-29 11:25 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.blog.minike.top/Article/details/667164.shtml)
+- 2026-06-29 11:01 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.blog.minike.top/Article/details/66984760526.shtml)
+- 2026-06-29 11:18 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.minike.top/Article/details/018883414709.shtml)
+- 2026-06-29 11:29 - [佐力药业：公司无逾期对外担保](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.share.kurohicncr.top/Article/details/16344753812.shtml)
+- 2026-06-29 11:07 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.blog.kurohicncr.top/Article/details/920434509.shtml)
+- 2026-06-29 11:13 - [高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [2026中国环塔国际拉力赛：车队后勤是致胜关键](http://www.blog.kurohicncr.top/Article/details/075345542.shtml)
+- 2026-06-29 11:13 - [赴泰失联的4名中国公民即将回国 另有一男子意外获救](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:00 - [买新能源汽车之前，这几个坑一定要提前了解](http://www.share.minike.top/Article/details/463072802.shtml)
+- 2026-06-29 11:07 - [长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌](http://www.share.kurohicncr.top/Article/details/086649.shtml)
+- 2026-06-29 11:13 - [康宁杰瑞制药-B：执行董事及管理层增持股份](http://www.blog.minike.top/Article/details/496012.shtml)
+- 2026-06-29 11:22 - [一周之内双重上岸：Minimax冲刺A+H的战略算盘](http://www.share.kurohicncr.top/Article/details/916744.shtml)
+- 2026-06-29 11:15 - [美上周初请失业金人数创2月初以来的最高水平](http://www.blog.minike.top/Article/details/8408263627.shtml)

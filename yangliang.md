@@ -1,60 +1,59 @@
-# 联合国官员：同中国开展气候早期预警合作是国际发展合作的典范
+# 易方达ETF超过华夏了
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月21日电(官逸伦 黄方)联合国开发计划署(UNDP)驻马尔代夫代表阿德南·奇马(Adnan Cheema)近日接受中新社线上专访时表示，马尔代夫正面临日益频繁的极端天气事件，但若能提前24小时预警，灾害损失就可减少30%，“这不只是一个数字，而是在拯救生命”。气候变化和绿色发展是全球发展倡议八大重点合作领域之一。在全球发展和南南合作基金框架下，中国与UNDP签署有
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。 这是多年来华夏基金首次在ETF规模上被超越。 今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。易方达ETF规模减少了2622亿元，华夏减少了3407亿元。虽然两家都面临压力，
 
 ## 正文
 
-中新社北京4月21日电(官逸伦 黄方)联合国开发计划署(UNDP)驻马尔代夫代表阿德南·奇马(Adnan Cheema)近日接受中新社线上专访时表示，马尔代夫正面临日益频繁的极端天气事件，但若能提前24小时预警，灾害损失就可减少30%，“这不只是一个数字，而是在拯救生命”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-气候变化和绿色发展是全球发展倡议八大重点合作领域之一。
+来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。
 
-在全球发展和南南合作基金框架下，中国与UNDP签署有关合作文件，在马尔代夫、科摩罗等六国实施“气候信息早期预警系统”项目，帮助当地提高灾害预警和响应能力。
+这是多年来华夏基金首次在ETF规模上被超越。
 
-在奇马看来，这一项目体系实践正是国际发展合作的典范。
+今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。
 
-项目目前覆盖马尔代夫整个早期预警链条，包括监测预报、信息沟通、应急响应等各个环节。
+易方达ETF规模减少了2622亿元，华夏减少了3407亿元。
 
-在升级气象站和实时数据系统同时，支持开发数字平台和移动工具，使各地社区更方便获取预测信息并采取行动。
+虽然两家都面临压力，但易方达的缩水幅度相对更小，这也成为其反超的关键。
 
-早期预警系统使人们从应对灾害转向预判风险，“这就是早期预警的力量，它将信息转化为行动。
-
-”奇马说，有效的早期预警系统建设需要同时具备资金、技术与能力建设三大要素，否则，“即使是最好的系统也无法挽救生命”。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:01 - [300970，一季度净利暴增超7000%！今夜，业绩利好→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:12 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:10 - [2026中国（宿迁）白酒之都文化旅游节开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:24 - [全球两大传奇枪械制造商爆发激烈内斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:18 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 10:57 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:15 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 10:59 - [600355，退市！不进入退市整理期！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:07 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:13 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:21 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:14 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:16 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:10 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:16 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:08 - [央行最新！加大“收水”力度！5000亿元，明日操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:29 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:16 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:03 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:11 - [国家电网：168项迎峰度夏重点工程正加快建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:20 - [在中东事态发展喜忧参半之际，油价小幅走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:24 - [中国法院去年审结环境资源一审案件22.9万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:13 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:07 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:14 - [精耕细作，童书消费步入品质时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:11 - [ST星农大宗交易成交203.00万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:11 - [瑞梅铁路梅江特大桥中跨顺利合龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:10 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.blog.minike.top/Article/details/939272428.shtml)
-- 2026-06-29 11:23 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](http://www.blog.kurohicncr.top/Article/details/85945345962.shtml)
-- 2026-06-29 11:21 - [重庆法院2025年新收各类知识产权案件14438件](http://www.blog.minike.top/Article/details/6387108657.shtml)
-- 2026-06-29 11:06 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](http://www.share.kurohicncr.top/Article/details/6466720.shtml)
-- 2026-06-29 11:04 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](http://www.share.minike.top/Article/details/87376397.shtml)
-- 2026-06-29 10:59 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [美国能源部预计汽油成本居高不下](http://www.share.kurohicncr.top/Article/details/6359189578.shtml)
-- 2026-06-29 11:03 - [知名作家齐聚江西南昌 共绘长征精神文学地图](http://www.blog.minike.top/Article/details/05573660.shtml)
-- 2026-06-29 11:05 - [突发！苹果官宣：库克9月卸任CEO，特努斯接任](http://www.blog.kurohicncr.top/Article/details/118637.shtml)
-- 2026-06-29 11:14 - [郑商所与波交所签署BPI授权协议](http://www.share.kurohicncr.top/Article/details/45878.shtml)
-- 2026-06-29 11:03 - [TGS延长美国海湾多年期海底节点采集合同](http://www.share.minike.top/Article/details/39350.shtml)
-- 2026-06-29 11:24 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.blog.minike.top/Article/details/9619809367.shtml)
-- 2026-06-29 11:20 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](http://www.blog.minike.top/Article/details/552760843869.shtml)
-- 2026-06-29 11:13 - [特朗普称Anthropic“表现良好”，愿与五角大楼达成协议](http://www.blog.minike.top/Article/details/9477178.shtml)
+- 2026-06-29 11:26 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.minike.top/Article/details/79153691260.shtml)
+- 2026-06-29 11:25 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.share.kurohicncr.top/Article/details/1060182.shtml)
+- 2026-06-29 11:20 - [光大期货：6月5日金融日报](http://www.share.kurohicncr.top/Article/details/23064281.shtml)
+- 2026-06-29 11:29 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.blog.minike.top/Article/details/08540.shtml)
+- 2026-06-29 11:21 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.share.kurohicncr.top/Article/details/292622.shtml)
+- 2026-06-29 11:00 - [3分钟，垂直涨停！封单超6万手](http://www.share.minike.top/Article/details/816382.shtml)
+- 2026-06-29 11:04 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](http://www.share.kurohicncr.top/Article/details/830929614354.shtml)
+- 2026-06-29 11:26 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:03 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](http://www.blog.minike.top/Article/details/08944969351.shtml)
+- 2026-06-29 11:13 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](http://www.blog.kurohicncr.top/Article/details/195285806.shtml)
+- 2026-06-29 11:12 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](http://www.blog.minike.top/Article/details/834930659304.shtml)
+- 2026-06-29 11:18 - [世赛新增项目，为啥是这7个？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](http://www.blog.kurohicncr.top/Article/details/4894870839.shtml)
+- 2026-06-29 11:10 - [上海市委统战部在黄浦区召开基层统战工作现场会](http://www.blog.minike.top/Article/details/92719794.shtml)
+- 2026-06-29 11:25 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lisacumin64-arch)

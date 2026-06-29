@@ -1,56 +1,56 @@
-# 加拿大金融企业EQB计划发行2亿加元有限追索权资本票据
+# 中银国际：兖矿能源收购母公司电力资产并非特别吸引
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-加拿大金融企业EQB Inc． 正寻求通过发行有限追索权资本票据（LRCNs）筹集 2 亿加元，以进一步强化其资产负债表并支持业务扩张。LRCNs 作为一种混合资本工具，在监管机构的资本认定中通常具有较高权重，能够在不显著稀释现有股东权益的情况下提升资本充足率。 据悉，此次发行的票据预计将在多伦多证券交易所挂牌交易。作为一家专注于数字银行和借贷服务的金融机构，EQB 近年来持续
+中银国际发布研报称，兖矿能源（01171）已同意以155.7亿元人民币的价格从其母公司手中收购新能源集团。同时，兖矿能源还同意以8.45亿元人民币的价格从其母公司手中收购山东能源电力销售有限公司。目标资产的核心业务为发电。 报告指，卖方承诺，新能源集团2026-2028年的净利润总额不低于30.6亿元人民币。根据上述保证利润，此次交易对新能源集团的估值约为2026-2028年市
 
 ## 正文
 
-加拿大金融企业EQB Inc． 正寻求通过发行有限追索权资本票据（LRCNs）筹集 2 亿加元，以进一步强化其资产负债表并支持业务扩张。
+中银国际发布研报称，兖矿能源（01171）已同意以155.7亿元人民币的价格从其母公司手中收购新能源集团。
 
-LRCNs 作为一种混合资本工具，在监管机构的资本认定中通常具有较高权重，能够在不显著稀释现有股东权益的情况下提升资本充足率。
+同时，兖矿能源还同意以8.45亿元人民币的价格从其母公司手中收购山东能源电力销售有限公司。
 
-据悉，此次发行的票据预计将在多伦多证券交易所挂牌交易。
+目标资产的核心业务为发电。
 
-作为一家专注于数字银行和借贷服务的金融机构，EQB 近年来持续扩大业务版图。
+报告指，卖方承诺，新能源集团2026-2028年的净利润总额不低于30.6亿元人民币。
 
-在当前高利率环境下，银行面临补充一级资本的压力，LRCNs 因其兼具债务和股权的特性，逐渐成为加拿大金融机构优化资本结构的常用手段。
+根据上述保证利润，此次交易对新能源集团的估值约为2026-2028年市盈率的15倍，远高于大多数在香港上市的中国发电公司的高个位数市盈率。
 
-这笔资金将用于一般公司用途，包括加强资本基础和推动核心业务的增长。
+虽然基于保证利润的收益率为6.5%，但由于兖矿资本负债率较高，很可能需要外部融资来完成这笔交易，因此盈利增厚不会很显著。
 
-市场分析人士指出，成功发行这 2 亿加元票据将有助于 EQB 维持其强劲的资本状况，为其在激烈的市场竞争中提供更充足的资金储备。
-
-具体的发行条款和定价细节预计将在近期公布。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [高盛任命金融科技银行家Gido担任金融机构组主席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 10:57 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 10:57 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:12 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:02 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:08 - [首届中非企业家高端论坛在非盟总部举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:18 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:05 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:14 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:15 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:23 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:23 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:20 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:10 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:28 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:21 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:01 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:01 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:06 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:11 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:07 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:01 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:08 - [第十三批12位在韩志愿军烈士遗骸今日回国 “荣归50”“红鹰” 接迎任务飞机呼号公布](http://www.share.kurohicncr.top/Article/details/5216329.shtml)
-- 2026-06-29 11:26 - [东西问丨特朗普“推特治国2.0”，这次对伊朗不好使了](http://www.blog.kurohicncr.top/Article/details/99501.shtml)
-- 2026-06-29 10:57 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.minike.top/Article/details/81971.shtml)
-- 2026-06-29 11:25 - [伊朗官员：最高领袖完全健康](http://www.share.kurohicncr.top/Article/details/166398939880.shtml)
-- 2026-06-29 11:12 - [礼来斥资70亿美元收购Kelonia，加注体内CAR-T癌症疗法](http://www.blog.kurohicncr.top/Article/details/2677634.shtml)
-- 2026-06-29 11:21 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.minike.top/Article/details/47753.shtml)
-- 2026-06-29 11:10 - [韩正会见孟加拉国民族主义党高级干部考察团](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [广州纪念詹天佑诞辰165周年](http://www.share.minike.top/Article/details/472080.shtml)
-- 2026-06-29 11:18 - [北京市欧美同学会生物医药健康委员会调研国际医药创新公园](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](http://www.share.kurohicncr.top/Article/details/60311.shtml)
-- 2026-06-29 11:16 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [韩元走弱促使企业结汇 韩国外汇存款创历史最大降幅](http://www.share.kurohicncr.top/Article/details/11963.shtml)
-- 2026-06-29 10:59 - [杭州萧山机场海关查获1起入境旅客携带超量物品进境案件](http://www.blog.kurohicncr.top/Article/details/4488326.shtml)
-- 2026-06-29 10:57 - [贵州牵手济州 共谋黔韩企业合作新路径](http://www.share.minike.top/Article/details/22538506.shtml)
-- 2026-06-29 11:00 - [从“流量”到“留量” 解锁农文旅融合“长红”密码](http://www.blog.kurohicncr.top/Article/details/14748387477.shtml)
+- 2026-06-29 11:12 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.share.kurohicncr.top/Article/details/982027018.shtml)
+- 2026-06-29 11:17 - [铁路端午假期运输首日火车票今天起售](http://www.blog.kurohicncr.top/Article/details/3768780381.shtml)
+- 2026-06-29 11:26 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](http://www.blog.minike.top/Article/details/99635033479.shtml)
+- 2026-06-29 11:08 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](http://www.share.minike.top/Article/details/68847.shtml)
+- 2026-06-29 11:16 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.blog.kurohicncr.top/Article/details/83798424054.shtml)
+- 2026-06-29 11:18 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.blog.kurohicncr.top/Article/details/709569984.shtml)
+- 2026-06-29 11:16 - [航宇科技6月5日大宗交易成交332.31万元](http://www.share.kurohicncr.top/Article/details/9626326.shtml)
+- 2026-06-29 11:17 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.share.kurohicncr.top/Article/details/507173078.shtml)
+- 2026-06-29 11:03 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.kurohicncr.top/Article/details/01519152794.shtml)
+- 2026-06-29 11:16 - [佐力药业：公司无逾期对外担保](http://www.share.kurohicncr.top/Article/details/5370134.shtml)
+- 2026-06-29 11:01 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.share.minike.top/Article/details/9206604.shtml)
+- 2026-06-29 11:11 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.share.minike.top/Article/details/77018.shtml)

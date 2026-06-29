@@ -1,56 +1,51 @@
-# 开局起步“十五五”：山东“四向发力”提升区域创新能力
+# 以色列继续空袭黎巴嫩 造成至少9人死数十人伤
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网济南4月21日电(记者 李欣 梁犇)山东省省长周乃翔21日在济南表示，“十五五”时期，山东将在四个方面发力，深入实施科创能力攀登工程，打造中国重要的区域创新高地、人才集聚高地、科技创新策源地。 “开局起步‘十五五’奋力谱写中国式现代化山东篇章”专题新闻发布会当天在济南举行。周乃翔在发布会上回答记者提问时表示，发展新质生产力对于推动高质量发展、增强经济竞争力至关重要。山东始
+中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。 据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。 报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤
 
 ## 正文
 
-中新网济南4月21日电(记者 李欣 梁犇)山东省省长周乃翔21日在济南表示，“十五五”时期，山东将在四个方面发力，深入实施科创能力攀登工程，打造中国重要的区域创新高地、人才集聚高地、科技创新策源地。
+中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。
 
-“开局起步‘十五五’奋力谱写中国式现代化山东篇章”专题新闻发布会当天在济南举行。
+据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。
 
-周乃翔在发布会上回答记者提问时表示，发展新质生产力对于推动高质量发展、增强经济竞争力至关重要。
+袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。
 
-山东始终坚持将科技创新摆在发展全局的核心位置，推动区域创新能力走在中国前列。
+报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤。
 
-周乃翔用“快、实、多、优”四个字来总结山东“十四五”期间科技创新方面的工作。
-
-他表示，“快”，就是投入增速快。
-
-过去五年，山东省级财政投入700多亿元(人民币，下同)，带动全社会研发投入近2600亿元，年均增长11.5%，高于全国平均水平1个百分点；“实”，就是平台支撑实。
-
-中国海洋领域国家实验室——崂山实验室高质量运行，36家全国重点实验室、3家国家技术创新中心、11家省实验室等高能级平台，筑起产业发展的“硬核支撑”。
+另据半岛电视台报道，根据黎巴嫩卫生部最新数据，自3月2日黎以战火重燃以来，以军袭击已造成黎巴嫩3526人死亡、10733人受伤。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [第十三批在韩中国人民志愿军烈士遗骸即将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:22 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:25 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:16 - [视频丨日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:14 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:02 - [深圳市中小微外贸企业数字化服务生态2.0发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:00 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:01 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:21 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:22 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:22 - [中新健康｜芒种养生，重在健脾化湿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:11 - [从龇牙咧嘴到喜笑颜开 记一位草原医生的“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:10 - [联结两岸水利文脉 豫台高校重启交流破冰之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:03 - [赖清德批小红书，是在怕什么？丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:29 - [连收罚单的华泰财险，还有这些问题要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:25 - [外交部拉美司司长：中拉关系只有互利共赢 没有地缘算计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:19 - [建设国家公园带来了什么？记者和亲历者聊了聊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:17 - [印尼驻华大使：相信万隆精神依然具有生命力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:16 - [中青旅：公司持续关注近期股价破净情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:29 - [日本央行据悉考虑6月升息 日元汇率随之走强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:07 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [301486，20%直线涨停！](http://www.blog.kurohicncr.top/Article/details/59710643.shtml)
-- 2026-06-29 11:08 - [实达集团（600734）业绩“变脸”触发退市警报：营收缩水超2.5亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [斯诺克世锦赛：丁俊晖成功晋级 16强战对阵赵心童](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力](http://www.blog.minike.top/Article/details/274435473056.shtml)
-- 2026-06-29 11:00 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/34627856.shtml)
-- 2026-06-29 11:19 - [OPPO Find X9s Pro成今年最后一款不涨价旗舰新机，但这可能是一个限时窗口](http://www.share.minike.top/Article/details/663756911523.shtml)
-- 2026-06-29 11:20 - [大湾区建设持续发力 三地居民共享政策红利](http://www.blog.kurohicncr.top/Article/details/39659490.shtml)
-- 2026-06-29 11:05 - [从云端到长安 中外少年携手共筑文化桥梁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/932160274809.shtml)
-- 2026-06-29 11:15 - [日经指数上涨0.9% 受电子和科技股带动](http://www.blog.kurohicncr.top/Article/details/05845.shtml)
-- 2026-06-29 11:23 - [特朗普称最终将达成重大协议](http://www.blog.minike.top/Article/details/8985623299.shtml)
-- 2026-06-29 11:10 - [五方共建大湾区船员权益保障中心 推六项保障举措](http://www.share.minike.top/Article/details/455265.shtml)
-- 2026-06-29 11:24 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](http://www.blog.kurohicncr.top/Article/details/03828556642.shtml)
-- 2026-06-29 11:03 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](http://www.share.minike.top/Article/details/318655610.shtml)
-- 2026-06-29 11:13 - [菲律宾一客车坠谷致2死39伤](http://www.blog.minike.top/Article/details/227131206588.shtml)
+- 2026-06-29 11:11 - [中国男篮热身赛一分惜败塞尔维亚KK FMP俱乐部队](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [Evoke同意Bally’s Intralot的3.26亿美元收购邀约](http://www.share.minike.top/Article/details/78488011.shtml)
+- 2026-06-29 11:24 - [央行将开展5000亿元买断式逆回购操作 缩量趋势延续 机构：资金面或从“异常宽松”回到“合理充裕”](http://www.share.kurohicncr.top/Article/details/2494179203.shtml)
+- 2026-06-29 11:01 - [山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌](http://www.share.minike.top/Article/details/1634583.shtml)
+- 2026-06-29 11:23 - [全国小麦收获有序推进 已近五成](http://www.blog.minike.top/Article/details/4087078375.shtml)
+- 2026-06-29 11:17 - [人保财险被指“提高保费再返现”，监管介入调查多项违规属实！](http://www.share.minike.top/Article/details/449245.shtml)
+- 2026-06-29 11:27 - [钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态](http://www.share.minike.top/Article/details/83822031386.shtml)
+- 2026-06-29 11:28 - [6月5日隔夜要闻：美股收盘涨跌不一 原油下跌 伦铜走高 金价上涨 博通跌12.6% 特朗普称以黎和平协议取得进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [消息人士：印度拟取消外资投资国债资本利得税](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:07 - [广西高校把“大海”搬进深山 边境学子解锁趣味海洋课堂](http://www.share.kurohicncr.top/Article/details/025399.shtml)
+- 2026-06-29 11:21 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [周锡玮：两岸要一起，把中国好的理念传播出去](http://www.share.minike.top/Article/details/02020886.shtml)
+- 2026-06-29 11:04 - [东莞港落地“内外贸同船+水水中转多式联运”模式](http://www.share.kurohicncr.top/Article/details/83485891484.shtml)
+- 2026-06-29 11:11 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](http://www.share.minike.top/Article/details/34196115.shtml)

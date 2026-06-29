@@ -1,58 +1,54 @@
-# 算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入
+# 麦客返乡遇车辆故障 高速收费站送上免费晚饭
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。 受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技
+发布时间：2026年06月05日 10:08 来源：中国新闻网 近日，浙江湖州，一辆载有50名返乡收麦人员的大巴车在申嘉湖高速突发故障抛锚。浙江交通集团湖州管理中心工作人员迅速将车免费拖至湖州东收费站抢修，并耐心安抚乘客焦急情绪，同时积极协助对接维修单位。考虑车上司乘赶路又饿又累，收费站紧急开放食堂，免费为他们提供热饭。一个半小时后车辆修复，旅客安全踏上返乡路。(作者：吴世强)
 
 ## 正文
 
-在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。
+发布时间：2026年06月05日 10:08 来源：中国新闻网 近日，浙江湖州，一辆载有50名返乡收麦人员的大巴车在申嘉湖高速突发故障抛锚。
 
-今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。
+浙江交通集团湖州管理中心工作人员迅速将车免费拖至湖州东收费站抢修，并耐心安抚乘客焦急情绪，同时积极协助对接维修单位。
 
-受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。
+考虑车上司乘赶路又饿又累，收费站紧急开放食堂，免费为他们提供热饭。
 
-能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技巨头主导的AI数据中心建设周期提供电力扩容支撑。
+一个半小时后车辆修复，旅客安全踏上返乡路。
 
-此外，国际能源署最新数据显示，2025 年全球电动汽车和数据中心的电力需求分别增长了 38% 和 17%。
-
-国内方面，2026年4月21日国新办新闻发布会上，有关部门表示近年来算力基础设施已成为驱动人工智能发展的关键底座，正在开展算电协同政策研究和标准制定。
-
-国盛证券认为，算电协同作为国家基础设施顶层设计，各地区持续高频落地算电协同相关政策，持续投资与项目落地确定性强，关注调节价值凸显火电企业；电算协同有望打开绿电企业新增长空间，看好优质风光资产；把握水核防御，水电电价具备市场化优势、水核容量电价有待补充。
-
-电力板块交投显著升温，相关ETF持续“吸金”。
+(作者：吴世强) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:11 - [午后！A50、港股，突然异动！发生了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:04 - [大风蓝色预警：内蒙古新疆等7省区阵风可达8至9级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:11 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:17 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:26 - [一针“串”世界 25国外籍人士郑州话“针”功夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:03 - [“市场压力未来几个月不会缓解！”中东冲突冲击全球氦气供应 汽车行业“缺芯潮”又要来了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:03 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:15 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 10:58 - [好评中国丨硬核数据再上新，中国经济“春潮”迭起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:00 - [李家超橄榄球赛场“招商引资”：我们这里机遇无限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 10:59 - [百胜中国：4月20日起，肯德基糖醋酱、甜辣酱改为收费产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:14 - [酒价内参4月22日价格发布：古井贡古20上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:10 - [黎以同意实施停火 前提是真主党停止攻击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:24 - [航发动力：2026年6月22日召开2026年第二次临时股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:02 - [消费维权该去哪里？除了12315，这些正规投诉渠道也很管用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:07 - [电投能源：公司煤炭销售主要面向电厂、供热公司等终端用户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:00 - [海内外侨胞走进重庆潼南 看好汽车后市场发展潜力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:27 - [美迪凯发生2笔大宗交易 合计成交1003.13万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:22 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:15 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:11 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:25 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:00 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:10 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:07 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:24 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [2026中国（宿迁）白酒之都文化旅游节开幕](http://www.share.minike.top/Article/details/1561824360.shtml)
-- 2026-06-29 11:00 - [全球两大传奇枪械制造商爆发激烈内斗](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [习近平会见莫桑比克总统：中莫传统友谊穿越历史 跨越山海](http://www.share.minike.top/Article/details/52970290.shtml)
-- 2026-06-29 11:04 - [千亿液冷大牛股，一季度业绩爆雷！全线飘红，多地价格突破10元，猪市风向变了](http://www.share.kurohicncr.top/Article/details/2946793181.shtml)
-- 2026-06-29 11:00 - [邵艺辉：建议年轻人多阅读多写作](http://www.blog.minike.top/Article/details/195958181436.shtml)
-- 2026-06-29 11:26 - [600355，退市！不进入退市整理期！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.minike.top/Article/details/0430986.shtml)
-- 2026-06-29 11:16 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.blog.minike.top/Article/details/62216.shtml)
-- 2026-06-29 11:21 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](http://www.share.kurohicncr.top/Article/details/03684494.shtml)
-- 2026-06-29 11:21 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](http://www.share.kurohicncr.top/Article/details/01860917.shtml)
-- 2026-06-29 11:19 - [标普A红利ETF华宝（562060）单日揽金超1.2亿元，业绩窗口期红利策略或持续占优！](http://www.blog.minike.top/Article/details/33006534.shtml)
-- 2026-06-29 11:07 - [600606，致歉！更正业绩预告，最多亏损265亿元！](http://www.blog.kurohicncr.top/Article/details/409777327873.shtml)
-- 2026-06-29 11:08 - [胜宏科技首挂上市 早盘上涨51.71%](http://www.blog.kurohicncr.top/Article/details/15586.shtml)
-- 2026-06-29 11:01 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](http://www.share.minike.top/Article/details/119240.shtml)
+- 2026-06-29 11:28 - [创新药+中药双线发力，华宝基金药ETF逆市收涨！港股通创新药冲高回落，520880继续新低，康方生物重挫5.88%](http://www.share.kurohicncr.top/Article/details/199984290555.shtml)
+- 2026-06-29 11:19 - [中国人保原党委委员、副总裁于泽被“双开”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [富瑞：中联重科升至“买入”评级 首次覆盖三一重工给予目标价24港元](http://www.blog.minike.top/Article/details/74474222869.shtml)
+- 2026-06-29 11:08 - [国家电网：168项迎峰度夏重点工程正加快建设](http://www.blog.minike.top/Article/details/40573752.shtml)
+- 2026-06-29 11:00 - [在中东事态发展喜忧参半之际，油价小幅走低](http://www.share.kurohicncr.top/Article/details/303125663.shtml)
+- 2026-06-29 11:24 - [中国法院去年审结环境资源一审案件22.9万件](http://www.share.kurohicncr.top/Article/details/21925734940.shtml)
+- 2026-06-29 11:19 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.share.minike.top/Article/details/8097202667.shtml)
+- 2026-06-29 11:06 - [美国失业救济申请人数在假日周升至2月以来最高](http://www.share.kurohicncr.top/Article/details/1440390949.shtml)
+- 2026-06-29 11:08 - [精耕细作，童书消费步入品质时代](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:14 - [ST星农大宗交易成交203.00万元](http://www.share.minike.top/Article/details/525327.shtml)
+- 2026-06-29 11:18 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.kurohicncr.top/Article/details/785602422.shtml)
+- 2026-06-29 11:02 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.share.kurohicncr.top/Article/details/96135922708.shtml)
+- 2026-06-29 11:16 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](http://www.blog.minike.top/Article/details/554784280.shtml)
+- 2026-06-29 11:07 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](http://www.blog.minike.top/Article/details/8379054595.shtml)
+- 2026-06-29 11:27 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](https://github.com/lisacumin64-arch)

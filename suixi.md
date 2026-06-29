@@ -1,60 +1,52 @@
-# 全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证
+# 中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。 “该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球
+中兴通讯（00763）早盘涨逾7%，截至发稿，股价上涨6.83%，现报28.80港元，成交额4.81亿港元。 6月3日，据中兴通讯官微消息，公司积极开展生态合作，携手腾讯（00700）达成深度战略合作，双方即将推出搭载腾讯原生WorkBuddy的AI云电脑。据介绍，该产品融合腾讯云算力与混元大模型能力，深度适配WorkBuddy智能体及腾讯生态应用，面向学生、职场人、OPC一人
 
 ## 正文
 
-中新社北京4月21日电 (记者 庞无忌)记者21日从中国广核集团(简称“中广核”)获悉，由中广核自主研发的全球开口最大——8.6米熔盐槽式集热器成套装备及工艺，当日在青海省德令哈市中广核光热试验基地中试平台完成技术验证。
+中兴通讯（00763）早盘涨逾7%，截至发稿，股价上涨6.83%，现报28.80港元，成交额4.81亿港元。
 
-这标志着中国全面掌握熔盐槽式集热核心技术，为国内大型熔盐槽式光热项目的规模化发展奠定基础。
+6月3日，据中兴通讯官微消息，公司积极开展生态合作，携手腾讯（00700）达成深度战略合作，双方即将推出搭载腾讯原生WorkBuddy的AI云电脑。
 
-“该中试平台由槽式集热系统、储热系统、蒸汽发生系统等构成，是目前全球开口尺寸最大的标准熔盐槽式集热器测试系统。
+据介绍，该产品融合腾讯云算力与混元大模型能力，深度适配WorkBuddy智能体及腾讯生态应用，面向学生、职场人、OPC一人公司及小微团队。
 
-其中，槽式集热系统作为核心组成部分，采用标准模块化设计，有效集热面积5970平方米，由4组长度182米、开口8.6米的集热器阵列组成。
+中兴通讯副总裁华新海表示，当前我国家庭电脑拥有率为 67.5%，但 20% 设备长期闲置。
 
-”中广核光热技术型号首席专家尹航表示，该集热技术采用熔盐作为传热介质，聚光比达107.5倍，可实现290摄氏度进口至550摄氏度出口的稳定运行，实现储能温差达260摄氏度，是传统导热油系统的2.6倍，电网调峰保障能力显著增强。
+云电脑作为共享经济在算力领域的应用，实现了从“拥有设备”到“享受服务”的转变。
 
-该成套装备的关键设备——包括集热器支架、柔性连接组件、就地控制器和支架精度面形检测装置等，均由中广核牵头国内产业链优势企业完成攻关，实现核心技术100%自主可控。
-
-针对熔盐槽式光热技术的运行痛点，中广核还系统开展了集热管预热、大流速排气与压缩空气排盐、无人机检测、系统防凝以及阻抗加热等技术攻关，形成全套成熟工艺与设备方案，并在中试平台进行了验证。
-
-光热发电兼具调峰电源和长时储能双重功能。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 10:57 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:10 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:18 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:13 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:02 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 10:57 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:20 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:01 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:16 - [巴基斯坦总理感谢特朗普延长与伊朗的停火协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:11 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:00 - [酒价内参4月21日价格发布：古20领涨 总价创十天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:22 - [花旗：裕元集团给予“买入”评级 目标价21港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:11 - [特朗普重返白宫以来 “白宫篮子”股显著跑赢标普500指数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:01 - [美国众议院调查针对伊朗战争相关交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:27 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:19 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:19 - [甘肃金昌市统战宣传工作会议召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:22 - [香港新设“小马大本营” 寓教于乐普及马术运动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:06 - [全国首张“无目的地海上游”出入境通行证在沪签发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:22 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:12 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:20 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:30 - [远洋建管县域代销再创新高，宁德赛岐外滩项目5月销售量价领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:14 - [消息人士称Kalshi正在打造面向高端交易者的预测市场版“彭博终端”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:12 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.share.kurohicncr.top/Article/details/324853169246.shtml)
-- 2026-06-29 11:16 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/270476401.shtml)
-- 2026-06-29 11:24 - [日本青森县东部海域发生5.1级地震 多地有震感](http://www.blog.minike.top/Article/details/537852616776.shtml)
-- 2026-06-29 11:13 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](http://www.blog.minike.top/Article/details/0467714.shtml)
-- 2026-06-29 11:18 - [中国经济的“活力橱窗”｜喻见中国经济](http://www.blog.kurohicncr.top/Article/details/603607892.shtml)
-- 2026-06-29 11:10 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](http://www.blog.kurohicncr.top/Article/details/19726182.shtml)
-- 2026-06-29 11:12 - [AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:11 - [“香港工程传奇展览@首都”在国家科技传播中心举办](http://www.blog.minike.top/Article/details/015529451974.shtml)
-- 2026-06-29 11:04 - [加州指控亚马逊操控价格 要求其在竞争对手网站上提高价格](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [菲利普斯66与金德摩根推进美国西海岸燃油管道项目](http://www.share.kurohicncr.top/Article/details/0560841359.shtml)
-- 2026-06-29 11:18 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.share.minike.top/Article/details/27170083921.shtml)
-- 2026-06-29 10:59 - [如祺出行2025年财报：营收倍增难掩“流血”扩张本质，市值蒸发九成凸显边缘化危机](http://www.share.kurohicncr.top/Article/details/097136978856.shtml)
-- 2026-06-29 11:04 - [工信部：一季度中国规模以上工业增加值同比增长6.1%](http://www.blog.kurohicncr.top/Article/details/2127078591.shtml)
-- 2026-06-29 11:08 - [泰国东部经济走廊与广东企业签署合作备忘录](http://www.share.kurohicncr.top/Article/details/8141536.shtml)
+- 2026-06-29 11:15 - [美国称将调整其对北约部队的贡献](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:12 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.share.kurohicncr.top/Article/details/446795.shtml)
+- 2026-06-29 11:26 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](http://www.blog.kurohicncr.top/Article/details/45446690.shtml)
+- 2026-06-29 11:24 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:04 - [冠豪高新：公司始终密切关注行业前沿技术](http://www.share.kurohicncr.top/Article/details/025707844112.shtml)
+- 2026-06-29 11:09 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](http://www.share.minike.top/Article/details/72790.shtml)
+- 2026-06-29 11:04 - [学生票大升级！这些出行便利已成固定政策](http://www.blog.kurohicncr.top/Article/details/30504.shtml)
+- 2026-06-29 11:17 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](http://www.share.kurohicncr.top/Article/details/9196091.shtml)
+- 2026-06-29 11:29 - [回望——中国美术家协会2025年度绘画作品展亮相内蒙古](http://www.share.minike.top/Article/details/54457491.shtml)
+- 2026-06-29 11:25 - [国务院食安办成立工作组督导查处 “望奎双汇猪肉抗生素超标问题”](http://www.share.kurohicncr.top/Article/details/806012.shtml)
+- 2026-06-29 11:02 - [中银国际：兖矿能源收购母公司电力资产并非特别吸引](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [美光科技、英特尔、戴尔科技年内飙涨超200%，美股科技“七骑士”全线跑赢英伟达](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [西陇科学：公司及控股子公司均不存在逾期担保情况](http://www.share.minike.top/Article/details/47572.shtml)
+- 2026-06-29 11:21 - [铁路端午假期运输首日火车票今日起售](http://www.blog.minike.top/Article/details/7752047453.shtml)

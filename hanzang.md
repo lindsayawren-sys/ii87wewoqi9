@@ -1,59 +1,49 @@
-# AI“投毒”手段隐蔽、易被境外势力利用 国家安全部披露
+# 学生票大升级！这些出行便利已成固定政策
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-近期，AI“投毒”隐蔽产业链被曝光，引发社会广泛关注。这种通过恶意数据污染AI模型的行为，不仅扰乱商业秩序、影响信息传播，更会危害国家安全。人工智能在赋能千行百业的同时，其安全风险也不容忽视。推动AI治理向善，守住数据安全底线，既是行业责任，也需要全社会共同参与。手段隐蔽，链条日趋完整 所谓“数据投毒”，是通过向AI大模型训练数据中注入伪装成正常样本的恶意数据，实现削弱模型性能
+发布时间：2026年06月05日 15:09 来源：国是直通车 暑期临近，铁路学生优惠票便利政策已正式纳入新规。在北京西站，工作人员介绍，新版《国铁集团客规》将多项学生服务长效化：优化优惠区间管理，支持线上核验与调整，联程票5天内仅扣一次次数；扩大优惠席别范围；规范新生、毕业生购票规则；已核验学生乘车无需再查学生证……这么多实用便利，同学们赶紧收藏起来，出行就能用上啦！(王东宇
 
 ## 正文
 
-近期，AI“投毒”隐蔽产业链被曝光，引发社会广泛关注。
+发布时间：2026年06月05日 15:09 来源：国是直通车 暑期临近，铁路学生优惠票便利政策已正式纳入新规。
 
-这种通过恶意数据污染AI模型的行为，不仅扰乱商业秩序、影响信息传播，更会危害国家安全。
+在北京西站，工作人员介绍，新版《国铁集团客规》将多项学生服务长效化：优化优惠区间管理，支持线上核验与调整，联程票5天内仅扣一次次数；扩大优惠席别范围；规范新生、毕业生购票规则；已核验学生乘车无需再查学生证……这么多实用便利，同学们赶紧收藏起来，出行就能用上啦！
 
-人工智能在赋能千行百业的同时，其安全风险也不容忽视。
-
-推动AI治理向善，守住数据安全底线，既是行业责任，也需要全社会共同参与。
-
-手段隐蔽，链条日趋完整 所谓“数据投毒”，是通过向AI大模型训练数据中注入伪装成正常样本的恶意数据，实现削弱模型性能、降低准确性的攻击方法，常被用于恶性市场竞争，甚至可能涉及间谍活动，日益呈现出链条化、隐蔽化、跨境化特征。
-
-——数据投毒：源头污染AI认知体系。
-
-不法分子借助GEO(生成式引擎优化)工具批量、高权重生成虚假内容，如虚构产品介绍、虚假测评、恶意对比信息等，定向投放至各类网络平台。
-
-AI大模型在训练与检索增强生成阶段会自动抓取网络信息，少量虚假内容经迭代学习后就能固化为“标准答案”，最终输出失真结果。
+(王东宇 曹旭帆 何佳骏) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:08 - [泰国东部经济走廊与广东企业签署合作备忘录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:26 - [快狗打车2025年业绩：战略收缩下亏损收窄，但商誉减值与海外依赖风险凸显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:23 - [特朗普：希望有人收购陷入困境的精神航空公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:09 - [春季脱发高发 专家提醒警惕脏腑失衡隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:00 - [高盛任命金融科技银行家Gido担任金融机构组主席](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:26 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:20 - [五一假期铁路上海站预计发送旅客483万人次，同比增长5.42%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:01 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:27 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 10:58 - [首届中非企业家高端论坛在非盟总部举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:25 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:14 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:02 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:02 - [铁路端午假期运输首日火车票今日起售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:17 - [沃顿科技：公司持续看好海水淡化、特种分离及资源提纯等领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:15 - [老挝人革党中央总书记、国家主席通伦抵京 天安门前挂起中老两国国旗、党旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:23 - [威龙股份首季业绩承压，亏损幅度有所扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:05 - [股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:27 - [CBCX:金价回稳关注利率线索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:11 - [同仁堂1.05亿收购案折戟：医疗市场扩张遇阻，渠道转型再添变数](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:14 - [Roots宣布将于6月12日召开2026财年第一季度业绩电话会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:25 - [欧元兑日元逼近收敛上沿，等待方向选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:13 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:05 - [中国抹茶刮“绿色旋风” 内销出口两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:17 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:14 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:58 - [大美边疆看我家丨黑龙江松岭：春雨裹春雪 雪花漫枝头](http://www.share.kurohicncr.top/Article/details/533322.shtml)
-- 2026-06-29 11:02 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.blog.minike.top/Article/details/297899372.shtml)
-- 2026-06-29 11:09 - [韩国3月PPI同比涨幅为三年多来最大 因中东冲突引发油价飙升](http://www.share.minike.top/Article/details/07245484675.shtml)
-- 2026-06-29 11:03 - [从“酱油色”到“翡翠绿”，这株草专“喝”脏水](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:12 - [第十三批12位在韩志愿军烈士遗骸今日回国 “荣归50”“红鹰” 接迎任务飞机呼号公布](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [东西问丨特朗普“推特治国2.0”，这次对伊朗不好使了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [伊朗官员：最高领袖完全健康](http://www.blog.kurohicncr.top/Article/details/1194951277.shtml)
-- 2026-06-29 11:00 - [礼来斥资70亿美元收购Kelonia，加注体内CAR-T癌症疗法](http://www.share.kurohicncr.top/Article/details/89719923.shtml)
-- 2026-06-29 11:21 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.kurohicncr.top/Article/details/038317983247.shtml)
-- 2026-06-29 11:09 - [韩正会见孟加拉国民族主义党高级干部考察团](http://www.blog.kurohicncr.top/Article/details/42281506141.shtml)
-- 2026-06-29 11:04 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/468525598206.shtml)
-- 2026-06-29 11:06 - [北京市欧美同学会生物医药健康委员会调研国际医药创新公园](http://www.blog.kurohicncr.top/Article/details/174286562.shtml)
-- 2026-06-29 11:15 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [入境游迎爆发窗口期 行业龙头加码布局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [Partners集团预警：或将对更多基金增设赎回上限](http://www.blog.kurohicncr.top/Article/details/42084380.shtml)
+- 2026-06-29 11:29 - [特朗普认为赞成限制其战争权力的众议员“不爱国”](http://www.share.minike.top/Article/details/591549944398.shtml)
+- 2026-06-29 11:13 - [“中俄经贸合作机遇推介会”在圣彼得堡国际经济论坛举行](http://www.share.kurohicncr.top/Article/details/711889338611.shtml)
+- 2026-06-29 11:28 - [比亚迪财险落地冀苏浙三地 获批执行全国统一交强险费率](http://www.blog.minike.top/Article/details/013305.shtml)
+- 2026-06-29 11:07 - [铁路端午假期运输首日火车票今天起售](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [韩国政府承诺创造2万亿韩元公共部门需求，以扶持无人机产业发展](http://www.blog.kurohicncr.top/Article/details/4443450466.shtml)
+- 2026-06-29 11:09 - [央行存贷款利率新规征求意见，罚息、计息、揽储规则都有更新](http://www.share.kurohicncr.top/Article/details/61012.shtml)
+- 2026-06-29 11:21 - [Databricks与Perplexity联合创始人游说AI科研人才：别去大型科技企业任职](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:09 - [xAI要求Grok深度伪造色情图像案原告以真实姓名起诉](http://www.share.kurohicncr.top/Article/details/27442036709.shtml)
+- 2026-06-29 11:22 - [礼来70亿美元大动作！港股通创新药逆市吸金，520880近两日获超1.28亿元增仓，杠杆资金同步进场](http://www.share.kurohicncr.top/Article/details/31915.shtml)
+- 2026-06-29 11:27 - [航宇科技6月5日大宗交易成交332.31万元](http://www.blog.kurohicncr.top/Article/details/645320.shtml)
+- 2026-06-29 11:02 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.share.kurohicncr.top/Article/details/1972111.shtml)
+- 2026-06-29 11:20 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.blog.minike.top/Article/details/372660.shtml)
+- 2026-06-29 11:24 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](https://github.com/lisacumin64-arch)

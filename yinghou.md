@@ -1,57 +1,59 @@
-# 蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过
+# 黄金交易提醒：中东停火惊现转机！金价反弹近1%，伊朗和平曙光能否点燃新一轮牛市？
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-此前曾扬言要阻挠下一任美联储主席提名通过的共和党参议员汤姆・蒂利斯，于周二表态，自己完全支持凯文・沃什出任美联储主席。 蒂利斯表示：“以史为鉴，倘若有人认为总统任命人选后，自身便能独断掌控一切事务，那这名主席必然履职不力。你曾在多位优秀前任手下任职，我相信你会坚守本分、正确履职。” 但他同时提出附加条件：除非美国司法部终止针对美联储主席杰罗姆・鲍威尔的刑事调查，否则他不会放行沃
+汇通财经APP讯——全球黄金市场在周四（6月4日）迎来显著反弹，现货黄金盘中一度触及4515美元/盎司高位，最终收报4475美元/盎司，涨幅接近1%。8月美国期金合约同样走强，收涨0.9%至4505美元。这一波动背后，是中东地缘政治局势的戏剧性变化：有关以色列与黎巴嫩达成停火协议的报道一度点燃了市场对更广泛美伊和平协议的乐观预期，直接打压美元和美债收益率，为不孳息的黄金资产注入
 
 ## 正文
 
-此前曾扬言要阻挠下一任美联储主席提名通过的共和党参议员汤姆・蒂利斯，于周二表态，自己完全支持凯文・沃什出任美联储主席。
+汇通财经APP讯——全球黄金市场在周四（6月4日）迎来显著反弹，现货黄金盘中一度触及4515美元/盎司高位，最终收报4475美元/盎司，涨幅接近1%。
 
-蒂利斯表示：“以史为鉴，倘若有人认为总统任命人选后，自身便能独断掌控一切事务，那这名主席必然履职不力。
+8月美国期金合约同样走强，收涨0.9%至4505美元。
 
-你曾在多位优秀前任手下任职，我相信你会坚守本分、正确履职。
+这一波动背后，是中东地缘政治局势的戏剧性变化：有关以色列与黎巴嫩达成停火协议的报道一度点燃了市场对更广泛美伊和平协议的乐观预期，直接打压美元和美债收益率，为不孳息的黄金资产注入了强劲吸引力。
 
-” 但他同时提出附加条件：除非美国司法部终止针对美联储主席杰罗姆・鲍威尔的刑事调查，否则他不会放行沃什进入后续提名流程。
+不过，最新消息显示，伊朗支持的真主党民兵组织周四拒绝了黎巴嫩新提出的停火协议，以色列也表示不会从黎巴嫩南部撤军。
 
-该项调查缘起美联储总部耗资数十亿美元的办公楼翻新工程相关事宜。
+这使特朗普试图同时结束当地战事并推动与伊朗达成和平协议的努力受挫。
 
-沃什的提名要进入参议院全体大会审议，必须先获得参议院银行委员会的多数赞成票。
+黄金多头士气受挫，市场目光开始聚焦周五（6月5日）将出炉的美国5月非农就业报告。
 
-该委员会由 13 名共和党议员、11 名民主党议员组成。
+地缘政治风云：黎巴嫩停火希望与现实复杂交织 黎巴嫩局势的最新进展成为黄金价格上涨的核心催化剂。
 
-一旦缺少蒂利斯的支持，委员会投票将形成 12 票赞成、12 票反对的僵持局面，此次提名直接作废。
+以色列和黎巴嫩政府周三晚间表示已同意实施停火，这被市场解读为华盛顿与德黑兰达成更广泛和平协议的重要一步。
 
 ## 相关推荐
 
-- 2026-06-29 11:10 - [欧洲央行拉加德：能源价格上涨尚不足以触发政策转向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:16 - [花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:23 - [好评中国丨硬核数据再上新，中国经济“春潮”迭起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:02 - [李家超橄榄球赛场“招商引资”：我们这里机遇无限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:20 - [百胜中国：4月20日起，肯德基糖醋酱、甜辣酱改为收费产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:15 - [酒价内参4月22日价格发布：古井贡古20上涨6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:18 - [德国商业银行正式拒绝裕信银行敌意收购策略 收购战言辞交锋升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:13 - [习近平举行仪式欢迎莫桑比克总统查波访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:03 - [海军四川舰赴南海开展试验训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:06 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:26 - [江西南昌：滕王阁下重温红色记忆 弘扬和传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:10 - [日本财务大臣：减免食品消费税所需财源不会依赖新增发债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:22 - [君实生物：公司将于2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:00 - [英伟达斥资不低于4亿美元收购企业级大模型厂商Kumo AI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:00 - [共识教育百问百答丨高晓巍、赵妍、路运占、赵一筱：如何理解从“五一口号”到协商建国？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:13 - [世卫组织说不安全食品每年导致超8亿人患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:29 - [天天学习｜这条“红线”守护美丽中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:13 - [广州港亚欧航线运力升级 保障湾区企业旺季出运需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:04 - [美国在印度洋拦截涉伊朗关联船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:03 - [特朗普：普尔特不会被正式任命为国家情报总监](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:29 - [黄仁勋称机器人将成为韩国下一个重要产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:23 - [博通财报暴雷：AI指引未达顶标，股价暴跌15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:29 - [真主党拒绝美方斡旋达成的停火协议，以色列继续推进攻势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:00 - [欧盟内部有观点认为应对华“去风险”，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:05 - [江南华南强降雨持续 南方多地气温将显著偏低暖热暂停](http://www.share.minike.top/Article/details/71214.shtml)
-- 2026-06-29 11:11 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/232727.shtml)
-- 2026-06-29 11:03 - [著作权纠纷高发 平台应如何做好“守门人”？法院提示→](http://www.blog.kurohicncr.top/Article/details/81151.shtml)
-- 2026-06-29 11:18 - [港股航空股走强 东方航空涨超3% 多航司五一假期航班量超去年](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:10 - [艺术家乌拉·冯·勃兰登堡中国首次大型机构个展举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:06 - [标普A红利ETF华宝（562060）单日揽金超1.2亿元，业绩窗口期红利策略或持续占优！](http://www.blog.minike.top/Article/details/592840727590.shtml)
-- 2026-06-29 11:09 - [600606，致歉！更正业绩预告，最多亏损265亿元！](http://www.share.minike.top/Article/details/5883030113.shtml)
-- 2026-06-29 10:59 - [胜宏科技首挂上市 早盘上涨51.71%](http://www.share.kurohicncr.top/Article/details/7713797.shtml)
-- 2026-06-29 11:03 - [开局起步“十五五”：山东“四向发力”提升区域创新能力](http://www.share.kurohicncr.top/Article/details/105343.shtml)
-- 2026-06-29 11:11 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.blog.minike.top/Article/details/111119349.shtml)
-- 2026-06-29 11:06 - [极视角盘中涨超30%股价再创上市新高 较招股价已涨超200%](http://www.share.minike.top/Article/details/445566716795.shtml)
-- 2026-06-29 11:21 - [新能源车买完才发现这些坑，辅助驾驶里程不公开、换零件要13万](http://www.blog.minike.top/Article/details/3828968.shtml)
-- 2026-06-29 11:01 - [新华微评：方块字何以走向全世界](http://www.share.kurohicncr.top/Article/details/56176541512.shtml)
-- 2026-06-29 11:08 - [矽电股份2025年度归母净利润约5283万元 同比下降42.5%](http://www.share.kurohicncr.top/Article/details/58788.shtml)
-- 2026-06-29 11:22 - [2026北京车展前瞻：双馆扩容，新旧交锋，供应链争夺话语权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [2026世界女排联赛中国南京站： 波兰女排战胜捷克女排](http://www.blog.minike.top/Article/details/3215709.shtml)
+- 2026-06-29 11:12 - [美国失业救济申请人数在假日周升至2月以来最高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:02 - [精耕细作，童书消费步入品质时代](http://www.blog.kurohicncr.top/Article/details/88320975561.shtml)
+- 2026-06-29 11:15 - [ST星农大宗交易成交203.00万元](http://www.share.kurohicncr.top/Article/details/963332.shtml)
+- 2026-06-29 11:20 - [瑞梅铁路梅江特大桥中跨顺利合龙](http://www.share.kurohicncr.top/Article/details/399129.shtml)
+- 2026-06-29 11:29 - [以色列防长：与黎巴嫩的停火协议取决于真主党撤出黎南部](http://www.share.kurohicncr.top/Article/details/1925485.shtml)
+- 2026-06-29 11:11 - [印尼国会通过金融法案：扩大央行职能并强化国会监督](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [特朗普拟提名其前律师Todd Blanche出任美国司法部长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [以色列继续空袭黎巴嫩 造成至少9人死数十人伤](http://www.share.minike.top/Article/details/429263.shtml)
+- 2026-06-29 11:03 - [健康险“卷”起来！重疾险不确诊也能赔？医疗险病了也能买？](http://www.blog.minike.top/Article/details/999503515335.shtml)
+- 2026-06-29 11:22 - [新疆伊宁：群众被马蹄踢中眉骨 特警7分钟极速救援](http://www.share.minike.top/Article/details/0941477361.shtml)
+- 2026-06-29 11:09 - [创始人辱骂学生后道歉，粉笔网更大的挑战来自业务本身](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [天原股份：公司不存在资金链风险](http://www.blog.kurohicncr.top/Article/details/69370270768.shtml)
+- 2026-06-29 11:08 - [“中国傩戏·傩面具艺术展”在青海西宁开展](http://www.share.minike.top/Article/details/74276863377.shtml)
+- 2026-06-29 11:08 - [美国5月新增非农就业17.2万远超预期 劳动力市场现回暖迹象但地缘风险犹存](https://github.com/lisacumin64-arch)

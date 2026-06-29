@@ -1,55 +1,58 @@
-# “中国高质量发展”主题宣介活动在布鲁塞尔举行
+# 特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新网布鲁塞尔4月21日电 中国驻比利时使馆20日在布鲁塞尔举办“中国高质量发展”主题宣介活动，就中国经济和中比、中欧经贸关系交流座谈。 第十四届全国政协常委、经济委员会副主任马建堂、中国政府欧洲事务前特别代表吴红波等出席，比利时政党、智库、商会等人士参加，中国驻比利时大使费胜潮主持活动。 马建堂围绕“十五五”规划进行深入解读，同比方人士就中国高质量发展与中比、中欧经贸合作开展
+特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。这是该公司在全自动驾驶商业化道路上迈出的重要一步。 特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗
 
 ## 正文
 
-中新网布鲁塞尔4月21日电 中国驻比利时使馆20日在布鲁塞尔举办“中国高质量发展”主题宣介活动，就中国经济和中比、中欧经贸关系交流座谈。
+特斯拉周四宣布，将其无安全员自动驾驶出租车服务扩展至得克萨斯州奥斯汀都会区全境。
 
-第十四届全国政协常委、经济委员会副主任马建堂、中国政府欧洲事务前特别代表吴红波等出席，比利时政党、智库、商会等人士参加，中国驻比利时大使费胜潮主持活动。
+这是该公司在全自动驾驶商业化道路上迈出的重要一步。
 
-马建堂围绕“十五五”规划进行深入解读，同比方人士就中国高质量发展与中比、中欧经贸合作开展交流。
+特斯拉官方Robotaxi账号在社交媒体X上发文称：“无监督Robotaxi现已覆盖整个奥斯汀都会区。
 
-来宾积极评价中国经济发展势头，期待加强比中、欧中合作、实现互利共赢。
+”这意味着用户可以在包括Pflugerville、Manor等郊区、连接Gigafactory Texas的I-35高速公路以及奥斯汀-伯格斯特罗姆国际机场在内的整个大奥斯汀区域呼叫无人驾驶出租车。
 
-(完)
+这项服务自去年夏天起已在奥斯汀试运行近一年。
+
+特斯拉在声明中表示，为确保运行安全，公司在扩张过程中采取了审慎策略，在地理围栏划定、车队规模等方面经历了多个阶段的渐进式推进。
+
+此次覆盖全都会区的扩张是第五次，也是幅度最大的一次。
+
+然而，对于此次扩张的市场意义，外界看法存在明显分歧。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:20 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:08 - [海南离岛免税实施15年累计购物金额2864亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 10:58 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:03 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 10:57 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:24 - [一季度青海消费市场实现平稳开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 10:59 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:18 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:18 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:24 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 10:58 - [日本青森县东部海域发生5.1级地震 多地有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:15 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:02 - [中国经济的“活力橱窗”｜喻见中国经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:11 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:09 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:06 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:14 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:09 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:20 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:17 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:28 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:11 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:17 - [美国称将调整其对北约部队的贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:23 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:07 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [猪价反弹底部确认，政策释放“稳价”信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](http://www.share.kurohicncr.top/Article/details/986308.shtml)
-- 2026-06-29 10:59 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [全国首创知识产权代理跨境联营新机制在穗发布](http://www.share.kurohicncr.top/Article/details/43764916563.shtml)
-- 2026-06-29 11:26 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.kurohicncr.top/Article/details/87509303320.shtml)
-- 2026-06-29 10:59 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/774642332081.shtml)
-- 2026-06-29 11:23 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.minike.top/Article/details/82689125191.shtml)
-- 2026-06-29 11:02 - [抓住春天养发黄金期！专家支招多吃这些](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [浙江安吉：雾漫山巅 野樱如星](http://www.share.minike.top/Article/details/340592.shtml)
-- 2026-06-29 11:13 - [一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？](http://www.share.kurohicncr.top/Article/details/647490402509.shtml)
-- 2026-06-29 11:03 - [“错失恐惧症”仍主导市场，投资者对最新紧张局势反应平淡](http://www.blog.kurohicncr.top/Article/details/106548243.shtml)
-- 2026-06-29 10:58 - [浙江一季度GDP同比增长6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:09 - [日本众参两院议长及多名官员向靖国神社供奉祭品](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:14 - [胜宏科技香港公开发售获431.15倍认购 每股发售价209.88港元](http://www.share.minike.top/Article/details/79822309981.shtml)
-- 2026-06-29 11:09 - [“琢玉生辉——安徽博物院藏潘玉良艺术精品展”启幕](http://www.blog.kurohicncr.top/Article/details/883144.shtml)
+- 2026-06-29 11:11 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:03 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](http://www.share.kurohicncr.top/Article/details/0274440075.shtml)
+- 2026-06-29 11:14 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](http://www.blog.minike.top/Article/details/9020961.shtml)
+- 2026-06-29 11:05 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.blog.kurohicncr.top/Article/details/233869008726.shtml)
+- 2026-06-29 11:03 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.blog.kurohicncr.top/Article/details/5506704304.shtml)
+- 2026-06-29 11:29 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.share.minike.top/Article/details/73901.shtml)
+- 2026-06-29 11:23 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.share.kurohicncr.top/Article/details/5266838.shtml)
+- 2026-06-29 11:12 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](http://www.blog.minike.top/Article/details/860664759700.shtml)
+- 2026-06-29 11:18 - [揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票](http://www.blog.minike.top/Article/details/321860250331.shtml)
+- 2026-06-29 11:17 - [中材节能：2026年6月22日召开2026年第二次临时股东会](http://www.share.kurohicncr.top/Article/details/496861.shtml)
+- 2026-06-29 11:26 - [“推进中国式现代化，要把水资源问题考虑进去”（总书记的人民情怀）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [中国自主设计建造的新一代深水专业铺管船完成龙骨安放](http://www.blog.minike.top/Article/details/962544944.shtml)
+- 2026-06-29 11:22 - [2026世界女排联赛（南京站）：中国队战胜泰国队](http://www.blog.minike.top/Article/details/71322770.shtml)
+- 2026-06-29 11:16 - [外交部回应对新西兰有关议员采取禁止入境等措施](http://www.blog.minike.top/Article/details/6905339681.shtml)
+- 2026-06-29 11:00 - [南宁海关所属防城海关涉案财物公开拍卖公告](http://www.share.kurohicncr.top/Article/details/324138215.shtml)

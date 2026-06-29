@@ -1,59 +1,56 @@
-# 曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局
+# 消息人士：印度拟取消外资投资国债资本利得税
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 产品还没卖起来，老股却先准备进场，派格生物要回答什么？ 4月9日，派格生物公告称，公司已收到中国证监会就实施H股全流通发出的备案通知书，涉及约1.02亿股未上市股份转换为H股。对一家港股上市不足一年的创新药公司来说，这个动作很难不引发关注。核心产品刚获批，销售收入还是零，老股流通却已经提上日程。 公开信息显示，派格生物成立于2008年5月，原注册地在苏
+知情人士周四透露，印度计划取消境外组合投资者投资本国国债所需缴纳的资本利得税，此举有望提振外资债券流入规模。 受油价走高、外资持续撤离印度股市影响，印度卢比年内贬值幅度已超5%。该国希望通过引资政策缓解本币承压。 印度经济时报率先于周三报道，印度内阁已批准该项减税方案；媒体致函印度财政部寻求置评，暂未收到回复。 印度基准国债开盘收益率下行1个基点，报7.01%。 目前该新政落地
 
 ## 正文
 
-文|新浪财经上海站 十里 产品还没卖起来，老股却先准备进场，派格生物要回答什么？
+知情人士周四透露，印度计划取消境外组合投资者投资本国国债所需缴纳的资本利得税，此举有望提振外资债券流入规模。
 
-4月9日，派格生物公告称，公司已收到中国证监会就实施H股全流通发出的备案通知书，涉及约1.02亿股未上市股份转换为H股。
+受油价走高、外资持续撤离印度股市影响，印度卢比年内贬值幅度已超5%。
 
-对一家港股上市不足一年的创新药公司来说，这个动作很难不引发关注。
+该国希望通过引资政策缓解本币承压。
 
-核心产品刚获批，销售收入还是零，老股流通却已经提上日程。
+印度经济时报率先于周三报道，印度内阁已批准该项减税方案；媒体致函印度财政部寻求置评，暂未收到回复。
 
-公开信息显示，派格生物成立于2008年5月，原注册地在苏州，法定代表人为MICHAEL MIN XU（徐敏，美国国籍）。
+印度基准国债开盘收益率下行1个基点，报7.01%。
 
-2025年2月，公司将注册地址迁至浙江杭州拱墅区，并更名为派格生物医药（杭州）股份有限公司。
+目前该新政落地生效时间尚未敲定。
 
-同年5月27日，公司登陆港交所。
-
-一路走到上市，徐敏的持股比例却在持续下降，从2020年9月的35.643%降至2025年12月的14.86%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:12 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:17 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:05 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:15 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:25 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:00 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 10:58 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:09 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:15 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:17 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:25 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:03 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:16 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:03 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:05 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:00 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:19 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:09 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:15 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:00 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:19 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:03 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:10 - [美国债市：国债全线上涨 油价下跌提供支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:12 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:09 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/35422545.shtml)
-- 2026-06-29 11:02 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.kurohicncr.top/Article/details/70222.shtml)
-- 2026-06-29 11:07 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](http://www.share.minike.top/Article/details/7574326.shtml)
-- 2026-06-29 11:01 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](http://www.blog.minike.top/Article/details/4246950867.shtml)
-- 2026-06-29 11:18 - [海南离岛免税实施15年累计购物金额2864亿元](http://www.share.minike.top/Article/details/60540390.shtml)
-- 2026-06-29 11:17 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](http://www.share.minike.top/Article/details/641720430221.shtml)
-- 2026-06-29 11:24 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](http://www.blog.minike.top/Article/details/092669.shtml)
-- 2026-06-29 11:26 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](http://www.blog.minike.top/Article/details/32852560490.shtml)
-- 2026-06-29 11:03 - [一季度青海消费市场实现平稳开局](http://www.blog.kurohicncr.top/Article/details/66191.shtml)
-- 2026-06-29 11:15 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.blog.minike.top/Article/details/949925460.shtml)
-- 2026-06-29 11:16 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](http://www.blog.minike.top/Article/details/3683055430.shtml)
-- 2026-06-29 10:59 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](http://www.blog.minike.top/Article/details/197568145.shtml)
-- 2026-06-29 11:12 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.share.minike.top/Article/details/236256713.shtml)
-- 2026-06-29 10:59 - [日本青森县东部海域发生5.1级地震 多地有震感](https://github.com/lisacumin64-arch)
-- 2026-06-29 10:59 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:06 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.share.minike.top/Article/details/46765961771.shtml)
+- 2026-06-29 11:10 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.kurohicncr.top/Article/details/3117619.shtml)
+- 2026-06-29 11:18 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.share.kurohicncr.top/Article/details/5251945970.shtml)
+- 2026-06-29 11:26 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [外媒：以色列和黎巴嫩同意停火 但有前提](http://www.blog.kurohicncr.top/Article/details/5960296.shtml)
+- 2026-06-29 11:04 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.blog.minike.top/Article/details/959139362.shtml)
+- 2026-06-29 11:14 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](http://www.share.minike.top/Article/details/38351014.shtml)
+- 2026-06-29 11:05 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.blog.kurohicncr.top/Article/details/14852071276.shtml)
+- 2026-06-29 11:12 - [凯赛生物：2026年6月25日召开2025年年度股东会](http://www.share.kurohicncr.top/Article/details/032943163.shtml)
+- 2026-06-29 11:25 - [美国称将调整其对北约部队的贡献](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](http://www.share.kurohicncr.top/Article/details/873419.shtml)
+- 2026-06-29 11:23 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](http://www.blog.kurohicncr.top/Article/details/55502466.shtml)
+- 2026-06-29 11:06 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](http://www.share.minike.top/Article/details/94036.shtml)

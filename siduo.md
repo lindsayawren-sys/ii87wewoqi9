@@ -1,57 +1,60 @@
-# 报告显示银龄群体成工作日休闲时间“看书学习”第一主力
+# 大摩：中兴通讯升至“增持”评级 目标价上调至39港元
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。 报告对“工作日的休闲时间您通常做什么”进行了
+大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。 报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机
 
 ## 正文
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。
+大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。
 
-该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。
+中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。
 
-报告对“工作日的休闲时间您通常做什么”进行了调查，在14个选项中，有32.23%的受访者选择了“看书学习”，超三成的中国人在休闲时间与书香为伴。
+报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机中，早期需求指标如首批产品售罄显示市场兴趣强烈。
 
-其中，60岁以上银龄群体是全年龄段中“看书学习”占比最高的群体，且银龄群体连续三年保持了全年龄段领先优势。
+该行预计中兴将深化此项合作，有望为AI手机的更广泛商业化铺路，这可能成为情绪及估值的重要催化剂。
 
-报告指出，银龄群体对学习的热情，正转化为强劲的消费力。
+该行认为，中兴的短期盈利风险已大致被市场消化，预计2026年下半年重返正增长。
 
-数据显示，2026年有23.12%的银发族计划为“学习培训等教育支出”增加消费，占比超过传统刚需“医疗服务”1.79个百分点。
+由于毛利率承压、营运费用增加、汇兑损失及减值拨备上升，短期盈利在2026年第一季疲弱后仍将受压。
 
-报告调查发现，从城乡维度看，无论是城市还是农村，经常“看书学习”的银龄群体占比都不输于其他年龄段。
+然而，市场似乎已大致消化这一影响，预期已反映至2026年第二季的弱势。
 
-具体来看，城市银龄群体中经常看书学习的人数占比为34.31%，农村为32.79%，1.52个百分点的差距，打破了“农村老人不读书”的刻板印象。
+该行认为关键拐点将出现在2026年下半年，届时低基数效应将支持盈利重返正增长。
 
 ## 相关推荐
 
-- 2026-06-29 10:59 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:26 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:13 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:23 - [一季度青海消费市场实现平稳开局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:14 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:21 - [出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:27 - [时隔六年甘肃银行豪掷17.78亿分红，背后有何考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:20 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:10 - [日本青森县东部海域发生5.1级地震 多地有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:20 - [莫桑比克总统查波向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:26 - [中国经济的“活力橱窗”｜喻见中国经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:23 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:05 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:01 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:08 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:04 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:23 - [美国称将调整其对北约部队的贡献](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:29 - [吃喝板块单边下行，华宝基金食品饮料ETF（515710）收跌1.59%！机构：底部愈发清晰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:07 - [央行7天期逆回购连续两日零操作 资金面仍显宽松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:06 - [龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:06 - [Toro上调2026财年展望：AMP计划驱动利润率，预计销售增长4%-6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:14 - [冠豪高新：公司始终密切关注行业前沿技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:18 - [香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:27 - [学生票大升级！这些出行便利已成固定政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:15 - [300726！突发低位“20cm”涨停，A股登上《新闻联播》！一个牛市新信号来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 10:59 - [全国首创知识产权代理跨境联营新机制在穗发布](http://www.blog.kurohicncr.top/Article/details/7252668.shtml)
-- 2026-06-29 11:27 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](http://www.blog.minike.top/Article/details/01916631.shtml)
-- 2026-06-29 10:59 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/959011.shtml)
-- 2026-06-29 11:14 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.minike.top/Article/details/282853.shtml)
-- 2026-06-29 11:04 - [抓住春天养发黄金期！专家支招多吃这些](http://www.share.minike.top/Article/details/57734021334.shtml)
-- 2026-06-29 11:17 - [浙江安吉：雾漫山巅 野樱如星](http://www.share.kurohicncr.top/Article/details/5869357755.shtml)
-- 2026-06-29 11:22 - [一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？](http://www.share.kurohicncr.top/Article/details/27594.shtml)
-- 2026-06-29 11:05 - [“错失恐惧症”仍主导市场，投资者对最新紧张局势反应平淡](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:08 - [浙江一季度GDP同比增长6%](http://www.share.minike.top/Article/details/7793055.shtml)
-- 2026-06-29 11:04 - [日本众参两院议长及多名官员向靖国神社供奉祭品](http://www.blog.minike.top/Article/details/8209191.shtml)
-- 2026-06-29 11:27 - [胜宏科技香港公开发售获431.15倍认购 每股发售价209.88港元](http://www.blog.kurohicncr.top/Article/details/65753.shtml)
-- 2026-06-29 11:16 - [“琢玉生辉——安徽博物院藏潘玉良艺术精品展”启幕](http://www.share.kurohicncr.top/Article/details/406746.shtml)
-- 2026-06-29 11:16 - [方邦股份4月21日龙虎榜数据](http://www.share.kurohicncr.top/Article/details/372382.shtml)
-- 2026-06-29 11:23 - [天津北辰第四届“金融周”启幕 6轮签约为区域发展注入金融“活水”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [均胜电子拟派发末期股息每10股1.8元](http://www.share.minike.top/Article/details/4005439.shtml)
+- 2026-06-29 11:11 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.blog.kurohicncr.top/Article/details/67039.shtml)
+- 2026-06-29 11:14 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.share.kurohicncr.top/Article/details/709429782841.shtml)
+- 2026-06-29 11:09 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.blog.minike.top/Article/details/880715.shtml)
+- 2026-06-29 11:06 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.blog.kurohicncr.top/Article/details/0404981.shtml)
+- 2026-06-29 11:06 - [600年白沙壁画景区焕新开放 数字技术让白沙壁画“活起来”](http://www.blog.kurohicncr.top/Article/details/79830923686.shtml)
+- 2026-06-29 11:30 - [揭开网上彩票店“吃票”黑幕：投注5万元却未收到一张彩票](http://www.share.minike.top/Article/details/48444.shtml)
+- 2026-06-29 11:03 - [中材节能：2026年6月22日召开2026年第二次临时股东会](http://www.share.minike.top/Article/details/41572.shtml)
+- 2026-06-29 11:25 - [“推进中国式现代化，要把水资源问题考虑进去”（总书记的人民情怀）](http://www.blog.minike.top/Article/details/812136378520.shtml)
+- 2026-06-29 11:15 - [中国自主设计建造的新一代深水专业铺管船完成龙骨安放](http://www.blog.minike.top/Article/details/96464975048.shtml)
+- 2026-06-29 11:17 - [2026世界女排联赛（南京站）：中国队战胜泰国队](http://www.blog.kurohicncr.top/Article/details/48256.shtml)
+- 2026-06-29 11:16 - [外交部回应对新西兰有关议员采取禁止入境等措施](http://www.blog.minike.top/Article/details/646527207.shtml)
+- 2026-06-29 11:23 - [南宁海关所属防城海关涉案财物公开拍卖公告](http://www.blog.minike.top/Article/details/290850.shtml)
+- 2026-06-29 11:18 - [多只热门牛股，密集提示风险](http://www.blog.minike.top/Article/details/0087515319.shtml)
+- 2026-06-29 11:13 - [美国股市：“旧经济”股票跑赢AI概念股 道琼斯工业平均指数创新高](http://www.blog.kurohicncr.top/Article/details/533122596.shtml)
+- 2026-06-29 11:12 - [长江有色：多头锁定获利叠加中东风险未消除 5日锌价或下跌](http://www.share.kurohicncr.top/Article/details/1836332020.shtml)

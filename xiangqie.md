@@ -1,56 +1,51 @@
-# SpaceX上市后将采用双重股权结构，确保马斯克的控制权
+# 再升科技：公司获得航空航天质量管理体系AS 9100D认证
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-SpaceX的IPO文件摘录显示，该公司计划在IPO后巩固创始人埃隆·马斯克对公司的控制权，授予他和少数内部人士超级投票权股份，其权重将超过其他投资者。 这份本月秘密提交的招股说明书提供了SpaceX财务和公司治理方面的最新细节。 上市完成后，马斯克将继续担任首席执行官、首席技术官，并担任SpaceX九人董事会主席。 据摘录显示，尽管马斯克去年在SpaceX的薪酬只有54，08
+证券日报网讯 6月5日，再升科技在互动平台回答投资者提问时表示，公司以微纤维玻璃棉为核心材料，开发“干净空气材料”“高效节能材料”和“无尘空调产品”，应用于“工业空间、移动空间、生活空间”三大领域。公司获得航空航天质量管理体系AS 9100D认证，目前应用于移动空间的航空航天板块产品主要为“航空隔音隔热棉”，目前占公司整体营收比例较低。（文章来源：证券日报）
 
 ## 正文
 
-SpaceX的IPO文件摘录显示，该公司计划在IPO后巩固创始人埃隆·马斯克对公司的控制权，授予他和少数内部人士超级投票权股份，其权重将超过其他投资者。
+证券日报网讯 6月5日，再升科技在互动平台回答投资者提问时表示，公司以微纤维玻璃棉为核心材料，开发“干净空气材料”“高效节能材料”和“无尘空调产品”，应用于“工业空间、移动空间、生活空间”三大领域。
 
-这份本月秘密提交的招股说明书提供了SpaceX财务和公司治理方面的最新细节。
+公司获得航空航天质量管理体系AS 9100D认证，目前应用于移动空间的航空航天板块产品主要为“航空隔音隔热棉”，目前占公司整体营收比例较低。
 
-上市完成后，马斯克将继续担任首席执行官、首席技术官，并担任SpaceX九人董事会主席。
-
-据摘录显示，尽管马斯克去年在SpaceX的薪酬只有54，080 美元，但公司上市后，他将获得丰厚的股权收益。
-
-SpaceX 的目标是通过募集 750 亿美元，实现约 1.75 万亿美元的上市估值，这将使其成为史上规模最大的首次公开募股 （IPO）。
-
-文件显示，SpaceX的总裁兼首席运营官格温·肖特韦尔去年的总薪酬为 8580 万美元，而首席财务官布雷特·约翰逊的薪酬为 980 万美元。
-
-文件显示，SpaceX将采用双重股权结构，B类股东每股拥有10票投票权，权力集中在马斯克和其他少数内部人士手中；而出售给公众投资者的A类股票每股只有1票投票权。
-
-文件还概述了一些条款，这些条款可能会限制股东影响董事会选举或提起某些法律诉讼的能力，迫使争议通过仲裁解决，并限制诉讼地点。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:07 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:09 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:10 - [日韩股市开盘 日经指数低开0.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:25 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:23 - [伊朗航空宣布自4月22日起恢复国内航班运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:11 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 10:58 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:23 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:04 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:16 - [英国首相斯塔默批马斯克插手英内政](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:19 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:29 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:28 - [Meta最新AI模型一拖再拖，开发者耐心渐失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:04 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:08 - [新大众文艺：人民文艺的时代强音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:07 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:03 - [青海省“全民禁毒宣传月”系列活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:28 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:04 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:15 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:03 - [外媒：以色列和黎巴嫩同意停火 但有前提](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:07 - [初夏“睡眠紊乱”高发，如何找回状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:12 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:18 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [首届中非企业家高端论坛在非盟总部举行](http://www.share.minike.top/Article/details/8880421.shtml)
-- 2026-06-29 11:13 - [酒价内参4月22日价格发布：青花汾20领涨 总价创13天以来新高](http://www.share.minike.top/Article/details/517133.shtml)
-- 2026-06-29 10:58 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](http://www.share.kurohicncr.top/Article/details/2948585926.shtml)
-- 2026-06-29 11:14 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](http://www.blog.minike.top/Article/details/5991494.shtml)
-- 2026-06-29 11:11 - [巴黎检方：马斯克缺席传唤](http://www.blog.minike.top/Article/details/55904929639.shtml)
-- 2026-06-29 11:01 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](http://www.share.kurohicncr.top/Article/details/1753451224.shtml)
-- 2026-06-29 11:26 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](http://www.share.minike.top/Article/details/8476536562.shtml)
-- 2026-06-29 11:14 - [猪价反弹底部确认，政策释放“稳价”信号](http://www.blog.minike.top/Article/details/29888591402.shtml)
-- 2026-06-29 11:07 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](http://www.share.minike.top/Article/details/37978680315.shtml)
-- 2026-06-29 11:11 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [全国首创知识产权代理跨境联营新机制在穗发布](http://www.blog.minike.top/Article/details/0994780827.shtml)
-- 2026-06-29 11:16 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/933877394122.shtml)
-- 2026-06-29 11:19 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:01 - [探访黑龙江宝清翡翠湖：昔日“废弃矿山”如今“绿水青山”](http://www.blog.minike.top/Article/details/0023980776.shtml)
+- 2026-06-29 11:14 - [中国抹茶刮“绿色旋风” 内销出口两旺](http://www.blog.minike.top/Article/details/79625503627.shtml)
+- 2026-06-29 11:12 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](http://www.blog.minike.top/Article/details/6603479805.shtml)
+- 2026-06-29 11:22 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](http://www.blog.kurohicncr.top/Article/details/587891855.shtml)
+- 2026-06-29 11:19 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](http://www.blog.kurohicncr.top/Article/details/959008.shtml)
+- 2026-06-29 11:27 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](http://www.blog.minike.top/Article/details/5860796.shtml)
+- 2026-06-29 11:13 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](http://www.blog.minike.top/Article/details/5908106.shtml)
+- 2026-06-29 11:23 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](http://www.share.minike.top/Article/details/0650326.shtml)
+- 2026-06-29 11:01 - [广东省口岸有关数据（2026年1-4月）](http://www.blog.kurohicncr.top/Article/details/68414932.shtml)
+- 2026-06-29 11:05 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](http://www.share.kurohicncr.top/Article/details/33802011.shtml)
+- 2026-06-29 11:28 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](http://www.share.minike.top/Article/details/465547.shtml)
+- 2026-06-29 11:10 - [债市“乌龙指”：30亿农发债协议取消与内控失守](http://www.share.kurohicncr.top/Article/details/70643249426.shtml)
+- 2026-06-29 11:18 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](http://www.blog.minike.top/Article/details/3152670.shtml)
+- 2026-06-29 11:07 - [要做难而正确的事 理想汽车李想邀您关注统战新语](http://www.blog.kurohicncr.top/Article/details/7535112.shtml)

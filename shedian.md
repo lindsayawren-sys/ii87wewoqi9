@@ -1,51 +1,56 @@
-# 特朗普称最终将达成重大协议
+# CBCX:金价回稳关注利率线索
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。（完）责任编辑：宋雅芳
+6月5日，CBCX表示，周四金价在美元略有回落、油价走低的环境中获得支撑，市场情绪从前期急涨急跌转向重新评估避险需求与利率预期的平衡。对于贵金属交易者而言，价格反弹本身并不意味着趋势已经完全修复，但短线买盘回流说明资金仍在寻找相对稳健的配置方向。 从市场结构看，CBCX认为美国收益率仍处在较高区间，这会持续影响黄金的上行斜率；不过当原油回吐部分涨幅后，通胀再度加速的担忧有所降温
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月5日，CBCX表示，周四金价在美元略有回落、油价走低的环境中获得支撑，市场情绪从前期急涨急跌转向重新评估避险需求与利率预期的平衡。
 
-新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。
+对于贵金属交易者而言，价格反弹本身并不意味着趋势已经完全修复，但短线买盘回流说明资金仍在寻找相对稳健的配置方向。
 
-（完）责任编辑：宋雅芳
+从市场结构看，CBCX认为美国收益率仍处在较高区间，这会持续影响黄金的上行斜率；不过当原油回吐部分涨幅后，通胀再度加速的担忧有所降温，也让黄金获得了一定喘息空间。
+
+美元波动与就业数据预期，仍是接下来判断金价能否延续修复的重要参照。
+
+如果后续宏观数据没有继续推高实际利率，黄金有机会围绕当前区间展开更稳的整理。
+
+相比单边冲高，市场更可能先围绕利率、汇率与能源价格之间的联动反复定价，这也意味着贵金属短期内仍将维持高敏感度。
+
+展望下一阶段，CBCX分析称，投资者可继续关注就业数据、债券收益率和原油波动是否同步放缓；若几项变量同时趋稳，金价的区间支撑有望进一步巩固，贵金属情绪也可能从防御型交易逐步过渡到观察型布局。
+
+参考链接： https：//www.investing.com/news/commodities-news/gold-prices-rise-after-israellebanon-ceasefire-deal-us-jobs-data-awaited-4725598 风险提示：本文仅为资讯分享，不构成投资建议。
 
 ## 相关推荐
 
-- 2026-06-29 11:01 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 10:58 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:05 - [巴黎检方：马斯克缺席传唤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 10:59 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:10 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:25 - [猪价反弹底部确认，政策释放“稳价”信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:00 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:10 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:24 - [全国首创知识产权代理跨境联营新机制在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:18 - [“四季新韵·感知重庆”境外媒体重庆行交流活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:22 - [江阴跑出千亿IPO，盛合晶微开盘一度冲破1800亿元，无锡国资赢麻了 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 10:57 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:25 - [抓住春天养发黄金期！专家支招多吃这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:17 - [浙江安吉：雾漫山巅 野樱如星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:22 - [一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:23 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:13 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:26 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:29 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:24 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:27 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:20 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:16 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:29 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:29 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [北京市欧美同学会生物医药健康委员会调研国际医药创新公园](http://www.share.minike.top/Article/details/46538149.shtml)
-- 2026-06-29 11:13 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](http://www.share.minike.top/Article/details/060049.shtml)
-- 2026-06-29 11:17 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](http://www.share.kurohicncr.top/Article/details/158509256111.shtml)
-- 2026-06-29 11:04 - [韩元走弱促使企业结汇 韩国外汇存款创历史最大降幅](http://www.blog.kurohicncr.top/Article/details/34125426295.shtml)
-- 2026-06-29 11:12 - [杭州萧山机场海关查获1起入境旅客携带超量物品进境案件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:03 - [贵州牵手济州 共谋黔韩企业合作新路径](http://www.blog.minike.top/Article/details/86543.shtml)
-- 2026-06-29 11:06 - [从“流量”到“留量” 解锁农文旅融合“长红”密码](http://www.blog.kurohicncr.top/Article/details/42658767483.shtml)
-- 2026-06-29 11:27 - [工信部推进算电协同！创业板50ETF华安（159949）半日成交额5.56亿领跑同类 机构：创业板占优行情或持续](http://www.blog.kurohicncr.top/Article/details/4880547.shtml)
-- 2026-06-29 11:07 - [淡马锡支持的CuspAI据悉正洽谈融资，估值将超10亿美元](http://www.blog.kurohicncr.top/Article/details/508638.shtml)
-- 2026-06-29 11:18 - [开盘：国内期货主力合约涨多跌少 原油涨超2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [兆易创新午前涨近3% 公司正式推出GD32F5HC系列32位通用微控制器](http://www.share.minike.top/Article/details/49498119250.shtml)
-- 2026-06-29 11:20 - [日媒：日本央行4月将维持利率不变](http://www.blog.minike.top/Article/details/50793861346.shtml)
-- 2026-06-29 10:58 - [埃及迎来建设热潮，千亿美元投资重塑国家面貌](http://www.share.minike.top/Article/details/22289560.shtml)
-- 2026-06-29 11:20 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.share.minike.top/Article/details/59272.shtml)
-- 2026-06-29 11:05 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/35608.shtml)
+- 2026-06-29 11:25 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](http://www.blog.kurohicncr.top/Article/details/651321544204.shtml)
+- 2026-06-29 11:00 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.share.kurohicncr.top/Article/details/1133270883.shtml)
+- 2026-06-29 11:17 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.share.kurohicncr.top/Article/details/047631762.shtml)
+- 2026-06-29 11:26 - [佐力药业：公司无逾期对外担保](http://www.share.kurohicncr.top/Article/details/4780988.shtml)
+- 2026-06-29 11:15 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.share.kurohicncr.top/Article/details/94469.shtml)
+- 2026-06-29 11:05 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](http://www.blog.minike.top/Article/details/19714009891.shtml)
+- 2026-06-29 11:13 - [高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？](http://www.share.minike.top/Article/details/5849504550.shtml)
+- 2026-06-29 11:23 - [2026中国环塔国际拉力赛：车队后勤是致胜关键](http://www.blog.kurohicncr.top/Article/details/58169403.shtml)
+- 2026-06-29 11:16 - [赴泰失联的4名中国公民即将回国 另有一男子意外获救](http://www.blog.kurohicncr.top/Article/details/49251813873.shtml)
+- 2026-06-29 11:18 - [易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定](http://www.blog.kurohicncr.top/Article/details/2182891359.shtml)
+- 2026-06-29 11:26 - [买新能源汽车之前，这几个坑一定要提前了解](http://www.blog.minike.top/Article/details/36489705.shtml)
+- 2026-06-29 11:22 - [长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌](http://www.blog.kurohicncr.top/Article/details/40509591.shtml)
+- 2026-06-29 11:00 - [康宁杰瑞制药-B：执行董事及管理层增持股份](http://www.share.minike.top/Article/details/1530794848.shtml)
+- 2026-06-29 11:11 - [一周之内双重上岸：Minimax冲刺A+H的战略算盘](http://www.blog.kurohicncr.top/Article/details/206558331655.shtml)

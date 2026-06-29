@@ -1,56 +1,57 @@
-# 亿万富翁雅各布斯豪赌保温材料：170亿美元收购TopBuild
+# 陈继明出任中国人民银行上海总部党委委员、副主任
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-亿万富翁投资人、连续创业家布拉德·雅各布斯接受采访时，详细阐述了他对建材分销行业的大胆押注。他领导的QXO公司宣布以约170亿美元收购北美保温材料分销与安装商TopBuild，这是QXO成立一年多来规模最大的一笔交易，也是雅各布斯在建材领域整合战略的关键一步。 雅各布斯表示，选择保温材料作为重点布局领域并非偶然。他花了大量时间筛选了55个行业的600多家公司，最终认定建筑产品是
+6月4日，中国人民银行上海总部更新的“机构领导”显示，陈继明已出任中国人民银行上海总部党委委员、副主任。 此前，陈继明担任上海市委金融委员会办公室副主任（挂职）。陈继明在央行系统工作多年，先后在研究局和分支机构任职，曾出任中国人民银行河北省分行党委委员、副行长兼国家外汇管理局河北省分局副局长。 目前，央行上海总部的机构领导包括陶玲（中国人民银行党委委员、副行长兼中国人民银行上海
 
 ## 正文
 
-亿万富翁投资人、连续创业家布拉德·雅各布斯接受采访时，详细阐述了他对建材分销行业的大胆押注。
+6月4日，中国人民银行上海总部更新的“机构领导”显示，陈继明已出任中国人民银行上海总部党委委员、副主任。
 
-他领导的QXO公司宣布以约170亿美元收购北美保温材料分销与安装商TopBuild，这是QXO成立一年多来规模最大的一笔交易，也是雅各布斯在建材领域整合战略的关键一步。
+此前，陈继明担任上海市委金融委员会办公室副主任（挂职）。
 
-雅各布斯表示，选择保温材料作为重点布局领域并非偶然。
+陈继明在央行系统工作多年，先后在研究局和分支机构任职，曾出任中国人民银行河北省分行党委委员、副行长兼国家外汇管理局河北省分局副局长。
 
-他花了大量时间筛选了55个行业的600多家公司，最终认定建筑产品是唯一能够“满足所有条件”的领域。
+目前，央行上海总部的机构领导包括陶玲（中国人民银行党委委员、副行长兼中国人民银行上海总部党委书记）、苏赟（中国人民银行上海总部党委委员、副主任、国家外汇管理局上海市分局副局长）、陈继明（中国人民银行上海总部党委委员、副主任）、陈勇（中国人民银行上海总部党委委员、副主任）和杨志宁（中国人民银行上海总部纪委书记、党委委员）。
 
-保温材料受益于美国住房短缺带来的长期稳定需求，行业高度分散且运营方式相对传统，为整合者留下了巨大的效率提升空间。
+中国人民银行上海总部成立于2005年8月，作为总行的有机组成部分，在总行的领导和授权下开展工作，主要承担部分中央银行业务的具体操作职责，同时履行一定的管理职能。
 
-TopBuild拥有行业领先的约18%的调整后EBITDA利润率，其业务中相当大比例来自维修和更换需求而非新建工程，这意味着无论经济周期如何，屋顶渗漏和房屋保温需求都不会消失。
+上海总部建设总的目标可归纳为“两个平台、一个窗口和一个中心”，即把上海总部建设成为总行公开市场操作的平台、金融市场运行监测的平台、对外交往的重要窗口和一部分金融服务与研究和开发业务的中心。
 
-这笔交易延续了雅各布斯一贯的“整合者”打法——选择规模巨大且碎片化的行业，通过运营纪律和技术系统提升效率，再以耐心的资本配置实现复利增长。
+中国人民银行上海总部与中国人民银行上海市分行合署办公。
 
-此前，QXO已先后完成对Beacon Roofing Supply约110亿美元的收购以及Kodiak Building Partners约25亿美元的收购。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [一张手绘“村图”能管43年，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:14 - [美最高法院审理SEC追缴权案：投资者损害证明要求或改写执法格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:10 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:10 - [暴雨蓝色预警：7省区部分地区有大到暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 10:58 - [工信部回应存储器价格上涨：将多措并举保障产业链供应链稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 10:59 - [礼来制药同意收购抗癌药物开发商Kelonia，交易价值达70亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:23 - [7岁男孩表演少林拳，一招一式刚劲有力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:16 - [视频｜外贸数据只考不核，为争先进重金“购买”出口数据……中央通报南京市外贸数据造假问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:01 - [中方回应美国发布所谓涉港报告：充斥谎言和谬论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:06 - [FBI局长帕特尔起诉《大西洋月刊》索赔2.5亿美元，驳斥酗酒指控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:21 - [新风光：2026年6月26日召开2025年年度股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:16 - [小摩：香港4月零售温和放缓 重申领展房产基金九龙仓置业“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:10 - [易方达ETF超过华夏了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:27 - [中国电科面向空天地信息通信一体芯片从“实验室”走向“生产线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:20 - [上海石化：2026年6月26日召开2025年度股东周年会、2026年第一次A股股东会和2026年第一次H股股东会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:21 - [印尼盾汇率跌破18000心理关口 市场警惕央行干预](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:04 - [Point72据悉考虑从其他对冲基金付费获取交易情报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:16 - [中华企业：公司积极参与上海地产集团城市更新平台建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:22 - [河北首单至土耳其TIR多式联运专线发车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:25 - [中国民主促进会福州市第九次代表大会在福州召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:07 - [新疆喀什：360余万亩冬小麦喜迎丰收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:09 - [遏制掐尖招生 教育部阳光招生专项行动旨在构建长效机制](http://www.blog.kurohicncr.top/Article/details/99341836.shtml)
-- 2026-06-29 11:05 - [中东战火压不住“AI牛市”叙事! GPU不再独霸算力主题 智能体浪潮引爆CPU与存储](http://www.blog.kurohicncr.top/Article/details/4690778315.shtml)
-- 2026-06-29 11:01 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/597819222142.shtml)
-- 2026-06-29 11:23 - [我国中东部有一次较大范围降水过程 内蒙古和东北地区有大风天气](http://www.share.kurohicncr.top/Article/details/3645257828.shtml)
-- 2026-06-29 11:25 - [快讯：恒指高开0.31% 科指涨0.53% 科网股活跃 锂电池股高开 胜宏科技首日高开逾57%](http://www.share.kurohicncr.top/Article/details/93659.shtml)
-- 2026-06-29 11:07 - [国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:07 - [沈萍点赞三亚亚沙会：这是我参加过多届亚沙会里最好的场地](http://www.blog.kurohicncr.top/Article/details/63300.shtml)
-- 2026-06-29 11:05 - [向日葵2025年净亏损438.48万元](http://www.blog.kurohicncr.top/Article/details/46007.shtml)
-- 2026-06-29 11:13 - [肖捷会见欧洲议会副议长奥马吉](http://www.blog.kurohicncr.top/Article/details/71869.shtml)
-- 2026-06-29 10:59 - [盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理](http://www.blog.kurohicncr.top/Article/details/0429590.shtml)
-- 2026-06-29 11:13 - [浙江绍兴：校内旧书市集共享阅读乐趣](http://www.share.minike.top/Article/details/355032180231.shtml)
-- 2026-06-29 11:19 - [特朗普鼓励企业不要寻求获得关税退款 称自己会铭记在心](http://www.blog.kurohicncr.top/Article/details/32698721112.shtml)
-- 2026-06-29 11:18 - [重庆法院2025年新收各类知识产权案件14438件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:04 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](http://www.share.minike.top/Article/details/7543664000.shtml)
-- 2026-06-29 11:14 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [建设国家公园带来了什么？记者和亲历者聊了聊](http://www.blog.minike.top/Article/details/39389116.shtml)
+- 2026-06-29 11:27 - [印尼驻华大使：相信万隆精神依然具有生命力](http://www.share.kurohicncr.top/Article/details/71662.shtml)
+- 2026-06-29 11:24 - [中青旅：公司持续关注近期股价破净情况](http://www.share.minike.top/Article/details/4302953.shtml)
+- 2026-06-29 11:16 - [日本央行据悉考虑6月升息 日元汇率随之走强](http://www.blog.kurohicncr.top/Article/details/659994668.shtml)
+- 2026-06-29 11:18 - [社区央厨服务升级：锅圈多元业务协同，万店网络助力即时零售高质量发展](http://www.blog.kurohicncr.top/Article/details/289790727700.shtml)
+- 2026-06-29 11:28 - [天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一](http://www.share.kurohicncr.top/Article/details/5474412518.shtml)
+- 2026-06-29 11:28 - [AI无人机当上“空中网格员” 智慧巡检助力基层治理“轻装上阵”](http://www.blog.minike.top/Article/details/541272464718.shtml)
+- 2026-06-29 11:14 - [山东文化“春雨”乘旅游列车润泽天山南北](http://www.blog.kurohicncr.top/Article/details/884657582597.shtml)
+- 2026-06-29 11:19 - [美的董事长方洪波：三年内不做大并购，最高境界是反脆弱](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:10 - [伊朗称美失误致科威特机场受损 美方否认](http://www.share.minike.top/Article/details/605281025833.shtml)
+- 2026-06-29 11:05 - [贝因美迎来“国资爸爸”，10年亏20亿创始人谢幕！](http://www.share.kurohicncr.top/Article/details/704130603710.shtml)
+- 2026-06-29 11:13 - [光大期货：6月5日金融日报](http://www.blog.minike.top/Article/details/23004555391.shtml)
+- 2026-06-29 11:07 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](http://www.share.kurohicncr.top/Article/details/46732609342.shtml)
+- 2026-06-29 11:02 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](http://www.blog.kurohicncr.top/Article/details/29294.shtml)
+- 2026-06-29 11:24 - [3分钟，垂直涨停！封单超6万手](http://www.share.minike.top/Article/details/76406.shtml)

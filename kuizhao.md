@@ -1,58 +1,46 @@
-# 国台办：统一是台湾的唯一前途，也是台湾同胞利益福祉所系
+# 天原股份：公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-4月22日，国务院台办举行例行新闻发布会。 有记者问，中国国民党主席郑丽文来大陆参访返台后，台湾“民主文教基金会”公布岛内关于两岸议题的最新民调显示，半数以上受访者认同台湾应主动面对并讨论两岸统一问题，近七成民众支持加强两岸接触与互动以维持和平稳定。请问对此有何评论？ 发言人张晗表示，相关民调表明，郑丽文主席率中国国民党访问团访问大陆，回应了岛内要和平、要发展、要交流、要合作的
+证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一，公司作为一家有八十多年历史的企业，在行业周期中始终坚持苦练内功，同时积极进行战略转型升级，向百年天原之目标奋斗。（文章来源：证券日报）
 
 ## 正文
 
-4月22日，国务院台办举行例行新闻发布会。
+证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司的绿色循环经济产业链一直是公司在行业中的核心竞争力之一，公司作为一家有八十多年历史的企业，在行业周期中始终坚持苦练内功，同时积极进行战略转型升级，向百年天原之目标奋斗。
 
-有记者问，中国国民党主席郑丽文来大陆参访返台后，台湾“民主文教基金会”公布岛内关于两岸议题的最新民调显示，半数以上受访者认同台湾应主动面对并讨论两岸统一问题，近七成民众支持加强两岸接触与互动以维持和平稳定。
-
-请问对此有何评论？
-
-发言人张晗表示，相关民调表明，郑丽文主席率中国国民党访问团访问大陆，回应了岛内要和平、要发展、要交流、要合作的主流民意，顺应了两岸同胞走亲走近、走到一起的大潮流，对推动两岸关系和平发展，维护台湾同胞利益福祉具有重要作用。
-
-张晗表示，统一是台湾的唯一前途，也是台湾同胞利益福祉所系。
-
-“台独”是绝路，只会给台海带来深重祸害。
-
-希望更多台湾同胞顺应历史大势，秉持民族大义，认识统一大利，积极参与到推进两岸关系和平发展、推进祖国统一的正义事业中来。
-
-(田翔宇、张泽钰)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 11:06 - [重庆法院2025年新收各类知识产权案件14438件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:22 - [重庆秀山职教学生学非遗技艺 一技在手就业不愁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:22 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼时指出 中国将坚定不移扩大高水平对外开放 欢迎美资企业共享中国高质量发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:14 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:15 - [美国能源部预计汽油成本居高不下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:24 - [知名作家齐聚江西南昌 共绘长征精神文学地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:21 - [突发！苹果官宣：库克9月卸任CEO，特努斯接任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:24 - [郑商所与波交所签署BPI授权协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:22 - [TGS延长美国海湾多年期海底节点采集合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:06 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:08 - [影石Luna提前亮相展会 徕卡联合研发口袋级专业双摄创作工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:12 - [特朗普称Anthropic“表现良好”，愿与五角大楼达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:05 - [（经济观察）中国正谋划实施新一轮空气质量改善行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:22 - [外交部谈“五眼联盟”指责中方“间谍威胁”：很讽刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:11 - [3分钟，垂直涨停！封单超6万手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:20 - [私域直播设陷阱“拼单赌石”藏骗局老人花百万买原石 然而蹊跷一幕发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:08 - [金银持续下跌，金价从历史高点已回落超过1000美元！一大行宣布：提高保证金比例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:28 - [美债市场“野兽”咆哮回归 凸性对冲恐加剧波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:15 - [国家经济委员会主任哈塞特：低通胀环境下美联储有降息空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:00 - [港股午评：恒指跌0.81% 科指跌1.23% 科网股普跌 半导体板块回调 中兴通讯逆势涨超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:15 - [世赛新增项目，为啥是这7个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:06 - [富滇银行2026年增资扩股方案获批 拟募集不超过14亿股股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [上海市委统战部在黄浦区召开基层统战工作现场会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:12 - [突然，20%涨停！“225倍大神”，最新引爆！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:06 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.share.kurohicncr.top/Article/details/56475905303.shtml)
-- 2026-06-29 11:24 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.minike.top/Article/details/44134883697.shtml)
-- 2026-06-29 11:26 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:00 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](http://www.blog.minike.top/Article/details/291271854.shtml)
-- 2026-06-29 11:25 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:02 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [康泰生物2025年度归母净利润7033万元 同比下降65.12%](http://www.blog.kurohicncr.top/Article/details/1839543.shtml)
-- 2026-06-29 11:12 - [天津博物馆首个全沉浸式数字展启幕 以数字技术解锁甲骨文三千年文脉](http://www.blog.kurohicncr.top/Article/details/776468830.shtml)
-- 2026-06-29 11:17 - [中触媒2025年度归母净利润约2.05亿元 同比增40.76%](http://www.share.minike.top/Article/details/033285061403.shtml)
-- 2026-06-29 11:26 - [SK海力士为英伟达增加供应 新模块瞄准下一代AI工作负载的瓶颈](http://www.blog.kurohicncr.top/Article/details/001155536.shtml)
-- 2026-06-29 11:15 - [女篮世界杯分组出炉 中国女篮落入“死亡之组”](http://www.share.minike.top/Article/details/694843642.shtml)
-- 2026-06-29 11:13 - [华泰期货：昨日20号胶大涨，不建议追高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.minike.top/Article/details/81397598505.shtml)
-- 2026-06-29 11:22 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/697649164188.shtml)
-- 2026-06-29 11:25 - [大美边疆看我家丨辽宁东港：潮落潮不息 沧海似瀑泉](http://www.share.kurohicncr.top/Article/details/55389170093.shtml)
+- 2026-06-29 11:27 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [中尼合资航司复航加德满都至深圳往返航线](http://www.share.kurohicncr.top/Article/details/511065070.shtml)
+- 2026-06-29 11:12 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](http://www.blog.kurohicncr.top/Article/details/6080615.shtml)
+- 2026-06-29 11:03 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](http://www.blog.kurohicncr.top/Article/details/9553646.shtml)
+- 2026-06-29 11:22 - [读懂中国是福山们的必修课](http://www.share.minike.top/Article/details/3551564.shtml)
+- 2026-06-29 11:14 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](http://www.blog.minike.top/Article/details/900769794.shtml)
+- 2026-06-29 11:07 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](http://www.share.kurohicncr.top/Article/details/161286956513.shtml)
+- 2026-06-29 11:24 - [美国债市：国债全线上涨 油价下跌提供支撑](http://www.share.kurohicncr.top/Article/details/78003.shtml)
+- 2026-06-29 11:02 - [央行宏观审慎管理局局长周永坤出任央行四川省分行行长](http://www.share.minike.top/Article/details/06607.shtml)
+- 2026-06-29 11:02 - [甘肃金昌市统战宣传工作会议召开](http://www.blog.minike.top/Article/details/9774070.shtml)
+- 2026-06-29 11:11 - [香港新设“小马大本营” 寓教于乐普及马术运动](http://www.share.kurohicncr.top/Article/details/8145173558.shtml)
+- 2026-06-29 11:17 - [全国首张“无目的地海上游”出入境通行证在沪签发](http://www.blog.kurohicncr.top/Article/details/7822206.shtml)
+- 2026-06-29 11:10 - [6月5日收盘：道指涨逾870点创历史新高 博通拖累纳指收跌](http://www.share.kurohicncr.top/Article/details/43626940207.shtml)
+- 2026-06-29 11:17 - [特朗普：美伊协议必须包括伊朗弃核和重开霍尔木兹海峡](http://www.share.minike.top/Article/details/988459.shtml)
+- 2026-06-29 11:14 - [AI热潮难敌预期过高：博通财报超预期股价反跌14%](http://www.share.minike.top/Article/details/34746822217.shtml)

@@ -1,56 +1,58 @@
-# 高盛任命金融科技银行家Gido担任金融机构组主席
+# 股价“五连跌”，市值蒸发逾四成！诺思兰德首个基因疗法药物获批上市，为何市场不买账？
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-高盛集团已提拔资深金融科技银行家杰夫·吉多担任金融机构组主，这一人事变动凸显了该行对快速发展的金融科技领域的战略重视。 1994年从宾夕法尼亚州立大学毕业后加入高盛的吉多，将与现任主席约翰·马奥尼和德克·利文斯共同领导金融机构组的工作。他的职责包括与金融机构团队及更广泛业务领域的“高层领导”合作，推动商业机会并为该行一些最重要的客户提供咨询，尤其是在金融科技领域。 吉多于200
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|林姿辰 每经编辑|魏文艺 期盼已久的基因治疗药物获批上市，诺思兰德（BJ920047，股价18.06元，市值49.53亿元） 的股民却开心不起来。 自5月29日起的5个交易日内，诺思兰德股价从最高33.72元/股，一路跌至最低18.64元/股。截至4日收盘，公司市值相较于5月28日收盘时已蒸发超过
 
 ## 正文
 
-高盛集团已提拔资深金融科技银行家杰夫·吉多担任金融机构组主，这一人事变动凸显了该行对快速发展的金融科技领域的战略重视。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-1994年从宾夕法尼亚州立大学毕业后加入高盛的吉多，将与现任主席约翰·马奥尼和德克·利文斯共同领导金融机构组的工作。
+每经记者|林姿辰 每经编辑|魏文艺 期盼已久的基因治疗药物获批上市，诺思兰德（BJ920047，股价18.06元，市值49.53亿元） 的股民却开心不起来。
 
-他的职责包括与金融机构团队及更广泛业务领域的“高层领导”合作，推动商业机会并为该行一些最重要的客户提供咨询，尤其是在金融科技领域。
+自5月29日起的5个交易日内，诺思兰德股价从最高33.72元/股，一路跌至最低18.64元/股。
 
-吉多于2001年加入高盛，在金融机构组内逐步晋升，后来成为金融科技行业的全球负责人。
+截至4日收盘，公司市值相较于5月28日收盘时已蒸发超过40%。
 
-他在这一领域的深厚积累使他能够准确把握技术如何重塑传统金融服务业。
+6月5日，诺思兰德股价继续下跌，当日收跌3.73%。
 
-吉多与妻子温迪均为宾夕法尼亚州立大学斯米尔商学院的校友。
+然而，引发这一系列情况的竟是一则利好消息。
 
-2022年，这对夫妇通过高盛捐赠基金项目向母校捐赠50万美元，设立了金融科技专项基金，用于支持课程开发、学生竞赛和职业指导等金融科技教育项目。
+5月28日，国家药品监督管理局官网公示“批准塞多明基注射液上市”。
 
-吉多本人也是斯米尔商学院金融顾问委员会的创始成员，持续为该院金融教育的提升提供指导。
+5月29日，诺思兰德公告称，公司1类新药塞多明基注射液（商品名称：华索灵）近日在国内获批上市，可用于严重下肢缺血性疾病（CLI）导致的溃疡治疗。
 
 ## 相关推荐
 
-- 2026-06-29 11:04 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:10 - [（乡村行·看振兴）小山村逐梦航天 浙江云和乡村振兴连接“星辰大海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:10 - [千亿市值龙头，白天触及涨停，晚间公告业绩大挫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:23 - [巴黎检方：马斯克缺席传唤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:04 - [中国—中亚骨关节学术交流暨数康师设备捐赠仪式在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:15 - [中国现存最早古戏台：843年前，工匠把名字刻在石头上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 10:57 - [猪价反弹底部确认，政策释放“稳价”信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:23 - [外交部：美国在霍尔木兹海峡扣押的是一艘外籍集装箱船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:11 - [中方再次敦促美方在乌克兰问题上停止甩锅推责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 10:59 - [全国首创知识产权代理跨境联营新机制在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:16 - [同仁堂大宗交易成交28.00万股 成交额700.84万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:02 - [【点石成金】碳酸锂点评：草蛇灰线，暗度陈仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:29 - [广西以旧换新自主品类补贴活动启动 单件最高补贴1500元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:02 - [Bybit成首家整合西联汇款USDPT稳定币的主流交易所](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:19 - [探访四川卧龙神树坪基地：大熊猫“两情相悦”有门道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:02 - [徕木股份：公司在新型连接器领域开发出多类高电压高电流连接器、高清高速连接器、高频连接器产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:26 - [广东省口岸有关数据（2026年1-4月）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:07 - [（乡村行·看振兴）山西忻州：甜瓜飘香采摘忙 铺就“甜蜜”致富路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:02 - [中国人民银行定于2026年6月13日发行国家宝藏（融合交流）金银纪念币一套](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:11 - [中国男篮82:78胜塞尔维亚KK FMP俱乐部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:01 - [债市“乌龙指”：30亿农发债协议取消与内控失守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:02 - [18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [广州纪念詹天佑诞辰165周年](http://www.share.minike.top/Article/details/146661271.shtml)
-- 2026-06-29 11:03 - [北京市欧美同学会生物医药健康委员会调研国际医药创新公园](http://www.blog.minike.top/Article/details/4815327483.shtml)
-- 2026-06-29 11:19 - [景顺长城王开展：A股全面演绎结构性行情 关注出海制造主线](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [阿联酋据悉寻求与美国建立货币互换机制，警告若美元短缺或改用人民币交易石油](http://www.share.kurohicncr.top/Article/details/667428610.shtml)
-- 2026-06-29 11:19 - [韩元走弱促使企业结汇 韩国外汇存款创历史最大降幅](http://www.blog.kurohicncr.top/Article/details/485799061071.shtml)
-- 2026-06-29 11:05 - [杭州萧山机场海关查获1起入境旅客携带超量物品进境案件](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [贵州牵手济州 共谋黔韩企业合作新路径](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [从“流量”到“留量” 解锁农文旅融合“长红”密码](http://www.blog.minike.top/Article/details/81448.shtml)
-- 2026-06-29 11:18 - [工信部推进算电协同！创业板50ETF华安（159949）半日成交额5.56亿领跑同类 机构：创业板占优行情或持续](http://www.share.kurohicncr.top/Article/details/4411748.shtml)
-- 2026-06-29 11:13 - [淡马锡支持的CuspAI据悉正洽谈融资，估值将超10亿美元](http://www.share.kurohicncr.top/Article/details/77504141.shtml)
-- 2026-06-29 11:26 - [开盘：国内期货主力合约涨多跌少 原油涨超2%](http://www.share.kurohicncr.top/Article/details/5380183035.shtml)
-- 2026-06-29 10:58 - [兆易创新午前涨近3% 公司正式推出GD32F5HC系列32位通用微控制器](http://www.blog.minike.top/Article/details/800738882113.shtml)
-- 2026-06-29 11:27 - [日媒：日本央行4月将维持利率不变](http://www.share.kurohicncr.top/Article/details/034433.shtml)
-- 2026-06-29 11:17 - [埃及迎来建设热潮，千亿美元投资重塑国家面貌](http://www.blog.kurohicncr.top/Article/details/60661.shtml)
-- 2026-06-29 11:17 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.share.kurohicncr.top/Article/details/1455994347.shtml)
+- 2026-06-29 11:25 - [航宇科技6月5日大宗交易成交332.31万元](http://www.share.kurohicncr.top/Article/details/68999.shtml)
+- 2026-06-29 11:16 - [科研团队发布有机高分子应用智能体 助力高新材料高效自主研发](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:05 - [中央音乐学院举办“欧亚之声”中俄交响音乐会](http://www.share.minike.top/Article/details/58172.shtml)
+- 2026-06-29 11:25 - [联合国报告：人工智能全球环境足迹加速扩张 能源与治理挑战愈发严峻](http://www.blog.minike.top/Article/details/85340991324.shtml)
+- 2026-06-29 11:07 - [年化3.36%的美元理财香不香？汇率升破6.8后，利差优势生变](http://www.blog.minike.top/Article/details/56096625.shtml)
+- 2026-06-29 11:21 - [佐力药业：公司无逾期对外担保](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [河南安阳滑县知联会开展“科技专家助企行”专项行动](http://www.share.minike.top/Article/details/05167830523.shtml)
+- 2026-06-29 11:19 - [国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [高盛：到2030年四巨头AI支出将超日本GDP！A股光模块有望成最大赢家？](http://www.share.minike.top/Article/details/065544017866.shtml)
+- 2026-06-29 11:02 - [2026中国环塔国际拉力赛：车队后勤是致胜关键](http://www.blog.kurohicncr.top/Article/details/757965705942.shtml)
+- 2026-06-29 11:11 - [赴泰失联的4名中国公民即将回国 另有一男子意外获救](http://www.share.kurohicncr.top/Article/details/822382999.shtml)
+- 2026-06-29 11:19 - [易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:13 - [买新能源汽车之前，这几个坑一定要提前了解](http://www.share.kurohicncr.top/Article/details/2170153819.shtml)
+- 2026-06-29 11:12 - [长江有色：美ADP创16个月新高美指上涨 4日镍价或下跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:00 - [康宁杰瑞制药-B：执行董事及管理层增持股份](http://www.blog.kurohicncr.top/Article/details/9036081.shtml)

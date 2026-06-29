@@ -1,58 +1,61 @@
-# 阿拉斯加航空称票价保持坚挺，燃油成本飙升考验盈利能力
+# 山西运城发现早商时期小型聚落 揭示环盐湖区域文化面貌
 
-> 更新时间：2026-06-29 11:27:23 UTC+8
+> 更新时间：2026-06-29 11:30:02 UTC+8
 
 ## 摘要
 
-阿拉斯加航空集团周二表示，强劲的出行需求和较高的票价正在帮助抵消燃油成本急剧上涨带来的压力。与此同时，该公司撤回了全年业绩指引，并警告称燃油成本飙升将对第二季度盈利造成严重冲击。 燃油成本飙升，航空公司压力骤增 伊朗战争爆发后航空燃油价格大幅上涨，正成为航空业自疫情以来面临的首次真正压力测试。航空公司的大部分机票早在数月前就已售出，无法迅速提价，因此在燃油成本突然跳升时面临巨大
+中新网太原6月5日电 (记者 胡健)记者5日从山西省考古研究院获悉，当地考古人员在运城盐湖区发现早商时期遗存，初步研究为早商时期的小型聚落，为研究环盐湖区域夏商时期小型聚落功能提供了新材料。 为配合运城市盐湖高新区永济监狱迁建项目建设，考古工作者对位于运城市盐湖区大渠街道寺北村东的寺北遗址进行系统发掘。此次发掘面积达3000余平方米，清理灰坑、灰沟、墓葬、陶窑等各类遗迹283处
 
 ## 正文
 
-阿拉斯加航空集团周二表示，强劲的出行需求和较高的票价正在帮助抵消燃油成本急剧上涨带来的压力。
+中新网太原6月5日电 (记者 胡健)记者5日从山西省考古研究院获悉，当地考古人员在运城盐湖区发现早商时期遗存，初步研究为早商时期的小型聚落，为研究环盐湖区域夏商时期小型聚落功能提供了新材料。
 
-与此同时，该公司撤回了全年业绩指引，并警告称燃油成本飙升将对第二季度盈利造成严重冲击。
+为配合运城市盐湖高新区永济监狱迁建项目建设，考古工作者对位于运城市盐湖区大渠街道寺北村东的寺北遗址进行系统发掘。
 
-燃油成本飙升，航空公司压力骤增 伊朗战争爆发后航空燃油价格大幅上涨，正成为航空业自疫情以来面临的首次真正压力测试。
+此次发掘面积达3000余平方米，清理灰坑、灰沟、墓葬、陶窑等各类遗迹283处，出土陶、瓷、铜、石、骨等各类器物。
 
-航空公司的大部分机票早在数月前就已售出，无法迅速提价，因此在燃油成本突然跳升时面临巨大压力。
+考古发掘表明，寺北遗址以早商时期遗存为主体，共清理该时期灰坑200座、墓葬16座、瓮棺葬1座、灰沟1条。
 
-阿拉斯加航空首席执行官在财报电话会议上表示，尽管票价大幅上涨，但预订量保持稳定。
+出土遗物以灰陶为主，器型包括鬲、罐、大口尊、盆、壶等，纹饰多为绳纹，另有少量云雷纹、兽面纹等精美纹饰。
 
-该公司核心市场的机票价格在最近几周较去年同期上涨超过20%，如果这一趋势持续，将支撑第二季度强劲的收入增长。
+此外还出土石刀、石镰等石质工具，以及骨簪、骨锥等骨器。
 
-但高管同时指出，较高的票价只能覆盖约三分之一的燃油成本增幅，剩余缺口预计将拖累第二季度盈利。
+在一座编号为H1150的袋状灰坑中发现三具俯身葬人骨，坑底还有炭化物痕迹。
 
-燃油价格剧烈波动，前景高度不确定 燃油价格已变得极不可预测。
+另有一座编号M1031的墓葬等级相对较高，墓主佩戴由穿孔贝壳和玉器组成的佩饰，头骨上残留朱砂痕迹。
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:09 - [五方共建大湾区船员权益保障中心 推六项保障举措](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:23 - [电影《马到功成》特别展映活动亮相北京国际电影节科技单元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:19 - [投诉提交了然后呢，哪个渠道最方便追踪和跟进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:26 - [菲律宾一客车坠谷致2死39伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:26 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:18 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:19 - [粤港澳大湾区首台“华龙一号”核电机组投产发电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:17 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:02 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 10:57 - [华电新能：2025年归母净利润72.63亿元，同比下降17.76%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:15 - [习近平同莫桑比克总统查波共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:20 - [“小字免责”？法院：不支持！奈雪的茶被判赔偿泡泡玛特32万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:18 - [韩国股市因科技股抛售大幅下挫 创下3月以来最差单周表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:27 - [周锡玮：两岸要一起，把中国好的理念传播出去](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:26 - [东莞港落地“内外贸同船+水水中转多式联运”模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:20 - [最高法院裁定：AT&T与Verizon在上诉案中败诉，FCC的罚款程序未侵犯陪审团受审权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:04 - [2025年全国消协组织为消费者挽回经济损失9.3亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:01 - [美国制裁古巴国家主席 进一步加大施压力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:27 - [云南泸水有群“共享奶奶” 绘就社区民族团结“同心圆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:23 - [中兴通讯早盘涨逾7% 公司与腾讯达成深度战略合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:16 - [中尼合资航司复航加德满都至深圳往返航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:13 - [拟减持超1亿股！这家银行刚解禁，大股东就抛出套现计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:24 - [【百万庄小课堂】高考遇上生理期疼痛 医生详解如何做才不伤身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:06 - [读懂中国是福山们的必修课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:15 - [天原股份：公司磷酸铁锂正极材料可用于储能及动力电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:00 - [长沙银行93亿授信背后，2026持牌消金融资呈现新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:15 - [“中国高质量发展”主题宣介活动在布鲁塞尔举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [持股市值达25亿元，券商分析师出身的大普微董秘暴富出圈，业内人士：成功或难以复制](http://www.blog.minike.top/Article/details/2166164.shtml)
-- 2026-06-29 11:02 - [日韩股市开盘 日经指数低开0.4%](http://www.share.kurohicncr.top/Article/details/182323.shtml)
-- 2026-06-29 11:17 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.blog.minike.top/Article/details/85911900.shtml)
-- 2026-06-29 11:13 - [伊朗航空宣布自4月22日起恢复国内航班运营](http://www.share.minike.top/Article/details/2901658015.shtml)
-- 2026-06-29 11:22 - [大摩：长和给予增持评级 目标价61港元](http://www.blog.kurohicncr.top/Article/details/39960410.shtml)
-- 2026-06-29 11:06 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.share.minike.top/Article/details/12764658.shtml)
-- 2026-06-29 11:20 - [商业航天、军贸双轮驱动，华宝基金军工ETF全天溢价，1800万资金提前进场！主力资金单日“扫货”超35亿](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:01 - [三亚亚沙会开赛 沙滩手球中国队迎首秀](http://www.blog.minike.top/Article/details/59731996900.shtml)
-- 2026-06-29 11:27 - [海南离岛免税实施15年累计购物金额2864亿元](http://www.share.kurohicncr.top/Article/details/746272.shtml)
-- 2026-06-29 11:25 - [药明巨诺-B授出804万份购股权及22万个受限制股份单位](http://www.blog.minike.top/Article/details/963785318176.shtml)
-- 2026-06-29 11:17 - [亨利加集团获执行董事张烈云增持2万股 每股作价约8.67港元](http://www.blog.minike.top/Article/details/251908.shtml)
-- 2026-06-29 11:18 - [广东社科院蓝皮书预计2026年广东经济总量超15.5万亿元](http://www.share.kurohicncr.top/Article/details/539973901.shtml)
-- 2026-06-29 11:09 - [一季度青海消费市场实现平稳开局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [欧盟拟扩大对伊朗制裁 封锁霍尔木兹海峡责任者将被纳入](http://www.share.minike.top/Article/details/52053281.shtml)
+- 2026-06-29 11:24 - [特斯拉扩大奥斯汀Robotaxi服务范围：无安全员车队覆盖整个都会区](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [Strategy减持比特币打破“永不出售”信仰 资金加速涌向AI基建](http://www.share.minike.top/Article/details/351053636793.shtml)
+- 2026-06-29 11:11 - [Meta最新AI模型一拖再拖，开发者耐心渐失](http://www.share.minike.top/Article/details/40877.shtml)
+- 2026-06-29 11:11 - [大摩：中兴通讯升至“增持”评级 目标价上调至39港元](http://www.share.minike.top/Article/details/52925.shtml)
+- 2026-06-29 11:00 - [新大众文艺：人民文艺的时代强音](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:05 - [中东，大消息！以色列开始撤军！黄金、白银，直线拉升](http://www.blog.kurohicncr.top/Article/details/89053560988.shtml)
+- 2026-06-29 11:23 - [青海省“全民禁毒宣传月”系列活动启动](http://www.blog.minike.top/Article/details/886946.shtml)
+- 2026-06-29 11:03 - [瑞华泰：公司低轨卫星用CPI薄膜正积极配合下游商业航天企业做研发及空间验证工作](http://www.blog.kurohicncr.top/Article/details/14584.shtml)
+- 2026-06-29 11:05 - [扎波罗热核电站通报称：保障外部供电线路的热电站遭无人机袭击](http://www.blog.kurohicncr.top/Article/details/8851398534.shtml)
+- 2026-06-29 11:29 - [国泰海通证券：李宁维持“增持”评级 目标价26.08港元](http://www.share.minike.top/Article/details/8612039.shtml)
+- 2026-06-29 11:19 - [外媒：以色列和黎巴嫩同意停火 但有前提](http://www.share.minike.top/Article/details/78937.shtml)
+- 2026-06-29 11:22 - [初夏“睡眠紊乱”高发，如何找回状态](http://www.blog.kurohicncr.top/Article/details/69489.shtml)
+- 2026-06-29 11:06 - [宝济药业-B早盘涨超6% 自研注射用KJ103的NDA获NMPA受理](http://www.share.minike.top/Article/details/4640537.shtml)
+- 2026-06-29 11:08 - [为AI发电or煤价托举电价？电力ETF华宝（159146）标的指数年内涨幅25%](http://www.share.kurohicncr.top/Article/details/82327.shtml)
+- 2026-06-29 11:14 - [凯赛生物：2026年6月25日召开2025年年度股东会](https://github.com/lisacumin64-arch)
