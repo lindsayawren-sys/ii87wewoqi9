@@ -1,61 +1,57 @@
-# 市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”
+# 消费者愈发“节俭”，Sally Beauty股价转跌
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从4月20日股价一度触及历史新高，到次日开盘一字跌停，千亿液冷大牛股英维克在一日内市值蒸发118亿元。 英维克在资本市场经历“冰火两重天”，或源自其4月20日晚发布的一季报。财报显示，今年第一季度，公司营收同比增长26.03%至11.75亿元，但归
+尽管Sally Beauty Holdings周一公布的二季度财报超出市场预期，但该公司警告称消费者正变得更加“节俭”，导致其股价在周一尾盘交易时段由涨转跌。 财报显示，在截至3月31日的第二财季，公司营收同比增长2.3%至9.03亿美元，高于分析师预期的9.004亿美元；调整后每股收益为0.44美元，同样超出预期的0.41美元。公司旗下Sally Beauty Supply门
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+尽管Sally Beauty Holdings周一公布的二季度财报超出市场预期，但该公司警告称消费者正变得更加“节俭”，导致其股价在周一尾盘交易时段由涨转跌。
 
-来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从4月20日股价一度触及历史新高，到次日开盘一字跌停，千亿液冷大牛股英维克在一日内市值蒸发118亿元。
+财报显示，在截至3月31日的第二财季，公司营收同比增长2.3%至9.03亿美元，高于分析师预期的9.004亿美元；调整后每股收益为0.44美元，同样超出预期的0.41美元。
 
-英维克在资本市场经历“冰火两重天”，或源自其4月20日晚发布的一季报。
+公司旗下Sally Beauty Supply门店净销售额增长4.1%，全球电商销售额增长13%至1.08亿美元。
 
-财报显示，今年第一季度，公司营收同比增长26.03%至11.75亿元，但归母净利润却大跌81.97%至0.09亿元。
+然而，公司总裁兼首席执行官Denise Paulonis在财报电话会上指出，消费者行为正在发生“根本性转变”。
 
-针对这一业绩表现，英维克给出了多方面的解释：财务费用的显著增加、信用减值损失的上升、收入结构变化引发的毛利率下滑，以及订单充沛但未能实现更高的发货和收入确认。
+她表示，受油价高企及通胀压力影响，约1600万美国家庭过着“ paycheck-to-paycheck”的生活，消费者正持续缩减非必需品支出，转向仅购买必需品。
 
-尽管头顶千亿液冷龙头的光环，但花旗银行报告指出，市场对英维克的一致盈利预期太高。
+数据显示，Sally Beauty在年收入低于4万美元的低收入群体中失去近40个基点的消费份额，但在10万至15万美元收入群体中反而获得超20个基点的增长。
 
-市场仅关注其为英伟达专用集成电路（ASIC）客户供应液冷，却忽视了小业务敞口、国内价格竞争加剧以及未来更多新进入者带来的压力。
+鉴于这种不均衡的消费趋势，公司将2026财年全年营收指引收窄至37.25亿至37.5亿美元，此前为37.1亿至37.7亿美元，中值略低于分析师预期。
 
-值得一提的是，在今年3月揭晓的《2026胡润全球富豪榜》上，站在英维克身后的齐勇以225亿元的财富登榜。
+公司维持调整后每股收益指引2.02至2.10美元不变。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:23 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:35 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:21 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:35 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:24 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:20 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:10 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:24 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:14 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:09 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:24 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:24 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:15 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:06 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:37 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:15 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:31 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:34 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:22 - [“洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:32 - [中央气象台：每 日 天 气 提 示（2026年05月12日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:29 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:20 - [对冲基金押注生物燃料，欲从伊朗石油价格冲击中获利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:33 - [大涨后，多只牛股急发警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:23 - [陕西宝鸡：道岔之下绽芳华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:30 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.minike.top/Article/details/39918925.shtml)
-- 2026-06-29 12:22 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.share.minike.top/Article/details/954900.shtml)
-- 2026-06-29 12:24 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.share.kurohicncr.top/Article/details/546096165617.shtml)
-- 2026-06-29 12:19 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/874584226.shtml)
-- 2026-06-29 12:25 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.share.minike.top/Article/details/540875418.shtml)
-- 2026-06-29 12:16 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.share.minike.top/Article/details/6504131.shtml)
-- 2026-06-29 12:18 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/651818.shtml)
-- 2026-06-29 12:07 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.blog.kurohicncr.top/Article/details/90710.shtml)
-- 2026-06-29 12:29 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.share.kurohicncr.top/Article/details/26414.shtml)
-- 2026-06-29 12:34 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.blog.minike.top/Article/details/918571376691.shtml)
-- 2026-06-29 12:29 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.share.minike.top/Article/details/6652285.shtml)
-- 2026-06-29 12:22 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.kurohicncr.top/Article/details/975666937349.shtml)
-- 2026-06-29 12:06 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.share.kurohicncr.top/Article/details/342164.shtml)
-- 2026-06-29 12:16 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.minike.top/Article/details/48250772857.shtml)
+- 2026-06-29 12:33 - [中国金茂：附属订立新框架协议及提供贷款](http://www.share.minike.top/Article/details/366451551.shtml)
+- 2026-06-29 12:12 - [新疆伊犁：天山红花盛放 五月草原景色美](http://www.share.kurohicncr.top/Article/details/664807.shtml)
+- 2026-06-29 12:33 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.kurohicncr.top/Article/details/07863195.shtml)
+- 2026-06-29 12:19 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.share.kurohicncr.top/Article/details/0058770077.shtml)
+- 2026-06-29 12:14 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](http://www.blog.kurohicncr.top/Article/details/89914658468.shtml)
+- 2026-06-29 12:38 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](http://www.blog.kurohicncr.top/Article/details/3180787.shtml)
+- 2026-06-29 12:20 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](http://www.blog.kurohicncr.top/Article/details/414483606.shtml)
+- 2026-06-29 12:25 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](http://www.blog.minike.top/Article/details/06202.shtml)
+- 2026-06-29 12:25 - [中美经贸磋商在韩国开始举行](http://www.share.kurohicncr.top/Article/details/420029.shtml)
+- 2026-06-29 12:17 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](http://www.blog.kurohicncr.top/Article/details/443813769527.shtml)
+- 2026-06-29 12:35 - [上海居民何时能去台湾本岛个人游？国台办回应](http://www.share.kurohicncr.top/Article/details/62331368147.shtml)
+- 2026-06-29 12:21 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](http://www.share.minike.top/Article/details/874316648.shtml)
+- 2026-06-29 12:15 - [南方人是怎么爱上北方奶茶的？](http://www.share.kurohicncr.top/Article/details/144308405.shtml)
+- 2026-06-29 12:30 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.blog.minike.top/Article/details/1729815391.shtml)

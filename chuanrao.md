@@ -1,61 +1,57 @@
-# Revolut目标估值2000亿美元，IPO计划初具雏形
+# 88匹进口蒙古马为中国内地演艺市场发展添助力
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-据熟悉内情的投资者透露，伦敦金融科技公司Revolut正在为未来上市设定1500亿至2000亿美元的估值目标，但该公司已表示不会在2028年之前寻求上市。目前尚未确定正式的估值目标，Revolut拒绝置评。预计今年下半年进行的二次股票出售可能会使该公司估值超过1000亿美元。 Revolut已成长为欧洲估值最高的初创公司。去年11月的一轮融资对该集团的估值为750亿美元，高于2
+中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。 这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。 中新网记者获悉，
 
 ## 正文
 
-据熟悉内情的投资者透露，伦敦金融科技公司Revolut正在为未来上市设定1500亿至2000亿美元的估值目标，但该公司已表示不会在2028年之前寻求上市。
+中新网二连浩特5月11日电 (李爱平 梁晓虹)二连海关11日对外发布消息称，二连浩特公路口岸迎来今年首批88匹进口蒙古马。
 
-目前尚未确定正式的估值目标，Revolut拒绝置评。
+这些来自蒙古国的蒙古马，正在为中国内地的演艺市场蓬勃发展增添助力。
 
-预计今年下半年进行的二次股票出售可能会使该公司估值超过1000亿美元。
+在内蒙古二连浩特市上演的《天骄传奇》大型实景剧、锡林郭勒盟上演的《蒙古马》大型实景剧，以及鄂尔多斯市杭锦旗上演的《英雄》大型实景剧中，骑手们表演所用的马匹，八成来自蒙古国。
 
-Revolut已成长为欧洲估值最高的初创公司。
+中新网记者获悉，这些实景剧每年旅游旺季的演出场次均为百余次，演出场景、内容和效果受到国内外游客的高度称赞。
 
-去年11月的一轮融资对该集团的估值为750亿美元，高于2024年的450亿美元，并新增了包括英伟达在内的投资方。
+此次进口的蒙古马由二连浩特市一家文化传播公司引进。
 
-去年，该公司税前利润增长57%，达到17亿英镑，营收为45亿英镑，其中高级订阅收入增长67%是主要推动力。
+该公司相关负责人马洪艳表示，近年来中国马术赛事、马文化演艺等市场需求持续攀升，专业赛事场馆、文旅景区对优质马匹的需求量不断上涨。
 
-创始人本周表示，上市最早将在2028年进行，并补充称“上市公司比私营公司更受信任”。
+二连浩特口岸地处中国正北方，是中国对蒙古国开放的最大陆路口岸，承担着蒙古国70%以上日常生活用品的陆路运输任务。
 
-若达到2000亿美元估值，将触发创始人的薪酬协议，他可能获得公司约40%的股份，使其持股价值约800亿美元。
+二连海关公路监管五科副科长辛恒缘介绍，近年来，二连浩特口岸累计入境蒙古国活马十余批次，总量500余匹，是中蒙口岸中入境蒙古马数量最多的口岸。
 
 ## 相关推荐
 
-- 2026-06-29 12:16 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:23 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:30 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:07 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:16 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:32 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:34 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:22 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:35 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:17 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:35 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:10 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:31 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:20 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:18 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:19 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:18 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:15 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:20 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:40 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:25 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:34 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:25 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:37 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:37 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:27 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.blog.minike.top/Article/details/7361619445.shtml)
-- 2026-06-29 12:08 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.share.minike.top/Article/details/6618995365.shtml)
-- 2026-06-29 12:09 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.kurohicncr.top/Article/details/61289.shtml)
-- 2026-06-29 12:14 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/92592139.shtml)
-- 2026-06-29 12:26 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.blog.kurohicncr.top/Article/details/0687081.shtml)
-- 2026-06-29 12:10 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/4191465261.shtml)
-- 2026-06-29 12:06 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.kurohicncr.top/Article/details/136593518.shtml)
-- 2026-06-29 12:16 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.blog.minike.top/Article/details/39908.shtml)
-- 2026-06-29 12:17 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.blog.kurohicncr.top/Article/details/62794.shtml)
-- 2026-06-29 12:14 - [【国际漫评】解禁](http://www.share.kurohicncr.top/Article/details/129318121.shtml)
-- 2026-06-29 12:25 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.share.kurohicncr.top/Article/details/083655.shtml)
-- 2026-06-29 12:23 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.blog.minike.top/Article/details/879897.shtml)
-- 2026-06-29 12:34 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.blog.kurohicncr.top/Article/details/192672562.shtml)
+- 2026-06-29 12:41 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.kurohicncr.top/Article/details/7248189537.shtml)
+- 2026-06-29 12:15 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.kurohicncr.top/Article/details/09701792566.shtml)
+- 2026-06-29 12:15 - [一见·中美两个“大块头”如何相处？](http://www.blog.kurohicncr.top/Article/details/732485816092.shtml)
+- 2026-06-29 12:35 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/04737.shtml)
+- 2026-06-29 12:36 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.share.minike.top/Article/details/96967685.shtml)
+- 2026-06-29 12:34 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.minike.top/Article/details/79639824660.shtml)
+- 2026-06-29 12:41 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.blog.kurohicncr.top/Article/details/82949204.shtml)
+- 2026-06-29 12:16 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/67870159.shtml)
+- 2026-06-29 12:15 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/3279871.shtml)
+- 2026-06-29 12:25 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.kurohicncr.top/Article/details/0492757.shtml)
+- 2026-06-29 12:32 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.share.minike.top/Article/details/1334418233.shtml)

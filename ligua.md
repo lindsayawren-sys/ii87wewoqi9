@@ -1,61 +1,61 @@
-# 浙江进入汛期以来首次区域性强降雨过程
+# Hims & Hers亏损扩大且展望不佳，盘前重挫15%
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网杭州4月21日电(记者 王逸飞)20日夜间至21日，雨水的足迹几乎遍布浙江全省，此次明显降雨过程将持续至22日，这是该省4月15日入汛后的首次区域性强降雨过程。其中，降水最强时段为21日夜里到22日前半夜。21日白天，雨水虽然不大，但已影响浙江大部分地区。降水也让气温出现大幅下滑，15时浙江大部较前一日同一时刻下降7—13℃，其中青田骤降15.2℃。 浙江省气象台预计，2
+远程医疗公司Hims & Hers Health股价在周二早盘交易中暴跌，此前该公司公布了第一季度的亏损以及疲弱的全年盈利指引。 这家数字健康公司周一公布的第一季度净亏损为9200万美元，而去年同期的亏损约为5000万美元。其调整后的EBITDA为4400万美元，低于去年的9100万美元。与此同时，营收增长4%至6.08亿美元。每用户平均月收入为80美元，低于去年的85美元。
 
 ## 正文
 
-中新网杭州4月21日电(记者 王逸飞)20日夜间至21日，雨水的足迹几乎遍布浙江全省，此次明显降雨过程将持续至22日，这是该省4月15日入汛后的首次区域性强降雨过程。
+远程医疗公司Hims & Hers Health股价在周二早盘交易中暴跌，此前该公司公布了第一季度的亏损以及疲弱的全年盈利指引。
 
-其中，降水最强时段为21日夜里到22日前半夜。
+这家数字健康公司周一公布的第一季度净亏损为9200万美元，而去年同期的亏损约为5000万美元。
 
-21日白天，雨水虽然不大，但已影响浙江大部分地区。
+其调整后的EBITDA为4400万美元，低于去年的9100万美元。
 
-降水也让气温出现大幅下滑，15时浙江大部较前一日同一时刻下降7—13℃，其中青田骤降15.2℃。
+与此同时，营收增长4%至6.08亿美元。
 
-浙江省气象台预计，21日夜里到22日，浙江全省阴有中到大阵雨或雷雨，其中衢州、杭州西南部、丽水西部和北部、金华西部等地部分暴雨。
+每用户平均月收入为80美元，低于去年的85美元。
 
-以上有雷雨地区局地伴有短时暴雨。
+Hims预计第二季度营收在6.8亿至7亿美元之间，并预测全年营收最高可达30亿美元。
 
-21日下午，浙江省水利厅、浙江省气象局联合发布山洪灾害预警，预计21日20时至22日20时，淳安县、建德市、柯城区、衢江区、常山县、开化县、龙游县、江山市、遂昌县可能发生山洪灾害(蓝色预警)。
+该公司预计第二季度调整后的EBITDA最高可达5500万美元，全年最高可达3.5亿美元。
 
-根据气象预报，24日浙江的天气面貌将好转，25—26日多云唱主角，26日最高气温全省大部可达28—30℃，“初夏体验卡”将再次发放。
+受此影响，该公司股价在盘前交易中下跌约15.5%。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:26 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:22 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:19 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:27 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:21 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:09 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:10 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:29 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:25 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:30 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:35 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:06 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:14 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:18 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:32 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:41 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:31 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:17 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:30 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:16 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:17 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:41 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:22 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:39 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:21 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:14 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:17 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:34 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:32 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.blog.minike.top/Article/details/50143.shtml)
-- 2026-06-29 12:11 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/58500778.shtml)
-- 2026-06-29 12:27 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.blog.minike.top/Article/details/725880.shtml)
-- 2026-06-29 12:21 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.minike.top/Article/details/225570.shtml)
-- 2026-06-29 12:30 - [【国际漫评】解禁](http://www.blog.minike.top/Article/details/99428736751.shtml)
-- 2026-06-29 12:25 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/660629277.shtml)
-- 2026-06-29 12:10 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.minike.top/Article/details/35550.shtml)
-- 2026-06-29 12:22 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.kurohicncr.top/Article/details/5903605138.shtml)
-- 2026-06-29 12:26 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.share.kurohicncr.top/Article/details/1856057.shtml)
-- 2026-06-29 12:15 - [美国海军部长约翰·费伦将离职](http://www.blog.minike.top/Article/details/89848.shtml)
-- 2026-06-29 12:23 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.minike.top/Article/details/476961.shtml)
-- 2026-06-29 12:25 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/0557329.shtml)
-- 2026-06-29 12:22 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.minike.top/Article/details/48152.shtml)
-- 2026-06-29 12:06 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.blog.minike.top/Article/details/1213299439.shtml)
+- 2026-06-29 12:25 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.blog.kurohicncr.top/Article/details/649932557641.shtml)
+- 2026-06-29 12:16 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.minike.top/Article/details/04797424691.shtml)
+- 2026-06-29 12:33 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.share.kurohicncr.top/Article/details/84167692878.shtml)
+- 2026-06-29 12:31 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.kurohicncr.top/Article/details/933335367952.shtml)
+- 2026-06-29 12:21 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.kurohicncr.top/Article/details/0677152.shtml)
+- 2026-06-29 12:17 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.kurohicncr.top/Article/details/803799649094.shtml)
+- 2026-06-29 12:13 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.minike.top/Article/details/988704045436.shtml)
+- 2026-06-29 12:28 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.kurohicncr.top/Article/details/363787.shtml)
+- 2026-06-29 12:14 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.share.kurohicncr.top/Article/details/69289772527.shtml)
+- 2026-06-29 12:38 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.kurohicncr.top/Article/details/639780326.shtml)
+- 2026-06-29 12:41 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.minike.top/Article/details/68887550703.shtml)
+- 2026-06-29 12:37 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.kurohicncr.top/Article/details/024792.shtml)
+- 2026-06-29 12:28 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.minike.top/Article/details/36154966032.shtml)
+- 2026-06-29 12:30 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.share.minike.top/Article/details/216385.shtml)

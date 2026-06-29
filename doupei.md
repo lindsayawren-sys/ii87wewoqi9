@@ -1,59 +1,57 @@
-# 全球共享发展行动论坛第三届高级别会议发布成果清单
+# 长江有色：12日铜价暴涨 现货成交仍表现谨慎
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社北京4月22日电 (记者 官逸伦)全球共享发展行动论坛第三届高级别会议22日在北京落下帷幕。本届会议发布《共创未来行动计划成果清单》，围绕全球发展倡议八大领域推出50项务实成果，助力全球发展繁荣。中国国家国际发展合作署署长陈晓东当日出席会议闭幕式时表示，本届会议恰逢全球发展倡议提出5周年，联合国2030年可持续发展议程收官冲刺。与会各方围绕数字赋能全球南方现代化、提升发展
+长江有色金属网 5月12日铜期货市场动态：今日沪期铜独领风骚，盘面涨势凌厉，价格重心强势破10.7万元/吨；主力月2606合约开盘价报105500元/吨，最高108400元/吨，最低105390元/吨，昨结104320元/吨，今日收盘价报106510元/吨，涨2190元，涨幅2.10%。沪铜主力2606合约全天成交量166852手增加48690手，持仓量206430手减少266
 
 ## 正文
 
-中新社北京4月22日电 (记者 官逸伦)全球共享发展行动论坛第三届高级别会议22日在北京落下帷幕。
+长江有色金属网 5月12日铜期货市场动态：今日沪期铜独领风骚，盘面涨势凌厉，价格重心强势破10.7万元/吨；主力月2606合约开盘价报105500元/吨，最高108400元/吨，最低105390元/吨，昨结104320元/吨，今日收盘价报106510元/吨，涨2190元，涨幅2.10%。
 
-本届会议发布《共创未来行动计划成果清单》，围绕全球发展倡议八大领域推出50项务实成果，助力全球发展繁荣。
+沪铜主力2606合约全天成交量166852手增加48690手，持仓量206430手减少2665手。
 
-中国国家国际发展合作署署长陈晓东当日出席会议闭幕式时表示，本届会议恰逢全球发展倡议提出5周年，联合国2030年可持续发展议程收官冲刺。
+亚盘时段，伦铜盘面震荡剧烈，北京时间15：05最新报价13860.5美元/吨，跌59.5美元/吨，跌幅0.43%。
 
-与会各方围绕数字赋能全球南方现代化、提升发展中国家气候韧性、可持续发展筹资等议题深入交流、凝聚共识，一致同意以数字技术助力全球南方发展，坚持共同但有区别的责任推动绿色低碳转型，创新融资模式构建公正、开放、高效、稳健的发展融资体系。
+长江铜业网铜价格统计：今日国内现货铜价格暴涨，长江现货1#铜价报106790元/吨，涨2240元，升水190-升水230，跌40元；长江综合1#铜价报106745元/吨，涨2250元，升水110-升水220，跌30元；广东现货1#铜价报106790元/吨，涨2270元，升水110-升水310，跌10元；上海地区1#铜价报106660元/吨，涨2250元，升水40-升水120，跌30元。
 
-会议发布的成果清单显示，八大合作领域分别是减贫、粮食安全、抗疫和疫苗、发展筹资、气候变化和绿色发展、工业化、数字经济、数字时代互联互通。
+长江铜市分析：今日上海期铜主力创下一个月来的最大单日涨幅。
 
-成果清单提出众多具体务实成果，包括支持发展中国家教育事业发展，帮助其建设学校，提供教学设施、设备，加强学校和教学能力建设；持续实施“心联通”“非洲母亲新农场”等品牌民生项目；开展蓝色经济合作，落实海洋生态环境保护责任，实施“生态净水”、海岸保护、红树林植根行动等生态环境保护项目；与发展中国家共建数字技术合作中心、国际技术转移海外分中心；实施“智慧海关”合作伙伴计划，打造智慧海关建设与合作示范点等。
+在供应端担忧加剧以及中国需求预期回暖的支撑下，铜价强势上攻，不仅抵消了油价上涨的宏观扰动，也消化了自由港对其印尼矿山项目延期传闻的澄清影响。
 
-陈晓东说，自首届会议举办以来，中方会同各发展伙伴加快推进落实前两届会议成果，180余项成果任务中超九成已落实完毕，剩余成果取得阶段性成果并长期推进。
+宏观层面，地缘政治风险持续扰动市场。
 
-务实合作项目走深走实，50余份多双边合作协议顺利签署，全球发展合作机制持续完善。
+中东局势胶着，美伊外交关系恶化，特朗普公开表示停火协议“岌岌可危”，导致全球市场风险偏好下降，资金重新流向美元等传统避险资产。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:28 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:35 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:09 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:33 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:08 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:33 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:06 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:17 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:35 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:13 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:35 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:31 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:20 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:17 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:37 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:19 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:14 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:33 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:27 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:14 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:33 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:27 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:21 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.blog.minike.top/Article/details/07713220537.shtml)
-- 2026-06-29 12:34 - [高雅光学公布于4月23日上午起停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.share.kurohicncr.top/Article/details/091999964.shtml)
-- 2026-06-29 12:12 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.minike.top/Article/details/711322822.shtml)
-- 2026-06-29 12:06 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/167843928024.shtml)
-- 2026-06-29 12:24 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.share.kurohicncr.top/Article/details/620868359.shtml)
-- 2026-06-29 12:20 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.blog.minike.top/Article/details/484651748.shtml)
-- 2026-06-29 12:35 - [美国多家航空公司面临燃油压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.minike.top/Article/details/0172042.shtml)
-- 2026-06-29 12:16 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.blog.minike.top/Article/details/419384761470.shtml)
-- 2026-06-29 12:25 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.kurohicncr.top/Article/details/557306593.shtml)
-- 2026-06-29 12:23 - [美国国家安全局被曝使用Anthropic受限模型](http://www.blog.kurohicncr.top/Article/details/45829728.shtml)
-- 2026-06-29 12:17 - [浙江进入汛期以来首次区域性强降雨过程](http://www.blog.kurohicncr.top/Article/details/253726682.shtml)
-- 2026-06-29 12:14 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.share.kurohicncr.top/Article/details/95031853.shtml)
+- 2026-06-29 12:36 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.blog.minike.top/Article/details/795509.shtml)
+- 2026-06-29 12:22 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.blog.kurohicncr.top/Article/details/18773596.shtml)
+- 2026-06-29 12:42 - [联播+｜“中国式安全感”如何炼成？](http://www.share.kurohicncr.top/Article/details/8286570349.shtml)
+- 2026-06-29 12:37 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.blog.kurohicncr.top/Article/details/880452310.shtml)
+- 2026-06-29 12:12 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](http://www.blog.kurohicncr.top/Article/details/13698770.shtml)
+- 2026-06-29 12:16 - [美防长赫格塞思就国防预算出席国会听证会](http://www.blog.kurohicncr.top/Article/details/54773.shtml)
+- 2026-06-29 12:19 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.share.minike.top/Article/details/785269.shtml)
+- 2026-06-29 12:13 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.blog.kurohicncr.top/Article/details/212007873071.shtml)
+- 2026-06-29 12:36 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](http://www.share.minike.top/Article/details/6674554.shtml)
+- 2026-06-29 12:15 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.blog.minike.top/Article/details/123600448989.shtml)
+- 2026-06-29 12:28 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.blog.kurohicncr.top/Article/details/0340302.shtml)
+- 2026-06-29 12:29 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.share.minike.top/Article/details/63429707443.shtml)

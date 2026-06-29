@@ -1,58 +1,48 @@
-# 让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？
+# 英伟达宣布与康宁建立多年合作伙伴关系
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网合肥4月22日电 (记者 张俊)从图纸上的技术构想，到生产线上的迭代产品；从实验室里的一束微光，到产业界的一片星火。中国科学技术大学先进技术研究院(以下简称“先研院”)自成立以来，便以体制机制改革为核心引擎，针对高校科技成果转化难、落地难、存活难的痛点，探索出一条从“书架”到“货架”的创新之路。 从学生到总经理的身份跨越 “以前在高校做成果转化，流程繁琐，耗时较长。但在先
+Nvidia和Corning宣布建立多年合作伙伴关系，将美国光连接制造能力提升十倍，并将光纤产量扩大50%以上，以支持下一代AI数据中心。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网合肥4月22日电 (记者 张俊)从图纸上的技术构想，到生产线上的迭代产品；从实验室里的一束微光，到产业界的一片星火。
+Nvidia和Corning宣布建立多年合作伙伴关系，将美国光连接制造能力提升十倍，并将光纤产量扩大50%以上，以支持下一代AI数据中心。
 
-中国科学技术大学先进技术研究院(以下简称“先研院”)自成立以来，便以体制机制改革为核心引擎，针对高校科技成果转化难、落地难、存活难的痛点，探索出一条从“书架”到“货架”的创新之路。
-
-从学生到总经理的身份跨越 “以前在高校做成果转化，流程繁琐，耗时较长。
-
-但在先研院，从专利评估、作价入股到公司落地，我们只用了不到一年时间。
-
-”合肥国科碳芯科技有限公司技术经理胥李志在接受记者采访时感慨道。
-
-这位年轻的创业者，从硕士期间就开始投身生物质硬碳材料的研发。
-
-“这种速度是非常快的，让我们能更快速地把技术从实验室推向产业化。
-
-”胥李志说。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:19 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:29 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:26 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:29 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:15 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:24 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:22 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:30 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:20 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:15 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:11 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:33 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:21 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:21 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:17 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:16 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:34 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:38 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:13 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:17 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:37 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:32 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:41 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:13 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:20 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:17 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [【国际漫评】解禁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/324043.shtml)
-- 2026-06-29 12:07 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.blog.kurohicncr.top/Article/details/05337.shtml)
-- 2026-06-29 12:35 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.minike.top/Article/details/8979888151.shtml)
-- 2026-06-29 12:12 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.kurohicncr.top/Article/details/49672719025.shtml)
-- 2026-06-29 12:16 - [美国海军部长约翰·费伦将离职](http://www.share.minike.top/Article/details/1177957836.shtml)
-- 2026-06-29 12:35 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.minike.top/Article/details/6884039385.shtml)
-- 2026-06-29 12:19 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.blog.minike.top/Article/details/703906.shtml)
-- 2026-06-29 12:08 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.share.kurohicncr.top/Article/details/260335716020.shtml)
-- 2026-06-29 12:11 - [辽宁省委书记许昆林到大商所调研](http://www.blog.minike.top/Article/details/8811051553.shtml)
-- 2026-06-29 12:09 - [一季度长三角地区出口合计占全国41%](http://www.share.minike.top/Article/details/024861480012.shtml)
-- 2026-06-29 12:15 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/089856513919.shtml)
-- 2026-06-29 12:11 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.blog.kurohicncr.top/Article/details/588692030.shtml)
-- 2026-06-29 12:21 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.kurohicncr.top/Article/details/60064184790.shtml)
+- 2026-06-29 12:16 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/91894084184.shtml)
+- 2026-06-29 12:32 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.kurohicncr.top/Article/details/583927.shtml)
+- 2026-06-29 12:30 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.kurohicncr.top/Article/details/83281872.shtml)
+- 2026-06-29 12:28 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.share.kurohicncr.top/Article/details/81183260939.shtml)
+- 2026-06-29 12:41 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.share.kurohicncr.top/Article/details/92604239.shtml)
+- 2026-06-29 12:22 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.minike.top/Article/details/254799.shtml)
+- 2026-06-29 12:15 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.minike.top/Article/details/347291220902.shtml)
+- 2026-06-29 12:36 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.kurohicncr.top/Article/details/2540895.shtml)
+- 2026-06-29 12:37 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.blog.kurohicncr.top/Article/details/67777.shtml)
+- 2026-06-29 12:15 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.share.kurohicncr.top/Article/details/36220.shtml)
+- 2026-06-29 12:36 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.blog.kurohicncr.top/Article/details/930752.shtml)
+- 2026-06-29 12:27 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](https://github.com/lisacumin64-arch)

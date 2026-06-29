@@ -1,48 +1,56 @@
-# 齐鲁银行：第一季度净利润15.67亿元，同比增长14.83%
+# 千元股阵营洗牌，A股市场有何变化？
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-4月22日金融一线消息，齐鲁银行公告，2026年第一季度营收为35.77亿元，同比增长13.02%；净利润为15.67亿元，同比增长14.83%。 责任编辑：李琳琳
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。 首先，资金偏好在变。过去市
 
 ## 正文
 
-4月22日金融一线消息，齐鲁银行公告，2026年第一季度营收为35.77亿元，同比增长13.02%；净利润为15.67亿元，同比增长14.83%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：李琳琳
+来源：经济日报新闻客户端（作者李华林，策划/万政、段云鹏） 近段时间，A股市场走势向好，截至5月12日收盘，有5只个股股价位列千元梯队，其中4只来自科技赛道。
+
+曾经，传统消费股常年稳居高价股前排，如今，科技股强势突围。
+
+高价股格局的演变，折射出投资风格、定价逻辑与增长动能的积极转变。
+
+首先，资金偏好在变。
+
+过去市场青睐成熟赛道的稳定收益，如今更愿为技术领先性支付溢价，耐心资本涌向人工智能、半导体等硬科技领域，资本与科创产业双向奔赴。
+
+其次，定价逻辑在变。
+
+从刚披露的2025年年报来看，去年上市公司研发投入1.94万亿元，约占全社会研发经费投入的一半，已然成为我国科技创新投入的主力军。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [中东危机引发通胀担忧，韩国4月消费者信心降至一年来最低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:36 - [德国政府大幅下调2026年经济增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:32 - [原创图像小说《雪鹿》入选2025年度“中国好书”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:10 - [针对日本可能存在强震风险 中国驻日使馆发布提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:30 - [万亿中原银行董事长、行长同一天换人！三类行业贷款不良率超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:14 - [美政府警告：数周内机场安检员工资资金即将耗尽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:13 - [优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:29 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:22 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:17 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:06 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:13 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:12 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:22 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:37 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：西班牙卫生大臣称94人已被撤离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:31 - [七千年河姆渡文明的新故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:24 - [【星访谈】蒋龙：《10间敢死队》是我的“表演考试” 喜剧分寸要“润物细无声”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:36 - [Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:41 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:31 - [5月13日热门中概股多数下跌 奇景光电跌7.46%，金山云跌6.36%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:41 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:33 - [再鼎医药盘中涨超5% zoci获FDA快速通道资格认定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:37 - [民调指超半数台湾女性担忧男性亲属需上战场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:38 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](http://www.share.kurohicncr.top/Article/details/6061639.shtml)
-- 2026-06-29 12:28 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](http://www.blog.kurohicncr.top/Article/details/544803846556.shtml)
-- 2026-06-29 12:33 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.kurohicncr.top/Article/details/674883.shtml)
-- 2026-06-29 12:25 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.blog.minike.top/Article/details/14275.shtml)
-- 2026-06-29 12:23 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.share.minike.top/Article/details/66593746.shtml)
-- 2026-06-29 12:09 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.blog.minike.top/Article/details/349583212712.shtml)
-- 2026-06-29 12:21 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.blog.kurohicncr.top/Article/details/316571626171.shtml)
-- 2026-06-29 12:08 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.share.kurohicncr.top/Article/details/53044370551.shtml)
-- 2026-06-29 12:20 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.share.kurohicncr.top/Article/details/478862.shtml)
+- 2026-06-29 12:13 - [铜：供应扰动持续，铜价中枢上移](http://www.blog.minike.top/Article/details/625420.shtml)
+- 2026-06-29 12:40 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](http://www.share.kurohicncr.top/Article/details/690954003.shtml)
+- 2026-06-29 12:24 - [豪买16亿元后，裘国根罕见现身](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [Fugro获得苏格兰海上风电场勘测合同](http://www.share.kurohicncr.top/Article/details/320371251.shtml)
+- 2026-06-29 12:29 - [2026金砖国家工业创新大赛决赛在厦门开幕](http://www.blog.minike.top/Article/details/49052.shtml)
+- 2026-06-29 12:13 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](http://www.blog.minike.top/Article/details/456099497.shtml)
+- 2026-06-29 12:41 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](http://www.blog.kurohicncr.top/Article/details/175992.shtml)
+- 2026-06-29 12:20 - [王毅同巴基斯坦副总理兼外长通电话](http://www.share.minike.top/Article/details/01682.shtml)
+- 2026-06-29 12:12 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](http://www.share.kurohicncr.top/Article/details/3478761351.shtml)
+- 2026-06-29 12:15 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.share.kurohicncr.top/Article/details/994954.shtml)
+- 2026-06-29 12:30 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.blog.kurohicncr.top/Article/details/500104250589.shtml)
+- 2026-06-29 12:18 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/170783349.shtml)

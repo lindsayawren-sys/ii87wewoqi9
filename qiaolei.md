@@ -1,48 +1,58 @@
-# 中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元
+# 新型“职业闭店人”骗局调查
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中国信息科技（08178）发布公告，公司建议按于记录日期每持有2股现有股份获发1股供股股份的基准，以认购价每股供股股份0.18港元向合资格股东发行最多5736.99万股供股股份（假设已发行股份数目于记录日期或之前概无变动），借此筹集扣除开支前最多约1033万港元。供股的所得款项净额估计最高将为约973万港元，公司拟将有关所得款项净额的约90%用于偿还公司尚未清偿的债务，并将有关
+原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。 店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。两个月前，她刚支付21250元购买了150
 
 ## 正文
 
-中国信息科技（08178）发布公告，公司建议按于记录日期每持有2股现有股份获发1股供股股份的基准，以认购价每股供股股份0.18港元向合资格股东发行最多5736.99万股供股股份（假设已发行股份数目于记录日期或之前概无变动），借此筹集扣除开支前最多约1033万港元。
+原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。
 
-供股的所得款项净额估计最高将为约973万港元，公司拟将有关所得款项净额的约90%用于偿还公司尚未清偿的债务，并将有关所得款项净额的约10%用于结算专业费用及其他行政开支。
+店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。
 
-责任编辑：卢昱君
+两个月前，她刚支付21250元购买了150节课程。
+
+“购课后才得知机构换了老板。
+
+”肖女士说，新老板声称资源丰富、实力雄厚，结果几个月后机构“人去楼空”。
+
+上海警方调查发现，这并非一起普通的经营失败案件。
+
+自2024年12月起，一个以顾某、韩某为首的团伙开始在上海“物色”因个人原因欲转让的培训机构作为“猎物”。
+
+“不法分子将自己包装成‘经验丰富、资源众多’的行业老手。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [【国际漫评】解禁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:10 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:28 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:35 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:09 - [梁玉宁：中文与诗歌是中华文明的重要载体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:08 - [美国海军部长约翰·费伦将离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:09 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:25 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:32 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:22 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:13 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:06 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:22 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:40 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:39 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:36 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:14 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:40 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:34 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:40 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:41 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:25 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:17 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:34 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [Engie CEO称勒庞能源计划对法国而言是“灾难”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.blog.kurohicncr.top/Article/details/42624273.shtml)
-- 2026-06-29 12:34 - [中超第七轮：上海海港不敌黑马新军 北京国安绝杀深圳新鹏城](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [马克龙访问波兰 聚焦法波防务及核能合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [Vatee万腾:中部走廊战略价值分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [莫桑比克总统：感谢中国的热情款待 期待莫中关系迈上新台阶](http://www.blog.kurohicncr.top/Article/details/67521.shtml)
-- 2026-06-29 12:07 - [花旗：德昌电机控股维持“中性”评级 目标价32港元](http://www.blog.kurohicncr.top/Article/details/06111887.shtml)
-- 2026-06-29 12:28 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.blog.minike.top/Article/details/6472646520.shtml)
-- 2026-06-29 12:22 - [苹果候任CEO特努斯：苹果将“再次改变世界”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.blog.kurohicncr.top/Article/details/9244250981.shtml)
-- 2026-06-29 12:34 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.share.minike.top/Article/details/9889078.shtml)
-- 2026-06-29 12:08 - [一笔一笔走近你](http://www.share.kurohicncr.top/Article/details/5342753.shtml)
-- 2026-06-29 12:06 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [晋级四强！U17女足亚洲杯中国队3∶0战胜印度队](http://www.blog.minike.top/Article/details/678454274019.shtml)
+- 2026-06-29 12:33 - [贵港海关缉私分局2026年公务租车定点服务比选采购公告](http://www.blog.minike.top/Article/details/394993278904.shtml)
+- 2026-06-29 12:14 - [河南迎入夏首轮大范围高温天气](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [燃料价格居高不下 特朗普支持暂停联邦汽油税](http://www.blog.minike.top/Article/details/27694127767.shtml)
+- 2026-06-29 12:14 - [香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键](http://www.share.kurohicncr.top/Article/details/2986114.shtml)
+- 2026-06-29 12:38 - [On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧](http://www.share.kurohicncr.top/Article/details/095955589383.shtml)
+- 2026-06-29 12:19 - [海地总理表示 8月无法如期大选 希望年底举行](http://www.share.kurohicncr.top/Article/details/13797996394.shtml)
+- 2026-06-29 12:18 - [一箭18星 中国成功发射千帆极轨09组卫星](http://www.share.kurohicncr.top/Article/details/43603865657.shtml)
+- 2026-06-29 12:15 - [CGBD计划年内再发两期CLO，基础股息重置为0.35美元](http://www.share.minike.top/Article/details/89430790808.shtml)
+- 2026-06-29 12:20 - [普及防灾避险知识 西藏日喀则消防守护民生安全](http://www.share.kurohicncr.top/Article/details/820277952.shtml)
+- 2026-06-29 12:17 - [背弃和平、轻视宪法、无视民意！日媒批高市政权激进修宪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [日本加息已箭在弦上？OECD预计：到明年底利率将大幅上升至2%](http://www.blog.kurohicncr.top/Article/details/0916991801.shtml)
+- 2026-06-29 12:38 - [Sally Beauty发布全年及第三季度业绩指引，股价承压](http://www.blog.kurohicncr.top/Article/details/84274660.shtml)
+- 2026-06-29 12:19 - [特朗普拒绝伊朗关于停战协议草案回应，双方立场对立致外交进程陷入僵局](http://www.share.kurohicncr.top/Article/details/561144724.shtml)
+- 2026-06-29 12:38 - [伊朗战事持续之际，第二艘卡塔尔液化天然气油轮经霍尔木兹海峡驶往巴基斯坦](http://www.blog.kurohicncr.top/Article/details/1416566.shtml)

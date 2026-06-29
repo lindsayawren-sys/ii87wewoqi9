@@ -1,60 +1,61 @@
-# 非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后
+# 24项改革措施，推动综合保税区扩能提质（政策解读）
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 摘要：2026年一季度公募基金非货规模数据出炉。在头部公司普遍缩水的背景下，一批中小基金公司逆势突围。鹏安基金以排名上升25位的惊人表现成为一季度“进步最快”的公司，新疆前海联合基金、格林基金分别上升13位和11位紧随其后，成为本轮洗牌中最亮眼的“黑马”。 2026年一季度公募
+24项改革措施，推动综合保税区扩能提质（政策解读） 本报记者 欧阳洁《人民日报》（2026年05月13日 第 02 版） 不久前，《关于促进综合保税区扩能提质的若干措施》出台，提出24项改革措施。2025年，全国综合保税区实现进出口值7.2万亿元，占同期全国外贸进出口的比重达16%，有力促进了我国开放型经济发展。如何进一步发挥综合保税区作用？怎样推动各项改革措施落地见效？记者近
 
 ## 正文
 
-专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
+24项改革措施，推动综合保税区扩能提质（政策解读） 本报记者 欧阳洁《人民日报》（2026年05月13日 第 02 版） 不久前，《关于促进综合保税区扩能提质的若干措施》出台，提出24项改革措施。
 
-张坤、葛兰等最新布局出炉 摘要：2026年一季度公募基金非货规模数据出炉。
+2025年，全国综合保税区实现进出口值7.2万亿元，占同期全国外贸进出口的比重达16%，有力促进了我国开放型经济发展。
 
-在头部公司普遍缩水的背景下，一批中小基金公司逆势突围。
+如何进一步发挥综合保税区作用？
 
-鹏安基金以排名上升25位的惊人表现成为一季度“进步最快”的公司，新疆前海联合基金、格林基金分别上升13位和11位紧随其后，成为本轮洗牌中最亮眼的“黑马”。
+怎样推动各项改革措施落地见效？
 
-2026年一季度公募基金非货规模数据近日出炉，行业格局迎来一轮显著洗牌。
+记者近日进行了采访。
 
-从整体来看，头部基金公司普遍遭遇规模缩水，其中华夏基金、华泰柏瑞基金、易方达基金等巨头单季度流失规模均超过千亿元。
+近期，一辆悬挂GMS（大湄公河次区域）专用标识的国际运输车辆，在海关监管下驶出深圳前海综合保税区，经广西口岸出境，直抵越南，标志着粤港澳大湾区首票GMS国际公路运输业务落地，一条连接大湾区与东南亚的跨境物流新线路启用。
 
-与此同时，一批中小型基金公司却逆势实现规模快速增长，排名大幅跃升，成为一季度最亮眼的“黑马”。
+在新的监管模式下，货物自启运地装箱施封后，可直达目的地拆箱，途中无需换车装卸，实现跨境货运“一次委托、一单到底、一箱直达”。
 
-头部排名：华夏、华泰柏瑞缩水超两千亿，景顺长城、汇添富逆势攀升 从非货规模排名来看，头部基金公司一季度呈现明显的分化态势。
+据深圳海关统计，今年前4个月，前海综合保税区进出口2015.4亿元，增长59.8%，居全国综合保税区首位。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:15 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:07 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:20 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:18 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:21 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:13 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:25 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:06 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:23 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:14 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:18 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:09 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:14 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:15 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:19 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:33 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:23 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:19 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:31 - [RYOEX:金价反弹站上四千七百](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:34 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:21 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:24 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:16 - [一颗草莓的科技之旅与一个村庄的融合之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:37 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:16 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:24 - [中央网信办就规范短视频内容标注答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:39 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:18 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.share.kurohicncr.top/Article/details/71316.shtml)
-- 2026-06-29 12:09 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.share.minike.top/Article/details/599120523.shtml)
-- 2026-06-29 12:12 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.share.kurohicncr.top/Article/details/050927079.shtml)
-- 2026-06-29 12:07 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](http://www.blog.kurohicncr.top/Article/details/796916958213.shtml)
-- 2026-06-29 12:20 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](http://www.blog.kurohicncr.top/Article/details/485247761360.shtml)
-- 2026-06-29 12:24 - [重组计划会影响IPO吗？阿维塔回应](http://www.blog.kurohicncr.top/Article/details/8009376837.shtml)
-- 2026-06-29 12:35 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.share.minike.top/Article/details/98102387035.shtml)
-- 2026-06-29 12:08 - [亚马逊深化与Anthropic的合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.share.kurohicncr.top/Article/details/7961135836.shtml)
-- 2026-06-29 12:13 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.share.kurohicncr.top/Article/details/763919.shtml)
-- 2026-06-29 12:28 - [汉诺威工博会观察：中国企业加速AI应用落地](http://www.blog.kurohicncr.top/Article/details/22870375009.shtml)
-- 2026-06-29 12:13 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.kurohicncr.top/Article/details/441162677838.shtml)
-- 2026-06-29 12:26 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](http://www.blog.kurohicncr.top/Article/details/3001433737.shtml)
-- 2026-06-29 12:24 - [产业链上话稼穑 同心耕作“希望的田野”](http://www.share.kurohicncr.top/Article/details/0186729539.shtml)
+- 2026-06-29 12:14 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.share.minike.top/Article/details/815723764458.shtml)
+- 2026-06-29 12:41 - [白衣天使，节日快乐！](http://www.share.minike.top/Article/details/146026.shtml)
+- 2026-06-29 12:13 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.blog.minike.top/Article/details/2201571751.shtml)
+- 2026-06-29 12:34 - [美国能源信息署：美国2026年和2027年用电量将连创新高](http://www.share.kurohicncr.top/Article/details/623016879.shtml)
+- 2026-06-29 12:22 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [日本央行一名审议委员：可能在下次政策会议上加息](http://www.blog.kurohicncr.top/Article/details/41036027.shtml)
+- 2026-06-29 12:14 - [美国总统特朗普今起对中国进行国事访问](http://www.blog.minike.top/Article/details/820910695484.shtml)
+- 2026-06-29 12:32 - [受AI热潮提振，日经指数或将上涨](http://www.blog.kurohicncr.top/Article/details/686626251.shtml)
+- 2026-06-29 12:28 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](http://www.blog.kurohicncr.top/Article/details/106877502.shtml)
+- 2026-06-29 12:30 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](http://www.blog.minike.top/Article/details/70701353.shtml)
+- 2026-06-29 12:12 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](http://www.blog.kurohicncr.top/Article/details/3739186.shtml)
+- 2026-06-29 12:13 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](http://www.blog.minike.top/Article/details/250565390685.shtml)

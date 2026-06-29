@@ -1,61 +1,60 @@
-# 宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名
+# 王毅同巴基斯坦副总理兼外长通电话
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网银川4月22日电 (记者 杨迪)记者22日从宁夏司法厅获悉，宁夏自2026年4月至12月开展人民调解“百千万工程”，计划培育100个以上品牌人民调解组织、培养1000名以上金牌人民调解员、攻坚调解10000件以上疑难复杂矛盾纠纷，调解成功率达到97%以上，协议履行情况回访率100%。据介绍，宁夏将构建“专职+兼职”、“行业+基层”的多元人才梯队，通过人民调解技能、办案质效
+中新社北京5月13日电 中共中央政治局委员、外交部长王毅12日晚同巴基斯坦副总理兼外长达尔通电话。 达尔介绍了巴方斡旋伊朗与美国接谈近期情况，感谢中方支持巴方促谈努力，期待同中方加强协调配合，共同为维护地区和平稳定发挥积极作用。 王毅重申中方原则立场，赞赏巴方促成美伊谈判并延长临时停火，希望巴方保持信心、加大斡旋，为妥善解决霍尔木兹海峡开放问题、早日恢复地区和平作出贡献，这也是
 
 ## 正文
 
-中新网银川4月22日电 (记者 杨迪)记者22日从宁夏司法厅获悉，宁夏自2026年4月至12月开展人民调解“百千万工程”，计划培育100个以上品牌人民调解组织、培养1000名以上金牌人民调解员、攻坚调解10000件以上疑难复杂矛盾纠纷，调解成功率达到97%以上，协议履行情况回访率100%。
+中新社北京5月13日电 中共中央政治局委员、外交部长王毅12日晚同巴基斯坦副总理兼外长达尔通电话。
 
-据介绍，宁夏将构建“专职+兼职”、“行业+基层”的多元人才梯队，通过人民调解技能、办案质效和群众评价等确定“金牌调解员”培养对象。
+达尔介绍了巴方斡旋伊朗与美国接谈近期情况，感谢中方支持巴方促谈努力，期待同中方加强协调配合，共同为维护地区和平稳定发挥积极作用。
 
-注重吸纳“两代表一委员”、退休法官、检察官、行业专家、律师、高校学者等加入调解员队伍。
+王毅重申中方原则立场，赞赏巴方促成美伊谈判并延长临时停火，希望巴方保持信心、加大斡旋，为妥善解决霍尔木兹海峡开放问题、早日恢复地区和平作出贡献，这也是国际社会的普遍愿望。
 
-同时，宁夏将开展化解“万件疑难复杂矛盾纠纷”行动，依托“塞上枫桥”基层法治工作机制，健全常态化矛盾纠纷排查机制，重点关注征地拆迁、劳动争议、医患纠纷、环境污染、消费权益、婚姻家庭、债务纠纷等领域，以及久拖不决、涉及多方利益、可能引发群体性事件的疑难复杂矛盾，建立专门台账，通过联动机制健全矛盾纠纷信息排查收集、分析反馈制度，对排查出的矛盾纠纷及时登记录入、分流化解和跟踪回访，做到底数清、情况明。
+中方将继续支持巴方的调解并为此做出自己的努力。
 
-宁夏各地司法所和基层人民调解组织将加强与综治中心、派出所等基层维稳单位的协同配合。
+王毅表示，再过几天中巴两国将迎来建交75周年纪念日，双方要共同办好纪念活动，密切高层交往，加强战略沟通，巩固铁杆友谊，推进务实合作，更好维护彼此核心利益和中巴共同利益，推动中巴全天候战略合作伙伴关系迈上新台阶。
 
-对于跨区域、跨行业、跨部门的重大疑难矛盾，充分发挥“访调对接”“诉调对接”“警调对接”等机制作用，整合行政、司法、行业专业力量进行联合攻坚化解。
+面对变乱交织的世界，双方应在联合国等多边平台发出中巴正义声音，共同捍卫多边主义。
 
-推动建立劳动争议、医患纠纷、知识产权等行业性专业性调解团队，针对群体性纠纷、涉企纠纷、历史遗留纠纷等复杂类型，采取“专家会诊+联合调解+法治护航”模式，制定个性化化解方案，集中力量攻坚化解。
+达尔表示，巴方愿以两国建交75周年为契机，同中方深化全方位合作，密切多边协作，推动巴中全天候战略合作伙伴关系取得新发展。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:20 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:19 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:21 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:09 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:25 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:17 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:25 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:07 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:20 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:32 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:16 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:33 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:08 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:29 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:24 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:17 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:36 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:13 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:40 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:14 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:18 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:28 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:21 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:18 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:34 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:35 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:38 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:17 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.minike.top/Article/details/665561123.shtml)
-- 2026-06-29 12:27 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.share.minike.top/Article/details/31366.shtml)
-- 2026-06-29 12:12 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.minike.top/Article/details/216746.shtml)
-- 2026-06-29 12:10 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/910872044.shtml)
-- 2026-06-29 12:10 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.share.kurohicncr.top/Article/details/297666811.shtml)
-- 2026-06-29 12:29 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.blog.kurohicncr.top/Article/details/887199665.shtml)
-- 2026-06-29 12:22 - [百思买任命资深人士为CEO](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.kurohicncr.top/Article/details/3975613476.shtml)
-- 2026-06-29 12:26 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.kurohicncr.top/Article/details/76649057955.shtml)
-- 2026-06-29 12:26 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.blog.kurohicncr.top/Article/details/758822.shtml)
-- 2026-06-29 12:08 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.kurohicncr.top/Article/details/99582446.shtml)
+- 2026-06-29 12:28 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.blog.minike.top/Article/details/26000966.shtml)
+- 2026-06-29 12:25 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.blog.kurohicncr.top/Article/details/1213318.shtml)
+- 2026-06-29 12:20 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.kurohicncr.top/Article/details/397956722.shtml)
+- 2026-06-29 12:39 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.kurohicncr.top/Article/details/1887070954.shtml)
+- 2026-06-29 12:15 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [RYOEX:金价反弹站上四千七百](http://www.blog.kurohicncr.top/Article/details/58813816188.shtml)
+- 2026-06-29 12:29 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.share.kurohicncr.top/Article/details/1156913368.shtml)
+- 2026-06-29 12:38 - [美国4月份通胀飙升后 金价小幅走高](http://www.share.kurohicncr.top/Article/details/372276018120.shtml)
+- 2026-06-29 12:30 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.minike.top/Article/details/62135546.shtml)
+- 2026-06-29 12:30 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.kurohicncr.top/Article/details/159595.shtml)
+- 2026-06-29 12:27 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.share.kurohicncr.top/Article/details/428167191.shtml)
+- 2026-06-29 12:27 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/748743374522.shtml)
+- 2026-06-29 12:33 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.share.kurohicncr.top/Article/details/384032448.shtml)
+- 2026-06-29 12:13 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.share.kurohicncr.top/Article/details/08998998.shtml)

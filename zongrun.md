@@ -1,57 +1,53 @@
-# 杭州优化知识产权创新生态 全球创新指数排名跃升至13位
+# 刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网杭州4月22日电(奚金燕)4月22日，杭州召开优化知识产权领域营商环境试点城市建设新闻发布会，介绍了该市试点建设成果，展现知识产权赋能创新发展、优化营商环境的强劲动能。 杭州自2025年6月获批建设国家首批优化知识产权领域营商环境试点城市以来，知识产权创新生态持续优化，保护能力明显提升：世界知识产权组织发布的全球创新指数世界百强科技集群排名升至第13位，有效发明专利拥有量
+发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？这其实就说明我们有共同的历史认同，这些历史
 
 ## 正文
 
-中新网杭州4月22日电(奚金燕)4月22日，杭州召开优化知识产权领域营商环境试点城市建设新闻发布会，介绍了该市试点建设成果，展现知识产权赋能创新发展、优化营商环境的强劲动能。
+发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。
 
-杭州自2025年6月获批建设国家首批优化知识产权领域营商环境试点城市以来，知识产权创新生态持续优化，保护能力明显提升：世界知识产权组织发布的全球创新指数世界百强科技集群排名升至第13位，有效发明专利拥有量连续18年位居省会城市第一。
+谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。
 
-近年来，杭州高站位高标准推进知识产权领域营商环境试点建设，市场监管局联合11个部门印发试点工作实施方案，并量身打造杭州“一市一策”特色路径，全力推动知识产权制度优势转化为产业发展胜势、城市竞争优势。
+比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？
 
-截至去年底，杭州每万人高价值发明专利拥有量69.56件，分别是全国、浙江省平均水平的4.35和2.86倍。
+这其实就说明我们有共同的历史认同，这些历史人物其实深深根植于老百姓的心中。
 
-此外，杭州发力知识产权转化运用提质增效，出台实施《杭州市专利转化运用专项行动实施方案》，建成在杭高校专利转化精准匹配大模型，在杭高校专利产业化同比提升70%以上。
+如果扮演得好，我们都认为他和他所扮演那个角色是合一的，所以我们才能把对这个角色的感情、对这个历史人物的感情，寄托在这样的艺人身上”。
 
-2025年，杭州市知识产权质押融资金额536亿元，惠及企业数居全国第一。
-
-累计发行知识产权证券化项目24单，全国首单专利密集型产品(高端装备制造业)证券化项目近期成功在深交所挂牌，帮助科创企业解决融资难、融资贵问题。
-
-与此同时，杭州筑牢知识产权全链条保护坚实防线。
+(范思忆 刘子衿 制作 王雪茵） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:22 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:31 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:16 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:33 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:24 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:21 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:29 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:24 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:14 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:28 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:38 - [陕西宝鸡：道岔之下绽芳华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:16 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:26 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:19 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:21 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:31 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:40 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:13 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:28 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:34 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:17 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.share.minike.top/Article/details/60763540.shtml)
-- 2026-06-29 12:12 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.blog.kurohicncr.top/Article/details/0942183.shtml)
-- 2026-06-29 12:13 - [多支欧洲足球劲旅将于8月会师香港](http://www.share.kurohicncr.top/Article/details/93077.shtml)
-- 2026-06-29 12:17 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.minike.top/Article/details/9121581.shtml)
-- 2026-06-29 12:13 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.share.kurohicncr.top/Article/details/0276975793.shtml)
-- 2026-06-29 12:32 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.kurohicncr.top/Article/details/96835.shtml)
-- 2026-06-29 12:08 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.share.kurohicncr.top/Article/details/81047.shtml)
-- 2026-06-29 12:35 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.blog.kurohicncr.top/Article/details/3616987049.shtml)
-- 2026-06-29 12:29 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/24245478933.shtml)
-- 2026-06-29 12:22 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.kurohicncr.top/Article/details/467584271.shtml)
-- 2026-06-29 12:32 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.minike.top/Article/details/2916679.shtml)
-- 2026-06-29 12:33 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.share.kurohicncr.top/Article/details/63284729907.shtml)
-- 2026-06-29 12:33 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.share.kurohicncr.top/Article/details/604368483984.shtml)
-- 2026-06-29 12:30 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.kurohicncr.top/Article/details/584396.shtml)
+- 2026-06-29 12:21 - [中美经贸磋商在韩国开始举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](http://www.blog.kurohicncr.top/Article/details/12197.shtml)
+- 2026-06-29 12:18 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [南方人是怎么爱上北方奶茶的？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.share.kurohicncr.top/Article/details/020756499.shtml)
+- 2026-06-29 12:31 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.blog.minike.top/Article/details/70444.shtml)
+- 2026-06-29 12:25 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.blog.minike.top/Article/details/59398.shtml)
+- 2026-06-29 12:21 - [摩根大通将对投行业务高层进行改组](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.blog.minike.top/Article/details/4455085221.shtml)
+- 2026-06-29 12:13 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.share.minike.top/Article/details/244460.shtml)
+- 2026-06-29 12:29 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.blog.kurohicncr.top/Article/details/698950319.shtml)
+- 2026-06-29 12:29 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.kurohicncr.top/Article/details/71789.shtml)

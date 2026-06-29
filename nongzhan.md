@@ -1,58 +1,57 @@
-# 重庆今年一季度离境退税实退税额同比增长1倍
+# 美防长赫格塞思就国防预算出席国会听证会
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网重庆4月21日电 (梁钦卿)重庆市税务局21日发布的数据显示，今年一季度，重庆市离境退税实退税额同比增长1倍。 重庆自2018年3月起开始实行境外旅客购物离境退税，并于2024年1月起试点离境退税“即买即退”。相比传统的在离境口岸办理退税的方式，离境退税“即买即退”可实现境外旅客在试点商店现场领取退税款，便于二次消费。 重庆市税务局出口退税服务和管理局副局长李林介绍，20
+中新社华盛顿5月12日电 (记者 沙晗汀)美国国防部长赫格塞思当地时间12日就2027财年国防预算出席国会参众两院听证会。 赫格塞思当天分别出席了众议院拨款委员会国防小组和参议院拨款委员会国防小组听证会，两场听证会总时长达4小时。特朗普政府提出的2027财年1.5万亿美元国防预算、伊朗战事等成为听证会焦点。 在当天两场听证会上，多位议员问及中东战事花费问题。民主党参议员穆雷(P
 
 ## 正文
 
-中新网重庆4月21日电 (梁钦卿)重庆市税务局21日发布的数据显示，今年一季度，重庆市离境退税实退税额同比增长1倍。
+中新社华盛顿5月12日电 (记者 沙晗汀)美国国防部长赫格塞思当地时间12日就2027财年国防预算出席国会参众两院听证会。
 
-重庆自2018年3月起开始实行境外旅客购物离境退税，并于2024年1月起试点离境退税“即买即退”。
+赫格塞思当天分别出席了众议院拨款委员会国防小组和参议院拨款委员会国防小组听证会，两场听证会总时长达4小时。
 
-相比传统的在离境口岸办理退税的方式，离境退税“即买即退”可实现境外旅客在试点商店现场领取退税款，便于二次消费。
+特朗普政府提出的2027财年1.5万亿美元国防预算、伊朗战事等成为听证会焦点。
 
-重庆市税务局出口退税服务和管理局副局长李林介绍，2025年4月，中国官方进一步优化离境退税政策扩大入境消费，将退税商品起退点从500元下调至200元，并将现金退税限额从1万元上调至2万元。
+在当天两场听证会上，多位议员问及中东战事花费问题。
 
-重庆税务部门联合商务、海关等部门持续升级离境退税便利化举措，扩围离境退税商店、增设“即买即退”集中退付点、试点“即买即退”异地互认服务，为入境游提供更多服务保障。
+民主党参议员穆雷(Patty Murray)表示，国防部“是将民众的钱花在一场很多民众都反对的战争上，并且强迫民众花更多钱加油”，“然而，你连这场战争成本明细都不能提供”。
 
-离境退税政策和便利化服务举措提升了入境旅游消费的能级，将旅游“流量”转化为消费“增量”。
+对此，赫格塞思并未直接回答战争具体花费，而是强调伊朗战争对于美国的必要性。
 
-截至目前，重庆累计开设320家离境退税商店，其中包含“即买即退”商店71家；离境退税“即买即退”集中退付点已达4个；与四川、云南、陕西、甘肃、新疆实现离境退税“即买即退”异地互认办理。
+在当天众议院的听证会上，国防部代理审计长赫斯特(Jules Hurst)表示，中东战事目前花费约290亿美元，包括弹药补充、装备维修及维持军队部署成本，该数字不包括该地区美军事基地受损设施的修复或重建费用。
 
-李林表示，重庆市税务部门将持续鼓励和引导更多重庆特色文化产品商户备案成为离境退税商店，同时加强与西部陆海新通道相关省份税务部门协作，推动离境退税“即买即退”异地互认办理扩围至通道沿线所有省份，以便捷服务持续激发重庆入境旅游消费活力，助力重庆加快建设具有全球影响力的国际消费中心城市。
+对于议员关切的武器库存问题，赫格塞思表示，关于武器库存不足的担忧“被无益地夸大了”，“我们有所需要的武器”，并且军工企业已被告知“快速生产更多武器”。
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:22 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:31 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:08 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:15 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:27 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:18 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:06 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:33 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:10 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:21 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:11 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:25 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:38 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:30 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:34 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:39 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:23 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:40 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:28 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:32 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:27 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:16 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.share.kurohicncr.top/Article/details/7439149732.shtml)
-- 2026-06-29 12:09 - [从三组卫星遥感图看生态保护成效](http://www.blog.kurohicncr.top/Article/details/361774.shtml)
-- 2026-06-29 12:29 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.blog.kurohicncr.top/Article/details/03942.shtml)
-- 2026-06-29 12:19 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/469133617.shtml)
-- 2026-06-29 12:18 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.blog.kurohicncr.top/Article/details/4121403554.shtml)
-- 2026-06-29 12:30 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/14960571696.shtml)
-- 2026-06-29 12:34 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.share.kurohicncr.top/Article/details/56478.shtml)
-- 2026-06-29 12:13 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.share.kurohicncr.top/Article/details/36771594.shtml)
-- 2026-06-29 12:13 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.blog.kurohicncr.top/Article/details/176215.shtml)
-- 2026-06-29 12:29 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.minike.top/Article/details/4156623.shtml)
-- 2026-06-29 12:24 - [【国际漫评】解禁](http://www.blog.minike.top/Article/details/190748383301.shtml)
-- 2026-06-29 12:25 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/888982948332.shtml)
+- 2026-06-29 12:18 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.kurohicncr.top/Article/details/0734378.shtml)
+- 2026-06-29 12:22 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.share.minike.top/Article/details/3639915.shtml)
+- 2026-06-29 12:28 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.kurohicncr.top/Article/details/6218055.shtml)
+- 2026-06-29 12:17 - [一见·中美两个“大块头”如何相处？](http://www.share.minike.top/Article/details/81533806387.shtml)
+- 2026-06-29 12:25 - [新型“职业闭店人”骗局调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.blog.kurohicncr.top/Article/details/55376952.shtml)
+- 2026-06-29 12:41 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.share.minike.top/Article/details/57105.shtml)
+- 2026-06-29 12:21 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.blog.minike.top/Article/details/69807558528.shtml)
+- 2026-06-29 12:28 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/0655179.shtml)
+- 2026-06-29 12:41 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/851745844.shtml)
+- 2026-06-29 12:14 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/97931.shtml)
+- 2026-06-29 12:41 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.minike.top/Article/details/689675440715.shtml)

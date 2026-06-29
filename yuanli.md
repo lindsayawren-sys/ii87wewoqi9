@@ -1,57 +1,57 @@
-# 广东数智文娱企业加速拓展马来西亚市场
+# “洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网吉隆坡4月22日电 (记者 刘育英)2026中国(广东)—马来西亚数智文娱贸易投资推介会21日在马来西亚吉隆坡举办，2026 GTI东南亚泛娱乐产业展同期启幕，成为广东企业加速布局马来西亚市场的重要平台。 本次推介会由广东省驻东南亚(吉隆坡)经贸办事处主办，马来西亚中国工商协会承办，以“数智赋能、文旅融合、扩大贸易、双向投资、互利共赢”为主题，聚焦数智文娱设备、智能游乐设
+中新社布鲁塞尔5月12日电 (记者 德永健)比利时政府12日通报，两名搭乘“洪迪厄斯”号邮轮的比利时乘客汉坦病毒检测结果呈阴性，现获准回家，将接受为期6周的居家隔离。 据比利时政府当日发布的公告，两名乘客接受汉坦病毒血液检测，结果呈阴性。经比利时国家公共卫生研究所评估，确认两名乘客情况良好，未出现感染汉坦病毒的相关症状。 公告表示，两名乘客现获准回家，将接受为期6周的居家隔离，
 
 ## 正文
 
-中新网吉隆坡4月22日电 (记者 刘育英)2026中国(广东)—马来西亚数智文娱贸易投资推介会21日在马来西亚吉隆坡举办，2026 GTI东南亚泛娱乐产业展同期启幕，成为广东企业加速布局马来西亚市场的重要平台。
+中新社布鲁塞尔5月12日电 (记者 德永健)比利时政府12日通报，两名搭乘“洪迪厄斯”号邮轮的比利时乘客汉坦病毒检测结果呈阴性，现获准回家，将接受为期6周的居家隔离。
 
-本次推介会由广东省驻东南亚(吉隆坡)经贸办事处主办，马来西亚中国工商协会承办，以“数智赋能、文旅融合、扩大贸易、双向投资、互利共赢”为主题，聚焦数智文娱设备、智能游乐设施、跨境贸易与产业投资，旨在推动广东优质产能与马来西亚文旅产业升级需求对接，吸引中马政府代表、行业协会及企业代表参与。
+据比利时政府当日发布的公告，两名乘客接受汉坦病毒血液检测，结果呈阴性。
 
-广东省驻东南亚(吉隆坡)经贸办事处主任张君宏表示，将以此次推介会为起点，持续深化广东与马来西亚在数字经济、文化旅游及跨境投资等领域的务实合作，促进资源对接与产业链协同，携手开拓东南亚数智文娱市场。
+经比利时国家公共卫生研究所评估，确认两名乘客情况良好，未出现感染汉坦病毒的相关症状。
 
-马来西亚数字经济发展局(MDEC)投资部主任陈哲峰系统介绍了马来西亚数字经济的发展现状与政策优势，并邀请广东企业深耕马来西亚市场，携手推动当地数字经济产业全面发展。
+公告表示，两名乘客现获准回家，将接受为期6周的居家隔离，其间比利时卫生部门将每天与两人联系，密切监测他们的身体状况，同时确保两人遵守隔离规定。
 
-会上，双方围绕产业合作形成多项共识，包括深化双向贸易、推动跨境产业投资、共同打造特色文化IP、推进“设备+内容+运营+服务”的全链条出海模式，以及建立常态化合作机制。
+公告称，为保护两名乘客的个人隐私，除非情况发生变化，否则不会发布两人居家隔离的相关消息。
 
-多家企业现场签署合作意向，涵盖文旅项目开发、设备采购及产业投资等领域，为后续项目落地提供支撑。
+“洪迪厄斯”号邮轮原定从阿根廷乌斯怀亚驶往大西洋岛国佛得角，途中暴发汉坦病毒疫情。
 
-与此同时，2026 GTI东南亚泛娱乐产业展汇聚来自中国、马来西亚、新加坡、荷兰、美国等的百余家企业，集中展示游乐设备、VR/AR(虚拟现实/增强现实)解决方案及IP衍生品等内容。
+5月10日起，船上乘客及部分船员陆续在西班牙特内里费岛下船，随后被转运回国。
 
-业内人士指出，随着人工智能、XR等技术加速应用，文娱产业正从“流量竞争”迈向“长期价值创造”，企业出海模式也随之升级。
+据世界卫生组织12日通报，目前“洪迪厄斯”号邮轮共报告11名乘客和船员感染汉坦病毒，其中3名乘客死亡。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:31 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:13 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:32 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:23 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:29 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:33 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:23 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:07 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:31 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:35 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:22 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:25 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:19 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:15 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:28 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:25 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:26 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:24 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:30 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:34 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:12 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [多支欧洲足球劲旅将于8月会师香港](http://www.share.kurohicncr.top/Article/details/3156086.shtml)
-- 2026-06-29 12:10 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.share.minike.top/Article/details/92236447.shtml)
-- 2026-06-29 12:15 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.minike.top/Article/details/727445534596.shtml)
-- 2026-06-29 12:09 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.kurohicncr.top/Article/details/359275.shtml)
-- 2026-06-29 12:29 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.blog.kurohicncr.top/Article/details/44440.shtml)
-- 2026-06-29 12:19 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/1270351.shtml)
-- 2026-06-29 12:25 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.blog.minike.top/Article/details/697636057.shtml)
-- 2026-06-29 12:21 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/1957358638.shtml)
-- 2026-06-29 12:21 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/08043368414.shtml)
-- 2026-06-29 12:29 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.minike.top/Article/details/55375100.shtml)
-- 2026-06-29 12:29 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.blog.kurohicncr.top/Article/details/157310087996.shtml)
-- 2026-06-29 12:29 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.minike.top/Article/details/02258773.shtml)
-- 2026-06-29 12:08 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/053626804.shtml)
-- 2026-06-29 12:32 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/31730848.shtml)
+- 2026-06-29 12:23 - [上海居民何时能去台湾本岛个人游？国台办回应](http://www.share.kurohicncr.top/Article/details/65248.shtml)
+- 2026-06-29 12:38 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [南方人是怎么爱上北方奶茶的？](http://www.blog.minike.top/Article/details/252051.shtml)
+- 2026-06-29 12:32 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.share.minike.top/Article/details/05891115564.shtml)
+- 2026-06-29 12:36 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.minike.top/Article/details/312818816.shtml)
+- 2026-06-29 12:25 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.blog.kurohicncr.top/Article/details/600535.shtml)
+- 2026-06-29 12:32 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [摩根大通将对投行业务高层进行改组](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.share.minike.top/Article/details/1293856811.shtml)
+- 2026-06-29 12:34 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.share.kurohicncr.top/Article/details/92188.shtml)
+- 2026-06-29 12:35 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.share.kurohicncr.top/Article/details/76275453.shtml)
+- 2026-06-29 12:34 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.minike.top/Article/details/3254890.shtml)
+- 2026-06-29 12:27 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.share.kurohicncr.top/Article/details/837006822496.shtml)
+- 2026-06-29 12:41 - [谷歌深化布局印度AI基础设施热潮](http://www.blog.kurohicncr.top/Article/details/894157725.shtml)

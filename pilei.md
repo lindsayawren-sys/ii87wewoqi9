@@ -1,58 +1,60 @@
-# 多部门协同发力 陕西持续优化老年人优待服务
+# 长江有色：12日锌价大涨 整体成交难有亮点
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网西安4月21日电 (李一璠)“截至2025年末，陕西省60岁及以上老年人口已达914万人，占比23.22%，高于全国平均水平；预计2035年占比将超过30%，应对人口老龄化任务紧迫。”陕西省民政厅副厅长李平21日表示。 当日，陕西省民政厅联合省司法厅、省文旅厅、省交通运输厅、省卫健委召开政策解读通气会，对新修订的《陕西省老年人优待服务办法》进行集中解读(以下简称《办法》)
+长江有色金属网 今日沪期锌走势：今日沪期锌偏强震荡，盘中补涨昨日跌幅；沪锌2606主力合约开盘价24255元/吨，最高价24550元/吨，最低价24200元/吨，昨日结算价24125元/吨，今日收盘价24380元/吨，涨255元，涨幅1.06%。今日沪锌2606主力合约成交量140871手增加46235手，持仓量88173手增加4483手。伦锌北京时间15：06最新价报3458
 
 ## 正文
 
-中新网西安4月21日电 (李一璠)“截至2025年末，陕西省60岁及以上老年人口已达914万人，占比23.22%，高于全国平均水平；预计2035年占比将超过30%，应对人口老龄化任务紧迫。
+长江有色金属网 今日沪期锌走势：今日沪期锌偏强震荡，盘中补涨昨日跌幅；沪锌2606主力合约开盘价24255元/吨，最高价24550元/吨，最低价24200元/吨，昨日结算价24125元/吨，今日收盘价24380元/吨，涨255元，涨幅1.06%。
 
-”陕西省民政厅副厅长李平21日表示。
+今日沪锌2606主力合约成交量140871手增加46235手，持仓量88173手增加4483手。
 
-当日，陕西省民政厅联合省司法厅、省文旅厅、省交通运输厅、省卫健委召开政策解读通气会，对新修订的《陕西省老年人优待服务办法》进行集中解读(以下简称《办法》)。
+伦锌北京时间15：06最新价报3458美元，跌24美元。
 
-据悉，该《办法》将于今年5月1日起施行，是陕西省积极应对人口老龄化、优化为老服务供给、增强老年人获得感幸福感安全感的重要举措。
+今日ccmn锌价统计：今日ccmn长江综合0#锌价报24310-24410元/吨，均价24360元，涨240元，1#锌价报24220-24320元/吨，均价24270元，涨240元；广东现货0#锌报24010-24310元/吨，均价24160元，涨240元，1#锌价23940-24240元/吨，均价24090元，涨240元。
 
-此次修订立足该省人口老龄化发展实际，在保持政策连续性、稳定性的基础上，进一步完善优待范围、丰富优待内容、创新服务方式，推动老年优待服务更加规范、更加便捷、更加可及。
+今日现货锌市场报价0#锌在24300-24410元/吨之间，1#锌在24230-24320元/吨之间。
 
-《办法》明确，户籍或居住地在该省行政区域内的六十五周岁以上老年人可免费申领陕西省敬老优待证，在文旅休闲、交通出行、医疗健康、公共服务等方面享受优待服务，同时着力保留传统服务渠道、帮助老年人跨越“数字鸿沟”，鼓励社会各界积极参与为老服务，共同营造敬老爱老助老的良好社会风尚。
+对比对比沪期锌2605合约0#锌贴水20-升水90元/吨，1#锌贴水90-升水0元/吨。
 
-为确保政策落地见效，陕西省有关部门将紧密配合、协同发力，民政部门将会同省老龄委有关成员单位督促各市尽快细化本地老年人优待服务具体内容，加大政策宣传力度，同时指导各地制定应急预案、充实服务力量，保障出行秩序，推动文旅、文物、体育、卫健、交通等部门强化行业指导，落实好本领域老年优待政策，探索依托“身份码”推进敬老优待证电子化；文旅部门将落实A级旅游景区免费优待政策，规范设置服务标识，加快文化和旅游适老化服务设施提升改造，加强工作人员适老化服务培训，持续丰富老年优质文旅产品供给。
+对比对比沪期锌2606合约0#锌贴水45-升水65元/吨，1#锌贴水115-贴水25元/吨。
 
-此外，陕西省交通部门将全力推进公共交通适老化服务升级，优化敬老公交专线，探索搭建无障碍导乘系统，扩大“一键叫车”服务覆盖面，指导各市制定老年人交通优待服务办法及经费保障长效机制；卫健部门将督促医疗机构落实老年人就医优待政策，深化老年友善医疗机构建设，扩大老年医疗、康复护理、医养结合服务供给，落实六十五周岁以上老年人免费健康体检和中医药服务，完善失能老年人健康评估与长期照护体系。
+ccmn锌市分析：今日现货锌价大涨。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:21 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:14 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:13 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:18 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:34 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:19 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:19 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:09 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:18 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:23 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:21 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:35 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:32 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:22 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:22 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:35 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:39 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:29 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:14 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:19 - [一见·中美两个“大块头”如何相处？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:28 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:38 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:17 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:21 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:34 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.kurohicncr.top/Article/details/151514710463.shtml)
-- 2026-06-29 12:22 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.minike.top/Article/details/742922766654.shtml)
-- 2026-06-29 12:18 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.kurohicncr.top/Article/details/58975413.shtml)
-- 2026-06-29 12:21 - [美股回吐涨幅，美债收益率上行](http://www.share.kurohicncr.top/Article/details/57965.shtml)
-- 2026-06-29 12:17 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.share.minike.top/Article/details/9969439125.shtml)
-- 2026-06-29 12:06 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/8835232552.shtml)
-- 2026-06-29 12:34 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.blog.minike.top/Article/details/4339277.shtml)
-- 2026-06-29 12:14 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/6704159.shtml)
-- 2026-06-29 12:13 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.kurohicncr.top/Article/details/08417341080.shtml)
-- 2026-06-29 12:26 - [百思买CEO科里・巴里因公司多年增长疲软卸任](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [Keurig与雀巢续签协议，延续星巴克咖啡分销合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [登山、换“蔬”、穿汉服……阅读周，“悦”读正当时](http://www.share.kurohicncr.top/Article/details/492686679566.shtml)
-- 2026-06-29 12:07 - [破解临时用工难题 专家建议国家出台相关规范指引](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.share.minike.top/Article/details/225953996842.shtml)
+- 2026-06-29 12:27 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.blog.minike.top/Article/details/131342.shtml)
+- 2026-06-29 12:13 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](http://www.blog.kurohicncr.top/Article/details/9204104071.shtml)
+- 2026-06-29 12:20 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.share.kurohicncr.top/Article/details/51496082563.shtml)
+- 2026-06-29 12:28 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](http://www.blog.kurohicncr.top/Article/details/2475634788.shtml)
+- 2026-06-29 12:36 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.share.kurohicncr.top/Article/details/020784896.shtml)
+- 2026-06-29 12:28 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.blog.minike.top/Article/details/06036.shtml)
+- 2026-06-29 12:31 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.blog.kurohicncr.top/Article/details/700291134701.shtml)
+- 2026-06-29 12:27 - [华泰期货：原油市场处于暴风雨前的平静](http://www.share.kurohicncr.top/Article/details/2475683792.shtml)
+- 2026-06-29 12:17 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.kurohicncr.top/Article/details/739970779544.shtml)
+- 2026-06-29 12:32 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/01212.shtml)
+- 2026-06-29 12:23 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.blog.minike.top/Article/details/8763819710.shtml)
+- 2026-06-29 12:40 - [国产芯片彻底爆发，3000亿存储巨头狂飙！华宝基金科创芯片ETF（589190）上探6.5%再创新高，行情到哪了？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板](http://www.share.kurohicncr.top/Article/details/2416830198.shtml)
+- 2026-06-29 12:33 - [AI会取代哪些职业？多个AI意见不统一](http://www.blog.kurohicncr.top/Article/details/894334858641.shtml)

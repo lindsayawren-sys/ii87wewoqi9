@@ -1,59 +1,56 @@
-# 民调：美国民众对经济悲观 认为国家正朝错误方向发展
+# “AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据美国《赫芬顿邮报》报道，美联社-NORC公共事务研究中心当地时间21日公布的最新民调显示，美国总统特朗普的支持率降至33%，为其重返白宫以来的最低水平。大多数受访者对美国经济前景感到悲观，认为国家正朝着错误方向发展。 民调显示，67%的受访者不赞成特朗普的表现，其中49%表示强烈反对。 民调还指出，对特朗普的不满情绪已经蔓延至共和党内部，仅有68%的共和党
+中新社北京5月12日电 (记者 朱贺 张晓曦)“前段时间风靡的‘酱板鸭’让台湾青年津津乐道，最近刷屏的又变成了‘AI水果’短剧。年轻网友很容易被这种脑洞大开、充满创意的内容吸引眼球。” 12日在北京举行的第七届两岸媒体人峰会上，台湾梅花媒体集团数位营运部总监陈资尹对中新社记者表示，刷屏大陆短视频平台的“AI水果”短剧正成为台湾社交平台新潮流。片中草莓、香蕉等水果被AI拟人化，颇
 
 ## 正文
 
-中新网4月22日电 据美国《赫芬顿邮报》报道，美联社-NORC公共事务研究中心当地时间21日公布的最新民调显示，美国总统特朗普的支持率降至33%，为其重返白宫以来的最低水平。
+中新社北京5月12日电 (记者 朱贺 张晓曦)“前段时间风靡的‘酱板鸭’让台湾青年津津乐道，最近刷屏的又变成了‘AI水果’短剧。
 
-大多数受访者对美国经济前景感到悲观，认为国家正朝着错误方向发展。
+年轻网友很容易被这种脑洞大开、充满创意的内容吸引眼球。
 
-民调显示，67%的受访者不赞成特朗普的表现，其中49%表示强烈反对。
+” 12日在北京举行的第七届两岸媒体人峰会上，台湾梅花媒体集团数位营运部总监陈资尹对中新社记者表示，刷屏大陆短视频平台的“AI水果”短剧正成为台湾社交平台新潮流。
 
-民调还指出，对特朗普的不满情绪已经蔓延至共和党内部，仅有68%的共和党人认可其工作表现，而31%的人表示不满。
+片中草莓、香蕉等水果被AI拟人化，颇具反差感的剧情让不少网友“停不住”滑手机追更。
 
-“经济表现不佳是导致人们对特朗普失望的主要原因。
+“这些极度跳脱、让人‘叹为观止’的创意，正好切中年轻人追求新奇、幽默的心理”。
 
-”报道称，仅有23%的受访者认可其在生活成本问题上的处理方式，而反对比例高达76%。
+陈资尹认为，尽管两岸青年日常使用的平台不同，但优质、有创意的大陆短视频产品常能在台湾社交媒体自发传播并产生热烈回响，也为青年提供沟通桥梁。
 
-美联社公布的民调数据显示，约七成受访者认为美国经济“状况糟糕”，这一比例较3月份有所上升。
+“当我们为同一个视频发笑，或为相似的烦恼感慨时，那种‘原来你也一样’的共鸣，就是最自然的交流。
 
-民调指出，该结果凸显出美国民众对生活成本持续不满，而美国对伊朗的军事行动推高生活成本，特别是燃油价格飙升，进一步加剧了这一情绪。
+” 这种由内容消费引发的共鸣，正延伸至产业合作。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:24 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:13 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:27 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:31 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:14 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:08 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:07 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:30 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:31 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:31 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:18 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:21 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:22 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:21 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:18 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:37 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:21 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:27 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:41 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:12 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:12 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:29 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.blog.kurohicncr.top/Article/details/492778947265.shtml)
-- 2026-06-29 12:08 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.kurohicncr.top/Article/details/360222.shtml)
-- 2026-06-29 12:32 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.blog.kurohicncr.top/Article/details/564491.shtml)
-- 2026-06-29 12:20 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.kurohicncr.top/Article/details/30065.shtml)
-- 2026-06-29 12:11 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/53344387.shtml)
-- 2026-06-29 12:32 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.share.kurohicncr.top/Article/details/385468536.shtml)
-- 2026-06-29 12:31 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [百思买任命资深人士为CEO](http://www.share.minike.top/Article/details/32323275.shtml)
-- 2026-06-29 12:08 - [辽宁海城：梨花成海 粉樱作伴](http://www.blog.kurohicncr.top/Article/details/79888.shtml)
-- 2026-06-29 12:28 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.minike.top/Article/details/1834961.shtml)
-- 2026-06-29 12:18 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.kurohicncr.top/Article/details/71754434.shtml)
-- 2026-06-29 12:21 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.minike.top/Article/details/47006.shtml)
-- 2026-06-29 12:29 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.blog.kurohicncr.top/Article/details/378844155464.shtml)
-- 2026-06-29 12:20 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.share.minike.top/Article/details/43733911.shtml)
-- 2026-06-29 12:10 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.share.kurohicncr.top/Article/details/783449.shtml)
+- 2026-06-29 12:32 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.blog.kurohicncr.top/Article/details/783904093.shtml)
+- 2026-06-29 12:26 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.blog.minike.top/Article/details/993907194150.shtml)
+- 2026-06-29 12:18 - [RYOEX:金价反弹站上四千七百](http://www.blog.minike.top/Article/details/77432.shtml)
+- 2026-06-29 12:17 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.blog.minike.top/Article/details/827745.shtml)
+- 2026-06-29 12:19 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.minike.top/Article/details/89903.shtml)
+- 2026-06-29 12:29 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.minike.top/Article/details/522970.shtml)
+- 2026-06-29 12:25 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.blog.kurohicncr.top/Article/details/3163485286.shtml)
+- 2026-06-29 12:40 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/247109914.shtml)
+- 2026-06-29 12:36 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.blog.minike.top/Article/details/78209.shtml)
+- 2026-06-29 12:21 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.blog.kurohicncr.top/Article/details/070638711.shtml)
+- 2026-06-29 12:40 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.blog.minike.top/Article/details/1899049.shtml)

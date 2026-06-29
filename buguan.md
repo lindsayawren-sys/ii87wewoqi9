@@ -1,59 +1,56 @@
-# 摩根士丹利策略师：地缘政治动荡往往创造良好买入机会
+# 金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-摩根士丹利执行董事兼高级投资组合经理安德鲁·斯利蒙周三表示，尽管伊朗战争和中东局势持续动荡引发市场波动，但历史经验表明，地缘政治冲击往往为长期投资者创造有吸引力的买入机会。 斯利蒙在接受采访时指出，市场对地缘政治事件的短期反应通常是过度的。当不确定性上升时，投资者倾向于抛售风险资产，但这种行为往往导致优质资产被错误定价。他认为，当前的环境正是寻找这类机会的时机。 “如果你回顾历
+金斯瑞生物科技（01548）盘中涨超5%，截至发稿，股价上涨3.03%，报14.94港元，成交额6033.73万港元。 金斯瑞生物科技联营传奇生物隔夜股价大涨超10%。传奇生物昨日公布了2026年第一季度未经审计的财务业绩及公司主要重点，与2025年第一季度相比，CARVYKTI®在2026年第一季度的净销售额增长62%，达到约5.97亿美元。其中美国市场净销售额增长36%，美
 
 ## 正文
 
-摩根士丹利执行董事兼高级投资组合经理安德鲁·斯利蒙周三表示，尽管伊朗战争和中东局势持续动荡引发市场波动，但历史经验表明，地缘政治冲击往往为长期投资者创造有吸引力的买入机会。
+金斯瑞生物科技（01548）盘中涨超5%，截至发稿，股价上涨3.03%，报14.94港元，成交额6033.73万港元。
 
-斯利蒙在接受采访时指出，市场对地缘政治事件的短期反应通常是过度的。
+金斯瑞生物科技联营传奇生物隔夜股价大涨超10%。
 
-当不确定性上升时，投资者倾向于抛售风险资产，但这种行为往往导致优质资产被错误定价。
+传奇生物昨日公布了2026年第一季度未经审计的财务业绩及公司主要重点，与2025年第一季度相比，CARVYKTI®在2026年第一季度的净销售额增长62%，达到约5.97亿美元。
 
-他认为，当前的环境正是寻找这类机会的时机。
+其中美国市场净销售额增长36%，美国以外的市场净销售额增长222%。
 
-“如果你回顾历史，地缘政治事件通常会带来一些最好的买入点，”斯利蒙表示。
+此外，公司截至2026年3月31日止三个月的净亏损收窄至5430万美元，而去年同期净亏损为1.010亿美元。
 
-他补充说，虽然冲突升级的短期影响难以预测，但从长期来看，市场往往会复苏，那些因恐慌而被抛售的优质公司可能会提供可观的回报。
-
-斯利蒙的观点与摩根大通资产管理公司全球市场策略师Stephanie Aliaga的观点相呼应。
-
-Aliaga此前也表示，尽管中东冲突“显然还未到风平浪静的时候”，但市场是前瞻性的，现实是各方仍处于降级路径上，涨势有望在人工智能热潮和生产力提高的推动下继续。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:16 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:35 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:30 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:26 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:30 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:09 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:12 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:09 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:28 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:27 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:16 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:08 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:15 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:40 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:26 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:25 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:13 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:41 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:25 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:15 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:14 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:18 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:28 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:29 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:21 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:23 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:15 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.blog.minike.top/Article/details/5635282.shtml)
-- 2026-06-29 12:23 - [推动实体经济发展，内蒙古“放大招”](http://www.blog.minike.top/Article/details/383656300.shtml)
-- 2026-06-29 12:09 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.share.kurohicncr.top/Article/details/90339.shtml)
-- 2026-06-29 12:32 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](http://www.blog.minike.top/Article/details/463900019061.shtml)
-- 2026-06-29 12:27 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.share.minike.top/Article/details/948215310.shtml)
-- 2026-06-29 12:08 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.share.kurohicncr.top/Article/details/912700.shtml)
-- 2026-06-29 12:09 - [美联储主席提名人沃什阐述美联储政策主张](http://www.blog.kurohicncr.top/Article/details/154650962142.shtml)
-- 2026-06-29 12:16 - [日经指数首次升破60000点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.kurohicncr.top/Article/details/64999368162.shtml)
-- 2026-06-29 12:31 - [鸡煲带火祛湿养生，体内湿气到底是啥？](http://www.share.minike.top/Article/details/181981859963.shtml)
-- 2026-06-29 12:09 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.blog.kurohicncr.top/Article/details/0382485.shtml)
-- 2026-06-29 12:16 - [从三组卫星遥感图看生态保护成效](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.share.minike.top/Article/details/0522912462.shtml)
-- 2026-06-29 12:12 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.share.kurohicncr.top/Article/details/37045.shtml)
-- 2026-06-29 12:30 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.minike.top/Article/details/995750262.shtml)
+- 2026-06-29 12:13 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.share.minike.top/Article/details/505806460.shtml)
+- 2026-06-29 12:14 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [特斯拉将向德国工厂注资2.5亿美元](http://www.share.minike.top/Article/details/234117771264.shtml)
+- 2026-06-29 12:24 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](http://www.blog.kurohicncr.top/Article/details/80980630132.shtml)
+- 2026-06-29 12:13 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.kurohicncr.top/Article/details/01079.shtml)
+- 2026-06-29 12:23 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.share.kurohicncr.top/Article/details/08324.shtml)
+- 2026-06-29 12:26 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.share.minike.top/Article/details/98647115421.shtml)
+- 2026-06-29 12:22 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.blog.minike.top/Article/details/55299.shtml)
+- 2026-06-29 12:34 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.blog.minike.top/Article/details/82013.shtml)
+- 2026-06-29 12:13 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.share.minike.top/Article/details/00842.shtml)
+- 2026-06-29 12:25 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.minike.top/Article/details/36972.shtml)
+- 2026-06-29 12:41 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.minike.top/Article/details/520022498469.shtml)

@@ -1,57 +1,58 @@
-# 四川累计外送电量突破2万亿千瓦时
+# 原油：油价上涨 特朗普称美伊停火岌岌可危
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。 作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约
+油价上涨，此前美国总统唐纳德·特朗普表示，美伊之间脆弱的停火岌岌可危，这表明霍尔木兹海峡受阻状态可能持续。 布伦特上涨2.9%，收于每桶104美元附近，为近一周以来的最高水平。 有媒体报道称，特朗普与国家安全团队会面讨论中东冲突的下一步行动，包括可能恢复军事行动。 特朗普周一在白宫对记者表示：“我会说，这项停火如今完全是在靠生命维持系统支撑”。 据福克斯新闻报道，特朗普还称在考
 
 ## 正文
 
-中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。
+油价上涨，此前美国总统唐纳德·特朗普表示，美伊之间脆弱的停火岌岌可危，这表明霍尔木兹海峡受阻状态可能持续。
 
-作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。
+布伦特上涨2.9%，收于每桶104美元附近，为近一周以来的最高水平。
 
-这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约16亿吨，为我国“双碳”目标落地提供了坚实的能源支撑。
+有媒体报道称，特朗普与国家安全团队会面讨论中东冲突的下一步行动，包括可能恢复军事行动。
 
-作为“西电东送”战略的重要枢纽，四川持续加快特高压骨干网架建设，全力构建省内“三送三受”、跨区“多进多出”的立体枢纽电网。
+特朗普周一在白宫对记者表示：“我会说，这项停火如今完全是在靠生命维持系统支撑”。
 
-目前，四川已建成7条特高压直流外送通道，跨区跨省外送能力超6260万千瓦，稳居全国首位。
+据福克斯新闻报道，特朗普还称在考虑重启“自由计划”。
 
-另据最新统计数据，四川电力总装机已突破1.6亿千瓦，其中水电装机超1亿千瓦，占比约三分之二；风电、光伏等新能源装机超3200万千瓦，占比约20%，历史性超过火电，成为四川电力第二大电源。
+交易员将这一潜在举措解读为美方对伊朗短期内开放该水道信心不足。
 
-当前，四川正加快推进金沙江上游、雅砻江、大渡河流域水风光一体化清洁能源基地规划建设，引导甘孜、阿坝、凉山等风光资源富集地区，推动新能源实现规模化、基地化、集约化发展。
+在霍尔木兹海峡受阻导致能源价格飙升后，特朗普周一对汽油税减免表达了支持，以抵消油价上涨带来的冲击。
 
-据悉，“十五五”期间，四川预计将新增新能源装机5000万千瓦以上，进一步深化多能互补电源建设。
+受特朗普拒绝德黑兰最新和平提议影响，油价在早些时候飙升。
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:27 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:19 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:19 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:15 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:07 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:30 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:35 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:06 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:34 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:32 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:31 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:14 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:39 - [“洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:14 - [中央气象台：每 日 天 气 提 示（2026年05月12日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:13 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:15 - [对冲基金押注生物燃料，欲从伊朗石油价格冲击中获利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:36 - [大涨后，多只牛股急发警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:22 - [陕西宝鸡：道岔之下绽芳华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:37 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:36 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:36 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:30 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.share.kurohicncr.top/Article/details/5126922025.shtml)
-- 2026-06-29 12:27 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/1814268734.shtml)
-- 2026-06-29 12:30 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.minike.top/Article/details/4710479791.shtml)
-- 2026-06-29 12:19 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.kurohicncr.top/Article/details/1481777339.shtml)
-- 2026-06-29 12:33 - [300883，连亏三年后，一季度又亏](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](http://www.blog.kurohicncr.top/Article/details/609734910.shtml)
-- 2026-06-29 12:13 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.share.kurohicncr.top/Article/details/5543733.shtml)
-- 2026-06-29 12:26 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [多支欧洲足球劲旅将于8月会师香港](http://www.blog.minike.top/Article/details/67602757.shtml)
-- 2026-06-29 12:11 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.kurohicncr.top/Article/details/226251578949.shtml)
-- 2026-06-29 12:32 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.kurohicncr.top/Article/details/039348.shtml)
-- 2026-06-29 12:22 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.share.minike.top/Article/details/45824.shtml)
-- 2026-06-29 12:22 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/975969980.shtml)
+- 2026-06-29 12:15 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.blog.minike.top/Article/details/675280.shtml)
+- 2026-06-29 12:31 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.blog.minike.top/Article/details/6703835.shtml)
+- 2026-06-29 12:17 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](http://www.share.kurohicncr.top/Article/details/295959748.shtml)
+- 2026-06-29 12:30 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](http://www.blog.kurohicncr.top/Article/details/1700183250.shtml)
+- 2026-06-29 12:30 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](http://www.blog.kurohicncr.top/Article/details/2432618791.shtml)
+- 2026-06-29 12:20 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](http://www.share.kurohicncr.top/Article/details/35377258.shtml)
+- 2026-06-29 12:24 - [中美经贸磋商在韩国开始举行](http://www.blog.minike.top/Article/details/1615745.shtml)
+- 2026-06-29 12:30 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [上海居民何时能去台湾本岛个人游？国台办回应](http://www.share.kurohicncr.top/Article/details/8863718.shtml)
+- 2026-06-29 12:20 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [南方人是怎么爱上北方奶茶的？](http://www.share.minike.top/Article/details/10047.shtml)
+- 2026-06-29 12:21 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.minike.top/Article/details/976003.shtml)
+- 2026-06-29 12:40 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.blog.kurohicncr.top/Article/details/650575716.shtml)

@@ -1,61 +1,58 @@
-# 针对日本可能存在强震风险 中国驻日使馆发布提醒
+# Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据中国驻日本大使馆22日发布的消息，日本是地震多发国家，每年发生2000次以上有感地震，地震发生时间、地点、震级具有较大随机性，难以精确预测。 4月20日，日本岩手县东部三陆冲海域发生7.7级地震，日本气象厅已发布“北海道·三陆冲后发地震注意信息”，提醒北海道、青森县、岩手县、宫城县、福岛县、茨城县、千叶县等7个地区居民一周内注意防范强烈地震。中国驻日本大使
+全球另类资产管理巨头Brookfield Asset Management周一宣布，已同意向The OpenAI Deployment Company投资5亿美元。该平台由OpenAI与多家全球投资机构联合成立，旨在帮助企业AI应用从试点阶段走向企业级规模化部署，解决当前AI生产力落地中的关键瓶颈。 投资架构与战略意图 Brookfield旗下的旗舰上市实体Brookfield
 
 ## 正文
 
-中新网4月22日电 据中国驻日本大使馆22日发布的消息，日本是地震多发国家，每年发生2000次以上有感地震，地震发生时间、地点、震级具有较大随机性，难以精确预测。
+全球另类资产管理巨头Brookfield Asset Management周一宣布，已同意向The OpenAI Deployment Company投资5亿美元。
 
-4月20日，日本岩手县东部三陆冲海域发生7.7级地震，日本气象厅已发布“北海道·三陆冲后发地震注意信息”，提醒北海道、青森县、岩手县、宫城县、福岛县、茨城县、千叶县等7个地区居民一周内注意防范强烈地震。
+该平台由OpenAI与多家全球投资机构联合成立，旨在帮助企业AI应用从试点阶段走向企业级规模化部署，解决当前AI生产力落地中的关键瓶颈。
 
-中国驻日本大使馆提醒中国公民近期避免前往日本，提醒已在日中国公民，特别是新近来日人员加强地震灾害应急防范。
+投资架构与战略意图 Brookfield旗下的旗舰上市实体Brookfield Business Corporation将主导这笔投资。
 
-一、做好日常防灾备灾。
+Brookfield私募股权业务首席执行官表示，人工智能将成为全球经济生产力增长的决定性驱动力，当前的核心机遇在于规模化执行。
 
-日本法律规定，1981年6月以后建造的建筑物须可抵御烈度6强地震不倒塌。
+Brookfield计划将其在各运营公司和投资平台的实际能力与OpenAI的先进技术相结合，以提高生产力、优化决策并实现效率提升。
 
-地震多数伤亡由屋内倾倒物品引起，建议为书架、衣柜、电视、电脑等易晃易倒物品加装固定件、防倒件；提前确认附近避难场所信息，适当储备饮用水、食品、安全帽、口哨等应急物资。
+深耕AI基础设施的战略延续 此次投资是Brookfield多年布局AI领域的延续。
 
-二、掌握基本避险技能。
+此前，Brookfield已通过一系列价值创造举措持续扩大AI业务版图，包括与OpenAI合作投资数十亿美元用于数据中心物理基础设施。
 
-地震发生时，应保持冷静，就地避险，选择坚固家具旁或承重墙角躲避，远离玻璃、吊灯等易坠物品。
+此次进一步深化合作，显示了Brookfield对AI技术落地前景的坚定信心。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [特朗普政府拟周三调整大麻管制分级，概念股集体飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:14 - [孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:09 - [假冒官员诱骗内地留学生返港买金粒，3男被捕涉款700万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:27 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:17 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:14 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:31 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:30 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:21 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:13 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:06 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:09 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:12 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:17 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:17 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:32 - [今年前4个月全国食品贸易进出口同比增长6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:17 - [男子施工时坠崖身亡 仅口头约定雇佣方该担何责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:24 - [OpenAI推出“Daybreak”网络安全倡议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:33 - [白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:26 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:28 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:13 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:27 - [三峡水库去冬今春枯水期累计补水超百亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:14 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:25 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:24 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:23 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.blog.kurohicncr.top/Article/details/0938696.shtml)
-- 2026-06-29 12:12 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.share.kurohicncr.top/Article/details/6587589027.shtml)
-- 2026-06-29 12:18 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.blog.minike.top/Article/details/9151744866.shtml)
-- 2026-06-29 12:15 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.blog.kurohicncr.top/Article/details/00225562177.shtml)
-- 2026-06-29 12:20 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.minike.top/Article/details/783820.shtml)
-- 2026-06-29 12:15 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.blog.kurohicncr.top/Article/details/66684754295.shtml)
-- 2026-06-29 12:27 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.kurohicncr.top/Article/details/42555.shtml)
-- 2026-06-29 12:29 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.minike.top/Article/details/5496746.shtml)
-- 2026-06-29 12:07 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.kurohicncr.top/Article/details/64144283.shtml)
-- 2026-06-29 12:07 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.blog.kurohicncr.top/Article/details/2621100.shtml)
-- 2026-06-29 12:32 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.share.kurohicncr.top/Article/details/044157.shtml)
-- 2026-06-29 12:34 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](http://www.blog.minike.top/Article/details/781962047.shtml)
+- 2026-06-29 12:35 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.blog.kurohicncr.top/Article/details/296758652.shtml)
+- 2026-06-29 12:35 - [枪声震天！直击武警官兵实战化射击超燃瞬间](http://www.blog.minike.top/Article/details/2754426.shtml)
+- 2026-06-29 12:38 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](http://www.share.minike.top/Article/details/7057944.shtml)
+- 2026-06-29 12:26 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.blog.kurohicncr.top/Article/details/433485559.shtml)
+- 2026-06-29 12:24 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.minike.top/Article/details/89466661.shtml)
+- 2026-06-29 12:34 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.share.minike.top/Article/details/9337524.shtml)
+- 2026-06-29 12:24 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](http://www.blog.kurohicncr.top/Article/details/8185455895.shtml)
+- 2026-06-29 12:26 - [Meta因虚假广告面临审查](http://www.share.minike.top/Article/details/949682707.shtml)
+- 2026-06-29 12:18 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.blog.minike.top/Article/details/197521738815.shtml)
+- 2026-06-29 12:35 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.share.kurohicncr.top/Article/details/269331131.shtml)
+- 2026-06-29 12:22 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.share.minike.top/Article/details/290107244636.shtml)
+- 2026-06-29 12:30 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.share.kurohicncr.top/Article/details/582952.shtml)
+- 2026-06-29 12:14 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.share.minike.top/Article/details/431250697678.shtml)

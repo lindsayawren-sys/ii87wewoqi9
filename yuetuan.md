@@ -1,57 +1,57 @@
-# 能定位会判断 AI乒乓机器人击败人类高手
+# 融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。 这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。 像Ace这样的机器人被称为A
+2026年5月初的中国大模型赛道，注定将被刻进行业备忘录。 5月7日至8日，短短24小时内，月之暗面宣布完成约20亿美元融资、阶跃星辰被曝即将完成近25亿美元融资、DeepSeek首轮融资估值传闻直冲500亿美元以上——三家公司单周合计募资体量逼近百亿美元量级。加上此前已登陆港股的智谱AI和MiniMax，中国基础大模型的“五虎”格局在这个春天同时进入了各自的关键时刻。 这不是
 
 ## 正文
 
-索尼AI的科学家开发出一款乒乓机器人，在人类与人工智能的最新对决中，其速度和精准度甚至足以击败一些专业级选手。
+2026年5月初的中国大模型赛道，注定将被刻进行业备忘录。
 
-这款名为“Ace”的机器人，将视觉传感器、无模型强化学习以及高速机器人硬件结合在一起，其结构类似一根带有乒乓球拍的起重机式机械臂。
+5月7日至8日，短短24小时内，月之暗面宣布完成约20亿美元融资、阶跃星辰被曝即将完成近25亿美元融资、DeepSeek首轮融资估值传闻直冲500亿美元以上——三家公司单周合计募资体量逼近百亿美元量级。
 
-该系统能够自主在空间中定位乒乓球，判断应采用的回球技术，将球击回对方球台，并不断重复这一过程，直到回合结束。
+加上此前已登陆港股的智谱AI和MiniMax，中国基础大模型的“五虎”格局在这个春天同时进入了各自的关键时刻。
 
-像Ace这样的机器人被称为AI代理，即能够在有限人类干预下，通过推理并采取行动来解决多步骤问题的系统。
+这不是巧合，而是所有人都意识到：留在牌桌上的窗口，比想象中要窄得多。
 
-索尼集团旗下子公司索尼AI的研究人员将Ace与多位高水平乒乓球选手进行了一系列对战测试。
+对于阶跃星辰而言，25亿美元的融资体量固然值得关注，但真正值得深度拆解的，是两个更具结构性的信号：其一，本轮融资投资方中集中出现了华勤技术、龙旗科技、豪威集团、中兴通讯等消费电子产业链核心企业，产业资本正以令人意想不到的方式“用脚投票”；其二，该公司已完成股份制改造、红筹架构拆除，正以明确的姿态冲刺港股IPO，剑指“国产大模型第三股”。
 
-在事先并不了解对手打法风格的情况下，这款机器人在与五名不同精英运动员（定义为接受过超过10年高强度训练的人）进行的13场比赛中赢下了7场。
+“不是融钱，是结网”：25亿美元背后的资本逻辑与产业链绑定 华勤技术、龙旗科技、豪威集团、中兴通讯——如果只看这份股东名单，你可能会误以为这是一家消费电子供应链企业的融资公告。
 
-而在与两名参加官方职业联赛的选手对阵时，Ace在7场比赛中赢下了1场。
+然而，它们出现在同一家AI大模型公司的股东名册里，这本身就是一件极不寻常的事情。
 
-乒乓球运动需要精确的动作、瞬间决策和快速反应，因此成为研究AI系统如何在复杂物理环境中进行交互的理想案例。
+华勤技术和龙旗科技，是全球手机ODM（原始设计制造）的第一梯队企业，提供从整机研发设计到制造服务的全链条能力；豪威集团是图像传感器供应商，处于手机摄像头等关键零部件的上游核心位置；中兴通讯则是全球通信设备和终端制造领域的巨头，已与阶跃星辰在AI手机功能上深度共创，并在努比亚Z80 Ultra等多款旗舰机型上实现量产落地。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:10 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:26 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:12 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:06 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:22 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:29 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:32 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:23 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:26 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:09 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:39 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:27 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:13 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:17 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:17 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:32 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:21 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:22 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:21 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:16 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:27 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.share.kurohicncr.top/Article/details/66122495.shtml)
-- 2026-06-29 12:31 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.share.minike.top/Article/details/2293750816.shtml)
-- 2026-06-29 12:06 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.minike.top/Article/details/4618582460.shtml)
-- 2026-06-29 12:23 - [高雅光学公布于4月23日上午起停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/02863.shtml)
-- 2026-06-29 12:35 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.blog.kurohicncr.top/Article/details/04642871.shtml)
-- 2026-06-29 12:26 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.blog.kurohicncr.top/Article/details/837499474155.shtml)
-- 2026-06-29 12:15 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.blog.minike.top/Article/details/480655.shtml)
-- 2026-06-29 12:09 - [美国多家航空公司面临燃油压力](http://www.share.kurohicncr.top/Article/details/000304064333.shtml)
-- 2026-06-29 12:25 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.kurohicncr.top/Article/details/55430221651.shtml)
-- 2026-06-29 12:21 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.minike.top/Article/details/541524.shtml)
-- 2026-06-29 12:20 - [美国国家安全局被曝使用Anthropic受限模型](http://www.blog.minike.top/Article/details/9417373.shtml)
-- 2026-06-29 12:19 - [浙江进入汛期以来首次区域性强降雨过程](http://www.blog.kurohicncr.top/Article/details/66654.shtml)
+- 2026-06-29 12:15 - [酒价内参5月13日价格发布：古20下跌6元](http://www.blog.minike.top/Article/details/11735453574.shtml)
+- 2026-06-29 12:30 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.blog.kurohicncr.top/Article/details/66248.shtml)
+- 2026-06-29 12:21 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.blog.kurohicncr.top/Article/details/47634.shtml)
+- 2026-06-29 12:39 - [联播+｜“中国式安全感”如何炼成？](http://www.share.minike.top/Article/details/487800358.shtml)
+- 2026-06-29 12:16 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.blog.kurohicncr.top/Article/details/631175037.shtml)
+- 2026-06-29 12:26 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](http://www.share.kurohicncr.top/Article/details/841124136.shtml)
+- 2026-06-29 12:41 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.minike.top/Article/details/62930.shtml)
+- 2026-06-29 12:28 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.blog.minike.top/Article/details/28668241.shtml)
+- 2026-06-29 12:23 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.blog.minike.top/Article/details/491141268.shtml)
+- 2026-06-29 12:21 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.share.kurohicncr.top/Article/details/385205765.shtml)
+- 2026-06-29 12:32 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](http://www.share.minike.top/Article/details/302844.shtml)
+- 2026-06-29 12:20 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.minike.top/Article/details/636439064372.shtml)
+- 2026-06-29 12:39 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.blog.kurohicncr.top/Article/details/4709062710.shtml)
+- 2026-06-29 12:30 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.share.minike.top/Article/details/23082786.shtml)

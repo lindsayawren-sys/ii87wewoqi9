@@ -1,56 +1,56 @@
-# 中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保
+# 中美元首会晤在即 专家：美方有责任慎重处理台湾问题
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电 4月22日，记者从国家医保局相关人士处获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中涉及的湖南省、河南省相关涉事药店，国家医保局派出工作组，分别前往湖南、河南开展检查。在中国新闻网“民生调查局”的报道中，记者在湖南、河南等地随机走访了30多家连锁药店，发现其中10余家存在违规套取医保基金的行为，涉及养天和大药房、老百姓大药房、
+中新社北京5月13日电 (记者 李京泽)即将到来的中美元首会晤吸引世界目光。据外媒报道，台湾问题料将是美国总统特朗普访华期间谈及的重要议题之一。 台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础，是中美关系第一条不可逾越的红线，也是中美关系的最大风险点。 元首互动，既是稳定双边关系的战略引领，也是坚守底线的坦诚对话。自特朗普重返白宫以来，台湾问题多次在中美元首互动中被
 
 ## 正文
 
-中新网北京4月22日电 4月22日，记者从国家医保局相关人士处获悉，针对中国新闻网《暗访连锁药店骗保手段：串药、改方、平账一条龙》报道中涉及的湖南省、河南省相关涉事药店，国家医保局派出工作组，分别前往湖南、河南开展检查。
+中新社北京5月13日电 (记者 李京泽)即将到来的中美元首会晤吸引世界目光。
 
-在中国新闻网“民生调查局”的报道中，记者在湖南、河南等地随机走访了30多家连锁药店，发现其中10余家存在违规套取医保基金的行为，涉及养天和大药房、老百姓大药房、老百姓怀仁药房、益民大药房等多家知名连锁药店。
+据外媒报道，台湾问题料将是美国总统特朗普访华期间谈及的重要议题之一。
 
-中国新闻网记者随国家医保局工作组同步开展调研报道工作。
+台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础，是中美关系第一条不可逾越的红线，也是中美关系的最大风险点。
 
-4月22日，湖南省医保局回应中新网称，已专题研究部署定点药店点上彻查与全域治理工作：一是完成涉事药店的紧急约谈和警示教育，4月21日下午省医保局紧急约谈了本次涉事的4家连锁药店总部的主要负责人；二是督促相关市州完成了涉事药店(门店)现场检查，据初步调查，涉事10家药店存在串换、代刷卡结算等违约违规问题，10家药店查实问题总计涉及支出职工个人账户资金3267.14元，暂未发现涉及医保统筹基金；三是全面启动专项检查与治理工作，将药店个人账户刷卡问题纳入全省医保基金管理突出问题整治“突击战”管理，全省启动药店专项治理工作，相关通知将近日内下发；四是启动全省专项飞行检查，组织首批4支队伍于今日上午进驻4个涉事市，下午专项飞行检查正式开始，同步启动涉事市自查自纠督导，计划用一周左右的时间，做到涉事连锁药店所有门店督导和重点风险门店现场检查两个“全覆盖”。
+元首互动，既是稳定双边关系的战略引领，也是坚守底线的坦诚对话。
 
-22日，衡阳市医保局回应中新网称，目前涉事4家药店已被中止医保服务协议，核查处置情况将及时公布。
+自特朗普重返白宫以来，台湾问题多次在中美元首互动中被提及。
 
-依据《医疗保障基金使用监督管理条例》及衡阳市医保定点服务协议管理规定，依法依规对4家涉案药店作出如下处置：一是对老百姓大药房(衡阳)有限公司和御康堂大药房两家连锁店衡阳总负责人进行约谈，责令其对所有药店自查自纠，全面整改；二是中止4家药店的医保服务协议，追回违规支付的医保基金，并进一步核查处理依法依规严肃查处。
+去年以来，在与特朗普的多次通话中，中国国家主席习近平指出，“台湾问题是中美关系中最重要的问题”“美国应当慎重处理台湾问题”“台湾问题事关中国国家主权和领土完整”。
 
-同时，衡阳市医保局将“药店使用个账套刷保健品、生活用品”等行为列为2026年度全市医保基金监管专项检查重点内容，采取市级交叉检查、区级专项检查、明查与暗访相结合的方式，加大对区级定点药店的抽查比例和频次。
+南京大学国际关系学院院长朱锋表示，中方一再强调这条红线，就是要让美方清晰了解中方的原则底线，避免误解误判，防止冲突对抗。
 
-21日晚，郑州市医疗保障局通报称：已会同相关部门组成联合调查组开展调查。
+复旦大学国际问题研究院院长吴心伯说，台湾问题是中美关系中最核心、最敏感的问题。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:23 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:12 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:15 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:32 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:35 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:34 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:21 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:27 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:10 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:24 - [美国4月CPI报告对美联储意味著什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:14 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:35 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:25 - [福州鼓岭：承载百年中美民间情谊的山间胜地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:37 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:40 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:38 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:18 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:40 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:39 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.blog.kurohicncr.top/Article/details/765367740798.shtml)
-- 2026-06-29 12:16 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.share.kurohicncr.top/Article/details/3072748502.shtml)
-- 2026-06-29 12:15 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.share.kurohicncr.top/Article/details/845571848975.shtml)
-- 2026-06-29 12:31 - [推动实体经济发展，内蒙古“放大招”](http://www.share.minike.top/Article/details/2105128884.shtml)
-- 2026-06-29 12:13 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.share.minike.top/Article/details/82126.shtml)
-- 2026-06-29 12:08 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](http://www.share.kurohicncr.top/Article/details/0451163262.shtml)
-- 2026-06-29 12:09 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.blog.minike.top/Article/details/4184553171.shtml)
-- 2026-06-29 12:20 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.share.kurohicncr.top/Article/details/417544653697.shtml)
-- 2026-06-29 12:27 - [美联储主席提名人沃什阐述美联储政策主张](http://www.share.kurohicncr.top/Article/details/8147036756.shtml)
-- 2026-06-29 12:12 - [日经指数首次升破60000点](http://www.share.kurohicncr.top/Article/details/1288624.shtml)
-- 2026-06-29 12:19 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.kurohicncr.top/Article/details/824588520.shtml)
-- 2026-06-29 12:15 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.share.minike.top/Article/details/237357187300.shtml)
+- 2026-06-29 12:13 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/13827598.shtml)
+- 2026-06-29 12:30 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.share.kurohicncr.top/Article/details/29838.shtml)
+- 2026-06-29 12:25 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [电影总票房破140亿！五月观影热潮持续升温](http://www.blog.kurohicncr.top/Article/details/33672565370.shtml)
+- 2026-06-29 12:16 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.blog.minike.top/Article/details/052546119499.shtml)
+- 2026-06-29 12:37 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](http://www.blog.kurohicncr.top/Article/details/368686333.shtml)
+- 2026-06-29 12:33 - [特斯拉将向德国工厂注资2.5亿美元](http://www.blog.minike.top/Article/details/8639912.shtml)
+- 2026-06-29 12:24 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](http://www.share.kurohicncr.top/Article/details/332367616.shtml)
+- 2026-06-29 12:41 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.share.kurohicncr.top/Article/details/66727964253.shtml)
+- 2026-06-29 12:16 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.blog.minike.top/Article/details/8259904990.shtml)
+- 2026-06-29 12:24 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.blog.minike.top/Article/details/62453.shtml)
+- 2026-06-29 12:26 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.share.kurohicncr.top/Article/details/58268.shtml)
+- 2026-06-29 12:26 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.minike.top/Article/details/098517.shtml)
+- 2026-06-29 12:16 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.share.kurohicncr.top/Article/details/900076889.shtml)
+- 2026-06-29 12:19 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.share.kurohicncr.top/Article/details/82358922.shtml)

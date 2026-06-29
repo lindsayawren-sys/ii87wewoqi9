@@ -1,61 +1,56 @@
-# 国台办：两岸空中直航是沟通桥梁，非政治筹码
+# 遇到消费纠纷不知道去哪投诉 这些渠道你应该知道
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社北京4月22日电 (朱贺 黄欣欣)大陆方面近期再次促请台方全面恢复两岸空中客运直航正常化，民进党当局却称“实际需求没想象高”。国务院台办发言人张晗22日回应指，空中直航是沟通桥梁，不是政治筹码。 国台办例行新闻发布会当天在北京举行。大陆方面日前发布十项促进两岸交流合作的政策措施，涵盖两岸空中客运直航、赴岛内个人游试点等内容，持续受到媒体关注。 回答有关两岸空中直航的提问时
+“拒维修被啄木鸟收取500元检测费”——这则消息最近引发了不少家庭用户的共鸣。据消费者反映，家中需要维修服务时联系了某知名维修平台，结果师傅上门后什么都没修，仅仅“检测”了一下就要求支付500元的上门检测费。消费者拒绝付费后双方产生争执，后续维权过程也颇为曲折。家居维修、家电保养这类生活服务的收费标准和透明度问题，一直是消费投诉 【下载黑猫投诉客户端】的高发区域。 提到消费投诉
 
 ## 正文
 
-中新社北京4月22日电 (朱贺 黄欣欣)大陆方面近期再次促请台方全面恢复两岸空中客运直航正常化，民进党当局却称“实际需求没想象高”。
+“拒维修被啄木鸟收取500元检测费”——这则消息最近引发了不少家庭用户的共鸣。
 
-国务院台办发言人张晗22日回应指，空中直航是沟通桥梁，不是政治筹码。
+据消费者反映，家中需要维修服务时联系了某知名维修平台，结果师傅上门后什么都没修，仅仅“检测”了一下就要求支付500元的上门检测费。
 
-国台办例行新闻发布会当天在北京举行。
+消费者拒绝付费后双方产生争执，后续维权过程也颇为曲折。
 
-大陆方面日前发布十项促进两岸交流合作的政策措施，涵盖两岸空中客运直航、赴岛内个人游试点等内容，持续受到媒体关注。
+家居维修、家电保养这类生活服务的收费标准和透明度问题，一直是消费投诉 【下载黑猫投诉客户端】的高发区域。
 
-回答有关两岸空中直航的提问时，张晗援引2025年及今年一季度相关数据。
+提到消费投诉，绝大多数人的第一反应都是12315。
 
-她说，这印证两岸空中直航市场的旺盛需求和民众往来的强烈需求和意愿。
+没错，12315市场监督管理投诉举报热线确实是消费者最熟悉的官方渠道。
 
-民进党当局应正视市场需求，停止政治操弄，停止阻挠两岸人员往来，让两岸空中直航回归服务民生、促进交流的本质，还两岸同胞一条畅通、便捷、高效的空中之路。
+无论是维修服务乱收费、家电质量问题，还是其他各类消费纠纷，都可以通过12315进行投诉举报。
 
-针对大陆推动恢复上海及福建居民赴岛内个人游试点，张晗敦促民进党当局正视岛内旅游业界和民众呼声，停止政治操弄，取消针对大陆居民赴台旅游的种种不合理限制，采取务实举措，为两岸人员往来正常化创造有利条件，而不是一味以各种站不住脚的理由设卡立障，与民众为敌、挡民众获利。
+目前12315已经开通了网站、小程序、App等多种在线渠道，操作便捷。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:20 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:35 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:13 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:25 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:30 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:33 - [高雅光学公布于4月23日上午起停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:06 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:24 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:17 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:06 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:06 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:36 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:17 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:07 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:36 - [日经指数下跌0.6% 受芯片股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:29 - [新闻人物丨美国总统唐纳德·特朗普](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:35 - [美国4月CPI报告对美联储意味著什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:38 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:15 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:34 - [福州鼓岭：承载百年中美民间情谊的山间胜地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:19 - [联播+｜“中国式安全感”如何炼成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:17 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:31 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:13 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [安峰获批担任马上消费金融副总经理](http://www.blog.minike.top/Article/details/0522184580.shtml)
-- 2026-06-29 12:14 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](http://www.blog.kurohicncr.top/Article/details/729075693834.shtml)
-- 2026-06-29 12:10 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](http://www.blog.kurohicncr.top/Article/details/720152.shtml)
-- 2026-06-29 12:33 - [4月22日“农产品批发价格200指数”与昨天持平](http://www.blog.minike.top/Article/details/338499266.shtml)
-- 2026-06-29 12:11 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.minike.top/Article/details/81880240.shtml)
-- 2026-06-29 12:24 - [228件作品荟萃第四届当代陶瓷艺术展览](http://www.blog.minike.top/Article/details/9026805144.shtml)
-- 2026-06-29 12:30 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.blog.minike.top/Article/details/3695987.shtml)
-- 2026-06-29 12:26 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](http://www.share.kurohicncr.top/Article/details/736467.shtml)
-- 2026-06-29 12:10 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.share.minike.top/Article/details/823994494.shtml)
-- 2026-06-29 12:23 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.share.kurohicncr.top/Article/details/90442.shtml)
-- 2026-06-29 12:09 - [美联储主席提名人沃什阐述美联储政策主张](http://www.blog.kurohicncr.top/Article/details/670118641.shtml)
-- 2026-06-29 12:20 - [日经指数首次升破60000点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.blog.kurohicncr.top/Article/details/8968084185.shtml)
+- 2026-06-29 12:36 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](http://www.blog.minike.top/Article/details/4510015575.shtml)
+- 2026-06-29 12:21 - [习近平会见文莱王储比拉](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/73915022.shtml)
+- 2026-06-29 12:16 - [康特隆：呈请人撤回对附属公司的清盘呈请](http://www.blog.minike.top/Article/details/4565398515.shtml)
+- 2026-06-29 12:20 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [长江有色：12日锌价大涨 整体成交难有亮点](http://www.blog.kurohicncr.top/Article/details/71082895952.shtml)
+- 2026-06-29 12:24 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](http://www.blog.kurohicncr.top/Article/details/6478345.shtml)
+- 2026-06-29 12:15 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.kurohicncr.top/Article/details/53676666227.shtml)
+- 2026-06-29 12:29 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.blog.minike.top/Article/details/12356092937.shtml)
+- 2026-06-29 12:28 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.blog.kurohicncr.top/Article/details/448260573654.shtml)
+- 2026-06-29 12:26 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.kurohicncr.top/Article/details/354981529051.shtml)

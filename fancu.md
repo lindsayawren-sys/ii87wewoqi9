@@ -1,59 +1,54 @@
-# 特朗普：美伊第二轮谈判最快或于周五举行
+# 贵阳银行：有条件时可以进行中期利润分配
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。 伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！特朗普总统。”（It’s possible！ President DJT） 这一最新进展公布的前一天，这位美国总统
+5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。2025年度现金分红较上年度增加 3656.20 万元。本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经
 
 ## 正文
 
-当地时间周三，特朗普及巴基斯坦消息人士透露，有关美伊举行第二轮谈判的“好消息”最快可能在周五出炉。
+5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。
 
-伊斯兰堡方面消息称，巴方对伊朗的斡旋取得积极进展，未来“36至72小时内”重启更多和平谈判的可能性重新出现。
+在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。
 
-就这一可能的突破向特朗普求证时，他在短信中回复：“有可能！
+2025年度现金分红较上年度增加 3656.20 万元。
 
-特朗普总统。
+本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经营情况，平衡业务稳健发展与投资者长期回报，保持持续、稳定、合理的现金分红，及时与投资者分享经营成果，增强投资者获得感。
 
-”（It’s possible！
+关于中期分红，该行表示，本行牢固树立回报投资者意识，已制定新三年股东回报规划，未来将按照监管要求和导向，平衡业务稳健发展与投资者长期回报，在符合利润分配原则、保证公司正常经营和持续发展的前提下，有条件时可以进行中期利润分配，及时与投资者分享经营成果。
 
-President DJT） 这一最新进展公布的前一天，这位美国总统曾宣布，将延长当前对伊朗的停火期限，直至内部分歧明显的伊朗领导层拿出一份“统一方案”。
-
-他周二在真实社交平台发文称：“我已……指示我方军方继续实施封锁，同时在其他所有方面保持戒备与作战能力，并因此延长停火，直至他们提交方案，谈判以某种方式结束为止。
-
-” 一名巴基斯坦消息人士表示，在此后的数小时里，伊斯兰堡方面持续通过外交渠道与伊朗沟通，上述时间范围正是基于对这一斡旋进程的评估得出。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:32 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:30 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:06 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:17 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:24 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:23 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:08 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:30 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:08 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:08 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:31 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:17 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:37 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:13 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:23 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:29 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:41 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:25 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:35 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:20 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:20 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:12 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:24 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:38 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.minike.top/Article/details/699162204407.shtml)
-- 2026-06-29 12:12 - [【国际漫评】解禁](http://www.blog.kurohicncr.top/Article/details/6650593756.shtml)
-- 2026-06-29 12:24 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.minike.top/Article/details/984015.shtml)
-- 2026-06-29 12:12 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.minike.top/Article/details/79147.shtml)
-- 2026-06-29 12:10 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.minike.top/Article/details/393270158273.shtml)
-- 2026-06-29 12:24 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.share.kurohicncr.top/Article/details/061904.shtml)
-- 2026-06-29 12:28 - [美国海军部长约翰·费伦将离职](http://www.blog.minike.top/Article/details/4871237.shtml)
-- 2026-06-29 12:25 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.kurohicncr.top/Article/details/91543.shtml)
-- 2026-06-29 12:26 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.kurohicncr.top/Article/details/07776128.shtml)
-- 2026-06-29 12:29 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.kurohicncr.top/Article/details/47307.shtml)
-- 2026-06-29 12:10 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [辽宁省委书记许昆林到大商所调研](http://www.blog.minike.top/Article/details/906681183773.shtml)
-- 2026-06-29 12:19 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/446678554.shtml)
-- 2026-06-29 12:29 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.blog.kurohicncr.top/Article/details/8846473.shtml)
+- 2026-06-29 12:39 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/34255211631.shtml)
+- 2026-06-29 12:16 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.minike.top/Article/details/927462273.shtml)
+- 2026-06-29 12:18 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.minike.top/Article/details/4029763.shtml)
+- 2026-06-29 12:35 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.blog.minike.top/Article/details/989461538.shtml)
+- 2026-06-29 12:23 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.share.kurohicncr.top/Article/details/8074492.shtml)
+- 2026-06-29 12:29 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.share.kurohicncr.top/Article/details/45714.shtml)
+- 2026-06-29 12:23 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.blog.kurohicncr.top/Article/details/66690718713.shtml)
+- 2026-06-29 12:28 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.minike.top/Article/details/79963473.shtml)
+- 2026-06-29 12:21 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.blog.minike.top/Article/details/96093629.shtml)
+- 2026-06-29 12:18 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.blog.minike.top/Article/details/04622.shtml)
+- 2026-06-29 12:23 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.share.kurohicncr.top/Article/details/5074778.shtml)
+- 2026-06-29 12:13 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.blog.minike.top/Article/details/4791541822.shtml)
+- 2026-06-29 12:19 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.blog.minike.top/Article/details/677679.shtml)

@@ -1,58 +1,57 @@
-# 台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变
+# 挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变
+由挪威国家石油公司运营的北海Gullfaks油田已交付第5000船原油，突显了挪威成熟海上油田在向欧洲供应能源方面持续发挥的作用。 该公司表示，Gullfaks油田于1986年开始生产，迄今已生产约28亿桶油当量，几乎是最初估算的两倍。 该油田目前向瑞典、英国和波兰等国的炼油厂出口原油，同时也作为Snorre油田、Visund油田及附近海底开发项目的输出枢纽。 Gullfaks
 
 ## 正文
 
-发布时间：2026年04月21日 17:43 来源：中国新闻网 台湾民间智库“民主文教基金会”20日公布民调显示，近六成受访者不相信“台海若发生战事，美国会派兵保护台湾”。
+由挪威国家石油公司运营的北海Gullfaks油田已交付第5000船原油，突显了挪威成熟海上油田在向欧洲供应能源方面持续发挥的作用。
 
-中国国民党籍民意代表翁晓玲表示，有过半受访民众认为，两岸必须要交流。
+该公司表示，Gullfaks油田于1986年开始生产，迄今已生产约28亿桶油当量，几乎是最初估算的两倍。
 
-台湾中流文教基金会董事长周阳山直言，57%的台湾民众认为美军不会来“护台”。
+该油田目前向瑞典、英国和波兰等国的炼油厂出口原油，同时也作为Snorre油田、Visund油田及附近海底开发项目的输出枢纽。
 
-新党副主席李胜峰指出，有50%受访者愿意面对统一，这是很大的质变。
+Gullfaks油田生产总监贡纳尔·埃格表示：“达成5000船原油外运里程碑是对该油田持续开发长期努力的结果。
 
-媒体人张钧凯则认为，郑丽文访问大陆期间，台湾社会对和平的想象变得更宽广。
+挪威大陆架上的多个成熟油田，如Gullfaks，受益于完善的基础设施和高质量储层。
 
-台湾有舆论认为，岛内民意正发生实质性变化。
+通过有针对性的投资和持续改进，我们不断提高采收率、延长油田寿命，并确保向欧洲客户的稳定供应。
 
-(策划/制作：燕新台 君言晚 明昭言 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
+” 第5000船原油运抵瑞典哥德堡的St1炼油厂，该厂生产汽油、柴油、喷气燃料和船用燃料。
+
+挪威国家石油公司表示，原油使用载货能力约为80万桶的穿梭油轮运输。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:29 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:27 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:11 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:34 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:34 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:11 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:07 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:25 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:13 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:15 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:34 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:33 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:31 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:13 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:35 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:17 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:24 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:16 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:31 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:38 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:17 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:34 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:31 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:14 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/59782.shtml)
-- 2026-06-29 12:33 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/71193348.shtml)
-- 2026-06-29 12:18 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.share.minike.top/Article/details/131004821433.shtml)
-- 2026-06-29 12:09 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.blog.minike.top/Article/details/59442.shtml)
-- 2026-06-29 12:19 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.blog.minike.top/Article/details/0082927.shtml)
-- 2026-06-29 12:26 - [美股三大指数集体高开，布油重回100美元上方](http://www.blog.minike.top/Article/details/824150814.shtml)
-- 2026-06-29 12:12 - [美股回吐涨幅，美债收益率上行](http://www.share.minike.top/Article/details/53045287146.shtml)
-- 2026-06-29 12:24 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.share.minike.top/Article/details/546091255.shtml)
-- 2026-06-29 12:14 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.share.kurohicncr.top/Article/details/556994759.shtml)
-- 2026-06-29 12:18 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.minike.top/Article/details/229404010513.shtml)
-- 2026-06-29 12:17 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.minike.top/Article/details/474649957.shtml)
-- 2026-06-29 12:22 - [百思买CEO科里・巴里因公司多年增长疲软卸任](http://www.share.kurohicncr.top/Article/details/473442172334.shtml)
+- 2026-06-29 12:14 - [委内瑞拉代总统否认该国将成为美国“第51州”](http://www.share.kurohicncr.top/Article/details/279579152132.shtml)
+- 2026-06-29 12:25 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.share.kurohicncr.top/Article/details/451654.shtml)
+- 2026-06-29 12:19 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.share.minike.top/Article/details/85332.shtml)
+- 2026-06-29 12:35 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.blog.minike.top/Article/details/349176217.shtml)
+- 2026-06-29 12:17 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](http://www.share.kurohicncr.top/Article/details/23720.shtml)
+- 2026-06-29 12:35 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.blog.minike.top/Article/details/53007437.shtml)
+- 2026-06-29 12:34 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.blog.kurohicncr.top/Article/details/00543741941.shtml)
+- 2026-06-29 12:38 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.share.kurohicncr.top/Article/details/368047.shtml)
+- 2026-06-29 12:21 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.blog.minike.top/Article/details/502854595.shtml)
+- 2026-06-29 12:24 - [华泰期货：原油市场处于暴风雨前的平静](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.blog.kurohicncr.top/Article/details/500686887.shtml)
+- 2026-06-29 12:30 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/49648.shtml)

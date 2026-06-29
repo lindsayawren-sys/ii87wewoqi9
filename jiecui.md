@@ -1,48 +1,48 @@
-# 一见·世界地球日，看“赋能型大国”的绿色担当
+# 谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-2026年4月22日是第57个世界地球日，活动主题是“珍爱自然资源 守护美丽中国”。 “地球是人类唯一赖以生存的家园，珍爱和呵护地球是人类的唯一选择。” 作为“赋能型大国”，中国以全面绿色转型厚植发展底色，也为蓝色星球提供可持续发展的绿色能量。 策划：杜尚泽、彭俊、王斌来、薛原 制作：邝西曦、陈世涵、陈晓劲、田兴洲、王维佳 支持：自然资源部宣传教育中心
+当地时间12日，总台记者获悉，世界卫生组织总干事谭德塞表示，没有任何迹象显示汉坦病毒正出现更大规模的暴发。 （总台记者 薛婧萌） 责任编辑：刘万里 SF014
 
 ## 正文
 
-2026年4月22日是第57个世界地球日，活动主题是“珍爱自然资源 守护美丽中国”。
+当地时间12日，总台记者获悉，世界卫生组织总干事谭德塞表示，没有任何迹象显示汉坦病毒正出现更大规模的暴发。
 
-“地球是人类唯一赖以生存的家园，珍爱和呵护地球是人类的唯一选择。
-
-” 作为“赋能型大国”，中国以全面绿色转型厚植发展底色，也为蓝色星球提供可持续发展的绿色能量。
-
-策划：杜尚泽、彭俊、王斌来、薛原 制作：邝西曦、陈世涵、陈晓劲、田兴洲、王维佳 支持：自然资源部宣传教育中心
+（总台记者 薛婧萌） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:33 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:10 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:16 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:25 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:34 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:20 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:09 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:32 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:26 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:30 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:38 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:33 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:21 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:21 - [贵阳银行：有条件时可以进行中期利润分配](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:15 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:26 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:37 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:20 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:15 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:41 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:25 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:31 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:20 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [从三组卫星遥感图看生态保护成效](http://www.blog.kurohicncr.top/Article/details/583135499.shtml)
-- 2026-06-29 12:28 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.blog.minike.top/Article/details/592170096602.shtml)
-- 2026-06-29 12:20 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.share.minike.top/Article/details/512885.shtml)
-- 2026-06-29 12:33 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.kurohicncr.top/Article/details/9144485749.shtml)
-- 2026-06-29 12:06 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.kurohicncr.top/Article/details/8584005.shtml)
-- 2026-06-29 12:19 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.share.kurohicncr.top/Article/details/5036047946.shtml)
-- 2026-06-29 12:16 - [瑞典大瀑布电力退出苏格兰浮式风电项目](http://www.blog.kurohicncr.top/Article/details/64170.shtml)
-- 2026-06-29 12:13 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/7287617341.shtml)
-- 2026-06-29 12:24 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.blog.minike.top/Article/details/16945.shtml)
-- 2026-06-29 12:15 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.share.kurohicncr.top/Article/details/708402132.shtml)
-- 2026-06-29 12:20 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.blog.minike.top/Article/details/8929498882.shtml)
-- 2026-06-29 12:08 - [【国际漫评】解禁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.share.minike.top/Article/details/46002432149.shtml)
-- 2026-06-29 12:18 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.share.minike.top/Article/details/25924656.shtml)
+- 2026-06-29 12:26 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.blog.minike.top/Article/details/0283334942.shtml)
+- 2026-06-29 12:21 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.kurohicncr.top/Article/details/5961561.shtml)
+- 2026-06-29 12:29 - [一见·中美两个“大块头”如何相处？](http://www.share.kurohicncr.top/Article/details/97835.shtml)
+- 2026-06-29 12:39 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/666400754.shtml)
+- 2026-06-29 12:38 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](http://www.share.minike.top/Article/details/144234223.shtml)
+- 2026-06-29 12:28 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.share.kurohicncr.top/Article/details/77469.shtml)
+- 2026-06-29 12:17 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.share.minike.top/Article/details/9954951.shtml)
+- 2026-06-29 12:20 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/902901124.shtml)
+- 2026-06-29 12:31 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/518944503.shtml)
+- 2026-06-29 12:35 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.blog.minike.top/Article/details/92038677.shtml)
+- 2026-06-29 12:13 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.kurohicncr.top/Article/details/705868487.shtml)

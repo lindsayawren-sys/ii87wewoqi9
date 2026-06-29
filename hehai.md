@@ -1,59 +1,52 @@
-# 瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点
+# 外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社上海4月22日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)22日发表机构观点称，维持对中国股票“具吸引力”的总体观点。 据CIO分析，最新数据显示，中国经济增长持续超预期，出口和工业生产引领复苏，内需亦有所改善。虽然未来几个季度的增长动能可能趋于平稳，但凭借充足的战略储备、多元化能源结构和灵活的政策工具，中国在应对石油价格冲击方面具备更强能力。 CIO指出，尽管
+中新网北京5月12日电 (记者 郭超凯)中国外交部发言人郭嘉昆12日主持例行记者会。会上有记者就反中乱港分子黎智英案相关问题提问。 郭嘉昆表示，黎智英是反中乱港事件的主要策划者和参与者，香港事务属于中国内政，中国中央政府坚定支持香港司法机关依法履职尽责。(完)
 
 ## 正文
 
-中新社上海4月22日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)22日发表机构观点称，维持对中国股票“具吸引力”的总体观点。
+中新网北京5月12日电 (记者 郭超凯)中国外交部发言人郭嘉昆12日主持例行记者会。
 
-据CIO分析，最新数据显示，中国经济增长持续超预期，出口和工业生产引领复苏，内需亦有所改善。
+会上有记者就反中乱港分子黎智英案相关问题提问。
 
-虽然未来几个季度的增长动能可能趋于平稳，但凭借充足的战略储备、多元化能源结构和灵活的政策工具，中国在应对石油价格冲击方面具备更强能力。
+郭嘉昆表示，黎智英是反中乱港事件的主要策划者和参与者，香港事务属于中国内政，中国中央政府坚定支持香港司法机关依法履职尽责。
 
-CIO指出，尽管盈利预期乐观，但中国股票市场的反弹幅度仍落后于全球其他市场，当前市场情绪仍处于逐步修复阶段。
-
-“我们维持对中国股票‘具吸引力’的总体观点，并将中国科技板块评为‘最具吸引力’，该板块仍是中国股市长期回报的核心驱动力。
-
-” 除科技板块之外，CIO还继续看好中国股市的医疗保健、电力设备和工业材料板块，因为创新、电气化、电网投资、能源转型支出及有利的供需动态为这些板块提供了支撑。
-
-总体而言，CIO对除日本以外的亚洲股票市场持乐观态度，认为该地区股票估值具有吸引力。
-
-鉴于地缘政治风险仍存，CIO建议投资者在亚洲市场进行多元化配置，以有效管理风险并把握区域增长潜力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:16 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:28 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:14 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:20 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:24 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:09 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:10 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:26 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:29 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:21 - [300883，连亏三年后，一季度又亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:29 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:17 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:29 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:21 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:39 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:35 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:21 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:30 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:20 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:16 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:25 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:40 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:18 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:35 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:38 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:24 - [中美经贸磋商在韩国开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.blog.kurohicncr.top/Article/details/29662609.shtml)
-- 2026-06-29 12:07 - [百思买任命资深人士为CEO](http://www.blog.kurohicncr.top/Article/details/38868.shtml)
-- 2026-06-29 12:07 - [辽宁海城：梨花成海 粉樱作伴](http://www.blog.kurohicncr.top/Article/details/249290.shtml)
-- 2026-06-29 12:09 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.blog.kurohicncr.top/Article/details/732037.shtml)
-- 2026-06-29 12:14 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.kurohicncr.top/Article/details/082346.shtml)
-- 2026-06-29 12:20 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.minike.top/Article/details/86024.shtml)
-- 2026-06-29 12:35 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.kurohicncr.top/Article/details/87244665103.shtml)
-- 2026-06-29 12:07 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](http://www.blog.kurohicncr.top/Article/details/027913523.shtml)
-- 2026-06-29 12:12 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.blog.minike.top/Article/details/9185664911.shtml)
-- 2026-06-29 12:21 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.blog.kurohicncr.top/Article/details/37465644117.shtml)
-- 2026-06-29 12:10 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.blog.kurohicncr.top/Article/details/0995539.shtml)
-- 2026-06-29 12:35 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.share.kurohicncr.top/Article/details/033992.shtml)
+- 2026-06-29 12:36 - [美国4月份通胀飙升后 金价小幅走高](http://www.blog.kurohicncr.top/Article/details/738864711.shtml)
+- 2026-06-29 12:12 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.share.kurohicncr.top/Article/details/009621703.shtml)
+- 2026-06-29 12:22 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.share.kurohicncr.top/Article/details/3685871016.shtml)
+- 2026-06-29 12:39 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.share.minike.top/Article/details/8859637360.shtml)
+- 2026-06-29 12:21 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.share.minike.top/Article/details/902365135557.shtml)
+- 2026-06-29 12:17 - [中央网信办就规范短视频内容标注答记者问](http://www.share.minike.top/Article/details/890561476680.shtml)
+- 2026-06-29 12:32 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.blog.minike.top/Article/details/574373139218.shtml)
+- 2026-06-29 12:18 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](http://www.share.kurohicncr.top/Article/details/059499352.shtml)
+- 2026-06-29 12:40 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](http://www.share.minike.top/Article/details/68265.shtml)
+- 2026-06-29 12:37 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.blog.kurohicncr.top/Article/details/06967045745.shtml)
+- 2026-06-29 12:21 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](http://www.blog.minike.top/Article/details/179102.shtml)
+- 2026-06-29 12:35 - [日经指数下跌0.6% 受芯片股拖累](http://www.blog.minike.top/Article/details/609265082.shtml)
+- 2026-06-29 12:35 - [新闻人物丨美国总统唐纳德·特朗普](http://www.share.kurohicncr.top/Article/details/69319876923.shtml)
+- 2026-06-29 12:33 - [美国4月CPI报告对美联储意味著什么](http://www.blog.minike.top/Article/details/0231132.shtml)
+- 2026-06-29 12:24 - [酒价内参5月13日价格发布：古20下跌6元](https://github.com/lisacumin64-arch)

@@ -1,61 +1,56 @@
-# 西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式
+# 美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社西安4月21日电 (记者 阿琳娜)记者21日从陕西省考古研究院获悉，考古人员在陕西蓝田杨家沟遗址发现目前已公布墓葬数量最多的客省庄文化遗存，其中包括多座“灰坑葬”，即将人埋葬于灰坑中，且多无随葬品。 杨家沟遗址位于陕西省蓝田县杨家沟村西的台地上。初步调查得知，该遗址面积约15万平方米。经发掘和初步整理，共发现客省庄文化遗迹170个，其中灰坑118个、房址8座、“灰坑葬”7
+周一，得克萨斯州总检察长肯·帕克斯顿对奈飞公司提起诉讼，指控这家流媒体公司未经同意收集儿童及其他消费者的数据，从而对其进行监视，并刻意设计其平台以诱发成瘾。 得克萨斯州指出，多年来，奈飞一直向消费者虚假宣称其不收集或共享用户数据，而实际上却追踪并向商业数据经纪商及广告技术公司出售观众的习惯和偏好，每年从中获利数十亿美元。 这家总部位于加利福尼亚州洛斯加托斯的公司还被指控暗中使用
 
 ## 正文
 
-中新社西安4月21日电 (记者 阿琳娜)记者21日从陕西省考古研究院获悉，考古人员在陕西蓝田杨家沟遗址发现目前已公布墓葬数量最多的客省庄文化遗存，其中包括多座“灰坑葬”，即将人埋葬于灰坑中，且多无随葬品。
+周一，得克萨斯州总检察长肯·帕克斯顿对奈飞公司提起诉讼，指控这家流媒体公司未经同意收集儿童及其他消费者的数据，从而对其进行监视，并刻意设计其平台以诱发成瘾。
 
-杨家沟遗址位于陕西省蓝田县杨家沟村西的台地上。
+得克萨斯州指出，多年来，奈飞一直向消费者虚假宣称其不收集或共享用户数据，而实际上却追踪并向商业数据经纪商及广告技术公司出售观众的习惯和偏好，每年从中获利数十亿美元。
 
-初步调查得知，该遗址面积约15万平方米。
+这家总部位于加利福尼亚州洛斯加托斯的公司还被指控暗中使用“暗黑模式”来留住用户，包括当一部剧集结束时自动播放新剧集的功能。
 
-经发掘和初步整理，共发现客省庄文化遗迹170个，其中灰坑118个、房址8座、“灰坑葬”7个、陶窑3座、墓葬33座、沟1条。
+奈飞发言人表示，公司计划在法庭上对这些指控作出回应。
 
-“从目前的发掘和研究情况看，‘灰坑葬’也是一种墓葬形式，在距今七八千年前的陕西关中地区已有发现，在客省庄文化遗址中广泛分布。
+“我们尊重伟大的得克萨斯州及帕克斯顿总检察长，但此项诉讼缺乏依据，且基于不准确和被歪曲的信息，”该发言人在一份声明中表示。
 
-”陕西省考古研究院副研究员郭小宁介绍，此次发现的“灰坑葬”，一般人骨位于灰坑底部近坑壁处或在灰坑中部近坑壁处，墓主基本为成人，多为单人墓葬，也有二人合葬，均为屈肢葬。
+“奈飞高度重视会员隐私，并遵守我们在全球各地运营时适用的隐私和数据保护法律。
 
-此次发现的墓葬均为长方形竖穴土坑墓，规模较小，为单人葬，无随葬品，多是仰身直肢葬，少量为侧身屈肢。
+” 许多公司，包括社交媒体以及其他在线业务强大的企业，都成为诉讼的目标，被指控暗中追踪用户并将所得数据出售给第三方，而这些第三方则利用这些数据进行广告投放。
 
-目前已发掘区域的墓葬分为四个区，各区墓葬数量不一样，呈一定规律分布。
+得克萨斯州的起诉书援引了奈飞联合创始人兼董事长里德·哈斯廷斯2020年的言论：“我们不收集任何数据。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:28 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:15 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:14 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:10 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:11 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:10 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:08 - [金埔园林2025年度归母净利润亏损约2.41亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:09 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:08 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:30 - [特朗普：美伊第二轮谈判最快或于周五举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:30 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:26 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:13 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:31 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:40 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:40 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:17 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:36 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:39 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:29 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:16 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:31 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:16 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:19 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](http://www.blog.minike.top/Article/details/099553.shtml)
-- 2026-06-29 12:15 - [美联储主席提名人沃什阐述美联储政策主张](http://www.share.minike.top/Article/details/678922603.shtml)
-- 2026-06-29 12:33 - [日经指数首次升破60000点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.minike.top/Article/details/7837040245.shtml)
-- 2026-06-29 12:21 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.blog.minike.top/Article/details/6480151.shtml)
-- 2026-06-29 12:22 - [从三组卫星遥感图看生态保护成效](http://www.share.minike.top/Article/details/00403163.shtml)
-- 2026-06-29 12:20 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.share.minike.top/Article/details/6350781.shtml)
-- 2026-06-29 12:17 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.blog.kurohicncr.top/Article/details/7107460.shtml)
-- 2026-06-29 12:20 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](http://www.share.kurohicncr.top/Article/details/6902943930.shtml)
-- 2026-06-29 12:25 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/975796628125.shtml)
-- 2026-06-29 12:21 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](http://www.share.minike.top/Article/details/82276.shtml)
-- 2026-06-29 12:10 - [瑞典大瀑布电力退出苏格兰浮式风电项目](http://www.blog.minike.top/Article/details/28822759.shtml)
-- 2026-06-29 12:17 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/802448688.shtml)
-- 2026-06-29 12:07 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.share.minike.top/Article/details/66966.shtml)
+- 2026-06-29 12:38 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.share.minike.top/Article/details/38004684.shtml)
+- 2026-06-29 12:26 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.share.minike.top/Article/details/51372.shtml)
+- 2026-06-29 12:37 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.blog.minike.top/Article/details/839263.shtml)
+- 2026-06-29 12:17 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.share.kurohicncr.top/Article/details/300079.shtml)
+- 2026-06-29 12:31 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.blog.kurohicncr.top/Article/details/105298169.shtml)
+- 2026-06-29 12:24 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.blog.kurohicncr.top/Article/details/85366523.shtml)
+- 2026-06-29 12:17 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.minike.top/Article/details/859807.shtml)
+- 2026-06-29 12:32 - [2026基金投资，这款APP对新手特别友好！值得拥有！](http://www.blog.kurohicncr.top/Article/details/90339.shtml)
+- 2026-06-29 12:41 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.blog.kurohicncr.top/Article/details/39835.shtml)
+- 2026-06-29 12:13 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.blog.minike.top/Article/details/3604557.shtml)
+- 2026-06-29 12:31 - [一见·中美两个“大块头”如何相处？](http://www.blog.minike.top/Article/details/774528422.shtml)
+- 2026-06-29 12:32 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/7426611.shtml)
+- 2026-06-29 12:24 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](http://www.share.minike.top/Article/details/9626212.shtml)
+- 2026-06-29 12:28 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.blog.minike.top/Article/details/833752886.shtml)
+- 2026-06-29 12:25 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](http://www.blog.minike.top/Article/details/5740072.shtml)

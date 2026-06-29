@@ -1,43 +1,43 @@
-# 吉林高新技术产业开发区党工委书记张守华接受审查调查
+# 习近平会见文莱王储比拉
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据吉林省纪委监委消息：吉林高新技术产业开发区党工委书记张守华涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
+发布时间：2026年05月12日 22:07 来源：央视网 责任编辑：【李太源】
 
 ## 正文
 
-中新网4月22日电 据吉林省纪委监委消息：吉林高新技术产业开发区党工委书记张守华涉嫌严重违纪违法，主动向组织交代问题，目前正接受吉林省纪委监委纪律审查和监察调查。
+发布时间：2026年05月12日 22:07 来源：央视网 责任编辑：【李太源】
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:32 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:20 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:18 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:35 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:27 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:24 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:28 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:32 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:17 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:25 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:27 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:19 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:21 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:35 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:36 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:19 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:39 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:34 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:18 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:33 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:12 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.kurohicncr.top/Article/details/0924789411.shtml)
-- 2026-06-29 12:21 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.blog.kurohicncr.top/Article/details/9422939058.shtml)
-- 2026-06-29 12:13 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.share.minike.top/Article/details/353414123615.shtml)
-- 2026-06-29 12:21 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.minike.top/Article/details/609749606131.shtml)
-- 2026-06-29 12:09 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.share.kurohicncr.top/Article/details/322847.shtml)
-- 2026-06-29 12:22 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/219731393183.shtml)
-- 2026-06-29 12:25 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.kurohicncr.top/Article/details/9212605823.shtml)
-- 2026-06-29 12:35 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.share.minike.top/Article/details/05105509.shtml)
-- 2026-06-29 12:14 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.share.minike.top/Article/details/4222956024.shtml)
-- 2026-06-29 12:20 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.kurohicncr.top/Article/details/793458.shtml)
-- 2026-06-29 12:28 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.share.minike.top/Article/details/677149358.shtml)
-- 2026-06-29 12:15 - [崖沙燕“如约”重返永定河](http://www.blog.kurohicncr.top/Article/details/46894232285.shtml)
-- 2026-06-29 12:19 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/45535.shtml)
-- 2026-06-29 12:27 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.blog.kurohicncr.top/Article/details/0006891404.shtml)
+- 2026-06-29 12:28 - [南方人是怎么爱上北方奶茶的？](http://www.share.kurohicncr.top/Article/details/1965808.shtml)
+- 2026-06-29 12:32 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.share.minike.top/Article/details/020542683335.shtml)
+- 2026-06-29 12:13 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.minike.top/Article/details/135780139.shtml)
+- 2026-06-29 12:20 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.share.minike.top/Article/details/743200.shtml)
+- 2026-06-29 12:25 - [摩根大通将对投行业务高层进行改组](http://www.blog.minike.top/Article/details/62561050104.shtml)
+- 2026-06-29 12:36 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.blog.minike.top/Article/details/2255624.shtml)
+- 2026-06-29 12:21 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.share.kurohicncr.top/Article/details/683902.shtml)
+- 2026-06-29 12:23 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.blog.kurohicncr.top/Article/details/03426.shtml)
+- 2026-06-29 12:27 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.minike.top/Article/details/58638863842.shtml)
+- 2026-06-29 12:31 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.blog.kurohicncr.top/Article/details/169726549727.shtml)
+- 2026-06-29 12:34 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.blog.minike.top/Article/details/12153.shtml)

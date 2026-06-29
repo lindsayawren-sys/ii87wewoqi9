@@ -1,56 +1,53 @@
-# 为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元
+# 日经指数下跌0.6% 受芯片股拖累
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-主力资金持续涌入电子板块！4月22日截至发稿，电子板块获主力资金净流入超103亿元，拉长时间来看，近5日、近20日分别吸金772亿元、2155亿元，板块吸金额持续高居31个申万一级行业首位！ 热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅盘中拉升1.92%，冲击日线5连阳，近12个交易日中，有10个交易日上涨，距离历史高点（0.746）仅一步之遥！
+日本股市早盘走低，芯片股的下跌抵消了汽车制造商和贸易公司上涨的影响。罗姆半导体集团下跌5.2%，Lasertec下跌4.3%，而丰田汽车上涨3.0%，三菱商事上涨4.4%。更广泛的市场指数东证指数上涨0.3%，至3885.30点。投资者正密切关注中东局势的发展以及日本企业的盈利情况。日经指数下跌0.6%，至62360.65点。责任编辑：王永生
 
 ## 正文
 
-主力资金持续涌入电子板块！
+日本股市早盘走低，芯片股的下跌抵消了汽车制造商和贸易公司上涨的影响。
 
-4月22日截至发稿，电子板块获主力资金净流入超103亿元，拉长时间来看，近5日、近20日分别吸金772亿元、2155亿元，板块吸金额持续高居31个申万一级行业首位！
+罗姆半导体集团下跌5.2%，Lasertec下跌4.3%，而丰田汽车上涨3.0%，三菱商事上涨4.4%。
 
-热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅盘中拉升1.92%，冲击日线5连阳，近12个交易日中，有10个交易日上涨，距离历史高点（0.746）仅一步之遥！
+更广泛的市场指数东证指数上涨0.3%，至3885.30点。
 
-值得一提的是，该ETF昨天单日吸金723万元，反映资金看好电子板块后市表现，积极进场布局！
+投资者正密切关注中东局势的发展以及日本企业的盈利情况。
 
-成份股方面，三安光电涨停，东山精密涨近6%，鹏鼎控股涨超4%，领益智造、北方华创涨逾3%。
+日经指数下跌0.6%，至62360.65点。
 
-为何主力资金密集涌入电子板块？
-
-可能有两方面的原因：一方面是AI算力驱动的硬件价值重估，带来实打实的“量价齐升”。
-
-以PCB（印制电路板）为例，英伟达新架构使得AI服务器单机柜的PCB用量增长2-3倍，价值量提升4-5倍。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [波音季度亏损收窄，股价早盘上涨4.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:20 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:09 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:29 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:16 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:14 - [美国多家航空公司面临燃油压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:07 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:08 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:17 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:28 - [美国国家安全局被曝使用Anthropic受限模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:20 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:23 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:33 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:38 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:36 - [88匹进口蒙古马为中国内地演艺市场发展添助力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:38 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:13 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:35 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:28 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:14 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:30 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](http://www.share.kurohicncr.top/Article/details/2171205257.shtml)
-- 2026-06-29 12:06 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](http://www.share.kurohicncr.top/Article/details/416017998667.shtml)
-- 2026-06-29 12:29 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [美联储主席提名人沃什阐述美联储政策主张](http://www.blog.kurohicncr.top/Article/details/05771127.shtml)
-- 2026-06-29 12:28 - [日经指数首次升破60000点](http://www.blog.kurohicncr.top/Article/details/7617261018.shtml)
-- 2026-06-29 12:15 - [俄军总参谋长：已完全控制卢甘斯克地区](http://www.share.kurohicncr.top/Article/details/11554849999.shtml)
-- 2026-06-29 12:17 - [鸡煲带火祛湿养生，体内湿气到底是啥？](http://www.share.minike.top/Article/details/191725457.shtml)
-- 2026-06-29 12:24 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](http://www.share.kurohicncr.top/Article/details/08004275.shtml)
-- 2026-06-29 12:19 - [从三组卫星遥感图看生态保护成效](http://www.share.minike.top/Article/details/36215.shtml)
-- 2026-06-29 12:22 - [东方证券“吞并”上海证券，券业整合进入深水区](http://www.blog.minike.top/Article/details/48259.shtml)
-- 2026-06-29 12:27 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](http://www.share.minike.top/Article/details/735378089.shtml)
-- 2026-06-29 12:33 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/65629714526.shtml)
+- 2026-06-29 12:28 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](http://www.blog.minike.top/Article/details/077677055360.shtml)
+- 2026-06-29 12:35 - [特斯拉将向德国工厂注资2.5亿美元](http://www.share.kurohicncr.top/Article/details/23198052.shtml)
+- 2026-06-29 12:40 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](http://www.blog.minike.top/Article/details/847418892.shtml)
+- 2026-06-29 12:24 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](http://www.blog.minike.top/Article/details/555630405035.shtml)
+- 2026-06-29 12:37 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](http://www.share.minike.top/Article/details/79175458042.shtml)
+- 2026-06-29 12:21 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](http://www.share.minike.top/Article/details/08171764.shtml)
+- 2026-06-29 12:33 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](http://www.blog.minike.top/Article/details/14676.shtml)
+- 2026-06-29 12:17 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](http://www.blog.kurohicncr.top/Article/details/494180771.shtml)
+- 2026-06-29 12:19 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](http://www.share.minike.top/Article/details/256251.shtml)
+- 2026-06-29 12:29 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](http://www.blog.minike.top/Article/details/23387601.shtml)
+- 2026-06-29 12:41 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](http://www.blog.kurohicncr.top/Article/details/094184415.shtml)
+- 2026-06-29 12:37 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](http://www.blog.kurohicncr.top/Article/details/73699085.shtml)
+- 2026-06-29 12:21 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](http://www.share.minike.top/Article/details/47644003957.shtml)
+- 2026-06-29 12:27 - [一见·中美两个“大块头”如何相处？](https://github.com/lisacumin64-arch)

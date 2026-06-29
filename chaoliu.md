@@ -1,57 +1,60 @@
-# 第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办
+# 博时宏观观点：关注特朗普访华及中美通胀数据
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社亚的斯亚贝巴4月22日电 (记者 孙翔)第九届中国国际进口博览会(进博会)推介会暨虹桥国际经济论坛(虹桥论坛)咨商会21日在埃塞俄比亚首都亚的斯亚贝巴的非洲联盟(非盟)总部举行。来自非盟、联合国非洲经济委员会、相关企业及商协会的80余名代表参加活动。中国驻非盟使团团长蒋烽致辞时表示，近年来，中国稳步扩大非洲输华产品零关税待遇范围，提高贸易便利化水平。进博会和虹桥论坛已成为
+海外方面，美伊战争烈度趋弱、中美元首拟见面，地缘冲突对投资情绪的负面压制逐步走弱；美国4月新增非农就业超预期，整体呈现韧性，美元流动性偏宽，全球风偏上行。 国内方面，亚洲电子产业链贸易走强叠加去年对等关税低基数，4月中国出口大超预期。海外风险偏好改善叠加国内经济韧性推动权益市场情绪向上，科创成长占优，债市偏弱。 市场策略方面，债券方面，上周资金面整体平稳，超长债发行结果偏弱，股
 
 ## 正文
 
-中新社亚的斯亚贝巴4月22日电 (记者 孙翔)第九届中国国际进口博览会(进博会)推介会暨虹桥国际经济论坛(虹桥论坛)咨商会21日在埃塞俄比亚首都亚的斯亚贝巴的非洲联盟(非盟)总部举行。
+海外方面，美伊战争烈度趋弱、中美元首拟见面，地缘冲突对投资情绪的负面压制逐步走弱；美国4月新增非农就业超预期，整体呈现韧性，美元流动性偏宽，全球风偏上行。
 
-来自非盟、联合国非洲经济委员会、相关企业及商协会的80余名代表参加活动。
+国内方面，亚洲电子产业链贸易走强叠加去年对等关税低基数，4月中国出口大超预期。
 
-中国驻非盟使团团长蒋烽致辞时表示，近年来，中国稳步扩大非洲输华产品零关税待遇范围，提高贸易便利化水平。
+海外风险偏好改善叠加国内经济韧性推动权益市场情绪向上，科创成长占优，债市偏弱。
 
-进博会和虹桥论坛已成为连接非洲国家与中国市场的重要桥梁。
+市场策略方面，债券方面，上周资金面整体平稳，超长债发行结果偏弱，股市走强，债市偏弱震荡。
 
-希望中非企业家充分利用两个平台和零关税措施，深化贸易、投资、产能、技术等领域合作，实现共赢发展。
+近期资金面从前期的极度宽松逐步回归均衡，央行回笼中长期流动性仅为约束资金价格下限，并未改变宽松基调，预计短期资金利率或维持低位平稳。
 
-中国驻埃塞俄比亚大使馆公参刘晓光说，欢迎更多的埃塞俄比亚朋友参加进博会，抓住中国高水平开放和零关税政策带来的机遇，共同谱写中埃经贸合作新篇章。
+偏弱的传统基本面和保险买盘介入下长端及超长端利率上行幅度有限，受滞胀预期冲击调整后可考虑适当参与波段交易，但下行空间打开还需等待AI部分出现下行信号带来风偏的明显下行。
 
-与会嘉宾表示，进博会和虹桥论坛为非洲国家和企业共享中国开放红利、助力中非携手推进现代化提供了重要平台。
+A股方面，节后首周（5月6日-8日）市场情绪继续向上修复，目前多数情绪指标进入偏高位置，但均尚未至顶部。
 
-与会代表就完善第九届虹桥论坛主题议题设计提出建议，并表示期待进一步加强合作。
+往后看5月将陆续迎来多个重要验证点，包括地缘局势、中美外交进展、凯文·沃什（Warsh）上任对政策更清晰的展望、宏观经济（尤其是地产能否打破季节性），整体来看风险偏好仍有提振基础。
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:13 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:23 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:07 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:10 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:26 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:28 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:06 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:23 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:22 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:07 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:34 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:13 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:17 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:14 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:32 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:27 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:35 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:30 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:26 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:25 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:14 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:29 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:19 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:22 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.share.minike.top/Article/details/981464708.shtml)
-- 2026-06-29 12:34 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.share.minike.top/Article/details/963411760694.shtml)
-- 2026-06-29 12:30 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.minike.top/Article/details/8150145.shtml)
-- 2026-06-29 12:17 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.minike.top/Article/details/32156970972.shtml)
-- 2026-06-29 12:18 - [崖沙燕“如约”重返永定河](http://www.blog.minike.top/Article/details/9357081837.shtml)
-- 2026-06-29 12:18 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.share.minike.top/Article/details/846902888.shtml)
-- 2026-06-29 12:35 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.minike.top/Article/details/532934003971.shtml)
-- 2026-06-29 12:12 - [603169、000909、603363、000892，被证监会立案！](http://www.blog.minike.top/Article/details/56336027106.shtml)
-- 2026-06-29 12:31 - [以军称黎巴嫩真主党“违反停火协议”](http://www.share.kurohicncr.top/Article/details/827163641.shtml)
-- 2026-06-29 12:27 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.share.kurohicncr.top/Article/details/064942974093.shtml)
-- 2026-06-29 12:21 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.blog.minike.top/Article/details/34712.shtml)
-- 2026-06-29 12:06 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.share.kurohicncr.top/Article/details/13117577.shtml)
-- 2026-06-29 12:34 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.blog.kurohicncr.top/Article/details/83882699707.shtml)
-- 2026-06-29 12:08 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.minike.top/Article/details/67465.shtml)
+- 2026-06-29 12:23 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.blog.minike.top/Article/details/009415413.shtml)
+- 2026-06-29 12:38 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.share.kurohicncr.top/Article/details/47734212884.shtml)
+- 2026-06-29 12:33 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.blog.minike.top/Article/details/93119978522.shtml)
+- 2026-06-29 12:15 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.blog.minike.top/Article/details/435149211.shtml)
+- 2026-06-29 12:30 - [谷歌深化布局印度AI基础设施热潮](http://www.blog.minike.top/Article/details/34027.shtml)
+- 2026-06-29 12:16 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.share.minike.top/Article/details/6848212094.shtml)
+- 2026-06-29 12:31 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.blog.kurohicncr.top/Article/details/71539974.shtml)
+- 2026-06-29 12:25 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.share.kurohicncr.top/Article/details/0447839.shtml)
+- 2026-06-29 12:14 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.kurohicncr.top/Article/details/701796611.shtml)
+- 2026-06-29 12:39 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.minike.top/Article/details/97248948788.shtml)
+- 2026-06-29 12:37 - [白银直线涨超6%，黄金翻红重回4730美元](http://www.share.kurohicncr.top/Article/details/825670.shtml)
+- 2026-06-29 12:37 - [RYOEX:金价反弹站上四千七百](http://www.blog.kurohicncr.top/Article/details/6337299181.shtml)
+- 2026-06-29 12:20 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lisacumin64-arch)

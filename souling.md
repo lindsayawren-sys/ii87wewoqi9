@@ -1,58 +1,56 @@
-# “春之声·歌游内蒙古”专场文艺演出在尼泊尔举行
+# 陕西宝鸡：道岔之下绽芳华
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网加德满都4月22日电(记者 崔楠)“春之声·歌游内蒙古”专场文艺演出当地时间21日晚在尼泊尔首都加德满都举行。 当晚，可容纳700余人的尼泊尔军官俱乐部座无虚席。 尼泊尔联邦院前主席蒂米尔西纳、中国驻尼泊尔大使张茂明出席活动并致辞。蒂米尔西纳表示，尼方愿同中方深化经贸合作和人文交流，推动两国关系迈上新台阶。张茂明表示，文明互学互鉴、人民往来交流是赓续中尼友好的关键，中方期
+中新网陕西宝鸡5月12日电 题：陕西宝鸡：道岔之下绽芳华 作者 张远 孙婕婷 在位于陕西省宝鸡市的中铁宝桥集团宝鸡厂区的生产车间内，辙叉浇铸炉前火花四溅，映着张莉玫瑰金色的眼镜愈发光亮。作为获得“全国劳动模范”称号的高级工程师，自2003年参加工作起，她便开启了与道岔的不解之缘。 刚进厂时，张莉25岁。道岔作为铁路线路“咽喉”，设备状态直接关乎行车命脉。彼时，道岔国产化技术正处
 
 ## 正文
 
-中新网加德满都4月22日电(记者 崔楠)“春之声·歌游内蒙古”专场文艺演出当地时间21日晚在尼泊尔首都加德满都举行。
+中新网陕西宝鸡5月12日电 题：陕西宝鸡：道岔之下绽芳华 作者 张远 孙婕婷 在位于陕西省宝鸡市的中铁宝桥集团宝鸡厂区的生产车间内，辙叉浇铸炉前火花四溅，映着张莉玫瑰金色的眼镜愈发光亮。
 
-当晚，可容纳700余人的尼泊尔军官俱乐部座无虚席。
+作为获得“全国劳动模范”称号的高级工程师，自2003年参加工作起，她便开启了与道岔的不解之缘。
 
-尼泊尔联邦院前主席蒂米尔西纳、中国驻尼泊尔大使张茂明出席活动并致辞。
+刚进厂时，张莉25岁。
 
-蒂米尔西纳表示，尼方愿同中方深化经贸合作和人文交流，推动两国关系迈上新台阶。
+道岔作为铁路线路“咽喉”，设备状态直接关乎行车命脉。
 
-张茂明表示，文明互学互鉴、人民往来交流是赓续中尼友好的关键，中方期待同尼方携手努力，打造中尼命运共同体。
+彼时，道岔国产化技术正处于攻坚期，国内首组侧向时速80公里60kg/m—18号单开道岔研制项目在中铁宝桥启动。
 
-演出中，来自内蒙古艺术剧院的艺术家们为尼泊尔观众带来歌曲、舞蹈、呼麦、马头琴演奏等13个富有草原风情的节目。
+实习期刚结束，张莉便被委任为项目负责人，留给她的设计时间仅有两个月。
 
-临近尾声时，4名内蒙古艺术家还用尼语演唱尼泊尔家喻户晓的民谣《木棉花开》，引发观众自发跟唱，现场掌声不断。
+“那时候也是胆子大，啥活都敢接。
 
-来自加德满都附近一座寺院的僧侣宁玛·林奇在观看呼麦表演时，一边认真聆听，一边跟着模仿口型发声。
+”提起那段岁月，张莉忍不住感慨。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:34 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:16 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:12 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:29 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:16 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:29 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:33 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:08 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:22 - [库克时代落幕，苹果新帅面临AI关键战役](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:12 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:09 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:16 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:17 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:14 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:31 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:26 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:22 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:23 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:14 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:12 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:13 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:21 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.blog.minike.top/Article/details/3594485866.shtml)
-- 2026-06-29 12:13 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.blog.minike.top/Article/details/428693492240.shtml)
-- 2026-06-29 12:15 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.blog.minike.top/Article/details/10492.shtml)
-- 2026-06-29 12:32 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.kurohicncr.top/Article/details/25844593.shtml)
-- 2026-06-29 12:22 - [崖沙燕“如约”重返永定河](http://www.share.minike.top/Article/details/54389045159.shtml)
-- 2026-06-29 12:21 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.minike.top/Article/details/176123.shtml)
-- 2026-06-29 12:08 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.minike.top/Article/details/61764.shtml)
-- 2026-06-29 12:12 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.minike.top/Article/details/52483182916.shtml)
-- 2026-06-29 12:15 - [603169、000909、603363、000892，被证监会立案！](http://www.share.minike.top/Article/details/44314775834.shtml)
-- 2026-06-29 12:32 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [手机成新农具，物流通万家！乡村消费早已不一样](http://www.share.kurohicncr.top/Article/details/87679.shtml)
+- 2026-06-29 12:17 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.share.minike.top/Article/details/90995.shtml)
+- 2026-06-29 12:13 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.blog.minike.top/Article/details/833046980487.shtml)
+- 2026-06-29 12:26 - [摩根大通将对投行业务高层进行改组](http://www.blog.kurohicncr.top/Article/details/0880070075.shtml)
+- 2026-06-29 12:40 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.share.kurohicncr.top/Article/details/980239987490.shtml)
+- 2026-06-29 12:12 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.share.kurohicncr.top/Article/details/067602538071.shtml)
+- 2026-06-29 12:30 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.share.minike.top/Article/details/5330960.shtml)
+- 2026-06-29 12:12 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.blog.minike.top/Article/details/88045.shtml)
+- 2026-06-29 12:28 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.minike.top/Article/details/510680602652.shtml)
+- 2026-06-29 12:22 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.share.minike.top/Article/details/53895643.shtml)
+- 2026-06-29 12:33 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](http://www.blog.kurohicncr.top/Article/details/205234.shtml)
+- 2026-06-29 12:21 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](http://www.blog.minike.top/Article/details/88251306.shtml)
+- 2026-06-29 12:35 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.share.minike.top/Article/details/8638447592.shtml)
+- 2026-06-29 12:24 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.minike.top/Article/details/92580293.shtml)

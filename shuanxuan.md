@@ -1,56 +1,58 @@
-# 美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场
+# “为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-2026年4月22日，马萨诸塞州参议员伊丽莎白·沃伦（Elizabeth Warren）在多个关键议题上表达了她的强硬立场，焦点集中在美联储主席提名、金融监管及伊朗局势上。 在参议院银行委员会就美联储主席提名人凯文·沃什（Kevin Warsh）举行的听证会上，沃伦对其发起了猛烈抨击。她直指沃什在2008年金融危机期间及之后未能优先保护美国家庭利益，反而倾向于救助华尔街，并警告
+今日（5月12日）市场盘整，A股三大指数涨跌不一，科技成长方向逆市表现居前！覆盖科创板+创业板龙头的硬科技宽基——双创50ETF华宝（588330）场内价格再涨1.33%，继续刷新上市以来的高点。沪深京三市成交额3.27万亿元，较昨日缩量2957亿元，成交额连续5个交易日突破3万亿元。 盘面上，CPO概念表现活跃，光模块龙头中际旭创股价突破1000元，成为创业板第二只千元股。光
 
 ## 正文
 
-2026年4月22日，马萨诸塞州参议员伊丽莎白·沃伦（Elizabeth Warren）在多个关键议题上表达了她的强硬立场，焦点集中在美联储主席提名、金融监管及伊朗局势上。
+今日（5月12日）市场盘整，A股三大指数涨跌不一，科技成长方向逆市表现居前！
 
-在参议院银行委员会就美联储主席提名人凯文·沃什（Kevin Warsh）举行的听证会上，沃伦对其发起了猛烈抨击。
+覆盖科创板+创业板龙头的硬科技宽基——双创50ETF华宝（588330）场内价格再涨1.33%，继续刷新上市以来的高点。
 
-她直指沃什在2008年金融危机期间及之后未能优先保护美国家庭利益，反而倾向于救助华尔街，并警告他若获确认，将成为特朗普政府的“提线木偶”。
+沪深京三市成交额3.27万亿元，较昨日缩量2957亿元，成交额连续5个交易日突破3万亿元。
 
-沃伦特别质疑沃什的独立性，并以特朗普是否输掉2020年大选等问题对其进行“勇气测试”，但沃什回避了直接回答。
+盘面上，CPO概念表现活跃，光模块龙头中际旭创股价突破1000元，成为创业板第二只千元股。
 
-沃伦的质疑不仅限于此。
+光模块CPO含量占比50%的创业板人工智能ETF华宝（159363）场内涨超1%，日线五连阳再创新高，单日放量成交超12亿元，交投居全市场AI主题类ETF首位！
 
-她在听证会前发出的一封公开信中，详细列举了沃什在美联储理事任内为次级抵押贷款辩护、反对加强金融监管等记录，认为这使其“没有从失败中吸取任何教训”，不具备担任美联储主席的资格。
+政策推动算电协同持续提速，“为AI发电”组合另一成员亦有亮眼表现，风光水火核”全能源布局的电力ETF华宝（159146）场内价格劲涨1.07%，成份股大唐发电五连板。
 
-与此同时，沃伦在伊朗问题上同样态度坚决。
+值得关注的是，在AI热潮推动下，全球存储芯片板块正在经历一轮罕见的大行情，中国“芯”延续攻势，寒武纪涨超6%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格一度上涨2.65%再探历史新高，收涨0.96%。
 
-她已明确对特朗普政府提出的500亿美元伊朗战争拨款请求说“不”，认为这笔资金应用于加强国家医疗保健系统。
+即便经历大幅上涨，华尔街目前依然普遍维持看多判断。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [美国海军部长约翰·费伦将离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:28 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:28 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:23 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:22 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:21 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:11 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:13 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:10 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:30 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:21 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:15 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:30 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:20 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:34 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:23 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:32 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:25 - [*ST沪科锁定退市，投资者索赔通道开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:31 - [开盘：美股周二低开 美国4月CPI创3年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:35 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:34 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:19 - [金观平：千方百计稳住就业基本盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [莫桑比克总统：感谢中国的热情款待 期待莫中关系迈上新台阶](http://www.blog.kurohicncr.top/Article/details/384214291878.shtml)
-- 2026-06-29 12:27 - [花旗：德昌电机控股维持“中性”评级 目标价32港元](http://www.blog.minike.top/Article/details/64029469973.shtml)
-- 2026-06-29 12:31 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.share.kurohicncr.top/Article/details/2400123.shtml)
-- 2026-06-29 12:13 - [苹果候任CEO特努斯：苹果将“再次改变世界”](http://www.blog.minike.top/Article/details/866348865731.shtml)
-- 2026-06-29 12:18 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.blog.kurohicncr.top/Article/details/42075998231.shtml)
-- 2026-06-29 12:10 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.share.kurohicncr.top/Article/details/3299329588.shtml)
-- 2026-06-29 12:17 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.share.minike.top/Article/details/903251.shtml)
-- 2026-06-29 12:29 - [一笔一笔走近你](http://www.share.kurohicncr.top/Article/details/81708296.shtml)
-- 2026-06-29 12:28 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](http://www.share.kurohicncr.top/Article/details/09092.shtml)
-- 2026-06-29 12:35 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.share.minike.top/Article/details/30343.shtml)
-- 2026-06-29 12:29 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.share.minike.top/Article/details/8771845.shtml)
-- 2026-06-29 12:19 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.share.kurohicncr.top/Article/details/734410140.shtml)
-- 2026-06-29 12:27 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.share.minike.top/Article/details/796517.shtml)
-- 2026-06-29 12:18 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.share.minike.top/Article/details/5935495.shtml)
+- 2026-06-29 12:17 - [On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [海地总理表示 8月无法如期大选 希望年底举行](http://www.blog.minike.top/Article/details/4486120823.shtml)
+- 2026-06-29 12:35 - [一箭18星 中国成功发射千帆极轨09组卫星](http://www.share.minike.top/Article/details/8464496882.shtml)
+- 2026-06-29 12:41 - [CGBD计划年内再发两期CLO，基础股息重置为0.35美元](http://www.share.kurohicncr.top/Article/details/660261802191.shtml)
+- 2026-06-29 12:19 - [普及防灾避险知识 西藏日喀则消防守护民生安全](http://www.share.kurohicncr.top/Article/details/061085260922.shtml)
+- 2026-06-29 12:32 - [背弃和平、轻视宪法、无视民意！日媒批高市政权激进修宪](http://www.share.kurohicncr.top/Article/details/532857.shtml)
+- 2026-06-29 12:13 - [日本加息已箭在弦上？OECD预计：到明年底利率将大幅上升至2%](http://www.blog.minike.top/Article/details/68958324.shtml)
+- 2026-06-29 12:26 - [Sally Beauty发布全年及第三季度业绩指引，股价承压](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [特朗普拒绝伊朗关于停战协议草案回应，双方立场对立致外交进程陷入僵局](http://www.share.kurohicncr.top/Article/details/43600.shtml)
+- 2026-06-29 12:19 - [伊朗战事持续之际，第二艘卡塔尔液化天然气油轮经霍尔木兹海峡驶往巴基斯坦](http://www.share.kurohicncr.top/Article/details/33811778.shtml)
+- 2026-06-29 12:40 - [A股午评：超4200只个股飘绿，三大指数集体收跌](http://www.share.kurohicncr.top/Article/details/2419504810.shtml)
+- 2026-06-29 12:23 - [瑞士研发出“熊脸识别”人工智能模型](http://www.share.kurohicncr.top/Article/details/00392692.shtml)
+- 2026-06-29 12:16 - [67家人身险公司仅212.6万个险代理人！人数见底，行业行至分水岭](http://www.blog.minike.top/Article/details/10948.shtml)
+- 2026-06-29 12:37 - [英国政治危机进一步加剧 国债与英镑双双重挫](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [全国人大常委会办公厅在郑州举办地方人大常委会负责同志专题学习班](http://www.blog.minike.top/Article/details/8807598417.shtml)

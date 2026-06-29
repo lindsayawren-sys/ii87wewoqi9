@@ -1,60 +1,61 @@
-# 源达信息量化策略研究：重要股东增持单因子策略
+# 广东公布第三批以县城为重要载体的新型城镇化建设试点
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公
+中新网广州5月11日电 (记者 程景伟)广东全省深入实施“百县千镇万村高质量发展工程”促进城乡区域协调发展推进会11日在广州召开。会上宣读了广东第三批以县城为重要载体的新型城镇化建设试点、第一批以县城为重要载体的城镇化建设提质增效行动支持的县(市)、第一批镇村片区组团培育、第一批开展现代化建设的中心镇、第一批小城市试点培育等名单。广东第三批以县城为重要载体的新型城镇化建设试点名
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州5月11日电 (记者 程景伟)广东全省深入实施“百县千镇万村高质量发展工程”促进城乡区域协调发展推进会11日在广州召开。
 
-分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公司市值。
+会上宣读了广东第三批以县城为重要载体的新型城镇化建设试点、第一批以县城为重要载体的城镇化建设提质增效行动支持的县(市)、第一批镇村片区组团培育、第一批开展现代化建设的中心镇、第一批小城市试点培育等名单。
 
-其中，重要股东二级市场交易区间增持市值变动汇总的是交易所公告和上市公司披露的场内增持行为，具体涵盖以下交易类型：①竞价交易；②大宗交易；③盘后定价交易；④可转债转股。
+广东第三批以县城为重要载体的新型城镇化建设试点名单中，共有20个县(市)入选，覆盖9个地级市，包括汕头市南澳县、韶关市仁化县、河源市连平县、梅州市兴宁市、江门市恩平市、湛江市徐闻县、肇庆市广宁县、清远市连山壮族瑶族自治县、云浮市郁南县等。
 
-重要股东增持因子的特点 ①重要股东增持因子在熊市中后期及中小盘风格占优的市场中最为有效。
+加上首批15个和第二批22个试点，目前广东共有57个县(市)被确定为以县城为重要载体的新型城镇化建设试点。
 
-如2016年价值修复期因子Rank IC高达0.1996。
+广东第一批开展现代化建设的中心镇名单中，全省共有100个镇入选，包括广州市白云区人和镇、珠海市金湾区红旗镇、佛山市禅城区南庄镇、汕尾市陆丰市碣石镇、东莞市凤岗镇、阳江市阳西县沙扒镇、潮州市潮安区彩塘镇等。
 
-②重要股东增持因子在中小市值区间表现最优。
+会上通报了2025年度广东省实施“百千万工程”考核结果；广东省有关负责人就《关于进一步优化县域发展格局 增强县镇村发展动能的实施方案》作解读说明；部分省直单位和市县结合年度考核及实地督查结果作交流发言、表态发言。
 
-因子在市值约60亿至150亿区间Rank IC均值达0.05且正比例高达75%。
+东莞市委书记韦皓表示，2025年，东莞实现地区生产总值1.27万亿元，农村集体总资产突破3000亿元，村民股东年人均分红突破万元，城乡居民收入均衡度居全省前列。
 
-③重要股东增持因子在农林牧渔、建筑装饰、电气设备等行业表现最强。
+该市将高标准建设沿东江、潮玩文旅、水濂山三大片区，积极推进现代化中心镇建设和小城市试点培育。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:25 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:19 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:12 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:10 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:25 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:26 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:08 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:32 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:30 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:11 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:11 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:14 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:32 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:26 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:23 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:42 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:35 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:35 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:25 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:13 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:26 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:21 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:30 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:30 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:26 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:29 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:29 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:37 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.blog.kurohicncr.top/Article/details/99912379111.shtml)
-- 2026-06-29 12:28 - [高雅光学公布于4月23日上午起停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/725911719032.shtml)
-- 2026-06-29 12:10 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [重庆今年一季度离境退税实退税额同比增长1倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.blog.minike.top/Article/details/014714485128.shtml)
-- 2026-06-29 12:14 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [美国多家航空公司面临燃油压力](http://www.blog.minike.top/Article/details/521968661398.shtml)
-- 2026-06-29 12:13 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.minike.top/Article/details/055487349.shtml)
-- 2026-06-29 12:18 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [美国国家安全局被曝使用Anthropic受限模型](http://www.blog.minike.top/Article/details/13537280.shtml)
-- 2026-06-29 12:26 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.share.kurohicncr.top/Article/details/35808207.shtml)
-- 2026-06-29 12:24 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](http://www.share.kurohicncr.top/Article/details/591764665946.shtml)
+- 2026-06-29 12:12 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.share.kurohicncr.top/Article/details/459973153.shtml)
+- 2026-06-29 12:25 - [联播+｜“中国式安全感”如何炼成？](http://www.share.minike.top/Article/details/217116578583.shtml)
+- 2026-06-29 12:16 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.share.minike.top/Article/details/558462.shtml)
+- 2026-06-29 12:25 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](http://www.blog.kurohicncr.top/Article/details/90112464275.shtml)
+- 2026-06-29 12:31 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/92353.shtml)
+- 2026-06-29 12:32 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.share.kurohicncr.top/Article/details/992712250.shtml)
+- 2026-06-29 12:28 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.blog.kurohicncr.top/Article/details/13266801650.shtml)
+- 2026-06-29 12:27 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](http://www.blog.kurohicncr.top/Article/details/017686200.shtml)
+- 2026-06-29 12:23 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.minike.top/Article/details/562579.shtml)
+- 2026-06-29 12:39 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.kurohicncr.top/Article/details/404751693061.shtml)
+- 2026-06-29 12:41 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.blog.kurohicncr.top/Article/details/03708.shtml)
+- 2026-06-29 12:18 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.blog.minike.top/Article/details/596104694.shtml)
+- 2026-06-29 12:41 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.kurohicncr.top/Article/details/674293216.shtml)

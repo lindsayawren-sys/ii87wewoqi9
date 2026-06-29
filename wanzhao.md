@@ -1,57 +1,57 @@
-# 从承诺到行动 多方共议以多边合作引领可持续发展
+# Lumen Tech新建美国北部光缆干线，加速AI数据迁移
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电(黄方 官逸伦)4月22日，全球共享发展行动论坛第三届高级别会议分论坛“从承诺到行动：以多边合作引领资本 共创可持续美好未来”在北京举行。与会中外嘉宾一致认为，在当前全球发展面临多重挑战的背景下，加强多边合作至关重要，而中国在其中发挥着不可或缺的积极作用。多位嘉宾在发言中强调，只有通过开放、联通与务实伙伴关系，才能有效应对发展融资、气候变化和人道主义等全球
+Lumen Technologies周二宣布，将建设一条连接西雅图至明尼阿波利斯的全新长途光纤干线，这是该公司数十年来首次新建此类重大光缆线路。 NorthLine项目：应对东部数据增长 这条被称为“NorthLine”的新线路全长约2000英里，预计于2026年底投入使用。它将与Lumen现有的美国网络基础设施集成，提供100G和400G波长服务，并可平滑升级至未来的800G
 
 ## 正文
 
-中新网北京4月22日电(黄方 官逸伦)4月22日，全球共享发展行动论坛第三届高级别会议分论坛“从承诺到行动：以多边合作引领资本 共创可持续美好未来”在北京举行。
+Lumen Technologies周二宣布，将建设一条连接西雅图至明尼阿波利斯的全新长途光纤干线，这是该公司数十年来首次新建此类重大光缆线路。
 
-与会中外嘉宾一致认为，在当前全球发展面临多重挑战的背景下，加强多边合作至关重要，而中国在其中发挥着不可或缺的积极作用。
+NorthLine项目：应对东部数据增长 这条被称为“NorthLine”的新线路全长约2000英里，预计于2026年底投入使用。
 
-多位嘉宾在发言中强调，只有通过开放、联通与务实伙伴关系，才能有效应对发展融资、气候变化和人道主义等全球性课题。
+它将与Lumen现有的美国网络基础设施集成，提供100G和400G波长服务，并可平滑升级至未来的800G和1.6T。
 
-联合国儿童基金会副执行主任(伙伴关系)兼联合国助理秘书长范德海登指出，联合国儿童基金会正与中方多个部门开展广泛合作，“我们是朋友和合作者，共同致力于实现全人类的尊严”。
+Lumen网络规划高级副总裁Shannon Griffith表示，AI正在改变数据流动的方向，网络必须随之演进。
 
-红十字会与红新月会国际联合会人道外交与数字化事务副秘书长斯托伊科维奇表示，中国在推进多边合作尤其是人道主义行动中的作用至关重要，“人道主义和发展行动的未来由地方主导，但必须在全球范围内实现”。
+新线路的规划紧跟美国北部新兴的数据中心走廊，这些区域日益增长的电力容量为AI基础设施的扩张提供了关键支撑。
 
-他呼吁各方深化伙伴关系，共同推动全球发展事业。
+AI流量驱动网络重构 Griffith指出，AI的发展正驱动美国市场对“东西向”流量路线的巨大需求。
 
-聚焦南南合作，柬埔寨财经部国务秘书罗西瓦认为，南南合作是基础设施建设和人力资本发展的重要支柱，中国与联合国机构的合作为相关国家提供了有力支持，“真正为我们的人民带来了持久的利益”。
+不同于传统的“南北向”流量（从企业进入云端），AI模型训练所需的“东西向”流量（数据中心之间的数据交换）正呈爆发式增长。
 
-挪威国际发展事务大臣艾于克吕斯特则从全球发展不确定性的角度出发，呼吁各国通过开放与联通推动更稳定、更可持续的发展目标。
+为加速部署，NorthLine将采用Lumen RapidRoutes机制，客户可在约20天内完成传输能力的部署和上线。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:28 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:29 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:27 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:18 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:17 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:27 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:10 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:29 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:35 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:20 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:29 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:18 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:22 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:23 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:30 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:28 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:16 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:38 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:40 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:36 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:33 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.share.kurohicncr.top/Article/details/7637533.shtml)
-- 2026-06-29 12:28 - [【国际漫评】解禁](http://www.blog.kurohicncr.top/Article/details/478562687.shtml)
-- 2026-06-29 12:31 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/89128.shtml)
-- 2026-06-29 12:11 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.minike.top/Article/details/708372833495.shtml)
-- 2026-06-29 12:13 - [美国海军部长约翰·费伦将离职](http://www.blog.kurohicncr.top/Article/details/6526480997.shtml)
-- 2026-06-29 12:14 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.minike.top/Article/details/455144.shtml)
-- 2026-06-29 12:10 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.blog.kurohicncr.top/Article/details/1712430.shtml)
-- 2026-06-29 12:35 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.blog.kurohicncr.top/Article/details/15552.shtml)
-- 2026-06-29 12:29 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.share.minike.top/Article/details/942459442.shtml)
-- 2026-06-29 12:06 - [辽宁省委书记许昆林到大商所调研](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [一季度长三角地区出口合计占全国41%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.share.minike.top/Article/details/82133048200.shtml)
+- 2026-06-29 12:28 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.share.minike.top/Article/details/699640123.shtml)
+- 2026-06-29 12:27 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.blog.kurohicncr.top/Article/details/14767392177.shtml)
+- 2026-06-29 12:38 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.minike.top/Article/details/37216420.shtml)
+- 2026-06-29 12:15 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.minike.top/Article/details/19524709226.shtml)
+- 2026-06-29 12:39 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.blog.minike.top/Article/details/308823962934.shtml)
+- 2026-06-29 12:38 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.kurohicncr.top/Article/details/05116.shtml)
+- 2026-06-29 12:23 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.minike.top/Article/details/0255131.shtml)
+- 2026-06-29 12:20 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.minike.top/Article/details/3480019007.shtml)
+- 2026-06-29 12:17 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.blog.kurohicncr.top/Article/details/502427.shtml)
+- 2026-06-29 12:34 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.blog.minike.top/Article/details/13774612212.shtml)
+- 2026-06-29 12:17 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](http://www.blog.minike.top/Article/details/9389975138.shtml)
+- 2026-06-29 12:35 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.share.minike.top/Article/details/2095073820.shtml)
+- 2026-06-29 12:39 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.share.kurohicncr.top/Article/details/28702075196.shtml)

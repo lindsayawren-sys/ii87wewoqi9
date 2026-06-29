@@ -1,58 +1,56 @@
-# 特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！
+# 日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 当地时间周二，美国总统特朗普在接受采访时表示，尽管他无意延长即将于周三到期的停火协议，但他坚信美国最终将与伊朗达成一项“重大协议”来结束这场持续数周的战争。 特朗普语气强硬地表示：“他们（伊朗）别无选择。我们已经摧毁了他们的海军、空军，并除掉了他们的领导层。”他特别提到，虽然这种局面让谈判
+日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。这将是日本企业首次获准使用Mythos。Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。
 
-来源：华尔街见闻 当地时间周二，美国总统特朗普在接受采访时表示，尽管他无意延长即将于周三到期的停火协议，但他坚信美国最终将与伊朗达成一项“重大协议”来结束这场持续数周的战争。
+报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。
 
-特朗普语气强硬地表示：“他们（伊朗）别无选择。
+这将是日本企业首次获准使用Mythos。
 
-我们已经摧毁了他们的海军、空军，并除掉了他们的领导层。
+Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安全威胁的担忧。
 
-”他特别提到，虽然这种局面让谈判变得复杂，但现在的伊朗领导层“更理性”。
+Anthropic公司表示，在预览测试中发现该系统存在诸多重大漏洞，这些漏洞影响着所有主流操作系统和网络浏览器。
 
-特朗普直言不讳地指出，无论外界如何定义，伊朗事实上已经发生了“政权更迭”：“这虽然不是我最初承诺要做的，但我已经通过间接方式实现了它。
+周二，日本财务大臣片山皋月会见了贝森特，随后表示日本将于本周成立一个公私合作工作组，以应对Mythos给日本金融体系带来的网络安全风险。
 
-” 他表示，不想延长与伊朗的停火协议。
+该工作组的首场会议预计将于周四举行。
 
-“美国在谈判中占据有利地位，最终会达成“重大协议”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:20 - [生态产品价值如何实现？自然资源部介绍典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:34 - [【国际漫评】解禁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:20 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:08 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:31 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:06 - [梁玉宁：中文与诗歌是中华文明的重要载体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:22 - [美国海军部长约翰·费伦将离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:32 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:35 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:32 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:13 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:23 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:17 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:23 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:14 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:29 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:14 - [海地总理：安全状况导致该国大选无法于8月如期举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:27 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:28 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:21 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:28 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [破解临时用工难题 专家建议国家出台相关规范指引](http://www.blog.minike.top/Article/details/28203239.shtml)
-- 2026-06-29 12:30 - [法治浙江二十年主题宣传活动启幕](http://www.share.kurohicncr.top/Article/details/738706852.shtml)
-- 2026-06-29 12:24 - [Engie CEO称勒庞能源计划对法国而言是“灾难”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [一季度江西外贸进出口增长16% 汽车出口大增](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [中超第七轮：上海海港不敌黑马新军 北京国安绝杀深圳新鹏城](http://www.blog.kurohicncr.top/Article/details/625808422.shtml)
-- 2026-06-29 12:34 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.kurohicncr.top/Article/details/286921818572.shtml)
-- 2026-06-29 12:22 - [Vatee万腾:中部走廊战略价值分析](http://www.share.minike.top/Article/details/354967727805.shtml)
-- 2026-06-29 12:17 - [莫桑比克总统：感谢中国的热情款待 期待莫中关系迈上新台阶](http://www.share.minike.top/Article/details/776874221871.shtml)
-- 2026-06-29 12:28 - [花旗：德昌电机控股维持“中性”评级 目标价32港元](http://www.share.kurohicncr.top/Article/details/447030257982.shtml)
-- 2026-06-29 12:26 - [14560.35%涨幅背后：天孚通信为何成为光通信赛道焦点](http://www.share.minike.top/Article/details/6851230054.shtml)
-- 2026-06-29 12:24 - [苹果候任CEO特努斯：苹果将“再次改变世界”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中](http://www.blog.minike.top/Article/details/4005871.shtml)
-- 2026-06-29 12:16 - [确定！方一天出任华安基金党委副书记，获提名总经理](http://www.blog.kurohicncr.top/Article/details/709650380.shtml)
-- 2026-06-29 12:16 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.blog.minike.top/Article/details/191998807654.shtml)
-- 2026-06-29 12:10 - [一笔一笔走近你](http://www.blog.kurohicncr.top/Article/details/82701138.shtml)
+- 2026-06-29 12:23 - [AI会取代哪些职业？多个AI意见不统一](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [酒价内参5月12日价格发布：习酒君品下跌6元](http://www.share.minike.top/Article/details/364289.shtml)
+- 2026-06-29 12:24 - [晋级四强！U17女足亚洲杯中国队3∶0战胜印度队](http://www.blog.kurohicncr.top/Article/details/42715957.shtml)
+- 2026-06-29 12:24 - [贵港海关缉私分局2026年公务租车定点服务比选采购公告](http://www.share.kurohicncr.top/Article/details/62172.shtml)
+- 2026-06-29 12:39 - [河南迎入夏首轮大范围高温天气](http://www.share.kurohicncr.top/Article/details/01638837.shtml)
+- 2026-06-29 12:30 - [燃料价格居高不下 特朗普支持暂停联邦汽油税](http://www.share.kurohicncr.top/Article/details/7548392625.shtml)
+- 2026-06-29 12:21 - [香港富豪孙女遭绑架，被囚山洞4天，绑匪拿到2800万后逃跑，警方最新透露：她记得吃过什么、喝过什么，成为破案关键](http://www.blog.minike.top/Article/details/48411.shtml)
+- 2026-06-29 12:27 - [On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [海地总理表示 8月无法如期大选 希望年底举行](http://www.blog.minike.top/Article/details/35428754.shtml)
+- 2026-06-29 12:35 - [一箭18星 中国成功发射千帆极轨09组卫星](http://www.share.minike.top/Article/details/8780382.shtml)
+- 2026-06-29 12:14 - [CGBD计划年内再发两期CLO，基础股息重置为0.35美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [普及防灾避险知识 西藏日喀则消防守护民生安全](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [背弃和平、轻视宪法、无视民意！日媒批高市政权激进修宪](http://www.share.minike.top/Article/details/22537505.shtml)
+- 2026-06-29 12:35 - [日本加息已箭在弦上？OECD预计：到明年底利率将大幅上升至2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [Sally Beauty发布全年及第三季度业绩指引，股价承压](http://www.share.minike.top/Article/details/85839797.shtml)

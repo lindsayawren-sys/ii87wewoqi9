@@ -1,54 +1,60 @@
-# 沪农商行发布2025年度利润分配方案 拟每10派1.94元
+# FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-4月22日金融一线消息，沪农商行发布2025年度利润分配方案，拟每 10 股派发现金股利人民币1.94 元（含税）。以实施权益分派股权登记日登记的总股本为基数，对普通股每10股分配现金红利人民币1.94元（含税），共计人民币18.71亿元（含税）；加上2025年中期已派发现金红利23.24亿元（含税），2025年累计派发现金红利41.95亿元（含税），占2025年本集团归属于母
+非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。新股息将于7月2日支付给6月17日登记在册的股东。 此次股息下调与公司第一季度业绩表现密切相关。财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。更令人担忧的是，公司报告了每股2.0
 
 ## 正文
 
-4月22日金融一线消息，沪农商行发布2025年度利润分配方案，拟每 10 股派发现金股利人民币1.94 元（含税）。
+非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。
 
-以实施权益分派股权登记日登记的总股本为基数，对普通股每10股分配现金红利人民币1.94元（含税），共计人民币18.71亿元（含税）；加上2025年中期已派发现金红利23.24亿元（含税），2025年累计派发现金红利41.95亿元（含税），占2025年本集团归属于母公司股东净利润的34.07%。
+新股息将于7月2日支付给6月17日登记在册的股东。
 
-经上述分配后，剩余的未分配利润结转下年。
+此次股息下调与公司第一季度业绩表现密切相关。
 
-本次利润分配方案尚需提交本公司2025年度股东会审议通过后方可实施。
+财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。
 
-责任编辑：李琳琳
+更令人担忧的是，公司报告了每股2.00美元的已实现及未实现亏损，导致净资产价值从20.89美元骤降至18.83美元，单季跌幅达9.9%。
+
+与此同时，不再计息的贷款占比从3.4%升至4.2%。
+
+面对业绩压力和股价持续折价交易，公司大股东KKR宣布了两项重大驰援措施。
+
+一是KKR将投资1.5亿美元购买可转换优先股，初始转换价格为18.83美元，股息率为5%现金或7%实物支付。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:27 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:28 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:06 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:15 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:16 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:16 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:10 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:12 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:24 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:16 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:31 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:16 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:28 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:39 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:35 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:18 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:37 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:29 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:16 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:33 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:28 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:13 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:34 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:24 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:16 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:23 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:26 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.kurohicncr.top/Article/details/4349424.shtml)
-- 2026-06-29 12:29 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.minike.top/Article/details/245007382378.shtml)
-- 2026-06-29 12:32 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.kurohicncr.top/Article/details/634584.shtml)
-- 2026-06-29 12:23 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/36578670.shtml)
-- 2026-06-29 12:13 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/4855337762.shtml)
-- 2026-06-29 12:10 - [日本126名议员集体参拜靖国神社](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [绿的谐波：一季度净利润同比增长61.17%](http://www.blog.minike.top/Article/details/49714309111.shtml)
-- 2026-06-29 12:15 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/94493783.shtml)
-- 2026-06-29 12:09 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.minike.top/Article/details/93173162998.shtml)
-- 2026-06-29 12:27 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](http://www.share.minike.top/Article/details/006768185915.shtml)
-- 2026-06-29 12:25 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.minike.top/Article/details/50356.shtml)
-- 2026-06-29 12:23 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](http://www.share.minike.top/Article/details/33837638.shtml)
-- 2026-06-29 12:23 - [美股三大指数集体高开，布油重回100美元上方](http://www.share.kurohicncr.top/Article/details/7106692.shtml)
-- 2026-06-29 12:17 - [美股回吐涨幅，美债收益率上行](http://www.blog.minike.top/Article/details/22940150.shtml)
+- 2026-06-29 12:27 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.blog.minike.top/Article/details/509865659.shtml)
+- 2026-06-29 12:32 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.blog.kurohicncr.top/Article/details/7360617982.shtml)
+- 2026-06-29 12:16 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](http://www.blog.minike.top/Article/details/4722129818.shtml)
+- 2026-06-29 12:26 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](http://www.share.minike.top/Article/details/30840102890.shtml)
+- 2026-06-29 12:35 - [金观平：千方百计稳住就业基本盘](http://www.blog.kurohicncr.top/Article/details/028294029474.shtml)
+- 2026-06-29 12:41 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](http://www.share.kurohicncr.top/Article/details/2215799.shtml)
+- 2026-06-29 12:18 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](http://www.blog.kurohicncr.top/Article/details/7751565878.shtml)
+- 2026-06-29 12:18 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.share.minike.top/Article/details/41605.shtml)
+- 2026-06-29 12:14 - [上海：“乘物游心”书画联展对公众开放](http://www.blog.minike.top/Article/details/5000566524.shtml)
+- 2026-06-29 12:21 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.blog.kurohicncr.top/Article/details/37060.shtml)
+- 2026-06-29 12:38 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.blog.kurohicncr.top/Article/details/34223596.shtml)
+- 2026-06-29 12:24 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.blog.kurohicncr.top/Article/details/18148.shtml)
+- 2026-06-29 12:21 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](http://www.blog.minike.top/Article/details/4593829.shtml)
+- 2026-06-29 12:26 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.blog.minike.top/Article/details/68032169.shtml)

@@ -1,58 +1,61 @@
-# 俞白眉：未来绝大多数演员有AI分身是大趋势
+# 中央气象台：每 日 天 气 提 示（2026年05月12日）
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 14:46 来源：中国新闻网 最近，“演员AI分身”的相关讨论引起热议。知名编剧、导演俞白眉在北京国际电影节新浪潮论坛上谈起这个话题，他认为，这是一个很好的机会，让大家有空间来认真思考和讨论这里面的各种问题，尤其是细致的伦理问题。 他认为，真人演员的表演是通过个人意志完成的，不会表演出自己不喜欢的情节，相当于演员对自己的每一次表演都有一种契约。
+来源：中央气象台网站 昨日，云南、海南岛中部及新疆伊犁河谷等地部分地区出现中雨或大雨、局地暴雨或大暴雨；山东日照和青岛、江苏连云港等局地出现雷暴大风。今天开始至14日，江南、华南及贵州东部等地将自西向东迎来一次降雨过程，局地并伴有雷暴大风、冰雹等强对流，中央气象台今晨发布暴雨蓝色预警。气象专家指出，江西东南部、福建西部等局地可能发生山洪、地质灾害、中小河流洪水等灾害，公众需远离
 
 ## 正文
 
-发布时间：2026年04月22日 14:46 来源：中国新闻网 最近，“演员AI分身”的相关讨论引起热议。
+来源：中央气象台网站 昨日，云南、海南岛中部及新疆伊犁河谷等地部分地区出现中雨或大雨、局地暴雨或大暴雨；山东日照和青岛、江苏连云港等局地出现雷暴大风。
 
-知名编剧、导演俞白眉在北京国际电影节新浪潮论坛上谈起这个话题，他认为，这是一个很好的机会，让大家有空间来认真思考和讨论这里面的各种问题，尤其是细致的伦理问题。
+今天开始至14日，江南、华南及贵州东部等地将自西向东迎来一次降雨过程，局地并伴有雷暴大风、冰雹等强对流，中央气象台今晨发布暴雨蓝色预警。
 
-他认为，真人演员的表演是通过个人意志完成的，不会表演出自己不喜欢的情节，相当于演员对自己的每一次表演都有一种契约。
+气象专家指出，江西东南部、福建西部等局地可能发生山洪、地质灾害、中小河流洪水等灾害，公众需远离山区、河谷等地势低洼地区；降雨期间道路湿滑、能见度较低，公众出行时务必注意交通安全。
 
-但当演员AI分身出演了演员本人不喜欢的情节，演员要去掉，这场戏还能成立吗？
+同时，注意关注当地气象部门发布的临近预报、预警信息，尽量避免在强对流活跃时段外出。
 
-这其中不仅是契约，还有对人个体意志的尊重。
+预计12日至14日，受冷空气影响，新疆、内蒙古西部、甘肃中西部等地有6~10℃降温，局地降温超过12℃，并伴有5~7级风，阵风8~9级，新疆山口地区10~11级；西北地区还将出现沙尘天气。
 
-至于演员AI分身能出演更多作品，其实2部4部都只是数字问题，要是一个演员想赚钱，一年出演500部也不是问题。
+其中今天，新疆东部和南部、甘肃西部、内蒙古西部、宁夏西部等地部分地区有扬沙或浮尘天气，新疆东部和南部、甘肃西部偏北地区等局地有沙尘暴。
 
-但这相应地会带来更多新的问题、法律的灰色地带。
+气象专家提醒，新疆、内蒙古、甘肃等地有大风、降温、沙尘天气，春季天气多变，公众可密切关注气象部门发布的最新气象信息，提前做好防范措施。
 
-“我认为大的趋势会是这样，几年以后，绝大部分演员都会有分身表演，这个趋势我认为是不可逆的，只不过其中有无数个问题需要讨论。
+制作：王韫喆签发：孙贺转载请注明来源中央气象台责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:21 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:07 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:21 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:25 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:24 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:25 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:13 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:10 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:13 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:20 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:34 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:26 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:19 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:27 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:12 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:37 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:37 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:36 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:17 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:32 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:38 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:38 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:25 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:30 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:25 - [枪声震天！直击武警官兵实战化射击超燃瞬间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:16 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.minike.top/Article/details/37362610.shtml)
-- 2026-06-29 12:13 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.minike.top/Article/details/19387059902.shtml)
-- 2026-06-29 12:15 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.share.kurohicncr.top/Article/details/637839950824.shtml)
-- 2026-06-29 12:17 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.share.minike.top/Article/details/54480.shtml)
-- 2026-06-29 12:21 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/792657849.shtml)
-- 2026-06-29 12:34 - [2026年渣打香港马拉松带来3.38亿港元经济效益](http://www.blog.minike.top/Article/details/00857896595.shtml)
-- 2026-06-29 12:26 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/770065238.shtml)
-- 2026-06-29 12:13 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.minike.top/Article/details/68391365785.shtml)
-- 2026-06-29 12:19 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.share.kurohicncr.top/Article/details/44872761.shtml)
-- 2026-06-29 12:15 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.minike.top/Article/details/5557943.shtml)
-- 2026-06-29 12:12 - [崖沙燕“如约”重返永定河](http://www.share.minike.top/Article/details/8839457.shtml)
-- 2026-06-29 12:17 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.blog.kurohicncr.top/Article/details/7629077685.shtml)
-- 2026-06-29 12:26 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [南方人是怎么爱上北方奶茶的？](http://www.share.kurohicncr.top/Article/details/78022.shtml)
+- 2026-06-29 12:24 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.share.kurohicncr.top/Article/details/60630.shtml)
+- 2026-06-29 12:12 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.kurohicncr.top/Article/details/5645105.shtml)
+- 2026-06-29 12:26 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.share.minike.top/Article/details/045857687148.shtml)
+- 2026-06-29 12:31 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.blog.minike.top/Article/details/718517.shtml)
+- 2026-06-29 12:20 - [摩根大通将对投行业务高层进行改组](http://www.blog.minike.top/Article/details/82233.shtml)
+- 2026-06-29 12:23 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.blog.kurohicncr.top/Article/details/58614145.shtml)
+- 2026-06-29 12:37 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.blog.kurohicncr.top/Article/details/77098971.shtml)
+- 2026-06-29 12:32 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.blog.kurohicncr.top/Article/details/42871.shtml)
+- 2026-06-29 12:40 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.blog.minike.top/Article/details/951716497.shtml)
+- 2026-06-29 12:40 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.share.minike.top/Article/details/6147742.shtml)

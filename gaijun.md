@@ -1,57 +1,56 @@
-# 手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪
+# 迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-快科技4月22日消息，千里科技联席董事长赵明公开表示，自己来到车圈的第一场发布会已准备就绪，目前正在彩排中。本场发布会为千里科技AI战略暨产品发布会，将于今晚19:00正式举行。发布会将全面展示AI+车最新落地成果，首次对外阐述AI商业化战略与目标，并重磅发布“脑体协同”技术合作，聚焦智能驾驶、智能座舱等核心领域。赵明此前为荣耀CEO，在从华为独立后，带领荣耀一步步成为头部手机
+核心要点 知名投资人迈克尔・伯里呼吁投资者减持大涨的科技股，他认为当前市场已走到历史级危险极端区间，行情氛围堪比过往历次投机泡沫。 这位因精准预判 2008 年楼市崩盘而闻名的投资人表示，当前人工智能炒作热潮与趋势追涨交易，把股市估值推向极端，投资者应当摒弃贪婪心态。 伯里在周日 Substack 专栏中写道： “对大多数人来说，最简单的办法就是直接降低股票敞口，尤其减持科技股
 
 ## 正文
 
-快科技4月22日消息，千里科技联席董事长赵明公开表示，自己来到车圈的第一场发布会已准备就绪，目前正在彩排中。
+核心要点 知名投资人迈克尔・伯里呼吁投资者减持大涨的科技股，他认为当前市场已走到历史级危险极端区间，行情氛围堪比过往历次投机泡沫。
 
-本场发布会为千里科技AI战略暨产品发布会，将于今晚19:00正式举行。
+这位因精准预判 2008 年楼市崩盘而闻名的投资人表示，当前人工智能炒作热潮与趋势追涨交易，把股市估值推向极端，投资者应当摒弃贪婪心态。
 
-发布会将全面展示AI+车最新落地成果，首次对外阐述AI商业化战略与目标，并重磅发布“脑体协同”技术合作，聚焦智能驾驶、智能座舱等核心领域。
+伯里在周日 Substack 专栏中写道： “对大多数人来说，最简单的办法就是直接降低股票敞口，尤其减持科技股。
 
-赵明此前为荣耀CEO，在从华为独立后，带领荣耀一步步成为头部手机品牌。
+任何走出抛物线式暴涨的个股，都应几乎全部清仓离场。
 
-2025年1月离开荣耀，2026年2月正式加入千里科技，3月出任联席董事长，负责商业模式落地与规模化运营，与印奇形成技术+市场的互补格局。
+” 数月以来，伯里一直在警示：美股市场对 AI 的狂热，越来越像互联网泡沫末期的状态。
 
-从战略层面来看，千里科技董事长印奇侧重于把握AI科技的战略方向，赵明则重点推进AI商业模式的闭环战略，牵引技术向市场转化。
+上周他更是把费城半导体指数（SOX）近期走势，对标 2000 年 3 月科技股崩盘前的拉升行情，直言当下氛围如同1999—2000 年泡沫最后的疯狂数月。
 
-资料显示，千里科技前身为重庆民营企业代表力帆科技，目前聚焦“AI+车”核心战略，致力于打造面向全球市场的智能出行科技品牌。
+伯里透露，自己目前仍对一篮子被低估、估值廉价的个股持有大规模杠杆空头头寸，策略思路与 2000 年相近。
 
-2025年3月，吉利控股行政总裁桂生悦表示，吉利要与千里科技一起打造“第二个华为”，只有这样，吉利才可能在未来的智能化、自动驾驶方面取得领先。
+但他同时警示：对普通投资者而言，直接做空逆势押注行情上涨既风险极高，也并不现实，而且看空交易的成本已越来越昂贵。
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:24 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:14 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:21 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:15 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:35 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:15 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:26 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:16 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:28 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:23 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:22 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:22 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:34 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:33 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:36 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:38 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:39 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:18 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:31 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:39 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.kurohicncr.top/Article/details/577087209.shtml)
-- 2026-06-29 12:17 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.share.kurohicncr.top/Article/details/81278.shtml)
-- 2026-06-29 12:12 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.blog.kurohicncr.top/Article/details/62496787.shtml)
-- 2026-06-29 12:28 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.share.minike.top/Article/details/470295702.shtml)
-- 2026-06-29 12:21 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.share.minike.top/Article/details/43092497.shtml)
-- 2026-06-29 12:20 - [美国多家航空公司面临燃油压力](http://www.share.minike.top/Article/details/74878146331.shtml)
-- 2026-06-29 12:23 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.blog.kurohicncr.top/Article/details/456695504931.shtml)
-- 2026-06-29 12:18 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.minike.top/Article/details/21587.shtml)
-- 2026-06-29 12:26 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.kurohicncr.top/Article/details/986184.shtml)
-- 2026-06-29 12:23 - [美国国家安全局被曝使用Anthropic受限模型](http://www.share.kurohicncr.top/Article/details/602004.shtml)
-- 2026-06-29 12:20 - [浙江进入汛期以来首次区域性强降雨过程](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.share.kurohicncr.top/Article/details/76488628.shtml)
-- 2026-06-29 12:12 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](http://www.blog.minike.top/Article/details/90258.shtml)
-- 2026-06-29 12:31 - [从承诺到行动 多方共议以多边合作引领可持续发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.minike.top/Article/details/977364.shtml)
+- 2026-06-29 12:41 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.blog.minike.top/Article/details/62800.shtml)
+- 2026-06-29 12:19 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](http://www.blog.kurohicncr.top/Article/details/4423459563.shtml)
+- 2026-06-29 12:31 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/967583525284.shtml)
+- 2026-06-29 12:39 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.blog.kurohicncr.top/Article/details/21305695533.shtml)
+- 2026-06-29 12:23 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.blog.kurohicncr.top/Article/details/8277891935.shtml)
+- 2026-06-29 12:15 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.blog.minike.top/Article/details/82342.shtml)
+- 2026-06-29 12:16 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](http://www.share.minike.top/Article/details/114944.shtml)
+- 2026-06-29 12:30 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.share.kurohicncr.top/Article/details/062121710.shtml)
+- 2026-06-29 12:37 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.minike.top/Article/details/71451994.shtml)
+- 2026-06-29 12:15 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.blog.minike.top/Article/details/13657957.shtml)
+- 2026-06-29 12:20 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.share.kurohicncr.top/Article/details/86784326453.shtml)
+- 2026-06-29 12:15 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.minike.top/Article/details/00954960015.shtml)
+- 2026-06-29 12:19 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [贵阳银行：有条件时可以进行中期利润分配](http://www.share.minike.top/Article/details/853116372.shtml)

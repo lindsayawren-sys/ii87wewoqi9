@@ -1,58 +1,61 @@
-# 莎士比亚经典喜剧《第十二夜》在成都上演
+# 但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网成都4月22日电 (记者 岳依桐)“2026成都·欧洲文化季”第三场主题活动——莎士比亚经典喜剧《第十二夜》戏剧演出21日晚在成都举行，剑桥莎士比亚戏剧节剧团再度跨越重洋，以纯正英伦戏剧风范，为成都市民献上一场浪漫诙谐、意蕴悠长的艺术盛宴。 《第十二夜》以一场海难为缘起，讲述了薇奥拉女扮男装、机缘巧合步入公爵府后，引发的一系列身份错位、机缘巧合的温情故事，既有诙谐幽默的情
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：私募排排网 在上个月（2026年4月份），全球多个股指开启了新高走势。其中，A股的创业板指创下了近11年新高。上证指数、深证成指、创业板指在4月份的涨跌幅分别是5.66%、12.09%、15.45%。美股的纳斯达克指数、标普500指数均纷纷创下历史新高。 在这样的市场背景下，很多私募产品的净值也在4月
 
 ## 正文
 
-中新网成都4月22日电 (记者 岳依桐)“2026成都·欧洲文化季”第三场主题活动——莎士比亚经典喜剧《第十二夜》戏剧演出21日晚在成都举行，剑桥莎士比亚戏剧节剧团再度跨越重洋，以纯正英伦戏剧风范，为成都市民献上一场浪漫诙谐、意蕴悠长的艺术盛宴。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-《第十二夜》以一场海难为缘起，讲述了薇奥拉女扮男装、机缘巧合步入公爵府后，引发的一系列身份错位、机缘巧合的温情故事，既有诙谐幽默的情节铺陈，也有对爱情、真诚与自我身份的细腻思考，是莎士比亚最具代表性的喜剧作品之一。
+来源：私募排排网 在上个月（2026年4月份），全球多个股指开启了新高走势。
 
-据介绍，剑桥莎士比亚戏剧节是英国颇具影响力的五大独立艺术节之一，于1988年由大卫·克里利博士创办。
+其中，A股的创业板指创下了近11年新高。
 
-近四十年来，戏剧节始终秉持严谨的学术追求与纯粹的艺术理念，深耕莎士比亚戏剧经典，在全球戏剧领域享有良好声誉。
+上证指数、深证成指、创业板指在4月份的涨跌幅分别是5.66%、12.09%、15.45%。
 
-此次赴蓉演出团队一行十人，坚持以演员语言、表情与肢体表达为核心，力求让成都市民都能轻松领略莎翁经典的独特魅力。
+美股的纳斯达克指数、标普500指数均纷纷创下历史新高。
 
-英国驻重庆总领事馆总领事李遥表示，英国拥有悠久的戏剧、创意与艺术表达传统。
+在这样的市场背景下，很多私募产品的净值也在4月份创下了历史新高。
 
-从莎士比亚的经典作品到今日充满活力的创意产业，文化始终在连接人心、激发思想、构建跨文化理解方面发挥着核心作用。
+其中一些私募旗下产品出现批量新高的情形。
 
-据介绍，近年来，成都与英国在友城、经贸、教育、人文等领域往来密切、成果丰硕。
+据统计，创历史新高产品数在10只及以上且均在私募排排网有业绩展示的私募共有14家，包括东方港湾、进化论资产、鸣石基金、九坤投资、龙旗科技、衍复投资、海南希瓦、蒙玺投资等知名私募（按创新高产品数排序）。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:30 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:09 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:29 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:17 - [4月22日“农产品批发价格200指数”与昨天持平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:25 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:28 - [228件作品荟萃第四届当代陶瓷艺术展览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:23 - [多部门协同发力 陕西持续优化老年人优待服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:18 - [推动实体经济发展，内蒙古“放大招”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:34 - [牌照“换新”在即，派安盈支付561万元被执行风险待解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:22 - [虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:24 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:34 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:41 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:13 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:16 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:38 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:19 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:23 - [电影总票房破140亿！五月观影热潮持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:28 - [长江有色：12日锌价大涨 整体成交难有亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:19 - [中国红基会在贵州开展“天使之旅”——先心病患儿筛查救助行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:14 - [特斯拉将向德国工厂注资2.5亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:13 - [美国4月通胀升至3.8%，美国人薪资购买力遭侵蚀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:34 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:32 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:28 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:17 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:21 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.blog.minike.top/Article/details/61896655.shtml)
-- 2026-06-29 12:06 - [辽宁省委书记许昆林到大商所调研](http://www.blog.minike.top/Article/details/6431590.shtml)
-- 2026-06-29 12:32 - [一季度长三角地区出口合计占全国41%](http://www.blog.minike.top/Article/details/50556177.shtml)
-- 2026-06-29 12:22 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](http://www.blog.minike.top/Article/details/460590527550.shtml)
-- 2026-06-29 12:22 - [酒钢宏兴：2025年净亏损19.98亿元](http://www.share.minike.top/Article/details/60279080908.shtml)
-- 2026-06-29 12:19 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.share.kurohicncr.top/Article/details/70377358114.shtml)
-- 2026-06-29 12:19 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.share.kurohicncr.top/Article/details/69159.shtml)
-- 2026-06-29 12:24 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](http://www.share.minike.top/Article/details/0687622.shtml)
-- 2026-06-29 12:21 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/353531.shtml)
-- 2026-06-29 12:34 - [日本126名议员集体参拜靖国神社](http://www.share.kurohicncr.top/Article/details/93624713788.shtml)
-- 2026-06-29 12:11 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.kurohicncr.top/Article/details/455861.shtml)
-- 2026-06-29 12:26 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](http://www.blog.kurohicncr.top/Article/details/8878497294.shtml)
-- 2026-06-29 12:15 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.minike.top/Article/details/218798500.shtml)
+- 2026-06-29 12:24 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.blog.kurohicncr.top/Article/details/08083951.shtml)
+- 2026-06-29 12:14 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.share.kurohicncr.top/Article/details/3724774.shtml)
+- 2026-06-29 12:19 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.share.minike.top/Article/details/427204588191.shtml)
+- 2026-06-29 12:39 - [开盘：美股周二低开 美国4月CPI创3年以来新高](http://www.blog.kurohicncr.top/Article/details/50242644.shtml)
+- 2026-06-29 12:20 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](http://www.share.minike.top/Article/details/919094521.shtml)
+- 2026-06-29 12:34 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](http://www.blog.kurohicncr.top/Article/details/930163624.shtml)
+- 2026-06-29 12:38 - [金观平：千方百计稳住就业基本盘](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](http://www.share.kurohicncr.top/Article/details/72252972777.shtml)
+- 2026-06-29 12:36 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](http://www.share.minike.top/Article/details/2620742320.shtml)
+- 2026-06-29 12:40 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.share.kurohicncr.top/Article/details/47465063647.shtml)
+- 2026-06-29 12:23 - [上海：“乘物游心”书画联展对公众开放](http://www.blog.minike.top/Article/details/32089930542.shtml)
+- 2026-06-29 12:12 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.blog.minike.top/Article/details/73091760523.shtml)
+- 2026-06-29 12:17 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.share.kurohicncr.top/Article/details/421747324261.shtml)

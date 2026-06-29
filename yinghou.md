@@ -1,57 +1,60 @@
-# 优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代
+# 获刑十三年！荐股“杀猪盘”被查
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-近日，第十一届广东专利奖评选结果正式揭晓，优必选凭借“一种伺服电机及其控制方法”发明专利，荣获本届广东专利金奖，该奖项是广东省人民政府设立的知识产权领域最高奖项。这项专利实现了人形机器人核心技术的多项突破：伺服驱动器控制精度提升3倍，制造成本降低75%，产品体积减小、重量减轻40%，力矩密度突破100Nm/kg，显著优于国际主流厂商。伺服驱动器是人形机器人实现运动的核心动力源，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新三板市场现荐股“杀猪盘”！ 上海金山法院近日公布的一则判例显示，无“投顾”资质的赵某某冒用他人身份、骗取投资者账户控制权，并勾结上游拉抬股价、诱骗高位接盘。其个人违法获得佣金380余万元，并导致投资者亏损600余万元。 对此，法院以诈骗罪判处赵某某有期徒刑十三年，二审维持原判。 受访律师人士认为，司法机关
 
 ## 正文
 
-近日，第十一届广东专利奖评选结果正式揭晓，优必选凭借“一种伺服电机及其控制方法”发明专利，荣获本届广东专利金奖，该奖项是广东省人民政府设立的知识产权领域最高奖项。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这项专利实现了人形机器人核心技术的多项突破：伺服驱动器控制精度提升3倍，制造成本降低75%，产品体积减小、重量减轻40%，力矩密度突破100Nm/kg，显著优于国际主流厂商。
+新三板市场现荐股“杀猪盘”！
 
-伺服驱动器是人形机器人实现运动的核心动力源，其成本可超过整机总成本的50%。
+上海金山法院近日公布的一则判例显示，无“投顾”资质的赵某某冒用他人身份、骗取投资者账户控制权，并勾结上游拉抬股价、诱骗高位接盘。
 
-人形机器人要实现灵活、精准的运动，必须同时满足轻量化和高动作精度的严苛要求。
+其个人违法获得佣金380余万元，并导致投资者亏损600余万元。
 
-优必选此次获奖的专利，通过谐波减速器、输出部、支柱及传感器的创新设计，在保证高输出精度的前提下，成功应用普通谐波减速器替代昂贵方案，从而大幅降低了伺服舵机及人形机器人的制造成本；同时充分利用伺服驱动器内部空间实现了小型化、轻量化，为人形机器人整机减重和运动灵巧性提供了关键支撑。
+对此，法院以诈骗罪判处赵某某有期徒刑十三年，二审维持原判。
 
-该金奖专利的落地应用，开启了轻量化伺服驱动器在人形机器人的大规模产业应用，有效破解了人形机器人规模化量产中成本高、关节重、精度不足等核心难题。
+受访律师人士认为，司法机关并未将此案简单定性为非法经营或操纵市场，而是采取“穿透式审判思维”，刺破“市场风险”的伪装，直指其“诈骗”本质，释放了极为明确的司法信号。
 
-人形机器人是技术高度密集型产业，是前沿科技与高端制造的深度融合，企业唯有不断创新方能行稳致远。
+一场有预谋的精准收割 回溯案情来看，2023年2月，赵某某入职某投资公司，在尚未取得证券投资咨询资格的情况下，冒用已离职投资顾问孙某某的身份，自称“师弟”向客户发送信息、自我推介。
 
-优必选坚持创新驱动发展，持续高强度投入研发，以长期主义深耕人形机器人全栈技术，高度重视知识产权创造与保护。
+此后，赵某某从公司离职，却隐瞒这一事实，继续以投资分析师身份与被害人杨某商谈合作。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:20 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:31 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:24 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:06 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:22 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:31 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:23 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:13 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:19 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:22 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:13 - [白酒年报| 白酒行业整体盈利能力下滑 酒鬼酒亏损、水井坊、洋河股份净利润降幅超60%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:26 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:20 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:23 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:26 - [三峡水库去冬今春枯水期累计补水超百亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:20 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:33 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:13 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:18 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:20 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:32 - [【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:38 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:14 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:34 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.share.minike.top/Article/details/535052.shtml)
-- 2026-06-29 12:34 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.blog.kurohicncr.top/Article/details/49575.shtml)
-- 2026-06-29 12:32 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.share.minike.top/Article/details/80802489647.shtml)
-- 2026-06-29 12:26 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.blog.minike.top/Article/details/45552343850.shtml)
-- 2026-06-29 12:14 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.share.minike.top/Article/details/632420139111.shtml)
-- 2026-06-29 12:34 - [中国隧道连续皮带机首次出口西班牙](http://www.share.kurohicncr.top/Article/details/965026.shtml)
-- 2026-06-29 12:17 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.blog.minike.top/Article/details/2210103628.shtml)
-- 2026-06-29 12:15 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.share.kurohicncr.top/Article/details/80565543193.shtml)
-- 2026-06-29 12:09 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.share.kurohicncr.top/Article/details/3353882.shtml)
-- 2026-06-29 12:16 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.share.kurohicncr.top/Article/details/8767733357.shtml)
-- 2026-06-29 12:24 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.share.minike.top/Article/details/87208.shtml)
+- 2026-06-29 12:36 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.share.kurohicncr.top/Article/details/863980124.shtml)
+- 2026-06-29 12:21 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/154297077540.shtml)
+- 2026-06-29 12:25 - [加密货币立法再遇阻碍：工会阵营出面反对](http://www.share.minike.top/Article/details/26090500480.shtml)
+- 2026-06-29 12:24 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.blog.minike.top/Article/details/3812895.shtml)
+- 2026-06-29 12:35 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [Meta因虚假广告面临审查](http://www.share.kurohicncr.top/Article/details/5699497.shtml)
+- 2026-06-29 12:17 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.blog.kurohicncr.top/Article/details/622809082536.shtml)
+- 2026-06-29 12:28 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.share.minike.top/Article/details/996748310379.shtml)
+- 2026-06-29 12:16 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.share.minike.top/Article/details/25219710412.shtml)
+- 2026-06-29 12:12 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](http://www.blog.kurohicncr.top/Article/details/937791597900.shtml)
+- 2026-06-29 12:36 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.blog.minike.top/Article/details/189963028.shtml)
+- 2026-06-29 12:25 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.minike.top/Article/details/2674853.shtml)

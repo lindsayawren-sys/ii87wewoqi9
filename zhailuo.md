@@ -1,57 +1,56 @@
-# 特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"
+# 海地总理：安全状况导致该国大选无法于8月如期举行
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-核心要点 美国总统唐纳德・特朗普周二表示，他认为美国 “最终将与伊朗达成一项重大协议”，以结束这场持续数周的战争，尽管他同时表示，预计不会延长将于周三到期的停火协议。 当被问及他对与伊朗第二轮和平谈判的预期时，特朗普在 CNBC《Squawk Box》节目采访中表示：“我认为他们别无选择。” “我们已摧毁了他们的海军，摧毁了他们的空军，清除了他们的领导人，” 总统表示。 “坦白
+中新社北京5月12日电 太子港消息：当地时间5月11日，海地总理阿利克斯·迪迪埃·菲斯-艾梅(Alix Didier Fils-Aime)在接受采访时证实，由于当前局势恶化，海地的安全状况尚未达到举行今年8月大选所需的水平。综合路透社、《海地时报》等媒体消息，菲斯-艾梅表示，海地政府希望该国大选首轮投票能在今年年底前举行，“(2027年)2月7日，我们能够迎来新一任总统”。他表
 
 ## 正文
 
-核心要点 美国总统唐纳德・特朗普周二表示，他认为美国 “最终将与伊朗达成一项重大协议”，以结束这场持续数周的战争，尽管他同时表示，预计不会延长将于周三到期的停火协议。
+中新社北京5月12日电 太子港消息：当地时间5月11日，海地总理阿利克斯·迪迪埃·菲斯-艾梅(Alix Didier Fils-Aime)在接受采访时证实，由于当前局势恶化，海地的安全状况尚未达到举行今年8月大选所需的水平。
 
-当被问及他对与伊朗第二轮和平谈判的预期时，特朗普在 CNBC《Squawk Box》节目采访中表示：“我认为他们别无选择。
+综合路透社、《海地时报》等媒体消息，菲斯-艾梅表示，海地政府希望该国大选首轮投票能在今年年底前举行，“(2027年)2月7日，我们能够迎来新一任总统”。
 
-” “我们已摧毁了他们的海军，摧毁了他们的空军，清除了他们的领导人，” 总统表示。
+他表示，由于安全局势持续恶化，海地目前并不具备组织全国大选所需的最低安全条件，在当前环境下强行举行选举是“不负责任”的决定。
 
-“坦白说，我们清除了他们的领导人，这在某种程度上确实让局势复杂化，但这些（新）领导人要理性得多，” 特朗普说，“这就是政权更迭，无论你想怎么称呼它。
+海地原计划于今年8月30日举行总统选举投票。
 
-这并不是我曾说过要做的事，但我间接做到了。
+菲斯-艾梅表示，海地政府正寄希望于多国参与的“镇压黑帮部队”部署以及海地国家警察和武装部队能力提升，为年底举行选举创造条件，目前相关武装力量已在部署。
 
-” 当被问及是否会延长停火期，为和平谈判达成结束战争的协议留出时间时，特朗普表示：“嗯，我不想这么做。
+近年来，海地深受帮派暴力、政治动荡和经济危机困扰。
 
-”责任编辑：郭明煜
+联合国数据显示，武装帮派目前控制首都太子港大部分区域，持续恶化的安全局势严重影响国家治理和公共服务运行。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:18 - [一季度长三角地区出口合计占全国41%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:21 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:13 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:09 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:35 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:06 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:06 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:20 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:20 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:31 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:28 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:30 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:13 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:27 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:40 - [*ST沪科锁定退市，投资者索赔通道开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:34 - [开盘：美股周二低开 美国4月CPI创3年以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:14 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:26 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:21 - [金观平：千方百计稳住就业基本盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:15 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:37 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:32 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [确定！方一天出任华安基金党委副书记，获提名总经理](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [【这个城市有点潮】宿迁：在“项王故里”邂逅水韵柔情](http://www.blog.kurohicncr.top/Article/details/73618680.shtml)
-- 2026-06-29 12:32 - [一笔一笔走近你](http://www.share.minike.top/Article/details/2608644.shtml)
-- 2026-06-29 12:24 - [伊朗否认举行美伊新谈判 指特朗普“又说谎了”](http://www.blog.kurohicncr.top/Article/details/22178.shtml)
-- 2026-06-29 12:20 - [欧洲股市小幅走高，市场陷入“观望停滞状态”](http://www.blog.kurohicncr.top/Article/details/4552780921.shtml)
-- 2026-06-29 12:20 - [西门子数字化工业集团CEO：人工智能助力西门子深化与中国合作](http://www.share.kurohicncr.top/Article/details/4041118.shtml)
-- 2026-06-29 12:15 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.share.minike.top/Article/details/222664.shtml)
-- 2026-06-29 12:21 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.blog.minike.top/Article/details/585805740341.shtml)
-- 2026-06-29 12:09 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.blog.minike.top/Article/details/7721995.shtml)
-- 2026-06-29 12:11 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.share.minike.top/Article/details/03340312584.shtml)
-- 2026-06-29 12:34 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.blog.kurohicncr.top/Article/details/048564547.shtml)
-- 2026-06-29 12:11 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/94649.shtml)
-- 2026-06-29 12:21 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.blog.kurohicncr.top/Article/details/915279381.shtml)
-- 2026-06-29 12:33 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.kurohicncr.top/Article/details/67976722330.shtml)
-- 2026-06-29 12:09 - [Mhmarkets迈汇:贵金属需求持续走强](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [背弃和平、轻视宪法、无视民意！日媒批高市政权激进修宪](http://www.blog.minike.top/Article/details/55657014.shtml)
+- 2026-06-29 12:21 - [日本加息已箭在弦上？OECD预计：到明年底利率将大幅上升至2%](http://www.share.kurohicncr.top/Article/details/9557757.shtml)
+- 2026-06-29 12:32 - [Sally Beauty发布全年及第三季度业绩指引，股价承压](http://www.blog.kurohicncr.top/Article/details/82430780160.shtml)
+- 2026-06-29 12:40 - [特朗普拒绝伊朗关于停战协议草案回应，双方立场对立致外交进程陷入僵局](http://www.blog.minike.top/Article/details/72852112.shtml)
+- 2026-06-29 12:39 - [伊朗战事持续之际，第二艘卡塔尔液化天然气油轮经霍尔木兹海峡驶往巴基斯坦](http://www.blog.minike.top/Article/details/4428574.shtml)
+- 2026-06-29 12:23 - [A股午评：超4200只个股飘绿，三大指数集体收跌](http://www.share.kurohicncr.top/Article/details/3642915.shtml)
+- 2026-06-29 12:35 - [瑞士研发出“熊脸识别”人工智能模型](http://www.share.kurohicncr.top/Article/details/84371.shtml)
+- 2026-06-29 12:34 - [67家人身险公司仅212.6万个险代理人！人数见底，行业行至分水岭](http://www.blog.minike.top/Article/details/3721028319.shtml)
+- 2026-06-29 12:26 - [英国政治危机进一步加剧 国债与英镑双双重挫](http://www.blog.minike.top/Article/details/515181.shtml)
+- 2026-06-29 12:19 - [全国人大常委会办公厅在郑州举办地方人大常委会负责同志专题学习班](http://www.share.minike.top/Article/details/98525916810.shtml)
+- 2026-06-29 12:26 - [特朗普访华期间是否会讨论台湾和香港有关问题？外交部回应](http://www.blog.kurohicncr.top/Article/details/34845.shtml)
+- 2026-06-29 12:17 - [宣称“纯棉”内裤实为100%聚酯纤维 “假一赔十”能落实吗？](http://www.share.minike.top/Article/details/3317706.shtml)
+- 2026-06-29 12:15 - [石油直线飙升！美伊谈判，最新变数](http://www.blog.kurohicncr.top/Article/details/705040859.shtml)
+- 2026-06-29 12:27 - [农家书屋不止于书 探索“阅”见乡村新方式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [歌礼制药-B获GIC Private Limited增持12.2万股 每股作价16.612港元](http://www.blog.minike.top/Article/details/37550826.shtml)

@@ -1,59 +1,44 @@
-# 上海发布广告人才新政 面向全球招揽行业英才
+# 新疆伊犁：天山红花盛放 五月草原景色美
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社上海4月22日电 (记者 许婧)上海22日发布最新广告人才政策，涉及人才引进、落户支持、技能提升、创业扶持等，面向全球广告人才发出诚意邀约。 当天，“才汇上海，广纳未来”——2026上海市广告人才专场招聘会在上海举办，聚焦广告全产业链人才需求，破解广告业“招聘难与就业难”的双重困境。开幕式上，上海市市场监管局、上海市人社局和上海市人才工作局共同启动“Welcome to
+发布时间：2026年05月13日 10:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社上海4月22日电 (记者 许婧)上海22日发布最新广告人才政策，涉及人才引进、落户支持、技能提升、创业扶持等，面向全球广告人才发出诚意邀约。
-
-当天，“才汇上海，广纳未来”——2026上海市广告人才专场招聘会在上海举办，聚焦广告全产业链人才需求，破解广告业“招聘难与就业难”的双重困境。
-
-开幕式上，上海市市场监管局、上海市人社局和上海市人才工作局共同启动“Welcome to Shanghai”上海市广告人才政策发布仪式。
-
-数据显示，截至2025年底，上海主营广告企业达87722户，拥有外商投资企业11314户。
-
-去年上海广告营收首次突破4000亿元(人民币，下同)，跃居全国第一。
-
-上海产业生态良好，外资企业活跃，“国际数字广告之都”加速崛起。
-
-上海市市场监管局相关负责人介绍，本次发布的新政亮点颇多，比如上海广告业高端人才被纳入上海市东方英才计划拔尖、青年项目(综合平台)市场监管领域申报范围；广告设计师在上海工作期间取得职业技能等级认定证书且专业、工种与所聘岗位相符，可获得居住证积分30分至140分；企业职工职业技能提升补贴最高可达每人3700元；鼓励平台经营者、大模型企业通过提供运营帮扶、AI创作培训、流量支持等方式支持广告设计师等个体工商户开展AI内容创作经营；符合条件的广告OPC(一人公司)创业者可享受首年免租金工位、最高10万元创业启动资金、最长3年人才租房补贴等支持。
-
-(完)
+发布时间：2026年05月13日 10:11 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [特朗普称将 “记住” 不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:27 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:26 - [2026年广东省行业企业职业技能竞赛计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:17 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:19 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:09 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:25 - [世界读书日：寻访巷陌深处的“老昆明”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:06 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:23 - [第三艘美国航空母舰预计将在3至5天内抵达中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:12 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:22 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:31 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:25 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:15 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:40 - [中美经贸磋商在韩国开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:16 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:21 - [上海居民何时能去台湾本岛个人游？国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:27 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:40 - [南方人是怎么爱上北方奶茶的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:29 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:35 - [印度4月通胀连续第六个月攀升，但低于市场预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:38 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:29 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:12 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:37 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.share.kurohicncr.top/Article/details/3903878.shtml)
-- 2026-06-29 12:20 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.blog.minike.top/Article/details/24703.shtml)
-- 2026-06-29 12:07 - [港股午评：恒指跌1.31% 科指跌2.19% 科网股普跌 锂电池股下挫 中资券商股逆势活跃](http://www.share.kurohicncr.top/Article/details/8357976.shtml)
-- 2026-06-29 12:07 - [西安一遗址发现多座“灰坑葬” 再现4000年前不同墓葬形式](http://www.blog.kurohicncr.top/Article/details/60188298372.shtml)
-- 2026-06-29 12:32 - [关税退款惹怒美国人，“美国优先”变“美国混乱”](http://www.share.kurohicncr.top/Article/details/635424776.shtml)
-- 2026-06-29 12:12 - [高雅光学公布于4月23日上午起停牌](http://www.share.minike.top/Article/details/123327.shtml)
-- 2026-06-29 12:28 - [波音季度亏损收窄，股价早盘上涨4.5%](http://www.blog.minike.top/Article/details/728654.shtml)
-- 2026-06-29 12:17 - [广交会暖心一幕！中国机器人，帮外国友人重新站立行走](http://www.blog.kurohicncr.top/Article/details/97890652841.shtml)
-- 2026-06-29 12:06 - [重庆今年一季度离境退税实退税额同比增长1倍](http://www.share.minike.top/Article/details/929082.shtml)
-- 2026-06-29 12:33 - [一见·世界地球日，看“赋能型大国”的绿色担当](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [美国多家航空公司面临燃油压力](http://www.blog.minike.top/Article/details/1268198.shtml)
-- 2026-06-29 12:12 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.share.minike.top/Article/details/2536172406.shtml)
-- 2026-06-29 12:20 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.share.kurohicncr.top/Article/details/9593897.shtml)
-- 2026-06-29 12:27 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.share.minike.top/Article/details/3324142.shtml)
+- 2026-06-29 12:27 - [新闻人物丨美国总统唐纳德·特朗普](http://www.blog.kurohicncr.top/Article/details/1019322052.shtml)
+- 2026-06-29 12:30 - [美国4月CPI报告对美联储意味著什么](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [酒价内参5月13日价格发布：古20下跌6元](http://www.blog.kurohicncr.top/Article/details/491653639087.shtml)
+- 2026-06-29 12:26 - [美国得州起诉奈飞，指控其涉嫌监视儿童并诱使用户成瘾](http://www.blog.minike.top/Article/details/88564073.shtml)
+- 2026-06-29 12:17 - [福州鼓岭：承载百年中美民间情谊的山间胜地](http://www.blog.kurohicncr.top/Article/details/75596.shtml)
+- 2026-06-29 12:19 - [联播+｜“中国式安全感”如何炼成？](http://www.blog.kurohicncr.top/Article/details/385625.shtml)
+- 2026-06-29 12:15 - [VR灾害模拟体验、应急技能实训 江西上演防灾减灾“公开课”](http://www.share.kurohicncr.top/Article/details/8896144121.shtml)
+- 2026-06-29 12:36 - [南京审计大学通报“学生涉嫌偷拍他人隐私”：已成立专项工作组](http://www.share.kurohicncr.top/Article/details/96256650748.shtml)
+- 2026-06-29 12:27 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/602573.shtml)
+- 2026-06-29 12:35 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.share.kurohicncr.top/Article/details/14704.shtml)
+- 2026-06-29 12:26 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.share.minike.top/Article/details/026071.shtml)
+- 2026-06-29 12:23 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.blog.kurohicncr.top/Article/details/0892477875.shtml)
+- 2026-06-29 12:36 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](http://www.blog.minike.top/Article/details/35853.shtml)
+- 2026-06-29 12:15 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.share.kurohicncr.top/Article/details/0590033661.shtml)

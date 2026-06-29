@@ -1,60 +1,42 @@
-# 美国国家安全局被曝使用Anthropic受限模型
+# 朝“问”健康 晨起空腹喝淡盐水没有养生效果
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-美国国家安全局据报正在使用Anthropic公司最强大的AI模型“Mythos Preview”，尽管其上级机构国防部已将Anthropic列为“供应链风险”并推动切断与该公司合作。 Mythos是Anthropic于4月初发布的前沿模型，专为网络安全任务设计，具备自主发现软件漏洞并编写漏洞利用程序的强大能力。测试显示，该模型成功发现了OpenBSD操作系统中存在27年之久的漏
+发布时间：2026年05月12日 09:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-美国国家安全局据报正在使用Anthropic公司最强大的AI模型“Mythos Preview”，尽管其上级机构国防部已将Anthropic列为“供应链风险”并推动切断与该公司合作。
-
-Mythos是Anthropic于4月初发布的前沿模型，专为网络安全任务设计，具备自主发现软件漏洞并编写漏洞利用程序的强大能力。
-
-测试显示，该模型成功发现了OpenBSD操作系统中存在27年之久的漏洞，以及FFmpeg工具中隐藏16年的漏洞，在漏洞利用测试中成功开发了181个可用的漏洞利用程序。
-
-因担忧该技术可能被滥用于网络攻击，Anthropic未向公众开放访问，仅通过名为“Glasswing”的计划向约40家机构提供受限访问。
-
-这一做法与五角大楼的立场形成鲜明冲突。
-
-今年1月，国防部长赫格塞斯要求Anthropic删除AI模型中的安全护栏，允许用于大规模国内监控和自主武器开发，遭到Anthropic拒绝。
-
-作为回应，五角大楼于2月底将Anthropic列为“供应链风险”，特朗普总统随后下令联邦机构停止使用Anthropic技术。
-
-尽管如此，NSA据报正在积极使用Mythos，主要用于扫描系统以发现可被利用的安全漏洞。
+发布时间：2026年05月12日 09:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:13 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:30 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:32 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:29 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:29 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:16 - [亚马逊深化与Anthropic的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:23 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:31 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:27 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:21 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:17 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:23 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:21 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:23 - [白衣天使，节日快乐！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:37 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:39 - [美国能源信息署：美国2026年和2027年用电量将连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:31 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:33 - [日本央行一名审议委员：可能在下次政策会议上加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:24 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:19 - [受AI热潮提振，日经指数或将上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:37 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:21 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:26 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [瑞典大瀑布电力退出苏格兰浮式风电项目](http://www.share.kurohicncr.top/Article/details/998025.shtml)
-- 2026-06-29 12:09 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](http://www.blog.kurohicncr.top/Article/details/718050901.shtml)
-- 2026-06-29 12:21 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](http://www.share.minike.top/Article/details/670473449.shtml)
-- 2026-06-29 12:20 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/7455982494.shtml)
-- 2026-06-29 12:19 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](http://www.share.minike.top/Article/details/3666852.shtml)
-- 2026-06-29 12:18 - [生态产品价值如何实现？自然资源部介绍典型案例](http://www.blog.kurohicncr.top/Article/details/4516971.shtml)
-- 2026-06-29 12:11 - [【国际漫评】解禁](http://www.share.minike.top/Article/details/687725297842.shtml)
-- 2026-06-29 12:29 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/5223490363.shtml)
-- 2026-06-29 12:07 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [梁玉宁：中文与诗歌是中华文明的重要载体](http://www.blog.kurohicncr.top/Article/details/2931623.shtml)
-- 2026-06-29 12:24 - [美国海军部长约翰·费伦将离职](http://www.share.kurohicncr.top/Article/details/65741215696.shtml)
-- 2026-06-29 12:18 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](http://www.share.kurohicncr.top/Article/details/097556.shtml)
-- 2026-06-29 12:22 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/65544.shtml)
-- 2026-06-29 12:15 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.kurohicncr.top/Article/details/8806824700.shtml)
+- 2026-06-29 12:30 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](http://www.blog.minike.top/Article/details/904546188368.shtml)
+- 2026-06-29 12:31 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](http://www.blog.minike.top/Article/details/3820631.shtml)
+- 2026-06-29 12:14 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](http://www.blog.kurohicncr.top/Article/details/040115.shtml)
+- 2026-06-29 12:12 - [韩国生物制药公司Celltrion收购法国Gifrer](http://www.share.minike.top/Article/details/000150.shtml)
+- 2026-06-29 12:22 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](http://www.share.kurohicncr.top/Article/details/9321210290.shtml)
+- 2026-06-29 12:17 - [双向奔赴！两岸媒体人镜头里的和平与相融](http://www.share.minike.top/Article/details/36655492.shtml)
+- 2026-06-29 12:26 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.minike.top/Article/details/71812.shtml)
+- 2026-06-29 12:17 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.blog.kurohicncr.top/Article/details/012326668429.shtml)
+- 2026-06-29 12:29 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](http://www.blog.kurohicncr.top/Article/details/0241005.shtml)
+- 2026-06-29 12:22 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.kurohicncr.top/Article/details/0879527749.shtml)
+- 2026-06-29 12:15 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.blog.kurohicncr.top/Article/details/26384.shtml)
+- 2026-06-29 12:14 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](http://www.share.kurohicncr.top/Article/details/36368044.shtml)

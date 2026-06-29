@@ -1,48 +1,45 @@
-# 卢拉讽刺特朗普：不如直接给他颁诺贝尔奖
+# 拒绝伊朗回应 美方称停火“有效但脆弱”
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据美国有线电视新闻网(CNN)报道，当地时间21日，巴西总统卢拉讽刺美国总统特朗普：“不如直接给他颁诺贝尔奖”。 据报道，当天，卢拉正在葡萄牙里斯本与葡萄牙总理蒙特内罗共同出席活动，期间他表示：“我们每天都看到声明，我不知道是开玩笑还是认真的，说特朗普结束了八场战争却没有获得诺贝尔奖。” 卢拉还表示：“不如直接把奖颁给他，这样我们就不用生活在战争中了，我们就
+发布时间：2026年05月12日 09:46 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网4月22日电 据美国有线电视新闻网(CNN)报道，当地时间21日，巴西总统卢拉讽刺美国总统特朗普：“不如直接给他颁诺贝尔奖”。
-
-据报道，当天，卢拉正在葡萄牙里斯本与葡萄牙总理蒙特内罗共同出席活动，期间他表示：“我们每天都看到声明，我不知道是开玩笑还是认真的，说特朗普结束了八场战争却没有获得诺贝尔奖。
-
-” 卢拉还表示：“不如直接把奖颁给他，这样我们就不用生活在战争中了，我们就能过上安宁的日子。
-
-”
+发布时间：2026年05月12日 09:46 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:09 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:16 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:15 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:23 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:24 - [RadexMarkets瑞德克斯:能源市场面临极端压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:32 - [上海发布广告人才新政 面向全球招揽行业英才](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:07 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:26 - [能定位会判断 AI乒乓机器人击败人类高手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:21 - [全球共享发展行动论坛第三届高级别会议发布成果清单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:26 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:20 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:40 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:39 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:16 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:28 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:27 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:17 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:30 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:17 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:38 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:38 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:25 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/474089536.shtml)
-- 2026-06-29 12:10 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.blog.minike.top/Article/details/662519.shtml)
-- 2026-06-29 12:14 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.blog.minike.top/Article/details/115515.shtml)
-- 2026-06-29 12:27 - [百思买任命资深人士为CEO](http://www.share.kurohicncr.top/Article/details/76694.shtml)
-- 2026-06-29 12:28 - [辽宁海城：梨花成海 粉樱作伴](http://www.share.kurohicncr.top/Article/details/371337.shtml)
-- 2026-06-29 12:22 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](http://www.share.minike.top/Article/details/416112610769.shtml)
-- 2026-06-29 12:26 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.blog.minike.top/Article/details/06111449573.shtml)
-- 2026-06-29 12:21 - [英国石油公司高管将出任OMV首位女性首席执行官](http://www.share.kurohicncr.top/Article/details/33571366.shtml)
-- 2026-06-29 12:11 - [“新时代、新品质、新气象：清华大学美术学院新世纪成果展”研讨会举办](http://www.blog.minike.top/Article/details/183511023086.shtml)
-- 2026-06-29 12:15 - [东山精密业绩大增27.67%，利润增速远超预期！靠什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [摩根士丹利策略师：地缘政治动荡往往创造良好买入机会](http://www.blog.kurohicncr.top/Article/details/82689913225.shtml)
-- 2026-06-29 12:28 - [为何2000亿主力资金抢筹电子板块？华宝基金电子ETF（515260）盘中涨近2%冲击历史高点，单日吸金723万元](http://www.share.minike.top/Article/details/11768023.shtml)
-- 2026-06-29 12:26 - [国台办回应赖清德外窜未遂、民进党当局抹黑大陆涉台新政等热点](http://www.blog.minike.top/Article/details/7426381.shtml)
-- 2026-06-29 12:20 - [台当局妄称大陆“经济胁迫”致赖清德取消行程 外交部回应](http://www.share.kurohicncr.top/Article/details/62687821077.shtml)
+- 2026-06-29 12:37 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [美国4月份通胀飙升后 金价小幅走高](http://www.share.minike.top/Article/details/99153125200.shtml)
+- 2026-06-29 12:23 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](http://www.blog.minike.top/Article/details/86058.shtml)
+- 2026-06-29 12:41 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.blog.minike.top/Article/details/69943417020.shtml)
+- 2026-06-29 12:17 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.share.minike.top/Article/details/78401680368.shtml)
+- 2026-06-29 12:15 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.kurohicncr.top/Article/details/06384164.shtml)
+- 2026-06-29 12:34 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](http://www.share.minike.top/Article/details/338574866.shtml)
+- 2026-06-29 12:39 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](http://www.share.minike.top/Article/details/00937151853.shtml)
+- 2026-06-29 12:22 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](http://www.blog.minike.top/Article/details/960728.shtml)
+- 2026-06-29 12:35 - [金斯瑞生物科技盘中涨超5% 联营传奇生物一季度亏损收窄](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [日经指数下跌0.6% 受芯片股拖累](http://www.blog.kurohicncr.top/Article/details/66666884456.shtml)
+- 2026-06-29 12:37 - [新闻人物丨美国总统唐纳德·特朗普](http://www.blog.kurohicncr.top/Article/details/203849717087.shtml)
+- 2026-06-29 12:12 - [美国4月CPI报告对美联储意味著什么](http://www.share.minike.top/Article/details/7251427543.shtml)

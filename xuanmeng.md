@@ -1,60 +1,58 @@
-# 浙江探索“村校共建” 以体育小切口撬动共富大文章
+# 透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网杭州4月22日电(林波)清晨，雾气从浙西南的山谷间升腾而起，景宁畲族自治县英川镇凤凰寨村的梯田如链似带，层层叠叠铺向云端。瀑布从崖壁跌落，水声在山谷间回荡。 “每天我望着这片再熟悉不过的山水，就在想一件事：如何让城里人走进来，在这好山好水好空气中，找回一个好身体。”凤凰寨村党总支书记、村委会主任陈先清受访时和作者分享了他的“心事”。 “我们那里偏远，做成大景区不容易，但做
+文/每日财报 栗佳 随着险企一季度偿付能力出炉，57 家非上市寿险经营状况明朗，行业保费与盈利显著复苏，同时呈现明显结构性分化。 《每日财报》统计显示，57 家非上市寿险一季度保险业务收入 4873.43 亿元、净利润 120.16 亿元，同比分别增长 13.17%、16.85%。 整体数据回暖之下，各家公司却呈现出剧烈分化：既有中邮保险、泰康人寿等巨头的稳健领跑，也有国民养老
 
 ## 正文
 
-中新网杭州4月22日电(林波)清晨，雾气从浙西南的山谷间升腾而起，景宁畲族自治县英川镇凤凰寨村的梯田如链似带，层层叠叠铺向云端。
+文/每日财报 栗佳 随着险企一季度偿付能力出炉，57 家非上市寿险经营状况明朗，行业保费与盈利显著复苏，同时呈现明显结构性分化。
 
-瀑布从崖壁跌落，水声在山谷间回荡。
+《每日财报》统计显示，57 家非上市寿险一季度保险业务收入 4873.43 亿元、净利润 120.16 亿元，同比分别增长 13.17%、16.85%。
 
-“每天我望着这片再熟悉不过的山水，就在想一件事：如何让城里人走进来，在这好山好水好空气中，找回一个好身体。
+整体数据回暖之下，各家公司却呈现出剧烈分化：既有中邮保险、泰康人寿等巨头的稳健领跑，也有国民养老、复星保德信人寿等公司的爆发式增长，同时亦不乏部分险企在转型阵痛中业绩持续承压。
 
-”凤凰寨村党总支书记、村委会主任陈先清受访时和作者分享了他的“心事”。
+保费规模排行：头部集中效应凸显，银行系亮眼 从保险业务收入来看，2026年一季度，57家非上市寿险公司整体的保费规模，不仅摆脱了此前的负增长阴影，更实现了双位数的高速增长，显示出行业负债端在经历调整后重拾动力。
 
-“我们那里偏远，做成大景区不容易，但做体育旅行，条件得天独厚。
+（1）双巨头“断层”领跑，银行系优势不可撼动。
 
-”近日，在杭州师范大学(以下简称“杭师大”)举行的一场特殊对接会上，陈先清带着他的“徒步计划”，面对高校体育学院的师生们，道出了酝酿已久的期盼。
+在收入排名的金字塔尖，中邮保险与泰康人寿继续牢牢占据前两位，形成了明显的“断层”优势。
 
-这位2021年起担任村书记的“领头雁”，早已把村里的资源禀赋摸了个透——瀑布、古道、梯田、星空。
+中邮保险凭借强大的银保渠道优势，一季度保险业务收入899.04亿元，同比增长12.23%，稳居榜首。
 
-这些城里人向往的自然元素，在凤凰寨村不过是日常。
+泰康人寿则以849.28亿元的成绩紧随其后，且同比增速高达21.28%，显示出极强的业务韧性。
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:08 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:17 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:30 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:10 - [中国信息科技拟按“2供1”基准进行供股 最高净筹约973万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:08 - [瑞典大瀑布电力退出苏格兰浮式风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:33 - [苑东生物一季度营收增6.75% 归母净利润同比下滑16.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:33 - [两极反转！国盛证券折戟“HTT”，一季度净利润暴跌97.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:14 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:08 - [美参议员沃伦就沃什提名、金融监管与伊朗局势发表强硬立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:32 - [生态产品价值如何实现？自然资源部介绍典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:27 - [【国际漫评】解禁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:21 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:06 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:35 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:33 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:23 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:32 - [一见·中美两个“大块头”如何相处？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:38 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:32 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:18 - [美国国税局或欠数百万纳税人疫情时代罚款减免退税 如何申请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:16 - [华宝基金红利风向标 | 创新高后三大指数涨跌不一，低波红利彰显防御力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:15 - [长江有色：12日铅价下跌 现货畏跌观望刚需采购为主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:17 - [“为AI发电”组合逆市走强！华宝基金创业板人工智能ETF、电力ETF携手涨超1%！硬科技宽基双创50ETF续创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:39 - [韩国生物制药公司Celltrion收购法国Gifrer](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:23 - [2026年电影票房超140亿元："电影+”融合升级 惠民举措焕新消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](http://www.share.kurohicncr.top/Article/details/50487.shtml)
-- 2026-06-29 12:22 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.blog.kurohicncr.top/Article/details/0874610370.shtml)
-- 2026-06-29 12:10 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](http://www.share.minike.top/Article/details/7975871568.shtml)
-- 2026-06-29 12:07 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.share.minike.top/Article/details/25235.shtml)
-- 2026-06-29 12:10 - [百思买CEO科里・巴里因公司多年增长疲软卸任](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [Keurig与雀巢续签协议，延续星巴克咖啡分销合作](http://www.blog.minike.top/Article/details/597784.shtml)
-- 2026-06-29 12:23 - [登山、换“蔬”、穿汉服……阅读周，“悦”读正当时](http://www.share.kurohicncr.top/Article/details/49929.shtml)
-- 2026-06-29 12:35 - [破解临时用工难题 专家建议国家出台相关规范指引](http://www.share.kurohicncr.top/Article/details/594079936.shtml)
-- 2026-06-29 12:27 - [法治浙江二十年主题宣传活动启幕](http://www.blog.kurohicncr.top/Article/details/787546.shtml)
-- 2026-06-29 12:18 - [Engie CEO称勒庞能源计划对法国而言是“灾难”](http://www.share.minike.top/Article/details/765791453638.shtml)
-- 2026-06-29 12:35 - [一季度江西外贸进出口增长16% 汽车出口大增](http://www.blog.minike.top/Article/details/28050914247.shtml)
-- 2026-06-29 12:22 - [中超第七轮：上海海港不敌黑马新军 北京国安绝杀深圳新鹏城](http://www.blog.minike.top/Article/details/325664.shtml)
-- 2026-06-29 12:08 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.share.minike.top/Article/details/635896.shtml)
+- 2026-06-29 12:13 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.blog.kurohicncr.top/Article/details/204344.shtml)
+- 2026-06-29 12:24 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.share.minike.top/Article/details/60715.shtml)
+- 2026-06-29 12:41 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.share.minike.top/Article/details/55211992.shtml)
+- 2026-06-29 12:13 - [华泰期货：原油市场处于暴风雨前的平静](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.minike.top/Article/details/359611853224.shtml)
+- 2026-06-29 12:21 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/58871.shtml)
+- 2026-06-29 12:28 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [国产芯片彻底爆发，3000亿存储巨头狂飙！华宝基金科创芯片ETF（589190）上探6.5%再创新高，行情到哪了？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板](http://www.blog.kurohicncr.top/Article/details/14949665.shtml)
+- 2026-06-29 12:28 - [AI会取代哪些职业？多个AI意见不统一](http://www.blog.minike.top/Article/details/88396247.shtml)
+- 2026-06-29 12:31 - [酒价内参5月12日价格发布：习酒君品下跌6元](http://www.share.kurohicncr.top/Article/details/526519892411.shtml)
+- 2026-06-29 12:41 - [晋级四强！U17女足亚洲杯中国队3∶0战胜印度队](http://www.blog.kurohicncr.top/Article/details/864015154602.shtml)
+- 2026-06-29 12:12 - [贵港海关缉私分局2026年公务租车定点服务比选采购公告](http://www.blog.kurohicncr.top/Article/details/374130143573.shtml)
+- 2026-06-29 12:37 - [河南迎入夏首轮大范围高温天气](http://www.share.kurohicncr.top/Article/details/495015382760.shtml)
+- 2026-06-29 12:32 - [燃料价格居高不下 特朗普支持暂停联邦汽油税](http://www.share.kurohicncr.top/Article/details/31484149978.shtml)

@@ -1,52 +1,50 @@
-# 4月22日“农产品批发价格200指数”与昨天持平
+# 康特隆：呈请人撤回对附属公司的清盘呈请
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据农业农村部网站消息，据农业农村部监测，4月22日“农产品批发价格200指数”为116.48，与昨天持平，“菜篮子”产品批发价格指数为117.13，与昨天持平。截至今日14:00时，全国农产品批发市场猪肉平均价格为14.68元/公斤，比昨天下降0.7%；牛肉66.57元/公斤，比昨天上升0.8%；羊肉64.48元/公斤，比昨天下降0.1%；鸡蛋8.51元/公
+康特隆（01912）发布公告，有关对飞环电子有限公司及英浩科技有限公司的呈请，附属公司的法律代表于今日接获法院的短简，说明法院已于2026年5月5日颁发命令，批准撤回呈请。因此，呈请已由呈请人撤回，且于本公告日期概无其他涉及附属公司的法律程序。责任编辑：卢昱君
 
 ## 正文
 
-中新网4月22日电 据农业农村部网站消息，据农业农村部监测，4月22日“农产品批发价格200指数”为116.48，与昨天持平，“菜篮子”产品批发价格指数为117.13，与昨天持平。
+康特隆（01912）发布公告，有关对飞环电子有限公司及英浩科技有限公司的呈请，附属公司的法律代表于今日接获法院的短简，说明法院已于2026年5月5日颁发命令，批准撤回呈请。
 
-截至今日14:00时，全国农产品批发市场猪肉平均价格为14.68元/公斤，比昨天下降0.7%；牛肉66.57元/公斤，比昨天上升0.8%；羊肉64.48元/公斤，比昨天下降0.1%；鸡蛋8.51元/公斤，比昨天上升0.6%；白条鸡17.25元/公斤，比昨天下降0.3%。
+因此，呈请已由呈请人撤回，且于本公告日期概无其他涉及附属公司的法律程序。
 
-重点监测的28种蔬菜平均价格为4.37元/公斤，比昨天上升0.7%；重点监测的6种水果平均价格为7.65元/公斤，比昨天上升0.7%。
-
-鲫鱼19.98元/公斤，比昨天下降0.5%；鲤鱼14.65元/公斤，比昨天下降0.7%；白鲢鱼10.50元/公斤，比昨天下降3.0%；大带鱼41.68元/公斤，与昨天持平。
-
-今日，国内鲜活农产品批发市场重点监测的46个品种中，与昨天相比价格升幅前五名的是洋白菜、油菜、芹菜、平菇和巨峰葡萄，幅度分别为3.3%、2.8%、1.9%、1.8%和1.7%；价格降幅前五名的是白鲢鱼、南瓜、大葱、莴笋和花鲢鱼，幅度分别为3.0%、2.5%、1.1%、1.0%和1.0%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [习近平会见老挝人民革命党中央总书记、国家主席特使沙伦赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:10 - [浙江探索“村校共建” 以体育小切口撬动共富大文章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:27 - [美联储主席提名人沃什阐述美联储政策主张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:14 - [日经指数首次升破60000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:11 - [俄军总参谋长：已完全控制卢甘斯克地区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:16 - [鸡煲带火祛湿养生，体内湿气到底是啥？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:27 - [以绿电驱动算力 以算力消纳绿电——新疆推动能源优势向数字优势转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:22 - [从三组卫星遥感图看生态保护成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:08 - [东方证券“吞并”上海证券，券业整合进入深水区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:10 - [停火期限还没到，又要开打？一图直击美以伊跌宕起伏14天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:14 - [特朗普专访：威慑伊朗、拒延停火，点名美联储与最高法院！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:21 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:41 - [海上诗路再传芬芳：中阿青年诗人共赋粤韵新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:18 - [透视57家非上市寿险公司一季度答卷：谁在筑高墙，谁在滑坡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:35 - [地缘局势不确定性加剧市场担忧，国际油价持续走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:24 - [暑期票房迎来火爆开局 周末票房突破1.6亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:26 - [监管重拳直击“担保费”：哈啰臻有钱紧急重构，如何重塑业务模式？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:30 - [尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:13 - [伊朗外长表示：核设施遭袭后 400余公斤浓缩铀被埋地下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:32 - [宁德市大黄鱼产业学院揭牌 赋能“中国大黄鱼之都”高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:37 - [2026基金投资，这款APP对新手特别友好！值得拥有！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:39 - [韩国Kospi指数逼近8,000点大关 受SK海力士和三星股价上涨提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:35 - [日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:37 - [一见·中美两个“大块头”如何相处？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:13 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:39 - [涉疫邮轮疏散乘客后前往荷兰 2名乘客离船后确诊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [全球电力回顾报告：2025年化石燃料发电量零增长](http://www.blog.minike.top/Article/details/9549415.shtml)
-- 2026-06-29 12:11 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](http://www.share.kurohicncr.top/Article/details/15202578872.shtml)
-- 2026-06-29 12:22 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [美股三大指数集体高开，布油重回100美元上方](http://www.blog.minike.top/Article/details/79845539.shtml)
-- 2026-06-29 12:06 - [美股回吐涨幅，美债收益率上行](http://www.share.kurohicncr.top/Article/details/847383872923.shtml)
-- 2026-06-29 12:18 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](http://www.share.minike.top/Article/details/76771.shtml)
-- 2026-06-29 12:23 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](http://www.blog.kurohicncr.top/Article/details/028569205.shtml)
-- 2026-06-29 12:23 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](http://www.share.kurohicncr.top/Article/details/408205828.shtml)
-- 2026-06-29 12:16 - [原油：油价上涨 投资者对美伊会谈的疑虑加剧](http://www.share.minike.top/Article/details/05964756165.shtml)
-- 2026-06-29 12:16 - [原万家基金董事长方一天，今日被提名华安基金总经理](http://www.blog.kurohicncr.top/Article/details/859490.shtml)
-- 2026-06-29 12:08 - [百思买CEO科里・巴里因公司多年增长疲软卸任](http://www.share.minike.top/Article/details/31326696261.shtml)
-- 2026-06-29 12:23 - [因伊朗冲突等不确定性 IBM对业绩指引保持谨慎](http://www.blog.kurohicncr.top/Article/details/75016132941.shtml)
+- 2026-06-29 12:22 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](http://www.blog.kurohicncr.top/Article/details/60425.shtml)
+- 2026-06-29 12:25 - [上海：“乘物游心”书画联展对公众开放](http://www.share.kurohicncr.top/Article/details/5064799.shtml)
+- 2026-06-29 12:17 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](http://www.blog.minike.top/Article/details/459230.shtml)
+- 2026-06-29 12:27 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](http://www.blog.kurohicncr.top/Article/details/94600310478.shtml)
+- 2026-06-29 12:41 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](http://www.share.kurohicncr.top/Article/details/89659211271.shtml)
+- 2026-06-29 12:20 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](http://www.share.kurohicncr.top/Article/details/15634.shtml)
+- 2026-06-29 12:40 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](http://www.blog.kurohicncr.top/Article/details/368232195.shtml)
+- 2026-06-29 12:40 - [中英“乒乓外交”55周年纪念活动在伦敦举行](http://www.share.minike.top/Article/details/6233902.shtml)
+- 2026-06-29 12:35 - [门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号](http://www.share.kurohicncr.top/Article/details/1198717792.shtml)
+- 2026-06-29 12:20 - [黑龙江第45届爱鸟周启动 东林校地联动守护飞羽精灵](http://www.blog.minike.top/Article/details/388620.shtml)
+- 2026-06-29 12:24 - [华泰期货：原油市场处于暴风雨前的平静](http://www.blog.kurohicncr.top/Article/details/35385.shtml)
+- 2026-06-29 12:39 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.kurohicncr.top/Article/details/917630.shtml)
+- 2026-06-29 12:36 - [张凌赫、刘宇宁受欢迎 台演艺界人士说“非常希望请到台湾演出”](http://www.share.kurohicncr.top/Article/details/90438972503.shtml)
+- 2026-06-29 12:22 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](https://github.com/lisacumin64-arch)

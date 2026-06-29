@@ -1,61 +1,59 @@
-# 基金日报 | 今年以来新发基金规模超3500亿元
+# 什么软件可以看基金的实时估值？这款软件可以满足你的投资需求
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-来源：天相投顾 摘 要 （数据截点 2026.04.21） 动态雷达 1． 全市场增聘基金经理17人次，解聘基金经理27人次。 2． 3只基金发售，5只基金分红，5只基金修改合同。 3． 1家基金管理人发生高管变动，无基金管理人发生股权变动。 资金流向 1． 南向资金净买入37.38港币亿元。 2． 中证800资金流出0.04亿元，规模为60.51亿元；中证500资金流出37.
+对于投资基金的朋友来说，盘中实时查看基金的估算净值和涨跌幅，是把握市场节奏、辅助投资决策的重要习惯。但2023年以来，受监管规范数据披露和引导长期投资理念的影响，天天基金、支付宝等主流第三方平台已陆续下线了基金实时估值展示功能。不少投资者发现，打开常用的理财软件后，曾经熟悉的“盘中净值估算”栏已然消失，给日常基金跟踪带来了诸多不便。 与此同时，大盘的大幅波动使得盘中及时掌握基金
 
 ## 正文
 
-来源：天相投顾 摘 要 （数据截点 2026.04.21） 动态雷达 1． 全市场增聘基金经理17人次，解聘基金经理27人次。
+对于投资基金的朋友来说，盘中实时查看基金的估算净值和涨跌幅，是把握市场节奏、辅助投资决策的重要习惯。
 
-2． 3只基金发售，5只基金分红，5只基金修改合同。
+但2023年以来，受监管规范数据披露和引导长期投资理念的影响，天天基金、支付宝等主流第三方平台已陆续下线了基金实时估值展示功能。
 
-3． 1家基金管理人发生高管变动，无基金管理人发生股权变动。
+不少投资者发现，打开常用的理财软件后，曾经熟悉的“盘中净值估算”栏已然消失，给日常基金跟踪带来了诸多不便。
 
-资金流向 1． 南向资金净买入37.38港币亿元。
+与此同时，大盘的大幅波动使得盘中及时掌握基金动态变得更为迫切。
 
-2． 中证800资金流出0.04亿元，规模为60.51亿元；中证500资金流出37.62亿元，规模为1248.49亿元。
+在众多可供选择的看盘工具中，新浪财经APP凭借其强大的数据整合能力和全面的基金工具配套，成为当前最能满足基金实时估值查询需求的综合平台，尤其适用于有股票账户、同时操作场内ETF和场外基金的活跃型投资者。
 
-3． 价值风格资金流入4.52亿元，规模为4464.57亿元；均衡风格资金流出105.70亿元，规模为11621.07亿元。
+一、基金实时估值的意义与功能 基金实时估值，是指第三方平台根据基金最新定期报告披露的历史持仓仓位和重仓股信息，结合当天相关资产的实时价格波动进行动态估算，从而在交易时段内模拟出基金份额的实时市值变化。
 
-4． 制造资金流入11.39亿元，规模为2603.52亿元；资源资金流出12.28亿元，规模为1950.91亿元。
+这项功能让投资者不必等到晚间净值揭晓，就能在盘中大致了解基金当日的收益变动情况，对于实施网格交易、定投择时等策略有着重要的辅助作用。
 
-参考消息 1． 今年以来新发基金规模超3500亿元。
+与股票盘中价格实时成交、实时可见不同，基金的实际净值需要在每个交易日收盘后，由基金公司清算所有持仓资产并扣除相关费用后才能计算并统一公布，盘中根本不存在一份确定的“真实净值”。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:27 - [贵阳银行：一季度归母净利润14.77亿元，同比增加2.37%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:24 - [美股周一创下4月6日以来最大零售股票买入日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:25 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:33 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:27 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:21 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:28 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:30 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:16 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:31 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:26 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:08 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:12 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:23 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:24 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:31 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:13 - [特朗普推迟下调牛肉进口关税计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:35 - [博时宏观观点：关注特朗普访华及中美通胀数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:26 - [铜：供应扰动持续，铜价中枢上移](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:27 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:28 - [豪买16亿元后，裘国根罕见现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:15 - [Fugro获得苏格兰海上风电场勘测合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:17 - [2026金砖国家工业创新大赛决赛在厦门开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:19 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:19 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:13 - [王毅同巴基斯坦副总理兼外长通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:32 - [中国逊克口岸2026年明水期正式开关通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.blog.kurohicncr.top/Article/details/065566089846.shtml)
-- 2026-06-29 12:17 - [多支欧洲足球劲旅将于8月会师香港](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [美国债市：美伊谈判悬而未决 油价上涨拖累美债](http://www.blog.minike.top/Article/details/521791.shtml)
-- 2026-06-29 12:25 - [算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入](http://www.blog.kurohicncr.top/Article/details/153897.shtml)
-- 2026-06-29 12:23 - [世界读书日：寻访巷陌深处的“老昆明”](http://www.share.kurohicncr.top/Article/details/936078736809.shtml)
-- 2026-06-29 12:21 - [兰石重装（603169）公司+控股股东被立案！符合条件股民可索赔](http://www.blog.kurohicncr.top/Article/details/84675830.shtml)
-- 2026-06-29 12:14 - [第三艘美国航空母舰预计将在3至5天内抵达中东](http://www.blog.kurohicncr.top/Article/details/4980807601.shtml)
-- 2026-06-29 12:18 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](http://www.share.minike.top/Article/details/7008862.shtml)
-- 2026-06-29 12:11 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](http://www.share.minike.top/Article/details/2536814641.shtml)
-- 2026-06-29 12:31 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](http://www.blog.minike.top/Article/details/242388299.shtml)
-- 2026-06-29 12:25 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](http://www.blog.minike.top/Article/details/37940809779.shtml)
-- 2026-06-29 12:21 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](http://www.blog.minike.top/Article/details/097381.shtml)
-- 2026-06-29 12:08 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](http://www.blog.kurohicncr.top/Article/details/03242.shtml)
-- 2026-06-29 12:26 - [崖沙燕“如约”重返永定河](http://www.share.kurohicncr.top/Article/details/4334196303.shtml)
+- 2026-06-29 12:19 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [上海居民何时能去台湾本岛个人游？国台办回应](http://www.blog.minike.top/Article/details/033689671004.shtml)
+- 2026-06-29 12:31 - [华宝基金红利风向标 | 华宝红利家族全线飘红，当下均衡红利策略或为较优解](http://www.blog.kurohicncr.top/Article/details/2562306.shtml)
+- 2026-06-29 12:32 - [南方人是怎么爱上北方奶茶的？](http://www.blog.kurohicncr.top/Article/details/70567918.shtml)
+- 2026-06-29 12:26 - [斯塔默在重要内阁会议前夕，权衡能否保住首相职位](http://www.blog.minike.top/Article/details/966589925.shtml)
+- 2026-06-29 12:32 - [印度4月通胀连续第六个月攀升，但低于市场预期](http://www.share.minike.top/Article/details/72115.shtml)
+- 2026-06-29 12:32 - [2026年“文化中国·水立方杯”中文歌曲大赛比利时赛区决赛举行](http://www.blog.minike.top/Article/details/758989.shtml)
+- 2026-06-29 12:14 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](http://www.share.minike.top/Article/details/995402.shtml)
+- 2026-06-29 12:28 - [摩根大通将对投行业务高层进行改组](http://www.share.minike.top/Article/details/1354351.shtml)
+- 2026-06-29 12:33 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](http://www.share.minike.top/Article/details/106952549.shtml)
+- 2026-06-29 12:33 - [内蒙古厅官马保国、房瑞夜间官宣被查](http://www.blog.kurohicncr.top/Article/details/86524826.shtml)
+- 2026-06-29 12:19 - [24项改革措施，推动综合保税区扩能提质（政策解读）](http://www.share.minike.top/Article/details/977731.shtml)
+- 2026-06-29 12:17 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](http://www.blog.kurohicncr.top/Article/details/812902.shtml)
+- 2026-06-29 12:32 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](http://www.share.minike.top/Article/details/142068.shtml)
+- 2026-06-29 12:35 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](http://www.share.minike.top/Article/details/864057.shtml)

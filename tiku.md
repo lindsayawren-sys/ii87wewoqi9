@@ -1,59 +1,56 @@
-# 2026年渣打香港马拉松带来3.38亿港元经济效益
+# 多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社香港4月22日电 2026年渣打香港马拉松大会22日发布环境、社会及管治(ESG)报告显示，该赛事为香港带来3.38亿港元经济效益。 赛事主办方中国香港田径总会委托香港理工大学研究及创新事务处进行赛后问卷调查，访问逾1万名参赛选手。结果显示，本地及非本地选手在零售、餐饮、酒店、文娱活动及交通等方面的消费开支，形成赛事经济叠加效应。 报告指出，赛事为50家香港社福机构提供筹
+多点数智（02586）盘中涨超7%，截至发稿，股价上涨3.54%，现报6.73港元，成交额3391.194万港元。 多点数智发布公告，于2026年5月12日（东部标准时间）（美国场外市场交易时段前；相当于香港时间2026年5月12日联交所交易时段后），买方Retail Technology Asia Limited（公司的全资附属公司）与相关方就Cloopen的建议私有化订立该
 
 ## 正文
 
-中新社香港4月22日电 2026年渣打香港马拉松大会22日发布环境、社会及管治(ESG)报告显示，该赛事为香港带来3.38亿港元经济效益。
+多点数智（02586）盘中涨超7%，截至发稿，股价上涨3.54%，现报6.73港元，成交额3391.194万港元。
 
-赛事主办方中国香港田径总会委托香港理工大学研究及创新事务处进行赛后问卷调查，访问逾1万名参赛选手。
+多点数智发布公告，于2026年5月12日（东部标准时间）（美国场外市场交易时段前；相当于香港时间2026年5月12日联交所交易时段后），买方Retail Technology Asia Limited（公司的全资附属公司）与相关方就Cloopen的建议私有化订立该等协议，其美国存托股份于美国场外市场报价。
 
-结果显示，本地及非本地选手在零售、餐饮、酒店、文娱活动及交通等方面的消费开支，形成赛事经济叠加效应。
+根据该等协议，买方有条件同意作为股权投资者参与建议私有化，承诺以现金购买价总额3600万美元购买母公司SpringX Holdings Limited的股权。
 
-报告指出，赛事为50家香港社福机构提供筹款平台，筹得近1500万港元善款，较上届增加约36%，创历届新高。
+最终动用的承诺金额，以及买方据此将取得的母公司相应股权，须根据多点股权承诺函及临时投资者协议进行潜在调整（下调或上调）。
 
-此外，赛事通过一系列节约资源、减废及回收措施，实践可持续发展，超过85%受访选手对赛事安排感到满意。
+每项该等协议以及整体建议私有化均须达成多项条件。
 
-中国香港田径总会主席关祺表示，很高兴选手满意赛事安排及各类环保措施，这为来年赛事提供重要参考。
+假设所有条件均根据相关协议的条款达成或获豁免，且基于目前预期动用的承诺金额约3547.27万美元，则于合并完成及合并生效后，买方将持有母公司约49.79%的股权，而母公司则进而持有Cloopen约68.73%的股权；即买方将持有Cloopen约34.22%的有效经济权益。
 
-他也乐见赛事带动本地消费，将盛事经济成果最大化。
-
-渣打香港马拉松是香港年度国际盛事，本届赛事于2026年1月18日举行，约7.4万人参赛。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:20 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:12 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:12 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:30 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:11 - [以军称黎巴嫩真主党“违反停火协议”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:21 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:28 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:16 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:20 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:24 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:26 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:27 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:27 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:17 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:28 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:39 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:12 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:21 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:34 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:23 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:39 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:33 - [RYOEX:金价反弹站上四千七百](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:17 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:24 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [浙江进入汛期以来首次区域性强降雨过程](http://www.share.kurohicncr.top/Article/details/268421545544.shtml)
-- 2026-06-29 12:06 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.blog.minike.top/Article/details/96870441525.shtml)
-- 2026-06-29 12:33 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](http://www.share.kurohicncr.top/Article/details/421643612775.shtml)
-- 2026-06-29 12:19 - [从承诺到行动 多方共议以多边合作引领可持续发展](http://www.blog.minike.top/Article/details/24038306.shtml)
-- 2026-06-29 12:19 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.blog.minike.top/Article/details/3918641218.shtml)
-- 2026-06-29 12:09 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [柬埔寨首相洪玛奈会见王毅一行](http://www.share.kurohicncr.top/Article/details/191732045.shtml)
-- 2026-06-29 12:20 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.share.minike.top/Article/details/002239031.shtml)
-- 2026-06-29 12:21 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](http://www.share.minike.top/Article/details/41496768.shtml)
-- 2026-06-29 12:27 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](http://www.share.kurohicncr.top/Article/details/358454.shtml)
-- 2026-06-29 12:10 - [重组计划会影响IPO吗？阿维塔回应](http://www.share.kurohicncr.top/Article/details/48203416.shtml)
-- 2026-06-29 12:33 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](http://www.share.kurohicncr.top/Article/details/78624764062.shtml)
-- 2026-06-29 12:30 - [亚马逊深化与Anthropic的合作](http://www.blog.kurohicncr.top/Article/details/056646.shtml)
-- 2026-06-29 12:08 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.blog.minike.top/Article/details/967548507.shtml)
-- 2026-06-29 12:10 - [莎士比亚经典喜剧《第十二夜》在成都上演](http://www.blog.kurohicncr.top/Article/details/50688201812.shtml)
+- 2026-06-29 12:29 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.share.kurohicncr.top/Article/details/52408309954.shtml)
+- 2026-06-29 12:24 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.minike.top/Article/details/82639.shtml)
+- 2026-06-29 12:22 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/4598955066.shtml)
+- 2026-06-29 12:15 - [英伟达宣布与康宁建立多年合作伙伴关系](http://www.share.minike.top/Article/details/532136221.shtml)
+- 2026-06-29 12:20 - [白衣天使，节日快乐！](http://www.blog.kurohicncr.top/Article/details/7285197.shtml)
+- 2026-06-29 12:37 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.blog.minike.top/Article/details/10179129.shtml)
+- 2026-06-29 12:26 - [美国能源信息署：美国2026年和2027年用电量将连创新高](http://www.share.kurohicncr.top/Article/details/99834561029.shtml)
+- 2026-06-29 12:20 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](http://www.blog.minike.top/Article/details/81511411422.shtml)
+- 2026-06-29 12:15 - [日本央行一名审议委员：可能在下次政策会议上加息](http://www.share.kurohicncr.top/Article/details/05900428.shtml)
+- 2026-06-29 12:17 - [美国总统特朗普今起对中国进行国事访问](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [受AI热潮提振，日经指数或将上涨](http://www.share.minike.top/Article/details/4680208265.shtml)
+- 2026-06-29 12:26 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](http://www.share.kurohicncr.top/Article/details/0104811.shtml)
+- 2026-06-29 12:41 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](http://www.blog.minike.top/Article/details/9129581.shtml)

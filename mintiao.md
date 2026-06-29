@@ -1,51 +1,59 @@
-# 三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元
+# Monday.com大涨13%，此前公布一季度业绩全面超预期
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月17日，Schroders PLC增持三花智控（02050）354.39万股，每股作价31.8003港元，总金额约为1.13亿港元。增持后最新持股数目为6040.95万股，最新持股比例为12.68%。责任编辑：卢昱君
+项目管理软件公司Monday.com周一盘前股价大涨逾10%，此前该公司公布的第一季度财报全面超越市场预期，并上调了全年营收指引，一扫此前因保守展望引发的市场阴霾。 财报显示，第一季度营收达3.513亿美元，同比增长24%，高于市场预期的3.39亿美元；Non-GAAP每股收益为1.15美元，较预期的0.945美元高出0.22美元。公司还宣布推出全新的AI工作平台，包括原生AI
 
 ## 正文
 
-香港联交所最新数据显示，4月17日，Schroders PLC增持三花智控（02050）354.39万股，每股作价31.8003港元，总金额约为1.13亿港元。
+项目管理软件公司Monday.com周一盘前股价大涨逾10%，此前该公司公布的第一季度财报全面超越市场预期，并上调了全年营收指引，一扫此前因保守展望引发的市场阴霾。
 
-增持后最新持股数目为6040.95万股，最新持股比例为12.68%。
+财报显示，第一季度营收达3.513亿美元，同比增长24%，高于市场预期的3.39亿美元；Non-GAAP每股收益为1.15美元，较预期的0.945美元高出0.22美元。
 
-责任编辑：卢昱君
+公司还宣布推出全新的AI工作平台，包括原生AI代理和基于消耗量的新定价模型。
+
+此外，总剩余履约义务达到8.8亿美元，同比增长33%，显示出强劲的未来收入储备。
+
+值得注意的是，此次财报中，公司将2026年全年营收指引从此前的14.6亿美元上调至约14.9亿美元，一改2月财报后因下调指引导致股价暴跌21%的局面。
+
+彼时市场担忧软件行业增长放缓、AI投资挤压利润率，引发SaaS板块集体下挫。
+
+而今，Monday.com用超预期业绩和上调的指引回应了质疑，盘前股价应声大涨，带动部分软件股跟涨。
+
+该公司还在此前回购了5.53亿美元股票，显示管理层对价值的信心。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [布伦特原油逼近100美元，美伊停火即将到期，和谈前景不明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:18 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:22 - [日本126名议员集体参拜靖国神社](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:13 - [绿的谐波：一季度净利润同比增长61.17%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:09 - [全球电力回顾报告：2025年化石燃料发电量零增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:08 - [台湾作家新作《往日食光》书写家常风味 蕴藏两岸记忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:20 - [苹果公司如何留住顶尖人才 将是下任CEO特纳斯最棘手的难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:18 - [美国财长贝森特：多个海湾盟国和一些亚洲国家询问货币互换额度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:11 - [4月23日外盘头条：特朗普延长停火 特斯拉一季度营收224亿美元 IBM第一季度业绩好于预期 美国消费者信心低迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:08 - [美股三大指数集体高开，布油重回100美元上方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:32 - [美股回吐涨幅，美债收益率上行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:17 - [华为迟林春：乾崑智驾累计辅助驾驶里程达100亿公里，预计今年10月超越特斯拉位居全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:15 - [2026炒股开户，哪家券商的股票佣金费率最低？避坑指南来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:18 - [多浦乐2025年度归母净利润约6649万元 同比增28.85%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:32 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:34 - [金观平：千方百计稳住就业基本盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:28 - [日本学者表示：日本政府修宪扩军路线破坏地区稳定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:27 - [第四届老山国际春茶节专场活动在云南麻栗坡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:41 - [委内瑞拉代总统否认该国将成为美国“第51州”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:31 - [简化程序而非自动归还 流落法国的各国文物何时“回家”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:36 - [上海：“乘物游心”书画联展对公众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:24 - [唐纳德·特朗普称伊朗停火协议已经岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:17 - [文远知行-W午前涨超4% 中信建投维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:16 - [专家：警惕日本极右翼“借尸还魂” 中国将坚决遏制其妄动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:29 - [5月13日人民币对美元中间价报6.8431元 下调5个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:27 - [华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:21 - [REF HOLDINGS拟折让约19.82%配售最多5120万股 净筹约2271万港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:16 - [中英“乒乓外交”55周年纪念活动在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [白宫向福克斯新闻透露：特朗普将伊朗停火期限延长3-5天](http://www.blog.kurohicncr.top/Article/details/0425196.shtml)
-- 2026-06-29 12:34 - [上市公司市值管理实践：中国建筑从“战术”到“战略”](http://www.share.kurohicncr.top/Article/details/068686.shtml)
-- 2026-06-29 12:10 - [延边州首个百兆瓦级独立构网型储能电站开建](http://www.blog.minike.top/Article/details/874003839.shtml)
-- 2026-06-29 12:19 - [特朗普称最快周五或重启美伊新一轮和谈](http://www.share.kurohicncr.top/Article/details/5826520683.shtml)
-- 2026-06-29 12:18 - [劳埃德银行试点AI投资指导工具，英国监管机构正研究其影响](http://www.blog.kurohicncr.top/Article/details/02944.shtml)
-- 2026-06-29 12:11 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.share.kurohicncr.top/Article/details/406625.shtml)
-- 2026-06-29 12:07 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.minike.top/Article/details/952566.shtml)
-- 2026-06-29 12:17 - [连亏5年，越亏越多！知名超市学胖东来效果不佳，去年关店414家，巨亏9.57亿元，最新市值仅35亿元](http://www.share.kurohicncr.top/Article/details/81710.shtml)
-- 2026-06-29 12:28 - [Mhmarkets迈汇:贵金属需求持续走强](http://www.blog.minike.top/Article/details/840173479347.shtml)
-- 2026-06-29 12:14 - [多地学子齐聚沈阳 共同迎接第十三批志愿军英烈归国](http://www.blog.minike.top/Article/details/6060428.shtml)
-- 2026-06-29 12:21 - [落地15年来持续升级 海南离岛免税政策激活发展动力](http://www.blog.minike.top/Article/details/081754535493.shtml)
-- 2026-06-29 12:26 - [最可爱的人回来了！迎接烈士回国 塔台对话听到泪目](http://www.blog.minike.top/Article/details/170739796119.shtml)
-- 2026-06-29 12:12 - [放量突破！高“光”创业板人工智能ETF华宝（159363）猛攻3%再创新高！光模块+算力租赁双轮驱动！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [联合航空CEO谈迷幻药疗法：从个人体验到行业变革](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [Adobe宣布250亿美元股票回购计划 此前AI颠覆担忧拖累股价](http://www.blog.minike.top/Article/details/961153.shtml)
+- 2026-06-29 12:22 - [瑞士研发出“熊脸识别”人工智能模型](http://www.blog.minike.top/Article/details/027061285.shtml)
+- 2026-06-29 12:28 - [67家人身险公司仅212.6万个险代理人！人数见底，行业行至分水岭](http://www.blog.minike.top/Article/details/98474.shtml)
+- 2026-06-29 12:27 - [英国政治危机进一步加剧 国债与英镑双双重挫](http://www.blog.minike.top/Article/details/99628.shtml)
+- 2026-06-29 12:18 - [全国人大常委会办公厅在郑州举办地方人大常委会负责同志专题学习班](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [特朗普访华期间是否会讨论台湾和香港有关问题？外交部回应](http://www.share.minike.top/Article/details/357493779800.shtml)
+- 2026-06-29 12:26 - [宣称“纯棉”内裤实为100%聚酯纤维 “假一赔十”能落实吗？](http://www.blog.minike.top/Article/details/56489515216.shtml)
+- 2026-06-29 12:36 - [石油直线飙升！美伊谈判，最新变数](http://www.share.minike.top/Article/details/23820.shtml)
+- 2026-06-29 12:16 - [农家书屋不止于书 探索“阅”见乡村新方式](http://www.share.minike.top/Article/details/06876681.shtml)
+- 2026-06-29 12:19 - [歌礼制药-B获GIC Private Limited增持12.2万股 每股作价16.612港元](http://www.blog.minike.top/Article/details/59499.shtml)
+- 2026-06-29 12:25 - [东北证券：中国宏桥首予“买入”评级 目标价42港元](http://www.share.minike.top/Article/details/763696884.shtml)
+- 2026-06-29 12:30 - [黄金生产商Caledonia Mining派发每股0.14美元季度股息，金价大涨抵消产量下滑影响](http://www.share.minike.top/Article/details/10614125.shtml)
+- 2026-06-29 12:31 - [日本北海道发生4.8级地震](http://www.blog.minike.top/Article/details/075463.shtml)
+- 2026-06-29 12:36 - [湖北武汉：防灾减灾教育进校园](http://www.blog.kurohicncr.top/Article/details/3248906666.shtml)
+- 2026-06-29 12:31 - [湖南“云签发”首票供港活猪《动物卫生证书》](http://www.share.minike.top/Article/details/32453938.shtml)
+- 2026-06-29 12:28 - [既生瑜何生亮！月之暗面与 DeepSeek的“终局之战”到来了](http://www.share.kurohicncr.top/Article/details/4126654643.shtml)

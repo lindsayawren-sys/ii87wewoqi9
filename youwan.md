@@ -1,59 +1,53 @@
-# “6.0%”的浙江看点
+# 再鼎医药盘中涨超5% zoci获FDA快速通道资格认定
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网杭州4月22日电(鲍梦妮)GDP23684亿元，同比增长6.0%。 日前，经济大省浙江官宣一季度经济“成绩单”。在国际环境跌宕起伏，外部风险显著上升，国内有效需求不足的背景下，该省经济运行呈现出开局有力、稳中有进、向新向好的局面。 “6%”的增速背后，浙江的诸多亮点值得关注。 首先是高新技术产业投资加码，增长动能持续释放。 今年1月，国内首个海上回收复用火箭基地在杭州市钱
+再鼎医药（09688）盘中涨超5%，截至发稿，股价上涨2.12%，现报15.45港元，成交额7571.45万港元。 5月11日，据再鼎医药官微消息，公司宣布，美国食品药品监督管理局（FDA）已授予具有同类首创潜力的靶向Delta样配体3（DLL3）的抗体药物偶联物（ADC）zocilurtatug pelitecan（zoci，前称ZL-1310）快速通道资格认定，用于治疗在接
 
 ## 正文
 
-中新网杭州4月22日电(鲍梦妮)GDP23684亿元，同比增长6.0%。
+再鼎医药（09688）盘中涨超5%，截至发稿，股价上涨2.12%，现报15.45港元，成交额7571.45万港元。
 
-日前，经济大省浙江官宣一季度经济“成绩单”。
+5月11日，据再鼎医药官微消息，公司宣布，美国食品药品监督管理局（FDA）已授予具有同类首创潜力的靶向Delta样配体3（DLL3）的抗体药物偶联物（ADC）zocilurtatug pelitecan（zoci，前称ZL-1310）快速通道资格认定，用于治疗在接受一线标准治疗后出现疾病进展的epNECs。
 
-在国际环境跌宕起伏，外部风险显著上升，国内有效需求不足的背景下，该省经济运行呈现出开局有力、稳中有进、向新向好的局面。
+此前，在美国癌症研究协会（AACR）2026年年会上，再鼎医药公布了一项zoci针对epNEC及其他特定实体瘤的正在进行的、注册支持性的1b/2期多中心临床研究取得的令人鼓舞的初步数据。
 
-“6%”的增速背后，浙江的诸多亮点值得关注。
-
-首先是高新技术产业投资加码，增长动能持续释放。
-
-今年1月，国内首个海上回收复用火箭基地在杭州市钱塘区开工。
-
-该项目总投资52亿元，项目包括回收复用中心、检测检验中心、生产制造中心，建成后将具备年产25发火箭的规模化制造能力。
-
-这是浙江加快推动产业转型升级、构建现代产业体系的缩影。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:27 - [比特币较2月份低点上涨超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:07 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:06 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:07 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:14 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:14 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:27 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:19 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:35 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:22 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:26 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:06 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:21 - [高油价阴云笼罩！日本20年期国债收益率创近30年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:32 - [塔吉克斯坦总统拉赫蒙向人民英雄纪念碑敬献花圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:18 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:22 - [三峡水库去冬今春枯水期累计补水超百亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:31 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:17 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:39 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:33 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:37 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:17 - [【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:12 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:14 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:23 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:26 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:29 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](http://www.share.kurohicncr.top/Article/details/277276.shtml)
-- 2026-06-29 12:07 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](http://www.share.minike.top/Article/details/823614829731.shtml)
-- 2026-06-29 12:33 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.blog.kurohicncr.top/Article/details/79222.shtml)
-- 2026-06-29 12:28 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.kurohicncr.top/Article/details/03887959.shtml)
-- 2026-06-29 12:08 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.share.kurohicncr.top/Article/details/9627455198.shtml)
-- 2026-06-29 12:10 - [中国隧道连续皮带机首次出口西班牙](http://www.share.minike.top/Article/details/372301.shtml)
-- 2026-06-29 12:23 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.share.kurohicncr.top/Article/details/894351547868.shtml)
-- 2026-06-29 12:34 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.blog.minike.top/Article/details/47615258558.shtml)
-- 2026-06-29 12:32 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.share.kurohicncr.top/Article/details/10171746.shtml)
-- 2026-06-29 12:15 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.share.minike.top/Article/details/80279159104.shtml)
-- 2026-06-29 12:13 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](http://www.share.kurohicncr.top/Article/details/05181904659.shtml)
-- 2026-06-29 12:17 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.kurohicncr.top/Article/details/24614104.shtml)
-- 2026-06-29 12:18 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.share.kurohicncr.top/Article/details/557449953619.shtml)
-- 2026-06-29 12:30 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.blog.kurohicncr.top/Article/details/1848363.shtml)
-- 2026-06-29 12:25 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.share.minike.top/Article/details/011464019009.shtml)
+- 2026-06-29 12:41 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.blog.minike.top/Article/details/959987.shtml)
+- 2026-06-29 12:29 - [加密货币立法再遇阻碍：工会阵营出面反对](http://www.share.minike.top/Article/details/3369130.shtml)
+- 2026-06-29 12:34 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.share.minike.top/Article/details/124819113977.shtml)
+- 2026-06-29 12:34 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [Meta因虚假广告面临审查](http://www.blog.kurohicncr.top/Article/details/84119.shtml)
+- 2026-06-29 12:34 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.share.minike.top/Article/details/109426.shtml)
+- 2026-06-29 12:38 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.blog.minike.top/Article/details/3251720359.shtml)
+- 2026-06-29 12:34 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.blog.kurohicncr.top/Article/details/045642814.shtml)
+- 2026-06-29 12:40 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.share.kurohicncr.top/Article/details/8741444048.shtml)
+- 2026-06-29 12:24 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](http://www.blog.minike.top/Article/details/9679950134.shtml)
+- 2026-06-29 12:27 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.share.minike.top/Article/details/564911442.shtml)
+- 2026-06-29 12:13 - [中国金茂：附属订立新框架协议及提供贷款](http://www.blog.kurohicncr.top/Article/details/692696448359.shtml)
+- 2026-06-29 12:16 - [新疆伊犁：天山红花盛放 五月草原景色美](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.kurohicncr.top/Article/details/29876003953.shtml)
+- 2026-06-29 12:40 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.share.minike.top/Article/details/2117273853.shtml)

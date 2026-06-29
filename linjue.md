@@ -1,56 +1,56 @@
-# 近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作
+# （文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-4月21日，国家防总办公室、应急管理部组织气象、水利等部门会商研判西南、江南、华南地区强降雨发展趋势，研究部署重点地区防汛抢险救灾工作。 会商指出，近期湖南、贵州、江西局地雨量打破同期纪录，20日开始的一轮降雨过程范围广、雨势强，据预测，26日起南方还将迎来一轮降雨过程。持续降雨导致部分地区土壤饱和，山洪地质灾害风险增大。 会商要求，要强化监测预报预警，综合运用多种手段提高短临
+中新社乌鲁木齐5月12日电 题：从织机到云端：新疆艾德莱斯绸的“数字蝶变” 作者 胡嘉琛 在新疆轻工职业技术学院，曾经绘制在牛皮纸上的艾德莱斯图案通过高精度扫描，被转化为高清数字纹样，进而衍生出更多创新图案。“希望以数字化保护传承并发扬。”该校教师、服装设计师黄发柏近日接受中新社采访时说。 艾德莱斯绸是新疆维吾尔族广泛使用的一种传统丝绸，色彩斑斓，工艺考究，需要近30道复杂工序
 
 ## 正文
 
-4月21日，国家防总办公室、应急管理部组织气象、水利等部门会商研判西南、江南、华南地区强降雨发展趋势，研究部署重点地区防汛抢险救灾工作。
+中新社乌鲁木齐5月12日电 题：从织机到云端：新疆艾德莱斯绸的“数字蝶变” 作者 胡嘉琛 在新疆轻工职业技术学院，曾经绘制在牛皮纸上的艾德莱斯图案通过高精度扫描，被转化为高清数字纹样，进而衍生出更多创新图案。
 
-会商指出，近期湖南、贵州、江西局地雨量打破同期纪录，20日开始的一轮降雨过程范围广、雨势强，据预测，26日起南方还将迎来一轮降雨过程。
+“希望以数字化保护传承并发扬。
 
-持续降雨导致部分地区土壤饱和，山洪地质灾害风险增大。
+”该校教师、服装设计师黄发柏近日接受中新社采访时说。
 
-会商要求，要强化监测预报预警，综合运用多种手段提高短临预报精准度，扩大预警覆盖面，确保预警信息第一时间传递到镇村、入户到人，加强上下游联动，构建“上游吹哨、下游快撤”的防汛协同机制。
+艾德莱斯绸是新疆维吾尔族广泛使用的一种传统丝绸，色彩斑斓，工艺考究，需要近30道复杂工序。
 
-要强化风险研判调度，针对暴雨、山洪、中小河流洪水的高等级预警以及突发重大险情灾情，加强对重点市县的指挥调度和督促提醒，确保应对措施落实落细。
+2008年，新疆维吾尔族艾德莱斯绸织染技艺被列入国家级非物质文化遗产名录。
 
-要强化人员转移避险，切实落实直达基层责任人的临灾预警“叫应”和跟踪反馈机制，严格执行转移避险“四个一律”要求，抓好施工工地安全管理九条硬措施落实，果断转移受威胁群众，确保应转早转、应转尽转。
+据黄发柏介绍，以前，新疆的老艺人会将艾德莱斯纹样画在牛皮纸上，保存不易，更担心遇到火、沾到水。
 
-要强化风险隐患排查整治，加强专家服务指导，将养老机构、施工营地、旅游景区纳入防汛重点，动态调整清单台账。
+此外，丰富的纹样多是口头相传，有失传风险。
 
-要强化抢险救援救灾，抓实水库、堤防、涉水涉河重要基础设施的巡查防守，有针对性做好应急处突力量和救灾物资装备的预置布防，用好“老把式”和专业技术力量，科学有序抢险救援救灾。
+2015年，新疆轻工职业技术学院成立新疆艾德莱斯研发推广中心。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [雪佛龙得州炼油厂发生原油泄漏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:25 - [大宗商品综述：原油上涨 铜和黄金下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:17 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:28 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:36 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:09 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:20 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:17 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:20 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:23 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:30 - [“人工胚胎”首次进入太空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:20 - [三峡水库去冬今春枯水期累计补水超百亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:23 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:15 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:21 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:32 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:17 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:31 - [【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:16 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:34 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [聚焦人工智能应用 印尼教育界人士来鄂研修](http://www.blog.minike.top/Article/details/838079265.shtml)
-- 2026-06-29 12:08 - [苹果换帅时机或预示财报利好，分析师看好短期表现](http://www.share.minike.top/Article/details/227922.shtml)
-- 2026-06-29 12:15 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.kurohicncr.top/Article/details/863092.shtml)
-- 2026-06-29 12:06 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.minike.top/Article/details/3042991.shtml)
-- 2026-06-29 12:21 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.share.minike.top/Article/details/897049264007.shtml)
-- 2026-06-29 12:20 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.share.minike.top/Article/details/4666500.shtml)
-- 2026-06-29 12:07 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.blog.kurohicncr.top/Article/details/6683746.shtml)
-- 2026-06-29 12:28 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.blog.kurohicncr.top/Article/details/340845313.shtml)
-- 2026-06-29 12:24 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.minike.top/Article/details/58937517.shtml)
-- 2026-06-29 12:28 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.blog.kurohicncr.top/Article/details/92724469131.shtml)
-- 2026-06-29 12:30 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/532122865111.shtml)
-- 2026-06-29 12:32 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.kurohicncr.top/Article/details/2652481444.shtml)
-- 2026-06-29 12:34 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.blog.minike.top/Article/details/931633170.shtml)
+- 2026-06-29 12:21 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](http://www.blog.minike.top/Article/details/87629185547.shtml)
+- 2026-06-29 12:32 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](http://www.share.minike.top/Article/details/326869.shtml)
+- 2026-06-29 12:23 - [Meta因虚假广告面临审查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.share.kurohicncr.top/Article/details/24309332950.shtml)
+- 2026-06-29 12:24 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.blog.kurohicncr.top/Article/details/373957131.shtml)
+- 2026-06-29 12:41 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.share.kurohicncr.top/Article/details/08537556.shtml)
+- 2026-06-29 12:12 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.blog.kurohicncr.top/Article/details/495596627.shtml)
+- 2026-06-29 12:20 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](http://www.blog.minike.top/Article/details/00017.shtml)
+- 2026-06-29 12:24 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [中国金茂：附属订立新框架协议及提供贷款](http://www.blog.kurohicncr.top/Article/details/970562.shtml)
+- 2026-06-29 12:24 - [新疆伊犁：天山红花盛放 五月草原景色美](http://www.blog.minike.top/Article/details/2035778.shtml)
+- 2026-06-29 12:37 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.blog.minike.top/Article/details/8626238.shtml)
+- 2026-06-29 12:24 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.blog.minike.top/Article/details/99267.shtml)
+- 2026-06-29 12:18 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](http://www.blog.minike.top/Article/details/9857202.shtml)
+- 2026-06-29 12:18 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](http://www.blog.minike.top/Article/details/3181567.shtml)

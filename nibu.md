@@ -1,61 +1,61 @@
-# 刚买就亏，银行理财不香了？年内超40只产品发行失败，有固收理财近1月年化回报低至-10%
+# 高油价阴云笼罩！日本20年期国债收益率创近30年新高
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-来源： 时代财经 存款搬家浪潮之下，作为承接居民存款资金的第一站，银行理财产品却正在经历一场“压力测试”。 近日，浦银理财公告称，公司于2026年4月10日发行的“浦银理财企安益公司专属理财产品2622期”，因认购总金额未达产品说明书的发行规模下限，产品不成立。 据时代财经根据Wind数据不完全统计，截至4月22日，今年开年以来全市场已有超40只银行理财产品因认购金额不达标而宣
+来源：华尔街见闻 油价、通胀与地缘政治共同扰动，日本债市正在掀起风暴。 5月13日，日本20年期国债收益率当日上行5个基点至3.498%，突破1月20日创下的3.46%前高，触及1997年以来最高水平。10年期和30年期日债收益率也同步上涨至少5个基点，分别升至2.59%和3.86%。 推动这一走势的核心逻辑并不复杂：油价高企→通胀压力上升→债券持有者要求更高回报→收益率上行。
 
 ## 正文
 
-来源： 时代财经 存款搬家浪潮之下，作为承接居民存款资金的第一站，银行理财产品却正在经历一场“压力测试”。
+来源：华尔街见闻 油价、通胀与地缘政治共同扰动，日本债市正在掀起风暴。
 
-近日，浦银理财公告称，公司于2026年4月10日发行的“浦银理财企安益公司专属理财产品2622期”，因认购总金额未达产品说明书的发行规模下限，产品不成立。
+5月13日，日本20年期国债收益率当日上行5个基点至3.498%，突破1月20日创下的3.46%前高，触及1997年以来最高水平。
 
-据时代财经根据Wind数据不完全统计，截至4月22日，今年开年以来全市场已有超40只银行理财产品因认购金额不达标而宣告发行失败，数量创近年来新高。
+10年期和30年期日债收益率也同步上涨至少5个基点，分别升至2.59%和3.86%。
 
-其中多款均为固定收益类产品，即使是招银理财、信银理财等头部理财子公司也未能幸免。
+推动这一走势的核心逻辑并不复杂：油价高企→通胀压力上升→债券持有者要求更高回报→收益率上行。
 
-发行市场频频遇冷，全市场理财产品的规模也出现收缩。
+而这背后，是美伊停火谈判破裂风险骤升、美国CPI数据超预期、英国政治动荡三重利空同时砸向全球债市。
 
-据银行业理财登记托管中心4月17日发布的《中国银行业理财市场季度报告》，截至2026年一季度末，全市场理财产品存续规模为31.91万亿元，相较于2025年年末的33.29万亿元缩水了1.38万亿元。
+三重压力同时发力 推动这轮上涨的，不是单一因素，而是多重压力同时踩下油门。
 
-事实上，今年年初还有市场观点展望称，在存款搬家趋势下，2026年银行理财有望迎来规模增长大年。
+首先是油价。
 
-在发行遇冷、规模缩水的背后，部分理财产品收益承压明显。
+美国和伊朗相互否决对方的停火提案，中东冲突短期内看不到出口，油价因此维持高位。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:08 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:23 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:31 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:28 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:17 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:10 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:27 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:20 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:11 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:08 - [吉林高新技术产业开发区党工委书记张守华接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:06 - [露露乐蒙任命耐克前高管奥尼尔为新CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:22 - [国台办：民进党当局应取消针对大陆居民赴台旅游不合理限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:14 - [“春之声·歌游内蒙古”专场文艺演出在尼泊尔举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:18 - [明德生物已被“*ST”，修正业绩引发索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:32 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:34 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:27 - [【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:35 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:22 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:21 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:32 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:33 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:24 - [“洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:31 - [中央气象台：每 日 天 气 提 示（2026年05月12日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:18 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:25 - [对冲基金押注生物燃料，欲从伊朗石油价格冲击中获利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:36 - [大涨后，多只牛股急发警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:27 - [陕西宝鸡：道岔之下绽芳华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:31 - [泽连斯基称俄罗斯无意结束冲突，停火期间前线战斗仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.blog.minike.top/Article/details/4392683.shtml)
-- 2026-06-29 12:10 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.share.kurohicncr.top/Article/details/22710174.shtml)
-- 2026-06-29 12:29 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.share.minike.top/Article/details/510073.shtml)
-- 2026-06-29 12:20 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](http://www.blog.kurohicncr.top/Article/details/973533195971.shtml)
-- 2026-06-29 12:12 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.kurohicncr.top/Article/details/70203421837.shtml)
-- 2026-06-29 12:25 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.blog.kurohicncr.top/Article/details/04935.shtml)
-- 2026-06-29 12:31 - [一件旧衣的“重生” 一座民营博物馆的“新生”](http://www.blog.minike.top/Article/details/33357776183.shtml)
-- 2026-06-29 12:34 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.minike.top/Article/details/0991042476.shtml)
-- 2026-06-29 12:23 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.kurohicncr.top/Article/details/77528.shtml)
-- 2026-06-29 12:12 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/00469.shtml)
-- 2026-06-29 12:21 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [特朗普称将 “记住” 不申请关税退款的公司](http://www.share.kurohicncr.top/Article/details/511161748.shtml)
-- 2026-06-29 12:14 - [酒价内参4月22日价格发布：五粮液普五八代小幅回落1元](http://www.blog.minike.top/Article/details/095561112.shtml)
-- 2026-06-29 12:13 - [2026年广东省行业企业职业技能竞赛计划发布](http://www.share.minike.top/Article/details/907864603011.shtml)
+- 2026-06-29 12:34 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.share.kurohicncr.top/Article/details/352728031.shtml)
+- 2026-06-29 12:23 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.share.minike.top/Article/details/41613794490.shtml)
+- 2026-06-29 12:17 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](http://www.share.minike.top/Article/details/86919.shtml)
+- 2026-06-29 12:17 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.share.minike.top/Article/details/184276373710.shtml)
+- 2026-06-29 12:31 - [中国金茂：附属订立新框架协议及提供贷款](http://www.blog.minike.top/Article/details/360319933732.shtml)
+- 2026-06-29 12:13 - [新疆伊犁：天山红花盛放 五月草原景色美](http://www.blog.minike.top/Article/details/90521612841.shtml)
+- 2026-06-29 12:22 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.blog.minike.top/Article/details/25045901.shtml)
+- 2026-06-29 12:13 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.share.kurohicncr.top/Article/details/899362893965.shtml)
+- 2026-06-29 12:13 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](http://www.share.minike.top/Article/details/0629207.shtml)
+- 2026-06-29 12:21 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](http://www.blog.minike.top/Article/details/45966769.shtml)
+- 2026-06-29 12:26 - [具身智能机器人加速落地工业产线 业界冀构建协作生态](http://www.share.kurohicncr.top/Article/details/64550995616.shtml)
+- 2026-06-29 12:26 - [中美经贸磋商在韩国开始举行](http://www.share.kurohicncr.top/Article/details/851175324411.shtml)
+- 2026-06-29 12:17 - [探访福建福清百年侨厝群：文脉流芳 承载记忆](http://www.share.minike.top/Article/details/661010772.shtml)

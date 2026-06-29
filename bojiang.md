@@ -1,59 +1,61 @@
-# 孟买天际线之战：亿万富翁的“云端豪宅”与城市的“生存空间”
+# 男子施工时坠崖身亡 仅口头约定雇佣方该担何责
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-印度经济的快速增长推动了孟买财富的爆炸式增长，超级富豪们纷纷涌入沃里海滨打造“亿万富翁街”。这里凭借新建的沿海公路和绝美海景，成为顶级富豪的聚集地，天价豪宅林立，房产价格高达每平方英尺75300卢比(约合62260元RMB/平方米)，且仍在持续增长。 为支撑城市发展，孟买正经历大规模基础设施建设，包括扩建地铁、新建机场和完善沿海公路网络。这些项目旨在缓解长期存在的交通拥堵问题，
+男子开挖掘机修路时坠崖身亡 仅口头约定，雇佣方该担何责 近日，有网友在社交媒体发布视频称，其弟弟张硕于5月3日为贵州毕节市某社区开挖掘机，不料遇上山体塌方，连人带挖掘机从近两百米高的悬崖跌落身亡。发帖的张女士告诉扬子晚报/紫牛新闻记者，弟弟今年23岁，是专职的挖掘机司机，平时哪里有活就去哪干，这次也是受到社区人员的口头雇佣，按1000元钱一天请他来干活。“事发前施工地连日下雨，
 
 ## 正文
 
-印度经济的快速增长推动了孟买财富的爆炸式增长，超级富豪们纷纷涌入沃里海滨打造“亿万富翁街”。
+男子开挖掘机修路时坠崖身亡 仅口头约定，雇佣方该担何责 近日，有网友在社交媒体发布视频称，其弟弟张硕于5月3日为贵州毕节市某社区开挖掘机，不料遇上山体塌方，连人带挖掘机从近两百米高的悬崖跌落身亡。
 
-这里凭借新建的沿海公路和绝美海景，成为顶级富豪的聚集地，天价豪宅林立，房产价格高达每平方英尺75300卢比(约合62260元RMB/平方米)，且仍在持续增长。
+发帖的张女士告诉扬子晚报/紫牛新闻记者，弟弟今年23岁，是专职的挖掘机司机，平时哪里有活就去哪干，这次也是受到社区人员的口头雇佣，按1000元钱一天请他来干活。
 
-为支撑城市发展，孟买正经历大规模基础设施建设，包括扩建地铁、新建机场和完善沿海公路网络。
+“事发前施工地连日下雨，是否符合施工条件存疑，且当时的施工现场没有任何安全保护措施。
 
-这些项目旨在缓解长期存在的交通拥堵问题，并带动了沿线商业开发，提升了区域价值。
+目前仍在与社区方面协商。
 
-然而，光鲜的“云端豪宅”背后是普通市民的生存困境。
+” 5月12日下午，涉事街道工作人员告诉记者，双方就此事仍未达成一致。
 
-大规模建设挤压了本已稀缺的公共空间和步行街道，居民生活空间愈发局促。
+扬子晚报/紫牛新闻记者 徐韶达男子受雇开挖掘机坠崖身亡 事前仅口头约定 张女士告诉记者，她的弟弟张硕(化名)在其24岁生日前4天离世令人痛惜，家里还留下了两个年幼的孩子。
 
-政府建设的安置房面积仅约27平方米，与富豪区的奢华形成鲜明对比，凸显了城市发展的巨大鸿沟。
+“他是专职开挖掘机的师傅，平时就是哪里有活去哪干，他的技术很好，人很乖也很踏实。
 
-与上海等中国一线城市相比，孟买在经济定位和城市治理上仍有较大差距。
+当时毕节市金银山街道双井社区需要一名挖掘机操作人员，我弟弟曾经因为其他工程帮社区修过一次路，于是这次他们就联系了我弟弟去修路，没想到遇上路面塌方，我弟连人带挖掘机一起从山上摔了下去。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [市值单日蒸发超百亿，千亿液冷龙头一季报“踩急刹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:14 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:14 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:35 - [百思买任命杰森・邦菲格为新任CEO，将于10 月底接替巴里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:21 - [《三体》之后，下一个“破圈”之作在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:27 - [中国驻菲律宾大使馆举办“舟楫千年 丝路新章”人文交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:31 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:31 - [国光股份：2025年大田作物推广面积比2024年有不错的增长，2026年计划推广150万亩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:12 - [霍尔木兹海峡持续关闭，原油市场供应严重受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:23 - [杭州优化知识产权创新生态 全球创新指数排名跃升至13位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:16 - [基金日报 | 今年以来新发基金规模超3500亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:08 - [广东数智文娱企业加速拓展马来西亚市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:24 - [俞白眉：未来绝大多数演员有AI分身是大趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:24 - [消费者愈发“节俭”，Sally Beauty股价转跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:34 - [业内人士：美以对伊战争将刺激投资和多元化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:25 - [原油：油价上涨 特朗普称美伊停火岌岌可危](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:40 - [截至5月7日当周美国大豆出口检验量为655294吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:30 - [拉萨市民族工作干部铸牢中华民族共同体意识专题培训班在北京开班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:27 - [【小新的Vlog】带一宠物，免一人5A级景区门票？快来河南洛阳“薅羊毛”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:26 - [广西融安开展校园防震演练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:41 - [特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:14 - [2026年全国家庭教育宣传周活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:32 - [刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:12 - [什么软件可以看基金的实时估值？这款软件可以满足你的投资需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:12 - [“洪迪厄斯”号邮轮两名比利时乘客汉坦病毒检测结果呈阴性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:13 - [中央气象台：每 日 天 气 提 示（2026年05月12日）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:17 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:29 - [对冲基金押注生物燃料，欲从伊朗石油价格冲击中获利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](http://www.blog.kurohicncr.top/Article/details/88876519734.shtml)
-- 2026-06-29 12:15 - [中国隧道连续皮带机首次出口西班牙](http://www.blog.minike.top/Article/details/740059761277.shtml)
-- 2026-06-29 12:33 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](http://www.blog.minike.top/Article/details/0350940.shtml)
-- 2026-06-29 12:17 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](http://www.blog.minike.top/Article/details/01290099653.shtml)
-- 2026-06-29 12:28 - [德国电信据悉考虑与T-Mobile US进行全面合并](http://www.share.minike.top/Article/details/667274272165.shtml)
-- 2026-06-29 12:07 - [中国海军以最高礼仪迎接烈士遗骸回国](http://www.blog.minike.top/Article/details/6800586151.shtml)
-- 2026-06-29 12:26 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](http://www.share.kurohicncr.top/Article/details/1814749.shtml)
-- 2026-06-29 12:26 - [RadexMarkets瑞德克斯:能源市场面临极端压力](http://www.share.kurohicncr.top/Article/details/45298.shtml)
-- 2026-06-29 12:35 - [上海发布广告人才新政 面向全球招揽行业英才](http://www.blog.kurohicncr.top/Article/details/7223031792.shtml)
-- 2026-06-29 12:12 - [一件旧衣的“重生” 一座民营博物馆的“新生”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [能定位会判断 AI乒乓机器人击败人类高手](http://www.blog.kurohicncr.top/Article/details/98341817.shtml)
-- 2026-06-29 12:16 - [全球共享发展行动论坛第三届高级别会议发布成果清单](http://www.blog.minike.top/Article/details/80239805333.shtml)
-- 2026-06-29 12:29 - [源达信息量化策略研究：重要股东增持单因子策略](http://www.share.minike.top/Article/details/927768912.shtml)
-- 2026-06-29 12:26 - [300883，连亏三年后，一季度又亏](http://www.share.kurohicncr.top/Article/details/46916.shtml)
-- 2026-06-29 12:26 - [手机圈大佬跨界！赵明：来到车圈的第一次发布会已准备就绪](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [Meta因虚假广告面临审查](http://www.blog.minike.top/Article/details/604123709366.shtml)
+- 2026-06-29 12:35 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](http://www.blog.kurohicncr.top/Article/details/4021216386.shtml)
+- 2026-06-29 12:35 - [微视频｜总书记引领美丽中国建设迈出新步伐](http://www.blog.minike.top/Article/details/4000642672.shtml)
+- 2026-06-29 12:31 - [水口海关关于开展2026年5月份“关长接待日”的公告](http://www.share.kurohicncr.top/Article/details/379398.shtml)
+- 2026-06-29 12:31 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](http://www.blog.kurohicncr.top/Article/details/747396160217.shtml)
+- 2026-06-29 12:18 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](http://www.share.kurohicncr.top/Article/details/83063739179.shtml)
+- 2026-06-29 12:41 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [新疆伊犁：天山红花盛放 五月草原景色美](http://www.share.minike.top/Article/details/6722918910.shtml)
+- 2026-06-29 12:40 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [融资25亿美元、产业链巨头站队：阶跃星辰的AI终端霸业与港股冲刺](http://www.share.kurohicncr.top/Article/details/827303191.shtml)
+- 2026-06-29 12:28 - [长江有色：12日铜价暴涨 现货成交仍表现谨慎](http://www.share.minike.top/Article/details/57154.shtml)
+- 2026-06-29 12:30 - [广东公布第三批以县城为重要载体的新型城镇化建设试点](http://www.share.kurohicncr.top/Article/details/5935244.shtml)
+- 2026-06-29 12:26 - [（粤港澳大湾区）江西有24家企业在港交所上市 首发募资逾310亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [迈克尔・伯里：任何暴涨走抛物线行情的股票，都应清仓](https://github.com/lisacumin64-arch)

@@ -1,57 +1,58 @@
-# 瑞士放宽瑞银资本金要求，但海外业务条款依旧严苛
+# 证件可以“云签发” 自贸港多项便利助力海南荔枝出口
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-瑞士政府周三在针对瑞银集团的新资本规则上作出了让步，同意放宽此前拟定的一些严格措施，但在涉及海外业务的条款上依然保持强硬立场。这项旨在防止瑞士信贷式倒闭再次发生的银行业法案，在减轻瑞银短期资本压力的同时，也为未来的议会博弈埋下了伏笔。 核心资本要求有所松绑 根据瑞士联邦委员会发布的声明，新法规将使瑞银的普通股一级资本核心资本增加约200亿美元。 值得注意的是，政府放弃了要求瑞银
+据海口海关统计，今年从荔枝采摘开始到5月6日，海南荔枝共出口110批次，同比增长近40%。前一段时间海南遭遇高温干旱天气，为什么今年海南的荔枝出口还能跑出“加速度”？ 在包装厂记者看到，筛选合格的荔枝被机器按照个头大小分出等级，在预冷水中浸泡翻滚之后进入冷库进行后续的分装和储存。 郑学智从前年开始做荔枝出口生意，随着自贸港的建设不断加速，海南的海运和空运航线不断增加。为了更好地
 
 ## 正文
 
-瑞士政府周三在针对瑞银集团的新资本规则上作出了让步，同意放宽此前拟定的一些严格措施，但在涉及海外业务的条款上依然保持强硬立场。
+据海口海关统计，今年从荔枝采摘开始到5月6日，海南荔枝共出口110批次，同比增长近40%。
 
-这项旨在防止瑞士信贷式倒闭再次发生的银行业法案，在减轻瑞银短期资本压力的同时，也为未来的议会博弈埋下了伏笔。
+前一段时间海南遭遇高温干旱天气，为什么今年海南的荔枝出口还能跑出“加速度”？
 
-核心资本要求有所松绑 根据瑞士联邦委员会发布的声明，新法规将使瑞银的普通股一级资本核心资本增加约200亿美元。
+在包装厂记者看到，筛选合格的荔枝被机器按照个头大小分出等级，在预冷水中浸泡翻滚之后进入冷库进行后续的分装和储存。
 
-值得注意的是，政府放弃了要求瑞银全额以核心资本支持递延税资产和软件价值的最初提案，转而采纳了更温和的方案：允许递延税资产继续计入资本，并对软件资产采用最长为期三年的摊销处理，这与欧盟的法规保持一致。
+郑学智从前年开始做荔枝出口生意，随着自贸港的建设不断加速，海南的海运和空运航线不断增加。
 
-海外业务条款维持强硬 尽管在部分资产处理上有所放松，但瑞士政府维持了一项瑞银认为“过于苛刻”的核心要求：瑞银必须为其海外子公司提供全额资本支持，且必须使用最高质量的核心资本，而非此前要求的60%。
+为了更好地拓展更广阔的市场，今年他正谋划着再增加投资，扩大规模。
 
-瑞银担心，如果新规过于严苛，其可能成为收购目标，并可能需要启动应急计划，甚至将总部迁往海外。
+为了进一步提升荔枝出口时效，借助海南国际贸易单一窗口，海口海关打通了出口荔枝等特色农产品检验检疫证书的线上申报、线上审核、电子签发等一系列环节，全程线上闭环办理，相关证件“云签发”。
 
-市场反应积极 受资本要求有望放宽的利好消息影响，瑞银股价在周三的盘前交易中上涨超3%。
+不仅如此，海关还指导农户完善从种植、生产、采摘、储运的全流程可追溯、可查询链条，从源头保障出口荔枝品质合规。
 
-前景仍存变数 由于关于海外业务资本化的条款需要议会批准，其最终形态尚不确定。
+海口海关所属椰城海关查检科副科长 刘婷婷：实行单证审核和实地检查相结合的模式，对于实地检查的作业也可以开展远程查验，大幅压缩作业时长，全面推广检验检疫证书无纸化办理模式。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [业绩前瞻：SK海力士第一财季业绩料将创纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:14 - [中东危机引发通胀担忧，韩国4月消费者信心降至一年来最低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:09 - [德国政府大幅下调2026年经济增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:23 - [原创图像小说《雪鹿》入选2025年度“中国好书”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:26 - [针对日本可能存在强震风险 中国驻日使馆发布提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:25 - [万亿中原银行董事长、行长同一天换人！三类行业贷款不良率超5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:27 - [美政府警告：数周内机场安检员工资资金即将耗尽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:27 - [优必选伺服驱动器专利荣获广东专利金奖，助力人形机器人迈入量产商业化时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:06 - [“6.0%”的浙江看点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:11 - [沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:08 - [近期降雨过程范围广、雨势强 多部门会商部署防汛抢险救灾工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:17 - [威海银行：郭有辉获批担任公司董事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:15 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：西班牙卫生大臣称94人已被撤离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:25 - [七千年河姆渡文明的新故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:39 - [【星访谈】蒋龙：《10间敢死队》是我的“表演考试” 喜剧分寸要“润物细无声”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:26 - [Brookfield拟向OpenAI部署平台投资5亿美元，加速AI从试点走向规模化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:15 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:37 - [5月13日热门中概股多数下跌 奇景光电跌7.46%，金山云跌6.36%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:15 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:28 - [再鼎医药盘中涨超5% zoci获FDA快速通道资格认定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:34 - [民调指超半数台湾女性担忧男性亲属需上战场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:12 - [（文化中国行）从织机到云端：新疆艾德莱斯绸的“数字蝶变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:17 - [今年前4个月全国食品贸易进出口同比增长6.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [第九届进博会推介会暨虹桥论坛咨商会在非盟总部举办](http://www.blog.kurohicncr.top/Article/details/4122215.shtml)
-- 2026-06-29 12:18 - [惠誉评级：中资银行息差有望筑底，零售风险需关注](http://www.blog.minike.top/Article/details/24694594424.shtml)
-- 2026-06-29 12:11 - [SEC警示私募信贷“新兴压力”，监管风暴山雨欲来](http://www.share.minike.top/Article/details/635426.shtml)
-- 2026-06-29 12:35 - [另类师徒携手追凶 《黑夜告白》定档](http://www.blog.kurohicncr.top/Article/details/991302642.shtml)
-- 2026-06-29 12:06 - [“护苗”典型案例｜非法印制并销售侵权盗版中小学教辅](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [喜宝回应“鼠药门”事件：非产品质量问题，且仅限于极少量的瓶装辅食泥](http://www.blog.kurohicncr.top/Article/details/819039553.shtml)
-- 2026-06-29 12:29 - [Switch获26亿美元银行承诺，为数据中心扩张提供资金支持](http://www.blog.minike.top/Article/details/41529.shtml)
-- 2026-06-29 12:11 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.kurohicncr.top/Article/details/30501945099.shtml)
-- 2026-06-29 12:29 - [宁夏开展人民调解“百千万工程” 计划培育金牌人民调解员逾千名](http://www.share.kurohicncr.top/Article/details/90694639.shtml)
-- 2026-06-29 12:10 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](http://www.share.kurohicncr.top/Article/details/61438.shtml)
-- 2026-06-29 12:09 - [身上突然白了一块，到底是怎么回事？是得了白癜风吗？](http://www.blog.minike.top/Article/details/525878.shtml)
-- 2026-06-29 12:23 - [库克时代落幕，苹果新帅面临AI关键战役](http://www.blog.minike.top/Article/details/5299868.shtml)
-- 2026-06-29 12:25 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](http://www.share.minike.top/Article/details/614635863041.shtml)
-- 2026-06-29 12:27 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [博时宏观观点：关注特朗普访华及中美通胀数据](http://www.blog.minike.top/Article/details/74585998.shtml)
+- 2026-06-29 12:35 - [铜：供应扰动持续，铜价中枢上移](http://www.share.minike.top/Article/details/88533624969.shtml)
+- 2026-06-29 12:35 - [华泰期货：供应端再遇干扰 铜价维持偏强态势](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [豪买16亿元后，裘国根罕见现身](http://www.share.kurohicncr.top/Article/details/495976493.shtml)
+- 2026-06-29 12:27 - [Fugro获得苏格兰海上风电场勘测合同](http://www.blog.minike.top/Article/details/87671.shtml)
+- 2026-06-29 12:35 - [2026金砖国家工业创新大赛决赛在厦门开幕](http://www.blog.kurohicncr.top/Article/details/85497592.shtml)
+- 2026-06-29 12:42 - [“小童装”奔赴大市场 浙江织里“全球揽客”拓外贸](http://www.share.minike.top/Article/details/92031552063.shtml)
+- 2026-06-29 12:39 - [北京幸福东方剧院启幕 央地联手打造城市文化客厅](http://www.blog.kurohicncr.top/Article/details/37735.shtml)
+- 2026-06-29 12:36 - [王毅同巴基斯坦副总理兼外长通电话](http://www.share.kurohicncr.top/Article/details/27748.shtml)
+- 2026-06-29 12:38 - [中国逊克口岸2026年明水期正式开关通航](http://www.share.minike.top/Article/details/38103514628.shtml)
+- 2026-06-29 12:29 - [“AI水果”“酱板鸭”火到台湾 业者盼拓展两岸微短剧合作](http://www.share.kurohicncr.top/Article/details/49282942886.shtml)
+- 2026-06-29 12:34 - [关注俄乌冲突：俄乌互指对方违反停火 并称作出对等回应](http://www.share.minike.top/Article/details/462372443947.shtml)
+- 2026-06-29 12:18 - [枪声震天！直击武警官兵实战化射击超燃瞬间](http://www.blog.minike.top/Article/details/503989853630.shtml)
+- 2026-06-29 12:25 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](http://www.blog.minike.top/Article/details/829778.shtml)
+- 2026-06-29 12:36 - [拒绝伊朗回应 美方称停火“有效但脆弱”](http://www.share.minike.top/Article/details/650819284.shtml)

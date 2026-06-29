@@ -1,48 +1,61 @@
-# 旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元
+# 恒瑞医药与百时美施贵宝公司签署战略合作及许可协议
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月21日，董事长杨振鑫增持旭日企业（00393）4.4万股，每股作价1.41港元，总金额约为6.20万港元。增持后最新持股数目约为9.59亿股，最新持股比例为63.95%。责任编辑：卢昱君
+恒瑞医药（01276）发布公告，江苏恒瑞医药股份有限公司（以下简称“公司”或“恒瑞”）与百时美施贵宝公司（以下简称“BMS”）达成全球战略合作及许可协议，共同推进 13 款涵盖肿瘤学、血液学及免疫学的早期项目，以加速创新药物研发，惠及全球患者。 本次合作协议包含4项恒瑞肿瘤学及血液学项目、4项BMS免疫学项目，以及双方依托恒瑞研发引擎与多元创新技术平台共同研发的5项创新项目，均
 
 ## 正文
 
-香港联交所最新数据显示，4月21日，董事长杨振鑫增持旭日企业（00393）4.4万股，每股作价1.41港元，总金额约为6.20万港元。
+恒瑞医药（01276）发布公告，江苏恒瑞医药股份有限公司（以下简称“公司”或“恒瑞”）与百时美施贵宝公司（以下简称“BMS”）达成全球战略合作及许可协议，共同推进 13 款涵盖肿瘤学、血液学及免疫学的早期项目，以加速创新药物研发，惠及全球患者。
 
-增持后最新持股数目约为9.59亿股，最新持股比例为63.95%。
+本次合作协议包含4项恒瑞肿瘤学及血液学项目、4项BMS免疫学项目，以及双方依托恒瑞研发引擎与多元创新技术平台共同研发的5项创新项目，均尚未进入临床研究阶段。
 
-责任编辑：卢昱君
+恒瑞拥有共同开发特定项目的选择权，并且有机会与BMS在全球范围内共同开展特定的商业化活动。
+
+在本次合作框架下，BMS获得上述恒瑞原研项目及依托恒瑞平台共同研发项目在除中国大陆、香港特别行政区、澳门特别行政区以外的全球独家权利。
+
+恒瑞获得上述BMS原研项目在中国大陆、香港特别行政区、澳门特别行政区的独家权利，BMS保留除这些区域外的全球其他区域权利。
+
+恒瑞将全面负责上述项目的早期临床开发，加速临床概念验证。
+
+根据协议，BMS将向恒瑞支付可达9.5亿美元的相关付款，即6亿美元首付款、第一笔周年付款1.75亿美元，以及第二笔有条件的2028年周年付款1.75亿美元。
+
+协议的潜在总交易额可达约152亿美元（包括共同研发项目选择权的行使，以及所有项目达成相应的开发、注册及商业化里程碑）。
 
 ## 相关推荐
 
-- 2026-06-29 12:16 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:24 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:06 - [西安银行发布2025年度利润分配方案 拟每10派1元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:08 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:10 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:13 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:31 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:07 - [百思买任命资深人士为CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:08 - [辽宁海城：梨花成海 粉樱作伴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:08 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:30 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:09 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:37 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:20 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:22 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:19 - [RYOEX:金价反弹站上四千七百](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:31 - [桑火尧个展亮相浦东美术馆 展出52件新作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:16 - [美国4月份通胀飙升后 金价小幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:21 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:30 - [一颗草莓的科技之旅与一个村庄的融合之变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:30 - [壳牌和丰田警告地缘政治风险仍处高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:28 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:19 - [中央网信办就规范短视频内容标注答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:27 - [中美元首会晤在即 专家：美方有责任慎重处理台湾问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:35 - [中国驻马里使馆提醒中国企业和公民切勿从事非法采矿活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:24 - [职业教育展示 看学生打造“微景观”如何“变废为宝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:35 - [Pulse Bio获内部人士超1300万美元大举买入，股价应声上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [柬埔寨首相洪玛奈会见王毅一行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.blog.kurohicncr.top/Article/details/3878684377.shtml)
-- 2026-06-29 12:09 - [创始人重出江湖“断臂止血”！鸭脖界的爱马仕赚翻了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [6万亿差距拉开 居民财富重构 公募基金规模大超银行理财](http://www.blog.minike.top/Article/details/69393.shtml)
-- 2026-06-29 12:26 - [重组计划会影响IPO吗？阿维塔回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [临摹千年壁画 新疆画师为克孜尔石窟“留影”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [亚马逊深化与Anthropic的合作](http://www.share.minike.top/Article/details/3253631318.shtml)
-- 2026-06-29 12:20 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](http://www.share.kurohicncr.top/Article/details/950567197.shtml)
-- 2026-06-29 12:32 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [汉诺威工博会观察：中国企业加速AI应用落地](http://www.blog.kurohicncr.top/Article/details/688489340.shtml)
-- 2026-06-29 12:16 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [亚盛医药-B多项研究入选2026年ASCO](http://www.share.minike.top/Article/details/86047.shtml)
+- 2026-06-29 12:25 - [白衣天使，节日快乐！](http://www.blog.minike.top/Article/details/7291360929.shtml)
+- 2026-06-29 12:29 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](http://www.share.minike.top/Article/details/991067587384.shtml)
+- 2026-06-29 12:12 - [美国能源信息署：美国2026年和2027年用电量将连创新高](http://www.blog.minike.top/Article/details/44201.shtml)
+- 2026-06-29 12:25 - [特斯拉机器人出租车扩张计划点燃股价涨势，马斯克设定2026年目标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [日本央行一名审议委员：可能在下次政策会议上加息](http://www.blog.kurohicncr.top/Article/details/75364069813.shtml)
+- 2026-06-29 12:14 - [美国总统特朗普今起对中国进行国事访问](http://www.blog.minike.top/Article/details/253325.shtml)
+- 2026-06-29 12:21 - [受AI热潮提振，日经指数或将上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](http://www.share.minike.top/Article/details/53048.shtml)
+- 2026-06-29 12:17 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](http://www.blog.kurohicncr.top/Article/details/04647.shtml)
+- 2026-06-29 12:38 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](http://www.share.minike.top/Article/details/7973234359.shtml)
+- 2026-06-29 12:40 - [龙元建设：400亿PPP资产或将“冰山解冻”](http://www.share.kurohicncr.top/Article/details/7477002175.shtml)
+- 2026-06-29 12:37 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](http://www.share.kurohicncr.top/Article/details/731633.shtml)
+- 2026-06-29 12:28 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](http://www.share.kurohicncr.top/Article/details/02026388.shtml)
+- 2026-06-29 12:40 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lisacumin64-arch)

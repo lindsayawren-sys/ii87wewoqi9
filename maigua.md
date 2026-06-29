@@ -1,58 +1,60 @@
-# 柬埔寨首相洪玛奈会见王毅一行
+# 白衣天使，节日快乐！
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新社金边4月22日电 (记者 杨强)当地时间4月22日，柬埔寨首相洪玛奈在金边会见出席中柬外长、防长“2+2”战略对话机制首次会议的外交部长王毅、国防部长董军。 洪玛奈请王毅转达对中国领导人的亲切问候，祝贺中国在习近平主席和中国共产党领导下取得巨大成就，感谢中方给予柬经济社会发展全方位支持以及为柬王室治疗查体提供良好保障。洪玛奈表示，柬方视中国为最重要、最可信赖的好朋友，去年
+有一种坚守，白衣为甲 有一种温柔，守护生命 有一种奔跑，与死神赛跑 有一种沉默，咽下疲惫 有一种微笑，藏着心酸 有一种转身，擦去泪水又穿上战袍 在我们的日常生活中 有这样一群天使 Ta们的身影穿梭在病房与诊室 给予病人温暖与帮助 Ta们，就是我们身边的“南丁格尔” 5·12国际护士节 是Ta们的专属节日 在这里向所有天使道一句： 节日快乐！ 福建省肿瘤医院肝胆胰肿瘤外科八区护士
 
 ## 正文
 
-中新社金边4月22日电 (记者 杨强)当地时间4月22日，柬埔寨首相洪玛奈在金边会见出席中柬外长、防长“2+2”战略对话机制首次会议的外交部长王毅、国防部长董军。
+有一种坚守，白衣为甲 有一种温柔，守护生命 有一种奔跑，与死神赛跑 有一种沉默，咽下疲惫 有一种微笑，藏着心酸 有一种转身，擦去泪水又穿上战袍 在我们的日常生活中 有这样一群天使 Ta们的身影穿梭在病房与诊室 给予病人温暖与帮助 Ta们，就是我们身边的“南丁格尔” 5·12国际护士节 是Ta们的专属节日 在这里向所有天使道一句： 节日快乐！
 
-洪玛奈请王毅转达对中国领导人的亲切问候，祝贺中国在习近平主席和中国共产党领导下取得巨大成就，感谢中方给予柬经济社会发展全方位支持以及为柬王室治疗查体提供良好保障。
+福建省肿瘤医院肝胆胰肿瘤外科八区护士长王燕表示，身患肿瘤的患者，总是情绪波动比较大，“从事肿瘤临床护理工作三十余年的我，难免受到影响。
 
-洪玛奈表示，柬方视中国为最重要、最可信赖的好朋友，去年习近平主席历史性访柬有力提升两国关系发展水平。
+每每下班驻足凝望窗外的万家灯火，我总是感慨万千。
 
-柬方高度重视两国外长、防长“2+2”战略对话机制，相信本次会议将成功举行，成为双方增进互信、促进合作的重要平台。
+护理工作，不止是守护生命健康，更是守护一个个家庭的安稳、圆满与期盼。
 
-柬方坚定不移奉行对华友好政策，坚定不移恪守一个中国原则，期待同中方密切高层交往，扩大机制性对话，深化清洁能源、农业、基础设施、人才培养等领域务实合作，推动构建新时代全天候柬中命运共同体。
+” 福建医科大学附属第一医院创伤中心ICU、EICU护士长董燕芳表示，在这里，每一秒都是与死神的短兵相接。
 
-柬方欢迎中方企业来柬投资，坚决打击网赌电诈，愿就此同中方加强合作。
+监护仪的锐鸣是这里的战鼓，我们直面最猝然的崩溃与最暴烈的创伤。
 
-柬方高度赞赏中国在国际和地区事务中发挥的积极作用，愿同中方密切在联合国等多边舞台协调配合，共同捍卫多边主义。
+每当一个数字回升、一次指尖微动，所有的重量都化作前行的动力，“我守着这道门，无怨，亦无悔。
 
-王毅转达中国领导人的良好祝愿，表示中柬是以心相交的真朋友、可长可久的好伙伴，两国友谊历经考验、历久弥坚，堪称铁杆、牢不可破。
+” 福建医科大学附属协和医院重症监护室护士周强龙回忆道，这是重症监护室的一个普通夜晚，又是一场生命与时间的赛跑。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [得病产生的天然抗体比打疫苗的抵抗力更持久吗？中疾控解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:06 - [莎士比亚经典喜剧《第十二夜》在成都上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:28 - [汉诺威工博会观察：中国企业加速AI应用落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:22 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:25 - [沪农商行发布2025年度利润分配方案 拟每10派1.94元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:08 - [产业链上话稼穑 同心耕作“希望的田野”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:23 - [大众为Everllence筛选第二轮竞标者，估值升至80亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:07 - [亚盛医药-B多项研究入选2026年ASCO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:34 - [四张图看懂蒂姆・库克的非凡职业生涯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:19 - [安峰获批担任马上消费金融副总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:31 - [东方证券：维立志博-B维持“买入”评级 目标价103.06港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:26 - [台民调显示近六成人不信美军会“护台”，岛内民意正发生实质性改变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:25 - [六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:13 - [但斌71只产品创新高，美光被买后涨超135%！梁宏也因重仓存储而新高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:38 - [卓越教育集团获Soarise Bulex Limited增持139.5万股 每股作价3.19港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:33 - [龙元建设：400亿PPP资产或将“冰山解冻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:24 - [FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:13 - [A股强势突破，创逾10年新高，科技成长板块领涨全场！| 华宝基金3A日报（2026.5.11）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:26 - [伊朗外长与沙特外交大臣讨论美伊外交进程最新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:13 - [香港将设“AI+与产业发展策略委员会” 聚焦具身智能推动产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:34 - [四川携手重庆协同提升“双圈”能级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:26 - [剂泰科技港股上市在即：AI制药三小龙会师港股 贝莱德领衔基石 2025年收入增长靠首付款 长期仍具不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:29 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:22 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:37 - [康特隆：呈请人撤回对附属公司的清盘呈请](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:22 - [中新健康｜医生提醒：体重正常但肚子大更危险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [ETF日报：通信当前是科技板块基本面最坚韧的方向之一，后续仍有较大空间和弹性，关注通信ETF](http://www.blog.kurohicncr.top/Article/details/02242210411.shtml)
-- 2026-06-29 12:15 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.blog.minike.top/Article/details/622787078728.shtml)
-- 2026-06-29 12:22 - [特朗普对CNBC表示，预计美国将与伊朗达成"重大协议"](http://www.share.kurohicncr.top/Article/details/20885514.shtml)
-- 2026-06-29 12:25 - [梁玉宁：中文与诗歌是中华文明的重要载体](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [美国海军部长约翰·费伦将离职](http://www.share.kurohicncr.top/Article/details/9063772.shtml)
-- 2026-06-29 12:09 - [伊朗通过巴基斯坦告知美国 将不会参加周三的会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [消息人士：特朗普计划为伊朗提交统一方案设有限期限](http://www.share.minike.top/Article/details/7306870.shtml)
-- 2026-06-29 12:08 - [淡水泉首席经济学家陶冬：供应链危机被严重低估 黄金只会买贵不会买错](http://www.share.minike.top/Article/details/66239941.shtml)
-- 2026-06-29 12:24 - [三花智控获Schroders PLC增持354.39万股 每股作价约31.80港元](http://www.share.minike.top/Article/details/58830618.shtml)
-- 2026-06-29 12:34 - [辽宁省委书记许昆林到大商所调研](http://www.share.minike.top/Article/details/23572.shtml)
-- 2026-06-29 12:12 - [一季度长三角地区出口合计占全国41%](http://www.share.minike.top/Article/details/1722047651.shtml)
-- 2026-06-29 12:33 - [西安银行：一季度归母净利润7.56亿元，同比增加6.16%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [酒钢宏兴：2025年净亏损19.98亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [“春之声·歌游内蒙古”文艺演出在尼泊尔举行](http://www.blog.minike.top/Article/details/08511034429.shtml)
-- 2026-06-29 12:23 - [特朗普称正在考虑货币互换安排 以帮助阿联酋渡过难关](http://www.blog.kurohicncr.top/Article/details/29577911.shtml)
+- 2026-06-29 12:41 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [钜京控股获吕宇健增持1.17亿股 每股作价0.2港元](http://www.share.kurohicncr.top/Article/details/1758795123.shtml)
+- 2026-06-29 12:19 - [海地总理：安全状况导致该国大选无法于8月如期举行](http://www.blog.kurohicncr.top/Article/details/533359133.shtml)
+- 2026-06-29 12:18 - [厄瓜多尔前外长埃斯皮诺萨角逐下一任联合国秘书长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [大族数控午前大涨超15% PCB设备板块业绩高速增长](http://www.share.kurohicncr.top/Article/details/125186656.shtml)
+- 2026-06-29 12:28 - [湖南残疾人代表讲述“追光”人生：梦想属于每一个勇者](http://www.share.minike.top/Article/details/449426.shtml)
+- 2026-06-29 12:39 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情：26名涉疫邮轮人员抵达荷兰接受安置](http://www.share.kurohicncr.top/Article/details/75967506.shtml)
+- 2026-06-29 12:41 - [研究成果合集 | 表现力指数 • 2026商办暨资管卓越表现](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [Monday.com大涨13%，此前公布一季度业绩全面超预期](http://www.share.kurohicncr.top/Article/details/79275.shtml)
+- 2026-06-29 12:38 - [因七腾机器人股价大涨四倍背后：胜通能源实际控制人豁免减持的股东会决议遭起诉 理由是应遵守减持规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [“盈尺清芬——清代花鸟画扇面展”在广西南宁开展](http://www.share.minike.top/Article/details/72457.shtml)
+- 2026-06-29 12:32 - [*ST沪科锁定退市，投资者索赔通道开启](http://www.blog.minike.top/Article/details/058559.shtml)
+- 2026-06-29 12:41 - [开盘：美股周二低开 美国4月CPI创3年以来新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年](http://www.blog.minike.top/Article/details/697313.shtml)
+- 2026-06-29 12:23 - [国泰君安期货：美国总统访华，哪些板块会蹭热度？](http://www.share.kurohicncr.top/Article/details/709339.shtml)

@@ -1,56 +1,60 @@
-# 2026年广东省行业企业职业技能竞赛计划发布
+# 探访福建福清百年侨厝群：文脉流芳 承载记忆
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-中新网广州4月21日电 (记者 程景伟)2026年广东省行业企业职业技能竞赛计划21日在位于广州的粤港澳大湾区(广东)人才港发布，84项省级行业企业职业技能赛事贯穿全年，旨在全面激活“人人皆学、处处能学、时时可学”的全民终身学习新格局，为广东高质量发展提供坚实技能支撑。广东将统筹开展这84项省级赛事，设置144个竞赛项目，分别由92家政府部门、行业协会(学会)、企事业单位主办或
+发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。 20世纪初，村里的许多男儿下南洋打拼。一封封侨批不断寄回。家书里包裹着的血汗钱，让他们在家乡起了大厝。斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。 下和洋世代重
 
 ## 正文
 
-中新网广州4月21日电 (记者 程景伟)2026年广东省行业企业职业技能竞赛计划21日在位于广州的粤港澳大湾区(广东)人才港发布，84项省级行业企业职业技能赛事贯穿全年，旨在全面激活“人人皆学、处处能学、时时可学”的全民终身学习新格局，为广东高质量发展提供坚实技能支撑。
+发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。
 
-广东将统筹开展这84项省级赛事，设置144个竞赛项目，分别由92家政府部门、行业协会(学会)、企事业单位主办或联合主办，举办地遍及广州、珠海、江门、河源、潮州等16个地市，覆盖社会服务、先进制造、信息技术、交通运输、现代服务、现代农业、绿色环保等多个领域。
+福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。
 
-其中，第七届粤港澳大湾区“粤菜师傅”职业技能大赛将于8月开赛。
+20世纪初，村里的许多男儿下南洋打拼。
 
-本届大赛按广府、潮汕、客家三大菜系分类竞技，设置名厨组与新秀组，届时老将新星各显身手。
+一封封侨批不断寄回。
 
-赛制上，大赛构建“线下专业竞技、线上全民参与、全域联动协同”的立体格局，同步推出“我家招牌菜”短视频征集、“名厨教你做粤菜”等群众性线上活动。
+家书里包裹着的血汗钱，让他们在家乡起了大厝。
 
-广东省人工智能与机器人技能大赛预计8月至11月举办。
+斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。
 
-广东省人工智能产业协会副秘书长钟亮称，今年大赛将在实战能力锤炼上再升级，所有赛题全部取自一线生产场景，全程模拟一线最真实的压力与挑战，让选手在复杂、动态、不确定的环境中完成高难度操作。
+下和洋世代重视教育，村里第一代学堂至今保留完好，里头还设置了人物雕像，还原了当时的学习场景。
 
-大赛同步搭建投融资孵化平台，筛选优秀技术方案与团队，定向对接创投机构与产业资本。
+在这座仅有10多平方米的小学堂里，走出了福清第一位中国科学院院士、著名气象学家高由禧。
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [2026年渣打香港马拉松带来3.38亿港元经济效益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:06 - [甘肃阿克塞：牧民定居县城“手机云放牧” 摄像头成“新牧鞭”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:30 - [伊莱克斯将关闭匈牙利工厂，预计计提6500万美元费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:23 - [瑞银：天齐锂业首季初步业绩胜预期 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:11 - [非货排名飙升25位！鹏安基金成一季度公募“黑马”，新疆前海联合、格林基金紧随其后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:29 - [美伊无限期停火或许也是无限期的不确定性 市场学习如何与之共处](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:29 - [旭日企业获董事长杨振鑫增持4.4万股 每股作价1.41港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:13 - [崖沙燕“如约”重返永定河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:33 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:21 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:27 - [多点数智盘中涨超7% 附属拟与相关方就Cloopen的建议私有化订立协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:39 - [摩根大通将对投行业务高层进行改组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:26 - [一江碧水 满目青绿 卫星视角看万里长江重焕生机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:21 - [内蒙古厅官马保国、房瑞夜间官宣被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:29 - [24项改革措施，推动综合保税区扩能提质（政策解读）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:32 - [险资“组团去做LP”： 赚当下的现金流和未来成长的钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:21 - [恒瑞医药与百时美施贵宝公司签署战略合作及许可协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:26 - [美股收盘：纳指跌0.71%，芯片股集体回调，高通下挫超11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:31 - [谷歌深化布局印度AI基础设施热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:39 - [时代电气5月12日回购1303.78万港元，已连续10日回购](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:35 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:13 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:40 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:25 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [一见·世界地球日，看“赋能型大国”的绿色担当](http://www.blog.minike.top/Article/details/09424975.shtml)
-- 2026-06-29 12:28 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.blog.kurohicncr.top/Article/details/987501850318.shtml)
-- 2026-06-29 12:20 - [美国多家航空公司面临燃油压力](http://www.share.kurohicncr.top/Article/details/62762489620.shtml)
-- 2026-06-29 12:21 - [摩根大通将1.5万亿美元安全计划拓展至欧洲](http://www.blog.minike.top/Article/details/963739426388.shtml)
-- 2026-06-29 12:10 - [广东启动全民经典阅读大赛 发布 “阅见岭南”经典书单](http://www.blog.minike.top/Article/details/148248566739.shtml)
-- 2026-06-29 12:32 - [苑东生物2025年度归母净利润约2.84亿元 同比增19.24%](http://www.blog.kurohicncr.top/Article/details/901472988630.shtml)
-- 2026-06-29 12:35 - [美国国家安全局被曝使用Anthropic受限模型](http://www.share.minike.top/Article/details/191656957152.shtml)
-- 2026-06-29 12:23 - [浙江进入汛期以来首次区域性强降雨过程](http://www.blog.kurohicncr.top/Article/details/119384733232.shtml)
-- 2026-06-29 12:18 - [金埔园林2025年度归母净利润亏损约2.41亿元](http://www.share.minike.top/Article/details/06707046.shtml)
-- 2026-06-29 12:15 - [江西泰和：科研团队用无人机给古樟树群“做SPA”防治枯萎病](http://www.blog.kurohicncr.top/Article/details/597500070.shtml)
-- 2026-06-29 12:35 - [从承诺到行动 多方共议以多边合作引领可持续发展](http://www.share.minike.top/Article/details/6885940448.shtml)
-- 2026-06-29 12:21 - [特朗普：美伊第二轮谈判最快或于周五举行](http://www.share.minike.top/Article/details/292199574287.shtml)
-- 2026-06-29 12:07 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.blog.kurohicncr.top/Article/details/016336.shtml)
-- 2026-06-29 12:24 - [柬埔寨首相洪玛奈会见王毅一行](http://www.blog.minike.top/Article/details/510299768.shtml)
-- 2026-06-29 12:08 - [蒂利斯：终止对鲍威尔的调查，我便支持你的任命通过](http://www.share.minike.top/Article/details/207960524.shtml)
+- 2026-06-29 12:24 - [谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发](http://www.share.kurohicncr.top/Article/details/02758.shtml)
+- 2026-06-29 12:35 - [88匹进口蒙古马为中国内地演艺市场发展添助力](http://www.share.minike.top/Article/details/936695910830.shtml)
+- 2026-06-29 12:32 - [沪指11年后重返4200点 专家：向上空间或仍存 但别“闭眼买”](http://www.share.minike.top/Article/details/803751.shtml)
+- 2026-06-29 12:18 - [“中信优品”华夏精选人民币：首只在香港发行的人民币计价跨市场投资级债基](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [凯投宏观：汽油和食品价格或推高美国家庭通胀预期](http://www.blog.kurohicncr.top/Article/details/9698183909.shtml)
+- 2026-06-29 12:34 - [华泰期货：供需持续偏紧，碳酸锂价格强势上涨](http://www.blog.kurohicncr.top/Article/details/5275841036.shtml)
+- 2026-06-29 12:38 - [朝“问”健康 晨起空腹喝淡盐水没有养生效果](http://www.share.minike.top/Article/details/11165297.shtml)
+- 2026-06-29 12:41 - [Hims & Hers亏损扩大且展望不佳，盘前重挫15%](http://www.share.minike.top/Article/details/0093954.shtml)
+- 2026-06-29 12:19 - [习言道｜关于中美友好的根基，习近平讲了这几个故事](http://www.blog.kurohicncr.top/Article/details/75284921769.shtml)
+- 2026-06-29 12:31 - [Forte Biosciences一季度GAAP每股亏损1.24美元，推进FB102多项临床研究](http://www.share.minike.top/Article/details/865017259382.shtml)
+- 2026-06-29 12:36 - [Lumen Tech新建美国北部光缆干线，加速AI数据迁移](http://www.blog.minike.top/Article/details/672315.shtml)
+- 2026-06-29 12:30 - [贵阳银行：有条件时可以进行中期利润分配](http://www.blog.minike.top/Article/details/2666693712.shtml)
+- 2026-06-29 12:33 - [英伟达宣布与康宁建立多年合作伙伴关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [白衣天使，节日快乐！](http://www.blog.kurohicncr.top/Article/details/315618337447.shtml)
+- 2026-06-29 12:32 - [德国工会及地方官员对大众汽车向中国车企开放闲置工厂持审慎开放态度](https://github.com/lisacumin64-arch)

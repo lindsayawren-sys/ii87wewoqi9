@@ -1,59 +1,52 @@
-# Switch获26亿美元银行承诺，为数据中心扩张提供资金支持
+# “小童装”奔赴大市场 浙江织里“全球揽客”拓外贸
 
-> 更新时间：2026-06-29 12:36:04 UTC+8
+> 更新时间：2026-06-29 12:42:04 UTC+8
 
 ## 摘要
 
-人工智能数据中心运营商Switch已从多家银行获得26亿美元的承诺资金，为其数据中心资产的持续扩张提供支持。这是该公司在放弃与软银的全面收购谈判后，在资本市场上的又一重要动作。 在此之前，Switch刚刚完成了一笔约7.68亿美元的资产支持证券发行，将其位于内华达州里诺、占地约140万平方英尺且拥有超过52兆瓦容量的数据中心纳入证券化资产组合。自2024年以来，该公司通过五次A
+发布时间：2026年05月13日 09:56 来源：中国新闻网 作为“中国童装之都”，浙江湖州织里集聚了1.4万多家童装企业，年产童装超20亿件(套)，全国每三件童装就有两件来自这里。近年来，当地通过“走出去”参展、“引进来”对接，持续推动童装从内销转向内外贸并重，完善服务配套，打造“织里童装”区域品牌。目前，织里童装正加速奔赴更广阔的国际市场。(孙杨洋 浙江湖州报道） 责任编
 
 ## 正文
 
-人工智能数据中心运营商Switch已从多家银行获得26亿美元的承诺资金，为其数据中心资产的持续扩张提供支持。
+发布时间：2026年05月13日 09:56 来源：中国新闻网 作为“中国童装之都”，浙江湖州织里集聚了1.4万多家童装企业，年产童装超20亿件(套)，全国每三件童装就有两件来自这里。
 
-这是该公司在放弃与软银的全面收购谈判后，在资本市场上的又一重要动作。
+近年来，当地通过“走出去”参展、“引进来”对接，持续推动童装从内销转向内外贸并重，完善服务配套，打造“织里童装”区域品牌。
 
-在此之前，Switch刚刚完成了一笔约7.68亿美元的资产支持证券发行，将其位于内华达州里诺、占地约140万平方英尺且拥有超过52兆瓦容量的数据中心纳入证券化资产组合。
+目前，织里童装正加速奔赴更广阔的国际市场。
 
-自2024年以来，该公司通过五次ABS发行累计融资约42亿美元，其证券化资产组合已涵盖美国五个市场的11个数据中心。
-
-另据此前报道，软银集团曾就约500亿美元全面收购Switch展开谈判，但该交易已于今年1月暂停。
-
-软银创始人孙正义原本希望通过直接控制Switch的节能数据中心网络，为其5000亿美元的“星门”人工智能基础设施项目提供算力支持。
-
-知情人士称，孙正义在本月早些时候已承认全面收购不可行，但双方仍在就部分投资或合作可能性进行积极讨论。
-
-与此同时，软银已于本月初以30亿美元收购了在纽约上市的投资公司DigitalBridge Group，后者持有Switch的多数股权。
+(孙杨洋 浙江湖州报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [中外嘉宾以诗传情，2026年“国际中文日”暨“诗约四海”全球中文诗友会在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:13 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:16 - [瑞银财富管理CIO：维持对中国股票“具吸引力”的总体观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:20 - [山西孝义邀八方游客“五一”畅游“最爱妈妈的城市”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:16 - [聚焦人工智能应用 印尼教育界人士来鄂研修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:08 - [苹果换帅时机或预示财报利好，分析师看好短期表现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:07 - [广西瑶乡：抓猪又剥笋 “土味”民俗嗨翻“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:25 - [中国隧道连续皮带机首次出口西班牙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:35 - [霍尔木兹海峡，重磅消息！特朗普，突发威胁！黄金、白银，集体跳水！美股拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:12 - [良品铺子亏损扩大两倍，曾拟出让控股权未果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:19 - [德国电信据悉考虑与T-Mobile US进行全面合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:14 - [中国海军以最高礼仪迎接烈士遗骸回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:14 - [特朗普宣布延长停火期限 维持海上封锁等待伊朗提交方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:26 - [韩国官员称以AI收益发放公民红利的言论仅代表发言者个人观点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:29 - [拒绝伊朗回应 美方称停火“有效但脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:26 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:31 - [加密货币立法再遇阻碍：工会阵营出面反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:29 - [东方电气盘中涨超5% 华泰证券维持“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:34 - [62岁申领社保福利刷屏社交媒体，专家提醒：务必谨慎决策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:18 - [Meta因虚假广告面临审查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:18 - [台湾青年在抗震烈士塑像前落泪：这就是抛头颅洒热血的救灾精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:25 - [微视频｜总书记引领美丽中国建设迈出新步伐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:16 - [水口海关关于开展2026年5月份“关长接待日”的公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:35 - [王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:34 - [极限运动相机制造商GoPro考虑出售，股价盘后一度大涨逾27%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:36 - [湖北巴东成功救助国家一级保护动物白冠长尾雉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:20 - [中国金茂：附属订立新框架协议及提供贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [摩根大通：美军海军封锁将迫使伊朗削减石油产量](http://www.blog.kurohicncr.top/Article/details/311483.shtml)
-- 2026-06-29 12:35 - [伊朗大量美制设备集体失灵，暴露数字安全新威胁](http://www.share.kurohicncr.top/Article/details/36604399.shtml)
-- 2026-06-29 12:17 - [603169、000909、603363、000892，被证监会立案！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [以军称黎巴嫩真主党“违反停火协议”](http://www.blog.kurohicncr.top/Article/details/90313084972.shtml)
-- 2026-06-29 12:32 - [手机成新农具，物流通万家！乡村消费早已不一样](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [瑞士政府微调瑞银新规，仍要求其增资约200亿美元](http://www.share.kurohicncr.top/Article/details/36299.shtml)
-- 2026-06-29 12:30 - [西安银行发布2025年度利润分配方案 拟每10派1元](http://www.blog.minike.top/Article/details/73698336.shtml)
-- 2026-06-29 12:32 - [铝业已提前碳达峰？中铝等A股5家铝企碳排齐降](http://www.share.kurohicncr.top/Article/details/195715366.shtml)
-- 2026-06-29 12:17 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.minike.top/Article/details/386831.shtml)
-- 2026-06-29 12:33 - [服务产业、面向全球，助力实体经济高质量发展 上期所召开有色金属衍生品市场座谈会](http://www.blog.kurohicncr.top/Article/details/080063208233.shtml)
-- 2026-06-29 12:35 - [万斯取消前往巴基斯坦的行程 美伊和谈前景扑朔迷离](http://www.share.minike.top/Article/details/7751552637.shtml)
-- 2026-06-29 12:08 - [百思买任命资深人士为CEO](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [辽宁海城：梨花成海 粉樱作伴](http://www.share.minike.top/Article/details/6511011.shtml)
-- 2026-06-29 12:34 - [国台办：两岸空中直航是沟通桥梁，非政治筹码](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [迭创新高，源杰科技重夺“股王”宝座！华宝基金科创芯片ETF（589190）涨超2%，标的指数低位强力修复逾21%](http://www.share.minike.top/Article/details/8811557.shtml)
+- 2026-06-29 12:14 - [时代电气5月12日回购1303.78万港元，已连续10日回购](http://www.share.minike.top/Article/details/3189322.shtml)
+- 2026-06-29 12:40 - [英国政府借贷成本飙升至2008年以来最高，首相斯塔默遭遇下台压力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [英派药业-B：香港公开发售获2282.4倍认购 每股发售价20.1港元](http://www.share.kurohicncr.top/Article/details/173779.shtml)
+- 2026-06-29 12:30 - [这种花是天然“消炎药”还能增强免疫力 有几类人要慎用](http://www.share.kurohicncr.top/Article/details/99618026677.shtml)
+- 2026-06-29 12:18 - [泰国4月消费者信心指数跌至50.6，创8个月来新低](http://www.blog.minike.top/Article/details/256696576560.shtml)
+- 2026-06-29 12:18 - [白银直线涨超6%，黄金翻红重回4730美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [RYOEX:金价反弹站上四千七百](http://www.share.kurohicncr.top/Article/details/0471033.shtml)
+- 2026-06-29 12:30 - [桑火尧个展亮相浦东美术馆 展出52件新作](http://www.share.kurohicncr.top/Article/details/1867210.shtml)
+- 2026-06-29 12:27 - [美国4月份通胀飙升后 金价小幅走高](http://www.share.kurohicncr.top/Article/details/29028207.shtml)
+- 2026-06-29 12:13 - [Greystone Housing Impact Q1财报前瞻：市场关注能否扭转业绩不及预期颓势](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [一颗草莓的科技之旅与一个村庄的融合之变](http://www.share.kurohicncr.top/Article/details/402793045100.shtml)
+- 2026-06-29 12:19 - [壳牌和丰田警告地缘政治风险仍处高位](http://www.blog.kurohicncr.top/Article/details/621258548.shtml)
+- 2026-06-29 12:32 - [遇到消费纠纷不知道去哪投诉 这些渠道你应该知道](http://www.share.minike.top/Article/details/2914286283.shtml)
+- 2026-06-29 12:40 - [中央网信办就规范短视频内容标注答记者问](http://www.blog.minike.top/Article/details/65853.shtml)
