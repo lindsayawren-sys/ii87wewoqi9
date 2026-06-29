@@ -1,57 +1,50 @@
-# 央行、海关总署：进一步优化黄金及黄金制品进出口准许证“非一批一证”管理
+# 特朗普称下周可能在白宫与各大人工智能公司会面
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，为进一步简政放权，促进贸易便利化，优化营商环境，中国人民银行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理，现就有关事宜公告如下：一、黄金及黄金制品进出口业务频繁的法人可以按《黄金及黄金制品进出口管理办法》（中国人民银行 海关总署令〔2020〕第3号修订）的条件和审批流程，申请《中国人民银行黄金及黄金制品进出口准许证》“非一批一证”
+美国总统特朗普在谈及各大AI公司时表示：“它们都要来白宫，可能就在下周。” 特朗普在空军一号上向记者发表讲话。 特朗普表示，此次会面将探讨美国人如何从AI中受益。 特朗普补充道，让美国公众与AI企业建立伙伴关系的构想非常有趣。 责任编辑：江学思
 
 ## 正文
 
-4月30日金融一线消息，为进一步简政放权，促进贸易便利化，优化营商环境，中国人民银行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理，现就有关事宜公告如下：一、黄金及黄金制品进出口业务频繁的法人可以按《黄金及黄金制品进出口管理办法》（中国人民银行 海关总署令〔2020〕第3号修订）的条件和审批流程，申请《中国人民银行黄金及黄金制品进出口准许证》“非一批一证”（以下简称《准许证》“非一批一证”）。
+美国总统特朗普在谈及各大AI公司时表示：“它们都要来白宫，可能就在下周。
 
-中国人民银行及其分行将对核发的《准许证》“非一批一证”使用情况，通过联网核查系统进行跟踪，加强监督管理。
+” 特朗普在空军一号上向记者发表讲话。
 
-二、实行《准许证》“非一批一证”管理的海关为北京、上海、广州、南京、青岛、深圳、天津、成都、武汉、西安、厦门、宁波、三亚、重庆、南宁15个海关。
+特朗普表示，此次会面将探讨美国人如何从AI中受益。
 
-其他海关仍按照现行规定办理。
+特朗普补充道，让美国公众与AI企业建立伙伴关系的构想非常有趣。
 
-三、《准许证》“非一批一证”自签发之日起9个月内有效，逾期自行失效。
-
-《准许证》“非一批一证”可以在有效期且不超过规定数量内不限制报关批次使用。
-
-本公告自2026年6月1日起施行。
-
-《中国人民银行 海关总署公告》（〔2016〕第9号）、《中国人民银行 海关总署公告》（〔2017〕第5号）同时废止。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 06:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 06:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 06:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 06:54 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 06:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 06:49 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 06:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 06:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 07:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 06:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 06:52 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 06:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 07:02 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 06:53 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 06:41 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 06:40 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 06:40 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 06:44 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/85802676872.shtml)
-- 2026-06-30 06:30 - [绘画区你赢了](http://www.blog.minike.top/Article/details/072835.shtml)
-- 2026-06-30 06:47 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/58194.shtml)
-- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/745839.shtml)
-- 2026-06-30 06:37 - [毒液2](https://www.blog.minike.top/Article/details/8054026594.shtml)
-- 2026-06-30 06:53 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/33324.shtml)
-- 2026-06-30 06:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/019594.shtml)
-- 2026-06-30 06:45 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/43288519.shtml)
-- 2026-06-30 06:44 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/9288415.shtml)
-- 2026-06-30 06:30 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/04674041102.shtml)
-- 2026-06-30 06:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/8468133316.shtml)
-- 2026-06-30 06:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/75442647.shtml)
-- 2026-06-30 06:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/94942753807.shtml)
-- 2026-06-30 06:46 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/31547779165.shtml)
-- 2026-06-30 06:40 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/41399653.shtml)
+- 2026-06-30 07:05 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/6435578431.shtml)
+- 2026-06-30 06:45 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/024853.shtml)
+- 2026-06-30 06:38 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/97652037367.shtml)
+- 2026-06-30 06:39 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/66234931104.shtml)
+- 2026-06-30 06:48 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/510449692.shtml)
+- 2026-06-30 06:48 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/717858343.shtml)
+- 2026-06-30 06:47 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/7848904373.shtml)
+- 2026-06-30 07:05 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/62765.shtml)
+- 2026-06-30 06:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/32705981.shtml)
+- 2026-06-30 06:41 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/303604548198.shtml)
+- 2026-06-30 06:59 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/257000066675.shtml)
+- 2026-06-30 06:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/2679429.shtml)
+- 2026-06-30 06:45 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/9039313.shtml)
+- 2026-06-30 06:46 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/0569945.shtml)
+- 2026-06-30 06:48 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/04681.shtml)

@@ -1,55 +1,58 @@
-# 915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能
+# 41个重点项目签约落户天津 央地协作成航运经济升级亮点
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-央视网消息：记者4月30日从国家发展改革委了解到，2026年第二批915亿元“两新”设备更新项目清单和资金安排已经下达。 据了解，新一批资金支持工业、能源电力、电子信息、交通运输、物流、教育、文旅、医疗、设施农业、粮油加工、住宅老旧电梯、安全生产、消防救援、检验检测、节能降碳环保、回收循环利用等16个领域超过6700个项目，带动总投资超过3800亿元；同时，继续支持老旧营运货车
+中新网天津6月5日电 (记者 周亚强)第四届天津国际航运产业博览会2日至5日在国家会展中心(天津)举行。记者从天津市投资促进局获悉，本届博览会期间，天津共签约41个重点项目，覆盖船舶海工装备制造、现代航运物流、绿色金融租赁、数字科技服务等领域，集中展现天津港口经济高质量发展新成果。央地合作与行业龙头项目成为此次签约的突出亮点。国家能源集团深化央地协作，在科技创新、能源保供、算电
 
 ## 正文
 
-央视网消息：记者4月30日从国家发展改革委了解到，2026年第二批915亿元“两新”设备更新项目清单和资金安排已经下达。
+中新网天津6月5日电 (记者 周亚强)第四届天津国际航运产业博览会2日至5日在国家会展中心(天津)举行。
 
-据了解，新一批资金支持工业、能源电力、电子信息、交通运输、物流、教育、文旅、医疗、设施农业、粮油加工、住宅老旧电梯、安全生产、消防救援、检验检测、节能降碳环保、回收循环利用等16个领域超过6700个项目，带动总投资超过3800亿元；同时，继续支持老旧营运货车、新能源城市公交车、老旧农机报废更新。
+记者从天津市投资促进局获悉，本届博览会期间，天津共签约41个重点项目，覆盖船舶海工装备制造、现代航运物流、绿色金融租赁、数字科技服务等领域，集中展现天津港口经济高质量发展新成果。
 
-加上此前已下达的936亿元，今年已累计安排“两新”设备更新资金1851亿元，占全年2000亿元的92%。
+央地合作与行业龙头项目成为此次签约的突出亮点。
 
-在设备更新政策带动下，一季度设备工器具购置投资同比增长13.9%，增速比1—2月份加快2.4个百分点，拉动全部投资增长2.3个百分点。
+国家能源集团深化央地协作，在科技创新、能源保供、算电协同、港口航运等方面与天津开展深度合作，并与天津港签署国能(天津)港务二期工程项目合作意向协议；华油惠博普、乐舱能源等一批具有全局性、战略性意义的标志性项目成功落地。
 
-下一步，国家发展改革委将会同有关部门，持续做好跟踪督促，强化资金全链条闭环监管，加快项目建设和资金支付使用，推动形成更多实物工作量，更好发挥“两新”资金使用效益。
+天津港产城融合正加快要素集聚，产业链条持续完善。
 
-来源：央视网
+聚焦适港产业，多个新质生产力代表性项目签约。
+
+海洋高端装备制造方面，中船天津建设能力提升三期、佰焰二期低温液体储存装备研发制造等项目进一步夯实天津“全国先进制造研发基地”产业根基；现代航运服务方面，大金重工、凤凰航运船舶租赁项目引入，威东航运开通中韩客货班轮航线，“光辉”号LNG运输船实现LNG反装，航运业态不断丰富，助力“北方国际航运核心区”功能升级。
+
+科技创新方面，海蓝声学功能材料、炬石油田智能装备制造等项目签约，国家管网科学实验基地即将开工，为航运产业绿色转型注入科技动能。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 06:53 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 06:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 06:57 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 06:43 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 06:57 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 06:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 06:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 06:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 06:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:44 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 07:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 06:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 06:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 06:50 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 06:45 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 06:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 06:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 06:47 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 06:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 06:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 06:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 06:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:40 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/258155215531.shtml)
-- 2026-06-30 06:47 - [勇敢的心第二部](http://www.share.minike.top/Article/details/3309452.shtml)
-- 2026-06-30 06:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/963211.shtml)
-- 2026-06-30 06:58 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/57192.shtml)
-- 2026-06-30 06:53 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/7191203385.shtml)
-- 2026-06-30 06:53 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/8591050000.shtml)
-- 2026-06-30 06:36 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/58217126708.shtml)
-- 2026-06-30 06:33 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/8398617.shtml)
-- 2026-06-30 06:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/231043242382.shtml)
-- 2026-06-30 06:37 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/4192671.shtml)
-- 2026-06-30 06:48 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/7585919129.shtml)
-- 2026-06-30 06:49 - [我和我的家乡](http://www.blog.minike.top/Article/details/07572802777.shtml)
-- 2026-06-30 06:47 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/88441.shtml)
-- 2026-06-30 06:49 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/3010995699.shtml)
-- 2026-06-30 06:42 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/948122835.shtml)
+- 2026-06-30 06:36 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/483545201208.shtml)
+- 2026-06-30 06:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4003909077.shtml)
+- 2026-06-30 06:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/9127416066.shtml)
+- 2026-06-30 06:41 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/397762562.shtml)
+- 2026-06-30 07:04 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/0967562.shtml)
+- 2026-06-30 06:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/8372943843.shtml)
+- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/2698386897.shtml)
+- 2026-06-30 06:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/94099.shtml)
+- 2026-06-30 07:05 - [美股](https://www.share.kurohicncr.top/Article/details/2327321197.shtml)
+- 2026-06-30 06:59 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/133429374.shtml)
+- 2026-06-30 06:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/099970.shtml)
+- 2026-06-30 06:55 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/4643332.shtml)
+- 2026-06-30 06:58 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/85356667.shtml)
+- 2026-06-30 06:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/2673757.shtml)
+- 2026-06-30 06:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/424171472468.shtml)

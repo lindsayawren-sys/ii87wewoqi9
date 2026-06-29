@@ -1,57 +1,61 @@
-# 【学习小组】“甘于做铺垫性的工作，甘于抓未成之事”｜总书记深“话”政绩观③
+# 加码存储芯片等封测产能布局 通富微电超40亿元定增加速推进
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。 在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。这是全国经济特区中
+登录新浪财经APP 搜索【信披】查看更多考评等级 通富微电子股份有限公司(以下简称“通富微电”)新一轮定向增发事宜取得关键进展。6月5日，通富微电发布公告称，根据项目实际情况以及相关审核要求，公司会同相关中介机构对募集说明书等申请文件内容进行了更新，披露了《通富微电子股份有限公司2026年度向特定对象发行A股股票募集说明书(注册稿)》(以下简称《注册稿》)等相关文件。公告显示，
 
 ## 正文
 
-《之江新语》中有一篇题为《要甘于做铺垫之事》的文章。
+登录新浪财经APP 搜索【信披】查看更多考评等级 通富微电子股份有限公司(以下简称“通富微电”)新一轮定向增发事宜取得关键进展。
 
-习近平在开篇写道：“领导干部要以正确的政绩观为指导，抓好各项工作。
+6月5日，通富微电发布公告称，根据项目实际情况以及相关审核要求，公司会同相关中介机构对募集说明书等申请文件内容进行了更新，披露了《通富微电子股份有限公司2026年度向特定对象发行A股股票募集说明书(注册稿)》(以下简称《注册稿》)等相关文件。
 
-‘功成不必在我’，要甘于做铺垫性的工作，甘于抓未成之事。
+公告显示，该定增事项已先后通过第八届董事会第十六次会议、2026年第一次临时股东会审议，募集资金调整方案经第八届董事会第十八次会议审议通过。
 
-” 甘做铺垫工作、甘抓未成之事，意味着既要干好当下的工作，又要锚定未来、默默奉献，做好长期有利于发展之事。
+2026年6月3日，公司收到深交所上市审核中心出具的告知函，深交所发行上市审核机构对公司向特定对象发行股票的申请文件进行了审核，认为公司符合发行条件、上市条件和信息披露要求。
 
-在厦门工作期间，习近平曾领导制定《1985年—2000年厦门经济社会发展战略》。
+该定增事项尚待中国证监会同意注册。
 
-这是全国经济特区中最早编制的一部经济社会发展规划，也是中国地方政府最早编制、纵跨15年的经济社会发展战略规划。
+《注册稿》显示，此次公司定增募集资金总额不超过42.20亿元(含本数)，扣除发行费用后拟全部用于存储芯片封测产能提升项目、汽车等新兴应用领域封测产能提升项目、晶圆级封测产能提升项目、高性能计算及通信领域封测产能提升项目、补充流动资金及偿还银行贷款。
 
-在不少人眼里，研究发展战略费时耗力、见效慢，是份吃力不讨好的事。
+在存储领域，公司存储芯片封测能力伴随中国存储半导体产业自主发展同步成长，以晶圆减薄与高堆叠封装能力为核心技术，业务范围已全面覆盖FLASH、DRAM中高端产品封测，能够满足大容量、高速度、高堆叠、高可靠性等多维度要求，并与领军企业建立了长期稳定合作关系，形成了完备的量产验证和产业化经验。
 
-习近平却说，作为领导者，既要立足于当前，更要着眼于长远，甘做铺垫工作，甘抓未成之事。
+同时，公司围绕下游市场与客户的升级需求，持续深耕超厚金属层晶圆处理、高堆叠处理、高可靠性产品解决方案等关键工艺，取得良好的技术积累。
 
 ## 相关推荐
 
-- 2026-06-30 06:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 06:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 06:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 06:47 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 06:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 06:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 06:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 06:48 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 06:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 07:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:51 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 06:57 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 06:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 06:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 06:40 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 07:02 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 06:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 06:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 06:39 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 06:58 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 06:55 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 06:55 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 06:47 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 06:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:37 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/08413450.shtml)
-- 2026-06-30 06:32 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/59417.shtml)
-- 2026-06-30 06:58 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/08725414.shtml)
-- 2026-06-30 06:55 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/16763996.shtml)
-- 2026-06-30 06:59 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/9159906.shtml)
-- 2026-06-30 06:38 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/4494972924.shtml)
-- 2026-06-30 06:49 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/17415182339.shtml)
-- 2026-06-30 06:32 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/54419996.shtml)
-- 2026-06-30 06:47 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/838818.shtml)
-- 2026-06-30 06:35 - [沉睡花园](http://www.blog.minike.top/Article/details/28480123.shtml)
-- 2026-06-30 06:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/342499369.shtml)
-- 2026-06-30 06:37 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/205080723.shtml)
-- 2026-06-30 06:31 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/30145962.shtml)
-- 2026-06-30 06:59 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/164536862455.shtml)
-- 2026-06-30 06:43 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/6278806840.shtml)
+- 2026-06-30 07:05 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/180465275610.shtml)
+- 2026-06-30 06:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/4812600.shtml)
+- 2026-06-30 07:03 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0118917566.shtml)
+- 2026-06-30 07:02 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/6388048.shtml)
+- 2026-06-30 06:44 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/1251567.shtml)
+- 2026-06-30 06:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/6594648849.shtml)
+- 2026-06-30 07:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/624994791.shtml)
+- 2026-06-30 07:04 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/837929378.shtml)
+- 2026-06-30 06:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/90374.shtml)
+- 2026-06-30 06:52 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/126878.shtml)
+- 2026-06-30 06:38 - [美人鱼](http://www.blog.minike.top/Article/details/336632854286.shtml)
+- 2026-06-30 06:52 - [请回答王牌2019](https://www.blog.minike.top/Article/details/02848184622.shtml)
+- 2026-06-30 07:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/09123782.shtml)
+- 2026-06-30 06:53 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/71905931937.shtml)
+- 2026-06-30 06:40 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/81154709.shtml)

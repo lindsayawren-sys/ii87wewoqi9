@@ -1,61 +1,56 @@
-# 4家净利翻倍，自营分化加剧！上市券商一季报释放哪些信号？
+# 印度1—3月经济同比增速达7.8%，表现超市场预期
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！截至4月29日，43家上市券商2026年一季报已悉数披露。 在2025年业绩高增长的基础上，券商业绩向好的趋势仍在延续：近七成券商实现营收和净利双增，19家归母净利润增幅超30%，信达证券、财达证券等4家更是翻倍。 经纪业务全线回暖，资管业务近七成正增长，但自营与投行业务分化明显，尤其是自营业务，超半数券商
+核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。 路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。 本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。后续美国最高法院裁定特朗
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 受中东地缘冲突扰动供应链影响，印度一季度经济仍实现亮眼表现：1—3 月国内生产总值同比上涨 7.8%，增速超出市场预期。
 
-截至4月29日，43家上市券商2026年一季报已悉数披露。
+路透社此前经济学家调查显示，市场普遍预测该季度增速为 7.2%，同时低于上一季度增速 7.8%。
 
-在2025年业绩高增长的基础上，券商业绩向好的趋势仍在延续：近七成券商实现营收和净利双增，19家归母净利润增幅超30%，信达证券、财达证券等4家更是翻倍。
+本季度前半段，印度外贸迎来重大利好：印度与欧盟敲定里程碑式大型自贸协定；美国同步将印度商品进口关税由 50% 下调至 18%。
 
-经纪业务全线回暖，资管业务近七成正增长，但自营与投行业务分化明显，尤其是自营业务，超半数券商收入下滑，成为业绩的“胜负手”。
+后续美国最高法院裁定特朗普时期征收关税违法，相关税率进一步降至 10%，显著利好印度出口。
 
-头部券商综合优势进一步巩固，经纪、投行、自营业务表现突出。
+但 2 月末伊朗战事爆发，此后持续冲击印度经济，市场担忧冲突拖累经济、抬升通胀水平。
 
-近七成券商实现营收和净利双增 在2025年业绩高增长的基础上，券商业绩向好的趋势延伸到了2026年第一季度。
+印度央行周五宣布：将 2027 年 3 月结束财年的通胀预期上调 50 个基点至 5.1%，同时下调全年经济增速预期，从此前 6.9% 修正至 6.6%。
 
-43家上市券商中，30家实现营收和净利双增长。
+地缘冲突造成全球能源供应紊乱，大幅抬高印度原油进口成本，本就遭遇外资创纪录外流冲击的印度卢比再度承压。
 
-仅从归母净利润维度看，有19家券商增幅超30%，其中信达证券、财达证券、财通证券、东北证券更是实现翻倍。
+此前印度政府暂缓上调国内成品油售价数月，5 月开始落地国际油价上涨带来的调价，全球燃油涨价成本向下游终端传导，这个全球主要经济体将直面通胀上行压力。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 06:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 06:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 06:43 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 06:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:58 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 06:43 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 06:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 06:55 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 06:49 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 06:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 06:36 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 06:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 06:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 06:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 07:04 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 06:51 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 06:54 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:54 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 06:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 06:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 06:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/695207975603.shtml)
-- 2026-06-30 06:51 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/04990772784.shtml)
-- 2026-06-30 06:33 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/40121427182.shtml)
-- 2026-06-30 06:55 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/5754628774.shtml)
-- 2026-06-30 06:52 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/365655.shtml)
-- 2026-06-30 06:48 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/877923536.shtml)
-- 2026-06-30 06:55 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/15866.shtml)
-- 2026-06-30 06:41 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/39837613.shtml)
-- 2026-06-30 06:54 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/1669875793.shtml)
-- 2026-06-30 06:33 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/783245.shtml)
-- 2026-06-30 06:40 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/54723004277.shtml)
-- 2026-06-30 06:32 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/768996.shtml)
-- 2026-06-30 06:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/69898757219.shtml)
-- 2026-06-30 06:50 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/28619921.shtml)
-- 2026-06-30 06:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/91101.shtml)
+- 2026-06-30 06:51 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/001324025001.shtml)
+- 2026-06-30 06:57 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/781681.shtml)
+- 2026-06-30 07:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9827919783.shtml)
+- 2026-06-30 06:37 - [日本反击率先破门](http://www.share.minike.top/Article/details/909833149.shtml)
+- 2026-06-30 07:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/48238.shtml)
+- 2026-06-30 07:01 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/8299112704.shtml)
+- 2026-06-30 06:39 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/39284467.shtml)
+- 2026-06-30 06:45 - [月亮](http://www.share.kurohicncr.top/Article/details/90365350.shtml)
+- 2026-06-30 06:52 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/6911263.shtml)
+- 2026-06-30 06:58 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4263675.shtml)
+- 2026-06-30 06:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/70669438169.shtml)
+- 2026-06-30 07:02 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/881371273.shtml)
+- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/22325813.shtml)
+- 2026-06-30 06:42 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/1544021.shtml)
+- 2026-06-30 06:45 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/965185.shtml)

@@ -1,56 +1,55 @@
-# 意大利证券交易所员工罢工抗议巴黎集权决策
+# 以色列继续空袭黎巴嫩 造成至少9人死数十人伤
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-当地时间周四(2026年4月30日)，意大利证券交易所约800名员工在米兰和罗马举行半天罢工，抗议母公司泛欧交易所将决策权集中于巴黎，导致当地工作条件恶化和劳资关系紧张。 罢工于中午前后开始，持续至当班结束。示威活动于12：30至15：00在米兰梅扎诺特宫前的商业广场举行。工会代表表示：“我们的目标不是扰乱市场运营，因为这是一个自动化平台。我们想让大家看到并意识到，这种深刻的不
+中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。 据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。 报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤
 
 ## 正文
 
-当地时间周四(2026年4月30日)，意大利证券交易所约800名员工在米兰和罗马举行半天罢工，抗议母公司泛欧交易所将决策权集中于巴黎，导致当地工作条件恶化和劳资关系紧张。
+中新网6月5日电 据土耳其阿纳多卢通讯社报道援引黎巴嫩媒体报道，当地时间4日，以色列军队对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。
 
-罢工于中午前后开始，持续至当班结束。
+据报道，以军对贝卡谷地索赫穆尔镇发动空袭，造成5人死亡、4人受伤。
 
-示威活动于12：30至15：00在米兰梅扎诺特宫前的商业广场举行。
+袭击事件发生后，政府敦促居民和游客不要进入当地，因为存在“严重的安全风险”。
 
-工会代表表示：“我们的目标不是扰乱市场运营，因为这是一个自动化平台。
+报道称，黎巴嫩南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤。
 
-我们想让大家看到并意识到，这种深刻的不满情绪正在影响工作条件，并涉及意大利金融体系关键基础设施之一。
-
-” 这已是近年来的第二次罢工。
-
-工会指出，自2021年泛欧交易所以43亿欧元从伦敦证券交易所集团收购意大利证券交易所以来，当初承诺的“联邦模式”已逐渐演变为巴黎集权决策。
-
-争议焦点包括：泛欧交易所管理层计划从明年夏天起将远程办公天数从目前的每月8天减半至4天；公司奖金低于员工预期；午餐券未能上调等。
+另据半岛电视台报道，根据黎巴嫩卫生部最新数据，自3月2日黎以战火重燃以来，以军袭击已造成黎巴嫩3526人死亡、10733人受伤。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 06:46 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 06:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 06:48 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 06:30 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 06:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 06:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 06:36 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 06:34 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 06:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 06:49 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 06:40 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 06:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 06:39 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 06:53 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 06:45 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 06:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:03 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 06:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 06:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 06:58 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 07:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 06:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 06:36 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/60098514.shtml)
-- 2026-06-30 06:31 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/764328419065.shtml)
-- 2026-06-30 06:53 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/232074.shtml)
-- 2026-06-30 06:36 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/369737019.shtml)
-- 2026-06-30 06:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/653020840.shtml)
-- 2026-06-30 06:56 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/58213364.shtml)
-- 2026-06-30 06:45 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/62162.shtml)
-- 2026-06-30 06:45 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/29818.shtml)
-- 2026-06-30 06:40 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/001685207.shtml)
-- 2026-06-30 06:35 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/0683623244.shtml)
-- 2026-06-30 06:55 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/026902.shtml)
-- 2026-06-30 06:34 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/51199715.shtml)
-- 2026-06-30 06:49 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/070557348.shtml)
-- 2026-06-30 06:53 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/779981.shtml)
-- 2026-06-30 06:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/728935.shtml)
+- 2026-06-30 06:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/217495.shtml)
+- 2026-06-30 06:50 - [送你一朵小红花](https://www.share.minike.top/Article/details/563994449660.shtml)
+- 2026-06-30 06:46 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/29338326.shtml)
+- 2026-06-30 06:58 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/93526140.shtml)
+- 2026-06-30 06:42 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/5758936.shtml)
+- 2026-06-30 06:54 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/7837746.shtml)
+- 2026-06-30 06:53 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/97212166.shtml)
+- 2026-06-30 06:54 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/5836020.shtml)
+- 2026-06-30 06:56 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/255413930.shtml)
+- 2026-06-30 07:02 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/1933960.shtml)
+- 2026-06-30 06:50 - [沉睡花园](http://www.share.minike.top/Article/details/8823000.shtml)
+- 2026-06-30 07:03 - [恋与深空 日服](http://www.share.minike.top/Article/details/44225058.shtml)
+- 2026-06-30 06:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/59084.shtml)
+- 2026-06-30 06:47 - [巴西vs日本](http://www.blog.minike.top/Article/details/72625795.shtml)
+- 2026-06-30 06:56 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/7522488.shtml)

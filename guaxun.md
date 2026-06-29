@@ -1,47 +1,57 @@
-# 中国人寿、福建国资等新设接力科创股权投资基金
+# 韩正出席第二十九届圣彼得堡国际经济论坛全会并致辞
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，企查查平台显示，近日福建省鑫睿接力科创股权投资合伙企业（有限合伙）成立，出资额约40亿元，经营范围包含以私募基金从事股权投资、投资管理、资产管理等活动。股权穿透显示，该企业由中国人寿（601628）、福建省省级政府投资基金有限公司等共同出资。责任编辑：曹睿潼
+中新社莫斯科6月5日电 当地时间6月5日，中国国家副主席韩正在圣彼得堡出席第二十九届圣彼得堡国际经济论坛全会，并发表题为“践行全球治理倡议 携手共创美好未来”的致辞。 韩正在致辞中说，当前，世界百年变局加速演进，全球性挑战和治理赤字更加突出。习近平主席郑重提出全球治理倡议，强调奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本、注重行动导向五大核心理念，已经得到近160个国
 
 ## 正文
 
-4月30日金融一线消息，企查查平台显示，近日福建省鑫睿接力科创股权投资合伙企业（有限合伙）成立，出资额约40亿元，经营范围包含以私募基金从事股权投资、投资管理、资产管理等活动。
+中新社莫斯科6月5日电 当地时间6月5日，中国国家副主席韩正在圣彼得堡出席第二十九届圣彼得堡国际经济论坛全会，并发表题为“践行全球治理倡议 携手共创美好未来”的致辞。
 
-股权穿透显示，该企业由中国人寿（601628）、福建省省级政府投资基金有限公司等共同出资。
+韩正在致辞中说，当前，世界百年变局加速演进，全球性挑战和治理赤字更加突出。
 
-责任编辑：曹睿潼
+习近平主席郑重提出全球治理倡议，强调奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本、注重行动导向五大核心理念，已经得到近160个国家和国际组织的积极响应和支持。
+
+“全球治理之友小组”在联合国发起成立，发出捍卫联合国宪章宗旨和原则、维护真正的多边主义、反对单边主义的一致声音。
+
+中方不仅是全球治理倡议的首倡者，更以实际行动团结各方，共同推动全球治理体系的改革和完善。
+
+韩正表示，中俄两国同为世界主要大国和联合国安理会常任理事国，在全球治理体系变革进程中肩负重要使命。
+
+不久前，习近平主席同普京总统在北京会晤，双方发表《中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明》，彰显中俄两国共同推动构建更加公正合理的全球治理体系的坚定决心和大国担当。
+
+中方愿同包括俄方在内的各方一道，围绕推动落实全球治理倡议加强合作，共同建设开放包容、公平正义、合作共赢的世界。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 06:57 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 06:46 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 06:48 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 06:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 06:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 06:47 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 06:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 06:49 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 06:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 06:44 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 06:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 06:55 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 06:38 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 06:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 06:38 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 06:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 07:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 06:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 06:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 06:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [时光音乐会](http://www.blog.minike.top/Article/details/45524306.shtml)
-- 2026-06-30 06:59 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/787372640.shtml)
-- 2026-06-30 06:59 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/45466805.shtml)
-- 2026-06-30 06:55 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/124409252.shtml)
-- 2026-06-30 06:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/507685803.shtml)
-- 2026-06-30 06:56 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/8824647945.shtml)
-- 2026-06-30 06:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/30246617331.shtml)
-- 2026-06-30 06:45 - [起风了](http://www.share.kurohicncr.top/Article/details/52290279740.shtml)
-- 2026-06-30 06:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/90567.shtml)
-- 2026-06-30 06:30 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/81115817559.shtml)
-- 2026-06-30 06:41 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/946754.shtml)
-- 2026-06-30 06:59 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/9975855.shtml)
-- 2026-06-30 06:41 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/1616621356.shtml)
-- 2026-06-30 06:41 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/1310234444.shtml)
-- 2026-06-30 06:48 - [速度与激情9](https://www.blog.minike.top/Article/details/982351697.shtml)
+- 2026-06-30 07:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/68435.shtml)
+- 2026-06-30 06:54 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/1119780.shtml)
+- 2026-06-30 06:56 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/23894535351.shtml)
+- 2026-06-30 06:44 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/138481268227.shtml)
+- 2026-06-30 07:05 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/1178446392.shtml)
+- 2026-06-30 07:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/9085651377.shtml)
+- 2026-06-30 07:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/1632310.shtml)
+- 2026-06-30 06:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/55616.shtml)
+- 2026-06-30 06:43 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/392857.shtml)
+- 2026-06-30 06:51 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/92971655898.shtml)
+- 2026-06-30 06:56 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/151605.shtml)
+- 2026-06-30 06:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/15998757.shtml)
+- 2026-06-30 06:59 - [日本领先巴西](http://www.share.minike.top/Article/details/403928781067.shtml)
+- 2026-06-30 06:58 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/912233.shtml)
+- 2026-06-30 06:40 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/57220227932.shtml)

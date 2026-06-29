@@ -1,50 +1,59 @@
-# 淮河安澜背后 藏着这个防汛“黑科技”
+# Apogee Enterprises宣布2027财年第一季度业绩发布日期
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 14:46 来源：中国新闻网 你知道吗？淮河安澜背后，藏着一个防汛“黑科技”。记者近日从水利部淮河水利委员会了解到，目前，数字孪生淮河防洪“四预”系统已实现从试点探索到全流域实战化应用，成为守护淮河安澜的“智慧大脑”。（邵萌） 责任编辑：【袁秀月】
+Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。该公司是一家领先的建筑产品及高性能镀膜材料供应商。 根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。 Apogee Enterprises总
 
 ## 正文
 
-发布时间：2026年04月30日 14:46 来源：中国新闻网 你知道吗？
+Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。
 
-淮河安澜背后，藏着一个防汛“黑科技”。
+该公司是一家领先的建筑产品及高性能镀膜材料供应商。
 
-记者近日从水利部淮河水利委员会了解到，目前，数字孪生淮河防洪“四预”系统已实现从试点探索到全流域实战化应用，成为守护淮河安澜的“智慧大脑”。
+根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。
 
-（邵萌） 责任编辑：【袁秀月】
+投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。
+
+Apogee Enterprises总部位于明尼阿波利斯，提供涵盖建筑玻璃、窗户、幕墙、店面和入口系统、集成项目管理与安装服务，以及用于防护、创新设计和增强性能的高性能镀膜等一系列行业领先产品和服务。
+
+回顾此前，Apogee在2026财年第四季度展现了稳健的执行力。
+
+截至2026年2月28日的第四财季，公司每股收益为0.92美元，超过分析师预期的0.90美元；季度营收同比增长1.6%至3.5135亿美元，同样高于预期的3.3598亿美元。
+
+2026整个财年，公司通过运营优化和成本管控，在充满挑战的环境下持续强化了业务基础。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 06:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 06:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 06:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 06:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 06:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 06:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:35 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 06:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:49 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 06:38 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 06:47 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 06:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 06:54 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 07:05 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 07:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 06:38 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 07:00 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 06:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 06:44 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 06:49 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 07:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 06:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/5572619879.shtml)
-- 2026-06-30 06:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/53226280060.shtml)
-- 2026-06-30 06:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/286331181619.shtml)
-- 2026-06-30 06:43 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/7515341237.shtml)
-- 2026-06-30 06:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/324076110.shtml)
-- 2026-06-30 06:44 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/1821510946.shtml)
-- 2026-06-30 06:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/171993.shtml)
-- 2026-06-30 06:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/6232910.shtml)
-- 2026-06-30 06:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/39750071.shtml)
-- 2026-06-30 06:30 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/534144263.shtml)
-- 2026-06-30 06:53 - [内马尔替补](http://www.blog.minike.top/Article/details/08391.shtml)
-- 2026-06-30 06:46 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/969633390834.shtml)
-- 2026-06-30 06:44 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/053180883.shtml)
-- 2026-06-30 06:56 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/7010812531.shtml)
-- 2026-06-30 06:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/0521275.shtml)
+- 2026-06-30 06:47 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/423082892596.shtml)
+- 2026-06-30 06:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/831659823.shtml)
+- 2026-06-30 06:47 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/8250940.shtml)
+- 2026-06-30 07:00 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/663659863222.shtml)
+- 2026-06-30 07:04 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/6811342942.shtml)
+- 2026-06-30 06:52 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/813137.shtml)
+- 2026-06-30 06:47 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/47491.shtml)
+- 2026-06-30 07:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/34804852335.shtml)
+- 2026-06-30 06:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/621710765.shtml)
+- 2026-06-30 07:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/37525.shtml)
+- 2026-06-30 06:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/90100.shtml)
+- 2026-06-30 06:59 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/32299016.shtml)
+- 2026-06-30 06:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/72914244666.shtml)
+- 2026-06-30 06:48 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/89237310.shtml)
+- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/873861395.shtml)

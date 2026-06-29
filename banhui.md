@@ -1,57 +1,61 @@
-# 加拿大油气勘探公司Africa Energy获延期提交南非区块环境影响评估
+# 坚持民生为大 推进学习教育走深走实
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-加拿大油气勘探公司Africa Energy已获得延期，以重新提交南非近海11B/12B区块的环境与社会影响评估报告。 该公司表示，延期至2026年11月4日。此前，西开普高等法院作出裁决，撤销了另一个区块海上勘探作业的环境授权，要求进行额外的评估。Africa Energy称正与顾问包括法律顾问一起审查该裁决的影响，以确定其自身环境影响评估的适当行动方案。 该公司通过投资Ma
+【树立和践行正确政绩观】坚持民生为大 推进学习教育走深走实 央视网消息(新闻联播)：树立和践行正确政绩观学习教育开展以来，重庆渝中、广东梅州一体推进学查改，着力解决群众急难愁盼，切实将学习教育成果转化为工作实效。 重庆市渝中区坚持开门教育，组织党员干部深入基层调研，广泛听取、收集群众意见建议。虎山路西段位于渝中区和九龙坡区交界处，由于行政区划壁垒等原因，过去这里一直没有设立公交
 
 ## 正文
 
-加拿大油气勘探公司Africa Energy已获得延期，以重新提交南非近海11B/12B区块的环境与社会影响评估报告。
+【树立和践行正确政绩观】坚持民生为大 推进学习教育走深走实 央视网消息(新闻联播)：树立和践行正确政绩观学习教育开展以来，重庆渝中、广东梅州一体推进学查改，着力解决群众急难愁盼，切实将学习教育成果转化为工作实效。
 
-该公司表示，延期至2026年11月4日。
+重庆市渝中区坚持开门教育，组织党员干部深入基层调研，广泛听取、收集群众意见建议。
 
-此前，西开普高等法院作出裁决，撤销了另一个区块海上勘探作业的环境授权，要求进行额外的评估。
+虎山路西段位于渝中区和九龙坡区交界处，由于行政区划壁垒等原因，过去这里一直没有设立公交车站。
 
-Africa Energy称正与顾问包括法律顾问一起审查该裁决的影响，以确定其自身环境影响评估的适当行动方案。
+但是，随着附近小区规模的不断扩大，再加上去年下半年这里新建了一所学校，所以，大家对于乘坐公共交通出行的需求更加迫切。
 
-该公司通过投资Main Street 1549 Pty Ltd间接持有11B/12B区块的权益，该公司目前在该区块拥有10%的参与权益。
+针对这个问题，由渝中区牵头，组织交通、公安、规划等部门和街道，协同九龙坡区勘查论证，通过在虎山路西段双侧增设公交车站、增开新的公交线路、进一步优化原有公交线路等措施，方便群众出行。
 
-Africa Energy预计将持有该区块75%的直接权益，但须获得与合资伙伴退出相关的监管批准，并完成此前宣布的重组。
+学习教育开展以来，重庆渝中处级以上领导班子对照查摆问题771条，逐一进行整改。
 
-此前，道达尔能源、卡塔尔能源和CNRI作为11B/12B区块的前合作伙伴已于2024年退出。
+广东省梅州市一体推进学查改，针对群众反映需线下办理的政务服务“上班没空办、下班没处办”等痛点堵点，优化办事流程、拓展线上办理事项，对驾驶证换领补办、首办身份证等需现场办理的高频事项，实行“延时+错时”服务。
 
-该公司表示，获得环境授权是获得11B/12B区块开采权的先决条件。
+工作日试点推出午间服务窗口，周末有需求可以网上预约开放对应窗口，保障群众在非工作时段也能顺利办事。
 
 ## 相关推荐
 
-- 2026-06-30 06:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 06:42 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 06:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 06:55 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 06:47 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 06:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:38 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 06:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 06:34 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 06:49 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 07:04 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 06:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 06:52 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 06:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 06:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 06:38 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 06:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 06:48 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 06:51 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 06:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 06:45 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 06:54 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 06:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 07:04 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/19711.shtml)
-- 2026-06-30 06:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/0277361.shtml)
-- 2026-06-30 06:57 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/50277181846.shtml)
-- 2026-06-30 06:47 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/960497006773.shtml)
-- 2026-06-30 06:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/15405099.shtml)
-- 2026-06-30 06:48 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/6899627.shtml)
-- 2026-06-30 06:46 - [送你一朵小红花](http://www.blog.minike.top/Article/details/830363.shtml)
-- 2026-06-30 06:58 - [日本领先巴西](http://www.share.minike.top/Article/details/423707518734.shtml)
-- 2026-06-30 06:48 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/787142.shtml)
-- 2026-06-30 06:33 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/54543.shtml)
-- 2026-06-30 06:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/01773671260.shtml)
-- 2026-06-30 06:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/0785639.shtml)
-- 2026-06-30 06:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/79120595528.shtml)
-- 2026-06-30 06:54 - [苗族银饰](http://www.share.minike.top/Article/details/24154.shtml)
-- 2026-06-30 06:41 - [美股](http://www.share.kurohicncr.top/Article/details/3717757271.shtml)
+- 2026-06-30 06:43 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/613530.shtml)
+- 2026-06-30 06:46 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/7617458.shtml)
+- 2026-06-30 07:03 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/6198319304.shtml)
+- 2026-06-30 06:59 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/4342393.shtml)
+- 2026-06-30 06:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/68135705.shtml)
+- 2026-06-30 06:56 - [青春环游记第三季](https://www.blog.minike.top/Article/details/653217606.shtml)
+- 2026-06-30 06:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/166255194.shtml)
+- 2026-06-30 07:01 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/012909.shtml)
+- 2026-06-30 06:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/70919334.shtml)
+- 2026-06-30 06:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/84790451.shtml)
+- 2026-06-30 06:47 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/11535651.shtml)
+- 2026-06-30 06:52 - [点菜也要教吗](http://www.share.minike.top/Article/details/0910274.shtml)
+- 2026-06-30 06:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/1561783464.shtml)
+- 2026-06-30 06:42 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/7622693203.shtml)
+- 2026-06-30 06:38 - [巴西绝杀日本](https://www.share.minike.top/Article/details/303335074711.shtml)

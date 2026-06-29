@@ -1,56 +1,57 @@
-# 渣打集团第一季度盈利超预期 淡化中东冲突的影响
+# 中信建投：港股本轮主升浪正在确立
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-渣打集团公布创纪录的第一季度业绩，主要受财富管理业务提振，并淡化了中东冲突的影响。 这家总部位于伦敦的银行公布第一季度税前利润25亿美元，高于分析师预估的20.9亿美元，得益于财富管理净新增资金流入强劲。 渣打首席执行官Bill Winters在声明中表示：“我们实现了创纪录的一季度业绩，财富解决方案和全球银行业务实现两位数增长。” 渣打名为“Fit for Growth”的计
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信建投证券研究 文|黄文涛 何盛 自3月底我们提出港股阶段性配置机会以来，港股已逐步完成阶段性探底，并在4月TACO交易后构筑中期底部。我们认为，港股行情正由前期估值和情绪修复，转向盈利验证与风险偏好改善共同驱动的新阶段。过去一个多月港股表现相对落后，主要源于全球资金优先流入AI算力敞口更高的市场，而港股
 
 ## 正文
 
-渣打集团公布创纪录的第一季度业绩，主要受财富管理业务提振，并淡化了中东冲突的影响。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家总部位于伦敦的银行公布第一季度税前利润25亿美元，高于分析师预估的20.9亿美元，得益于财富管理净新增资金流入强劲。
+中信建投证券研究 文|黄文涛 何盛 自3月底我们提出港股阶段性配置机会以来，港股已逐步完成阶段性探底，并在4月TACO交易后构筑中期底部。
 
-渣打首席执行官Bill Winters在声明中表示：“我们实现了创纪录的一季度业绩，财富解决方案和全球银行业务实现两位数增长。
+我们认为，港股行情正由前期估值和情绪修复，转向盈利验证与风险偏好改善共同驱动的新阶段。
 
-” 渣打名为“Fit for Growth”的计划将于今年收官。
+过去一个多月港股表现相对落后，主要源于全球资金优先流入AI算力敞口更高的市场，而港股权重更多集中于互联网平台、金融、消费、红利及AI应用侧，对算力产业链的直接敞口相对有限。
 
-该计划涵盖数百项举措，目标节省从数十万美元到数千万美元不等的成本。
+此前市场主要认为算力环节最具确定基本面，港股因算力成分有限而不被重视。
 
-渣打计划于下月在一系列投资者活动中公布新的财务目标。
+后续若AI交易从纯算力向算力租赁、云服务、AI应用、网络安全、数据平台和企业软件扩散，港股科技资产的结构劣势有望逐步转化为结构优势。
 
-渣打计提信贷减值损失2.96亿美元，其中约1.9亿美元源于“与中东冲突相关的预防性管理调整”。
+当前驱动港股行情的中短期因素正在重新排序。
 
-Winters表示：“尽管地缘政治紧张局势持续、全球经济存在不确定性，我们的优势市场地位和审慎风险管理让我们有信心保持业绩表现。
+一是海外风险仍有扰动，过去一两周美国长债利率抬升、美元偏强和地缘风险反复，对港股估值弹性和外资风险偏好仍有压制。
 
 ## 相关推荐
 
-- 2026-06-30 06:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 06:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 06:52 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 06:40 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 06:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 06:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 06:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 06:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 06:38 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 06:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 06:59 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 06:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 07:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 06:46 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 07:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 06:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 07:02 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 06:38 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 06:42 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 06:43 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 07:03 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [巴西2比1日本](https://www.blog.minike.top/Article/details/41448931159.shtml)
-- 2026-06-30 06:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/7303482.shtml)
-- 2026-06-30 06:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/739485061312.shtml)
-- 2026-06-30 06:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/94715213433.shtml)
-- 2026-06-30 06:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/332667463.shtml)
-- 2026-06-30 06:38 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/134583566.shtml)
-- 2026-06-30 06:39 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/79411568.shtml)
-- 2026-06-30 06:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/97685009876.shtml)
-- 2026-06-30 06:33 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/511686316616.shtml)
-- 2026-06-30 06:43 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/4697371650.shtml)
-- 2026-06-30 06:46 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/867255345.shtml)
-- 2026-06-30 06:40 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/59323328.shtml)
-- 2026-06-30 06:58 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/4883762364.shtml)
-- 2026-06-30 06:30 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/71746166.shtml)
-- 2026-06-30 06:31 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/307563608.shtml)
+- 2026-06-30 06:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/710424023575.shtml)
+- 2026-06-30 07:01 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/33986.shtml)
+- 2026-06-30 06:41 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/8702270.shtml)
+- 2026-06-30 06:39 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/041606648591.shtml)
+- 2026-06-30 06:49 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/373982898.shtml)
+- 2026-06-30 06:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/747980.shtml)
+- 2026-06-30 06:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/019332.shtml)
+- 2026-06-30 06:55 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/3507359.shtml)
+- 2026-06-30 06:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/76317.shtml)
+- 2026-06-30 06:59 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/63623.shtml)
+- 2026-06-30 06:51 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/5082173127.shtml)
+- 2026-06-30 06:59 - [千与千寻](http://www.share.minike.top/Article/details/71156997144.shtml)
+- 2026-06-30 06:43 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/82327830259.shtml)
+- 2026-06-30 07:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/084760.shtml)
+- 2026-06-30 07:02 - [森保一 保守](http://www.share.minike.top/Article/details/587621103.shtml)

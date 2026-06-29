@@ -1,50 +1,61 @@
-# 百胜餐饮营收增长 塔可钟、肯德基业务拉动
+# 普京：“目前看不出与泽连斯基会面的意义何在”
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 必胜客同店销售额基本持平 百胜餐饮集团一季度营收实现增长，主要由旗下塔可钟和肯德基连锁品牌业绩带动。 这家快餐连锁运营商于周三公布，在截至 3 月 31 日的季度中： 季度净利润 4.32 亿美元，折合每股收益 1.55 美元；上年同期净利润 2.53 亿美元，每股收益 0.90 美元。 剔除一次性项目后，调整后每股收益 1.50 美元，高
+中新社莫斯科6月5日电 俄罗斯总统普京5日表示，其与乌克兰总统泽连斯基会面的前提是必须先找到解决冲突的方案。 泽连斯基4日发表公开信，提议与普京举行直接会谈，以结束乌克兰冲突。 普京在第二十九届圣彼得堡国际经济论坛全会上回答主持人相关提问时表示，泽连斯基“措辞粗鲁无礼”的信件并非为了创造会面和谈判的机会，而是在制造一种实际上根本不可能举行任何会面的局面。 普京表示，他从未拒绝与
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 必胜客同店销售额基本持平 百胜餐饮集团一季度营收实现增长，主要由旗下塔可钟和肯德基连锁品牌业绩带动。
+中新社莫斯科6月5日电 俄罗斯总统普京5日表示，其与乌克兰总统泽连斯基会面的前提是必须先找到解决冲突的方案。
 
-这家快餐连锁运营商于周三公布，在截至 3 月 31 日的季度中： 季度净利润 4.32 亿美元，折合每股收益 1.55 美元；上年同期净利润 2.53 亿美元，每股收益 0.90 美元。
+泽连斯基4日发表公开信，提议与普京举行直接会谈，以结束乌克兰冲突。
 
-剔除一次性项目后，调整后每股收益 1.50 美元，高于 FactSet 分析师预期的 1.38 美元。
+普京在第二十九届圣彼得堡国际经济论坛全会上回答主持人相关提问时表示，泽连斯基“措辞粗鲁无礼”的信件并非为了创造会面和谈判的机会，而是在制造一种实际上根本不可能举行任何会面的局面。
 
-营收同比增长 15%，达20.6 亿美元，高于市场预期的 20.4 亿美元。
+普京表示，他从未拒绝与泽连斯基会面，但目前“看不出会面的意义何在”。
 
-门店同店销售表现： 责任编辑：郭明煜
+他认为，对乌克兰方面来说，他们要求会谈的唯一目的就是阻止俄武装力量的推进。
+
+普京表示，可以考虑由专家先展开工作，制定解决方案，然后双方再见面，出席文件签署仪式甚至签署文件，“但首先需要找到解决方案”。
+
+俄乌双方需要的不是停止冲突的短期协议，而是着眼于长远的协议。
+
+普京同时指出，5月22日乌克兰无人机对卢甘斯克地区的一所学校发动恐怖袭击，造成大量学生身亡。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 06:48 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 06:39 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 06:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 06:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 06:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 06:35 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 06:46 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 06:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 06:52 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 06:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 06:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 06:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:47 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 06:36 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 07:01 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 06:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 06:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 06:41 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 06:52 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 06:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 06:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/95453.shtml)
-- 2026-06-30 06:46 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/486469609.shtml)
-- 2026-06-30 06:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/50711.shtml)
-- 2026-06-30 06:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/2938748892.shtml)
-- 2026-06-30 06:52 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/6837058.shtml)
-- 2026-06-30 06:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/88162.shtml)
-- 2026-06-30 06:48 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/4109974.shtml)
-- 2026-06-30 06:43 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/97968629.shtml)
-- 2026-06-30 06:52 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/83391245404.shtml)
-- 2026-06-30 06:42 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/158596963.shtml)
-- 2026-06-30 06:47 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/1401710.shtml)
-- 2026-06-30 06:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/92769.shtml)
-- 2026-06-30 06:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/21592.shtml)
-- 2026-06-30 06:30 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/837949800.shtml)
-- 2026-06-30 06:47 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/76907.shtml)
+- 2026-06-30 07:03 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/7041640.shtml)
+- 2026-06-30 06:36 - [金牌调解](http://www.share.minike.top/Article/details/98245.shtml)
+- 2026-06-30 06:55 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/747967281101.shtml)
+- 2026-06-30 06:42 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/045164251229.shtml)
+- 2026-06-30 06:36 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/2436519787.shtml)
+- 2026-06-30 06:49 - [沉睡花园](http://www.blog.minike.top/Article/details/059710.shtml)
+- 2026-06-30 06:44 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/240660677391.shtml)
+- 2026-06-30 06:46 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/39101.shtml)
+- 2026-06-30 06:55 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/007623.shtml)
+- 2026-06-30 07:02 - [绘画区你赢了](https://www.share.minike.top/Article/details/826585604.shtml)
+- 2026-06-30 06:56 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/78020831.shtml)
+- 2026-06-30 06:59 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/000677241551.shtml)
+- 2026-06-30 06:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/63245.shtml)
+- 2026-06-30 06:46 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/977722649.shtml)
+- 2026-06-30 06:43 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/689410368.shtml)

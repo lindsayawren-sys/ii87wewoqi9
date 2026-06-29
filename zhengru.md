@@ -1,56 +1,58 @@
-# 从渠道提质到C端共鸣，从一季度报看汾酒经营模式的“转身”
+# 空中具身智能核心是什么？专家称在于实现飞行器与环境深度交互
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，山西汾酒2026年一季度报如期披露。报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信
+中新网北京6月6日电 (记者 孙自法)国家科技传播中心6月6日向媒体通报说，国家科技传播中心学术发展讲堂空中具身平台专场近日举办，上海交通大学特聘教授、空中具身智能实验室主任吴奇发表主旨演讲指出，空中具身智能的核心在于实现飞行器与环境的深度交互。 在题为“空中具身智能平台及多机械臂协同控制飞行”的演讲中，吴奇系统介绍了其实验室团队在有人和无人系统、长时警戒、座舱评估、空中对抗博
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月6日电 (记者 孙自法)国家科技传播中心6月6日向媒体通报说，国家科技传播中心学术发展讲堂空中具身平台专场近日举办，上海交通大学特聘教授、空中具身智能实验室主任吴奇发表主旨演讲指出，空中具身智能的核心在于实现飞行器与环境的深度交互。
 
-4月29日，山西汾酒2026年一季度报如期披露。
+在题为“空中具身智能平台及多机械臂协同控制飞行”的演讲中，吴奇系统介绍了其实验室团队在有人和无人系统、长时警戒、座舱评估、空中对抗博弈等方向的研究进展。
 
-报告期内，公司实现营业收入149.23亿元，净利润53.83亿元。
+他强调，人与机器均非完美，单纯依赖任何一方都无法确保绝对安全。
 
-省内市场营收60.87亿元，同比上涨0.06%，成功守住大本营市场，省外市场营收87.94亿元，全国化开拓成绩犹可见。
+吴奇透露，目前，空中具身智能实验室团队研制的多机械臂协同控制系统，已能替代或辅助飞行员完成起飞、定高巡航等典型任务，成功实现了从仿真环境到实际飞行器的闭环控制。
 
-与此同时，一季度存货有效减少7.42亿元，合同负债增加8.97亿元，经销商信心充足，且渠道回款良性，现金流稳定。
+针对人机关系，吴奇提出辩证的技术伦理观认为，人类受限于生理机能与心理状态，而机器则受制于传感器硬件的物理极限。
 
-当关注点从利润与增速的表象转向长远价值，会发现数据的背后，是汾酒在清香复兴关键期，一场关于“稳根基、优结构、谋长远”的主动变革。
+他以空中加油场景为例：在锥套“甩鞭”、夜间错觉等复杂条件下，人工智能(AI)的视觉检测可能因硬件局限而失效；反之，当飞行员面临认知疲劳或高过载失能时，多机械臂系统则能发挥精准稳定的优势进行接管。
 
-相较于短期利润的亮眼，更值得行业关注的是汾酒围绕渠道秩序、产品结构、消费触达所展开的系统性重构。
+基于此，该实验室团队确立“人机二元组合”的核心原则：人始终掌握最高决策权与最终接管权，作为应对突发状况的“安全兜底”；机器则作为辅助执行单元，弥补人类的生理短板。
 
-主动优化渠道，从规模驱动转向生态优先 在行业深度调整期，“稳”比“快”更具价值。
+目前，这项研究成果已转化应用。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 06:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 06:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 06:56 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 06:40 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:55 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 06:43 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 06:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 06:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 06:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 07:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 06:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 06:57 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 07:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 06:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 06:45 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 06:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 06:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 06:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/801567178932.shtml)
-- 2026-06-30 06:30 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/7538824.shtml)
-- 2026-06-30 06:54 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/13910.shtml)
-- 2026-06-30 06:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/9065829326.shtml)
-- 2026-06-30 06:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/31092.shtml)
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/11723293.shtml)
-- 2026-06-30 06:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/523795.shtml)
-- 2026-06-30 06:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/58731.shtml)
-- 2026-06-30 06:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/0974178154.shtml)
-- 2026-06-30 06:47 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/018296.shtml)
-- 2026-06-30 06:48 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/78605469.shtml)
-- 2026-06-30 06:32 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/3710324960.shtml)
-- 2026-06-30 06:58 - [刘念回应](http://www.share.kurohicncr.top/Article/details/6792990.shtml)
-- 2026-06-30 06:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/64106939.shtml)
-- 2026-06-30 06:30 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/0245919912.shtml)
+- 2026-06-30 06:46 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/917438.shtml)
+- 2026-06-30 06:40 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/08524943548.shtml)
+- 2026-06-30 06:44 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/94461.shtml)
+- 2026-06-30 07:00 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/0703528.shtml)
+- 2026-06-30 06:36 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/2447381.shtml)
+- 2026-06-30 06:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/60949529.shtml)
+- 2026-06-30 06:42 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/2396973.shtml)
+- 2026-06-30 06:48 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/542539123.shtml)
+- 2026-06-30 06:49 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/569598.shtml)
+- 2026-06-30 06:46 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/029439234461.shtml)
+- 2026-06-30 06:41 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/84782819266.shtml)
+- 2026-06-30 07:05 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/0835324.shtml)
+- 2026-06-30 06:50 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/6505290837.shtml)
+- 2026-06-30 07:03 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/404949.shtml)
+- 2026-06-30 06:46 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/3989947.shtml)

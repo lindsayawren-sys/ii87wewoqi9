@@ -1,60 +1,61 @@
-# 特朗普要降息，同僚却反对：沃什的美联储主席之路开局即地狱模式
+# 美国能源部长：美国正洽谈在加州设立石油储备相关事宜
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-随着凯文·沃什距离出任美联储主席越来越近，他未来的同僚们却与特朗普所期待的恢复降息渐行渐远。 在现任主席杰罗姆·鲍威尔主持的最后一次会议上，美联储决策者周三几乎一致同意维持利率不变。然而，对于未来利率的走向，会议内部却出现了深刻分歧——三位官员对政策声明中仍指向未来降息的措辞投下了反对票。 鲍威尔同时确认，他将在5月卸任主席后继续担任美联储理事，这将推迟特朗普提名一位更倾向于降
+美国能源部长赖特本周五透露，特朗普政府正就落地加州石油储备项目开展实质性磋商。该项目落地后既能完善加州石油基建，也会掣肘加州民主党州长加文・纽瑟姆缩减本土化石燃料使用规模的施政计划。 相关媒体拿到一份6月2日的文件，文件由坐拥加州近海三座石油钻井平台的萨布尔近海石油公司法务团队递交至美国能源部。文件显示，该企业提议在西海岸建设战略石油储备基地，此举“一方面是响应特朗普政府的问询
 
 ## 正文
 
-随着凯文·沃什距离出任美联储主席越来越近，他未来的同僚们却与特朗普所期待的恢复降息渐行渐远。
+美国能源部长赖特本周五透露，特朗普政府正就落地加州石油储备项目开展实质性磋商。
 
-在现任主席杰罗姆·鲍威尔主持的最后一次会议上，美联储决策者周三几乎一致同意维持利率不变。
+该项目落地后既能完善加州石油基建，也会掣肘加州民主党州长加文・纽瑟姆缩减本土化石燃料使用规模的施政计划。
 
-然而，对于未来利率的走向，会议内部却出现了深刻分歧——三位官员对政策声明中仍指向未来降息的措辞投下了反对票。
+相关媒体拿到一份6月2日的文件，文件由坐拥加州近海三座石油钻井平台的萨布尔近海石油公司法务团队递交至美国能源部。
 
-鲍威尔同时确认，他将在5月卸任主席后继续担任美联储理事，这将推迟特朗普提名一位更倾向于降息的新理事的机会。
+文件显示，该企业提议在西海岸建设战略石油储备基地，此举“一方面是响应特朗普政府的问询，另一方面也是配合公司与国防部持续推进的油气保供洽谈，旨在保障加州油气供给”。
 
-WisdomTree投资策略主管Kevin Flanagan表示：“如果有人认为沃什一上任就会立即降息，那他们恐怕要失望了。
+赖特在采访中证实，相关储备设施项目正处于商讨阶段，但未披露具体细节。
 
-未来六周甚至更长时间的经济数据，将决定那三位持反对意见的官员能否转变立场，重新支持降息。
+赖特在视察萨布尔公司位于圣巴巴拉县的油气设施后受访表示：“加州是美军面向太平洋的前沿部署据点，境内配套设施数量庞大。
 
-” 在4月21日接受采访时，特朗普曾表示，如果沃什上任后不立即降息，他会感到失望。
+我们该怎样做才能巩固加州与全美国防安全？
 
-沃什长期以来虽暗示存在降息空间，但并未明确承诺一旦宣誓就职就会立即要求美联储同僚采取行动。
+加州如今沦为一座能源自给匮乏、用能成本高昂的孤岛，现状很不理想。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 06:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 06:55 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 06:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 06:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:41 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 06:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 06:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 06:55 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 06:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 06:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 06:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 06:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 06:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 06:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 07:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 06:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 06:58 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 06:40 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 06:37 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 06:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 06:59 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 06:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 06:58 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 06:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 07:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 06:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 06:42 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/48507.shtml)
-- 2026-06-30 06:39 - [周生如故](http://www.blog.kurohicncr.top/Article/details/90742691996.shtml)
-- 2026-06-30 06:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/95721.shtml)
-- 2026-06-30 06:54 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/36803754.shtml)
-- 2026-06-30 06:31 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/0701624.shtml)
-- 2026-06-30 06:49 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2728956691.shtml)
-- 2026-06-30 06:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/83520.shtml)
-- 2026-06-30 06:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/1818142319.shtml)
-- 2026-06-30 06:57 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/205368517355.shtml)
-- 2026-06-30 06:56 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/188748492849.shtml)
-- 2026-06-30 06:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/25442.shtml)
-- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/59817091.shtml)
-- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/87240.shtml)
-- 2026-06-30 06:54 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/3953321270.shtml)
-- 2026-06-30 06:38 - [一见倾心](http://www.share.minike.top/Article/details/509150176.shtml)
+- 2026-06-30 06:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/97552177690.shtml)
+- 2026-06-30 07:03 - [《共患难》](http://www.blog.minike.top/Article/details/05770510562.shtml)
+- 2026-06-30 07:02 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9321393402.shtml)
+- 2026-06-30 06:55 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/593805103.shtml)
+- 2026-06-30 07:03 - [流金岁月](https://www.share.kurohicncr.top/Article/details/886409656.shtml)
+- 2026-06-30 06:39 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/5633570943.shtml)
+- 2026-06-30 06:57 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/98677121.shtml)
+- 2026-06-30 06:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/502552369.shtml)
+- 2026-06-30 06:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9893914196.shtml)
+- 2026-06-30 06:55 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/2806576289.shtml)
+- 2026-06-30 07:05 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/9660403.shtml)
+- 2026-06-30 06:46 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/36337.shtml)
+- 2026-06-30 06:37 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/594280972839.shtml)
+- 2026-06-30 06:58 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/248598488.shtml)
+- 2026-06-30 06:54 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/10121.shtml)

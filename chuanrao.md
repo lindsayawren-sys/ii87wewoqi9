@@ -1,59 +1,56 @@
-# 家长“代劳”、保洁“外包”：变味儿的校园劳动
+# 重逢泪奔！台湾“中天小姐姐”再回胡同看望“北京奶奶”
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-家长到校扫地、拖地、擦窗户，聘请保洁人员打扫教室……“新华视点”记者走访多地发现，在部分学校，作为学校劳动教育基本内容的打扫教室，却被家长“代劳”或“外包”给保洁公司，劳动教育偏离了“育”的本意。清洁劳动被“代劳” 《义务教育劳动课程标准(2022年版)》明确将“清洁与卫生”纳入日常生活劳动任务群，旨在让学生通过打扫教室等基础劳动，培养劳动习惯和责任意识。 然而，记者走访发现，
+中新网6月5日电 (燕新台)2025年8月，首度来北京采访的“中天小姐姐”何橞瑢在胡同里偶然结识一位老奶奶。一席暖意融融的闲谈，让跨越海峡的陌生化作祖孙般的温情。临别之际，她和老人郑重相约，日后定会回来看望。 视频：台湾“中天小姐姐”再回胡同看“北京奶奶”来源：中国新闻网 今年6月，“中天小姐姐”专程来到北京，再次登门探望牵挂已久的北京奶奶。见面时，两人久久抱在一起，手握着手诉
 
 ## 正文
 
-家长到校扫地、拖地、擦窗户，聘请保洁人员打扫教室……“新华视点”记者走访多地发现，在部分学校，作为学校劳动教育基本内容的打扫教室，却被家长“代劳”或“外包”给保洁公司，劳动教育偏离了“育”的本意。
+中新网6月5日电 (燕新台)2025年8月，首度来北京采访的“中天小姐姐”何橞瑢在胡同里偶然结识一位老奶奶。
 
-清洁劳动被“代劳” 《义务教育劳动课程标准(2022年版)》明确将“清洁与卫生”纳入日常生活劳动任务群，旨在让学生通过打扫教室等基础劳动，培养劳动习惯和责任意识。
+一席暖意融融的闲谈，让跨越海峡的陌生化作祖孙般的温情。
 
-然而，记者走访发现，这项最贴近学生生活的劳动，在部分学校却被悄然转嫁。
+临别之际，她和老人郑重相约，日后定会回来看望。
 
-西部一小学学生家长表示，每学期开学或部分大扫除日之前，学校会发通知，提出家长需帮忙打扫教室卫生、帮助搬书发书等，并称“若没有家长接龙，只有按照学生学号轮流来”。
+视频：台湾“中天小姐姐”再回胡同看“北京奶奶”来源：中国新闻网 今年6月，“中天小姐姐”专程来到北京，再次登门探望牵挂已久的北京奶奶。
 
-为给班主任留下好印象，她特意向单位请了半天假，入校打扫了四五个小时。
+见面时，两人久久抱在一起，手握着手诉说着彼此的牵挂…… 这次，何橞瑢除了带来礼物，还带来了一封妈妈的手写信。
 
-一位家长告诉记者，轮到任务的家长需要到校完成扫地、拖地、擦窗户、洗窗帘、洗空调滤网等全套清洁工作，“每次至少半天”。
+视频：台湾“中天小姐姐”何橞瑢给“北京奶奶”读妈妈的亲笔信来源：中国新闻网 妈妈在信中说：“看着我女儿在您面前哭得稀里哗啦，您没说太多，只是慈祥地默默地将她拥入怀中……那种靠拢的感觉，好像久别重逢的亲人。
 
-“家长也要上班，要么请假扣薪，要么只能让家中老人代劳。
+” 两人交谈之间，奶奶感慨时光飞逝，动情地说道：“两岸常来往多好，说到底咱们是一个国家”。
 
-”不少家长对此表示无奈。
+何橞瑢则抱着奶奶默默流泪，说着“一定还会再见的！
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 06:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 06:55 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 06:32 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 06:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 06:40 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 06:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 06:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 06:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 06:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 06:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 07:02 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 06:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 07:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 07:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 06:36 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 06:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 06:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 07:02 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 06:51 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/8245670.shtml)
-- 2026-06-30 06:42 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/2777566405.shtml)
-- 2026-06-30 06:45 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/85639280.shtml)
-- 2026-06-30 06:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/235839.shtml)
-- 2026-06-30 06:50 - [刘念回应](http://www.blog.minike.top/Article/details/561964748.shtml)
-- 2026-06-30 06:48 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0277659212.shtml)
-- 2026-06-30 06:38 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/632496603139.shtml)
-- 2026-06-30 06:52 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/17804.shtml)
-- 2026-06-30 06:58 - [刘念回应](http://www.share.kurohicncr.top/Article/details/3642116.shtml)
-- 2026-06-30 06:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/38345.shtml)
-- 2026-06-30 06:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/67219048.shtml)
-- 2026-06-30 06:51 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/000559379.shtml)
-- 2026-06-30 06:57 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/875184599988.shtml)
-- 2026-06-30 06:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/2425060719.shtml)
-- 2026-06-30 06:41 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/485151.shtml)
+- 2026-06-30 06:54 - [三星投资计划](http://www.share.minike.top/Article/details/0226865.shtml)
+- 2026-06-30 06:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/0100183.shtml)
+- 2026-06-30 06:55 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3575982227.shtml)
+- 2026-06-30 06:45 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/2311022.shtml)
+- 2026-06-30 06:46 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/273246274.shtml)
+- 2026-06-30 06:39 - [天道](http://www.blog.kurohicncr.top/Article/details/119178.shtml)
+- 2026-06-30 07:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/17157344484.shtml)
+- 2026-06-30 07:02 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/8063853.shtml)
+- 2026-06-30 07:02 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/265236747.shtml)
+- 2026-06-30 06:48 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/15860284.shtml)
+- 2026-06-30 06:37 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/18748126899.shtml)
+- 2026-06-30 07:03 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/801190.shtml)
+- 2026-06-30 06:45 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/6718268.shtml)
+- 2026-06-30 07:05 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/023929405768.shtml)
+- 2026-06-30 06:43 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/103112331282.shtml)

@@ -1,60 +1,61 @@
-# 新疆经济看点丨就业有路 增收有门
+# 湖南江永高山蔬菜热销粤港澳大湾区
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-就业，一头连着宏观大势，一头连着万家灯火。 来自自治区人力资源和社会保障厅的数据显示，一季度，新疆实现城镇新增就业13.46万人，与2025年同期相比，增加0.45万人。 新疆聚焦高质量充分就业目标，深入实施就业优先战略，围绕重点群体，强化政策落实、加大岗位挖潜、优化就业服务，推动就业局势稳中有升，让各族群众就业有门路，增收有底气。 精准施策稳岗位4月24日，在新疆睿弘纺织有限
+中新网永州6月5日电(田海忠 周佳琳)“依托病虫害气象预警，我们有效规避了高温高湿引发的蔬菜病害。”湖南江永县夏层铺镇供粤港澳蔬菜基地负责人张永对深入田间开展气象调研的气象工作人员连连点赞。 江永坐落于湘南边陲萌渚岭山麓，属亚热带丘陵山区气候，昼夜温差大、土壤天然富硒，得天独厚的水土气候禀赋孕育优质果蔬资源。作为湖南省定点建设的粤港澳大湾区“菜篮子”核心供应基地，蔬菜产业是江永
 
 ## 正文
 
-就业，一头连着宏观大势，一头连着万家灯火。
+中新网永州6月5日电(田海忠 周佳琳)“依托病虫害气象预警，我们有效规避了高温高湿引发的蔬菜病害。
 
-来自自治区人力资源和社会保障厅的数据显示，一季度，新疆实现城镇新增就业13.46万人，与2025年同期相比，增加0.45万人。
+”湖南江永县夏层铺镇供粤港澳蔬菜基地负责人张永对深入田间开展气象调研的气象工作人员连连点赞。
 
-新疆聚焦高质量充分就业目标，深入实施就业优先战略，围绕重点群体，强化政策落实、加大岗位挖潜、优化就业服务，推动就业局势稳中有升，让各族群众就业有门路，增收有底气。
+江永坐落于湘南边陲萌渚岭山麓，属亚热带丘陵山区气候，昼夜温差大、土壤天然富硒，得天独厚的水土气候禀赋孕育优质果蔬资源。
 
-精准施策稳岗位4月24日，在新疆睿弘纺织有限公司车间，祖力皮耶·克衣木正专注地穿梭在纱锭之间。
+作为湖南省定点建设的粤港澳大湾区“菜篮子”核心供应基地，蔬菜产业是江永县乡村振兴、富民强县的支柱特色产业。
 
-这位吐鲁番姑娘和很多姐妹都在家门口的纺织企业实现就地就近就业。
+该县蔬菜产业经过多年培育发展，已形成以夏凉高山叶菜、香芋、瓜类果蔬为主体的种植格局，规模化供粤港澳蔬菜基地覆盖全县9个重点乡镇，依靠错峰种植、分期采收模式，实现全年不间断向粤港澳大湾区输送时令生鲜，带动本地数万农户稳定务工增收。
 
-“厂里有免费培训，还有师傅手把手教我，现在每月工资能拿到5000元以上，等我技术更熟练，收入会更高。
+近期，江永迎来持续性高温高湿天气，田间温湿度快速攀升，瓜菜病虫害迎来高发易发窗口期。
 
-”祖力皮耶对未来充满希望。
+为筑牢粤港澳大湾区生鲜保供防线，守住本地蔬菜稳产增收底线，江永县气象局主动下沉田间地头，量身打造精细化特色蔬菜专项气象保障服务。
 
-一个普通劳动者对美好生活的期许，映射出新疆蓬勃向上的发展活力。
+“当前正值瓜菜集中采收关键节点，湿热气候极易诱发疫病、霜霉病、炭疽病等多种病害，基地生产对精准气象防灾减灾服务需求十分迫切。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 06:56 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 06:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 06:35 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 06:52 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 06:45 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 06:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 06:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 06:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 06:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 06:47 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 06:58 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 06:32 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 06:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 06:50 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 06:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 06:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 06:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 06:43 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 06:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 06:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 06:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 07:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 06:41 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 06:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 06:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 07:00 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [毒液2](https://www.share.kurohicncr.top/Article/details/546788646.shtml)
-- 2026-06-30 06:55 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/00452715.shtml)
-- 2026-06-30 06:34 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/11333179561.shtml)
-- 2026-06-30 06:34 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/45404.shtml)
-- 2026-06-30 06:54 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/2438006158.shtml)
-- 2026-06-30 06:39 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/6741073591.shtml)
-- 2026-06-30 06:53 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/170392731.shtml)
-- 2026-06-30 06:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/6357789.shtml)
-- 2026-06-30 06:59 - [流金岁月](https://www.share.kurohicncr.top/Article/details/522713500292.shtml)
-- 2026-06-30 06:38 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/96248.shtml)
-- 2026-06-30 06:48 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/09702569.shtml)
-- 2026-06-30 06:59 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/128106451078.shtml)
-- 2026-06-30 06:44 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/824840154231.shtml)
-- 2026-06-30 06:37 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/480335807668.shtml)
-- 2026-06-30 06:42 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/972203.shtml)
+- 2026-06-30 06:47 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/331920184227.shtml)
+- 2026-06-30 07:05 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/837844244776.shtml)
+- 2026-06-30 07:00 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/08042.shtml)
+- 2026-06-30 06:47 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/388691.shtml)
+- 2026-06-30 06:54 - [世界杯](http://www.share.minike.top/Article/details/641557807369.shtml)
+- 2026-06-30 06:54 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/18332756.shtml)
+- 2026-06-30 06:48 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/66505138103.shtml)
+- 2026-06-30 06:45 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/970099375.shtml)
+- 2026-06-30 06:42 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/3389794.shtml)
+- 2026-06-30 06:59 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/187889.shtml)
+- 2026-06-30 06:36 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/77202734.shtml)
+- 2026-06-30 06:42 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/241743.shtml)
+- 2026-06-30 06:44 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/411955.shtml)
+- 2026-06-30 06:57 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/924169.shtml)
+- 2026-06-30 06:52 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/88536.shtml)

@@ -1,48 +1,60 @@
-# 日本外汇事务负责人：这是针对外汇采取任何行动前发出的最后警告
+# 拒绝纳入！史上最大IPO，突发！
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-日本外汇事务负责人三村淳在东京告诉记者，这是他在针对外汇采取任何行动之前发出的“最后警告”。 日元先前兑美元汇率跌破160日元关口。 三村淳重申，日本政府一直就外汇问题与美国沟通，他表示，政府正在全面关注市场。责任编辑：李安桐
+标普拒绝为SpaceX“开绿灯”！ 当前，全球首富马斯克正在火速推进SpaceX的IPO事宜。尽管SpaceX此次上市获得华尔街巨头热捧，但标普拒绝为其纳入指数提供快速通道。 这意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。此外，SpaceX还需要满足指数对盈利能力和公众持股比例的要求。 拒绝提供快速通道 据路透社、彭博社等多家外媒消息，标普拒绝给SpaceX
 
 ## 正文
 
-日本外汇事务负责人三村淳在东京告诉记者，这是他在针对外汇采取任何行动之前发出的“最后警告”。
+标普拒绝为SpaceX“开绿灯”！
 
-日元先前兑美元汇率跌破160日元关口。
+当前，全球首富马斯克正在火速推进SpaceX的IPO事宜。
 
-三村淳重申，日本政府一直就外汇问题与美国沟通，他表示，政府正在全面关注市场。
+尽管SpaceX此次上市获得华尔街巨头热捧，但标普拒绝为其纳入指数提供快速通道。
 
-责任编辑：李安桐
+这意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。
+
+此外，SpaceX还需要满足指数对盈利能力和公众持股比例的要求。
+
+拒绝提供快速通道 据路透社、彭博社等多家外媒消息，标普拒绝给SpaceX等巨无霸IPO公司纳入指数提供快速通道。
+
+当地时间周四，标普道琼斯指数公司发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求。
+
+也就是说，指数提供商不会改变其主要股指的纳入要求，这实际上排除了史上最大IPO公司SpaceX快速纳入基准标普500指数的可能性，对马斯克的这家公司造成了打击。
 
 ## 相关推荐
 
-- 2026-06-30 06:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 06:46 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 06:50 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 06:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 06:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 06:41 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 06:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 06:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 06:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 06:54 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 06:49 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 06:46 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 07:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 06:46 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 06:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 07:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 06:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 06:36 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/30903.shtml)
-- 2026-06-30 06:37 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/560045330.shtml)
-- 2026-06-30 06:56 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/98104742193.shtml)
-- 2026-06-30 06:49 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/917602317.shtml)
-- 2026-06-30 06:58 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/85716413.shtml)
-- 2026-06-30 06:36 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2947035022.shtml)
-- 2026-06-30 06:57 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/50156021.shtml)
-- 2026-06-30 06:45 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/08305651957.shtml)
-- 2026-06-30 06:55 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/829057.shtml)
-- 2026-06-30 06:54 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/6139626053.shtml)
-- 2026-06-30 06:37 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/14705657.shtml)
-- 2026-06-30 06:52 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/973791157.shtml)
-- 2026-06-30 06:51 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/3346925.shtml)
-- 2026-06-30 06:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/21726.shtml)
-- 2026-06-30 06:39 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/932050.shtml)
+- 2026-06-30 06:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1934157739.shtml)
+- 2026-06-30 07:01 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/82692793.shtml)
+- 2026-06-30 07:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/27995525869.shtml)
+- 2026-06-30 06:36 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/784702957.shtml)
+- 2026-06-30 06:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/769701.shtml)
+- 2026-06-30 06:50 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/7960010088.shtml)
+- 2026-06-30 06:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/45729207.shtml)
+- 2026-06-30 07:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/44513212424.shtml)
+- 2026-06-30 06:41 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0435861546.shtml)
+- 2026-06-30 07:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/603312006.shtml)
+- 2026-06-30 06:55 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/37798.shtml)
+- 2026-06-30 07:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/5548197.shtml)
+- 2026-06-30 06:40 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/789889681122.shtml)
+- 2026-06-30 07:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/37526966.shtml)
+- 2026-06-30 06:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/39844.shtml)

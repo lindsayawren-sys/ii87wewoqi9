@@ -1,60 +1,59 @@
-# 南方航空联手厦门航空斥资214亿美元订购137架空客A320neo
+# 在新征程上更好弘扬伟大建党精神
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。 百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠
+在新征程上更好弘扬伟大建党精神(牢记初心使命 奋进复兴征程) 本报记者 史一棋 刘军国 《人民日报》(2026年06月05日 第 01 版) 开栏的话今年是中国共产党成立105周年。从石库门到天安门，从一叶红船到巍巍巨轮，中国共产党领导人民取得了革命、建设、改革的伟大胜利，开创了中国特色社会主义新时代，中华民族迎来了从站起来、富起来到强起来的伟大飞跃，中华民族伟大复兴进入了不可
 
 ## 正文
 
-南方航空及其控股子公司厦门航空与空客公司签订协议，共购买137架A320neo系列飞机，目录价约213.78亿美元，以加速机队更新换代。
+在新征程上更好弘扬伟大建党精神(牢记初心使命 奋进复兴征程) 本报记者 史一棋 刘军国 《人民日报》(2026年06月05日 第 01 版) 开栏的话今年是中国共产党成立105周年。
 
-百亿级大单详情，交付期排至2032年 根据南方航空4月29日晚间发布的公告，南方航空将购买102架A320neo系列飞机，厦门航空将购买35架，合计目录价格约213.78亿美元。
+从石库门到天安门，从一叶红船到巍巍巨轮，中国共产党领导人民取得了革命、建设、改革的伟大胜利，开创了中国特色社会主义新时代，中华民族迎来了从站起来、富起来到强起来的伟大飞跃，中华民族伟大复兴进入了不可逆转的历史进程。
 
-该金额为含机身和发动机的目录价格，实际交易中空客公司给予较大优惠，最终成交价将更低。
+我们党始终坚守初心和使命，始终保持永不懈怠的精神状态和一往无前的奋斗姿态。
 
-这批飞机的交付时间跨度较长：南方航空的102架计划于2028年至2032年分批交付，厦门航空的35架则安排在2029年至2032年之间，这将为公司未来数年的运力增长提供明确规划。
+本报今起推出“牢记初心使命 奋进复兴征程”专栏，带您走进革命圣地，见证今昔巨变，触摸中国式现代化的强劲脉动，感悟百年大党的如磐初心与时代担当。
 
-疫情后需求复苏，一季度业绩强劲反弹 受疫情影响，中国航司一度放缓了扩张步伐，但近期开始密集补充运力。
+初夏清晨，阳光穿过复建的1921年嘉兴火车站站房。
 
-值得注意的是，南方航空同日还披露了定增预案，拟向包括控股股东南航集团在内的特定投资者募集不超过150亿元资金，用于购买46架飞机及补充流动资金。
+“呜呜”两声鸣笛，“南湖·1921”红色旅游列车缓缓驶入，游客纷纷前来观摩瞻仰。
 
-在民航市场快速回暖的背景下，南航财务表现已大幅改善。
+时间回到1921年7月23日，中国共产党第一次全国代表大会在上海望志路106号(今兴业路76号)秘密召开。
 
-南航发布的业绩报告显示，2026年第一季度净利润达14.81亿元，较去年同期7.47亿元的亏损实现强势扭亏，为此次大规模采购提供了坚实的资金保障。
+各地共产党早期组织的代表齐聚于此，代表着全国50多名党员。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 06:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 06:50 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 06:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 06:37 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 06:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 06:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 06:42 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 06:33 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 06:57 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 06:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 06:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 06:30 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 06:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 06:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 06:44 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 06:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 06:53 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 06:37 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 06:36 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 07:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 07:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 07:00 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 06:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 06:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 07:05 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 07:05 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/152280165.shtml)
-- 2026-06-30 06:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/732639550852.shtml)
-- 2026-06-30 06:38 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/3514048.shtml)
-- 2026-06-30 06:38 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/928345661.shtml)
-- 2026-06-30 06:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/7483783.shtml)
-- 2026-06-30 06:41 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/43127.shtml)
-- 2026-06-30 06:30 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/354995264542.shtml)
-- 2026-06-30 06:43 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/22716.shtml)
-- 2026-06-30 06:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/43229053503.shtml)
-- 2026-06-30 06:38 - [千与千寻](http://www.share.kurohicncr.top/Article/details/01071.shtml)
-- 2026-06-30 06:35 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/09413152.shtml)
-- 2026-06-30 06:36 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/829405385193.shtml)
-- 2026-06-30 06:43 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/3392043.shtml)
-- 2026-06-30 06:34 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/536464.shtml)
-- 2026-06-30 06:36 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/07778666.shtml)
+- 2026-06-30 06:46 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/1526123.shtml)
+- 2026-06-30 06:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/89781.shtml)
+- 2026-06-30 06:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/007328708473.shtml)
+- 2026-06-30 06:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/352959649906.shtml)
+- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/1783767.shtml)
+- 2026-06-30 06:46 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/1667356938.shtml)
+- 2026-06-30 07:00 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/9229565.shtml)
+- 2026-06-30 06:47 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/86677.shtml)
+- 2026-06-30 07:01 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/367945583.shtml)
+- 2026-06-30 06:38 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/49719.shtml)
+- 2026-06-30 06:57 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/4539398.shtml)
+- 2026-06-30 06:38 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/03022.shtml)
+- 2026-06-30 06:44 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/1410087792.shtml)
+- 2026-06-30 06:45 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/272958111278.shtml)
+- 2026-06-30 07:03 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/76252.shtml)

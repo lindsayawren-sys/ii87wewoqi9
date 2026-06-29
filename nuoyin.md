@@ -1,60 +1,56 @@
-# 排行榜｜上市险企省分群雄争霸，国寿稳坐头把交椅，中坚险企高增长，市场两极分化加剧
+# 同仁堂大宗交易成交28.00万股 成交额700.84万元
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。 阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略
+同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。证券时报·数据宝统计显示，同仁堂今日收盘价为25.
 
 ## 正文
 
-来源：观潮财经 作为行业龙头，2025年中国人寿继续展现压倒性实力，上市险企前十大人身险分公司排名中其包揽前五席。
+同仁堂6月5日大宗交易平台出现一笔成交，成交量28.00万股，成交金额700.84万元，大宗交易成交价为25.03元。
 
-其中，江苏分公司以824.66亿元拔得头筹，广东、浙江分公司共同构建“金三角”粮仓。
+该笔交易的买方营业部为国投证券股份有限公司广州猎德大道证券营业部，卖方营业部为中国国际金融股份有限公司北京建国门外大街证券营业部。
 
-太保寿险稳居第二梯队，江苏、浙江、广东等核心区域保持稳定输出。
+进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1199.69万元。
 
-阳光人寿与人保寿险在江苏、安徽等地实现高增，分别以90.75%和88.61%的爆发式增长领跑，苏、皖、浙、京、沪等战略重镇集体发力，成为中坚险企虎口夺食、价值翻倍的关键动力。
+证券时报·数据宝统计显示，同仁堂今日收盘价为25.03元，上涨0.72%，日换手率为0.37%，成交额为1.27亿元，全天主力资金净流出421.37万元，近5日该股累计下跌2.42%，近5日资金合计净流出3873.21万元。
 
-财险方面，人保财险继续展现强劲统治力，广东、江苏、浙江稳居“第一梯队”，占据前五席中的四席；平安财险增量亮眼，京沪市场表现分化，太保财险精准发力，阳光财险在小基数下实现“多点开花”，前三名跨入500亿俱乐部，头部效应显著。
+两融数据显示，该股最新融资余额为11.48亿元，近5日减少395.56万元，降幅为0.34%。
 
-阳光财险沿海及中部省份保费波动明显，人保财险福建分公司虽规模最大仍出现下滑。
+据天眼查APP显示，北京同仁堂股份有限公司成立于1997年06月18日，注册资本137147.0262万人民币。
 
-35家主要财险分公司中，24家收入上升，11家下滑，“冰火两重天”态势凸显部分险企当下的市场压力。
-
-注：中国平安未披露寿险子公司分公司数据，因信披口径问题，本文未含平安寿险分支机构。
+（数据宝）6月5日同仁堂大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 06:37 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 06:57 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 06:47 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 06:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 06:56 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 06:40 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 06:54 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 06:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:48 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 06:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 06:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:35 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 06:57 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 06:37 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 06:41 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 06:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 06:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 06:39 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 06:48 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 06:58 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 06:42 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 06:46 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 06:56 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 06:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/7517368.shtml)
-- 2026-06-30 06:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/167989706.shtml)
-- 2026-06-30 06:51 - [一生一世](https://www.share.kurohicncr.top/Article/details/823220.shtml)
-- 2026-06-30 06:47 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/068847.shtml)
-- 2026-06-30 06:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/649603314032.shtml)
-- 2026-06-30 06:38 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/68685313676.shtml)
-- 2026-06-30 06:44 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/69527711575.shtml)
-- 2026-06-30 06:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/286425.shtml)
-- 2026-06-30 06:32 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/993511673302.shtml)
-- 2026-06-30 06:55 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/407587035019.shtml)
-- 2026-06-30 06:46 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/43388604075.shtml)
-- 2026-06-30 06:52 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/5917745827.shtml)
-- 2026-06-30 06:30 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/37243822.shtml)
-- 2026-06-30 06:40 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/357014.shtml)
-- 2026-06-30 06:37 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/4419343.shtml)
+- 2026-06-30 06:54 - [乔家的儿女](https://www.share.minike.top/Article/details/3358868029.shtml)
+- 2026-06-30 06:54 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/0083029903.shtml)
+- 2026-06-30 06:52 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/176597.shtml)
+- 2026-06-30 06:54 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/927628.shtml)
+- 2026-06-30 06:43 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/344577.shtml)
+- 2026-06-30 07:02 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/92461602897.shtml)
+- 2026-06-30 06:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/42998894.shtml)
+- 2026-06-30 06:55 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/068302177.shtml)
+- 2026-06-30 07:03 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/298565.shtml)
+- 2026-06-30 06:49 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/843062827.shtml)
+- 2026-06-30 06:49 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/693329038.shtml)
+- 2026-06-30 06:50 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/41410698413.shtml)
+- 2026-06-30 06:36 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/77399.shtml)
+- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/1991213373.shtml)
+- 2026-06-30 06:56 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/615355.shtml)

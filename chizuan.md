@@ -1,59 +1,44 @@
-# 跟着亚沙会游海南：在田园绿野中感受“诗与远方”
+# 周锡玮：两岸要一起，把中国好的理念传播出去
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网三亚4月29日电 题：跟着亚沙会游海南：在田园绿野中感受“诗与远方” 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚进行。赛场上，沙滩排球的扣杀、帆船帆板的破浪、台克球的激战，运动健儿在碧海金沙上挥洒汗水；赛场外，在一片群山环抱的谷地中，藏着一个让人心生向往的“诗与远方”——大茅远洋生态村。 大茅远洋生态村位于三亚市吉阳区，是远洋集团与大茅村集体共建的国
+发布时间：2026年06月05日 15:20 来源：中国新闻网 6月5日，2026海峡两岸新媒体产业发展研讨会在上海举行，台湾旺旺集团副董事长周锡玮表示，现在是一个中国人向外传播的时代，两岸要一起把我们中国人做的好的事情、好的理念传给全世界。(记者 缪璐 娄瀚锟 制作 田媛媛 王雪尔) 责任编辑：【罗攀】
 
 ## 正文
 
-中新网三亚4月29日电 题：跟着亚沙会游海南：在田园绿野中感受“诗与远方” 作者 张月和 第六届亚洲沙滩运动会(简称“三亚亚沙会”)正在三亚进行。
+发布时间：2026年06月05日 15:20 来源：中国新闻网 6月5日，2026海峡两岸新媒体产业发展研讨会在上海举行，台湾旺旺集团副董事长周锡玮表示，现在是一个中国人向外传播的时代，两岸要一起把我们中国人做的好的事情、好的理念传给全世界。
 
-赛场上，沙滩排球的扣杀、帆船帆板的破浪、台克球的激战，运动健儿在碧海金沙上挥洒汗水；赛场外，在一片群山环抱的谷地中，藏着一个让人心生向往的“诗与远方”——大茅远洋生态村。
-
-大茅远洋生态村位于三亚市吉阳区，是远洋集团与大茅村集体共建的国家级田园综合体。
-
-项目占地约1.7万亩，以热带高效农业为核心，打造“农业+科技+文旅”融合发展模式，拥有15000平方米智能温室、万亩热带果园及23公里田园骑行绿道。
-
-抵达村口，一处漫水路面好似结界，潺潺流水洗刷掉了现代都市人身上的“班味”。
-
-骑行绿道如同一条柔软的绸带，缠绕在山谷之间，连接起星星点点的村居和有白鹭栖息的三浓水库。
-
-绿茵茵的草坪上白色帐篷点缀其间，远处青山如黛，构成了一幅静谧的田园画卷。
-
-除了运动与休憩，大茅远洋生态村的“农耕课堂”更是亲子游客的最爱。
+(记者 缪璐 娄瀚锟 制作 田媛媛 王雪尔) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:50 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 06:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 06:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 06:49 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 06:43 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 06:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 06:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 06:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 06:34 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 06:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 06:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 06:38 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 06:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 06:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 06:40 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 06:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 06:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 06:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 06:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 07:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/00926857365.shtml)
-- 2026-06-30 06:58 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/7417152.shtml)
-- 2026-06-30 06:58 - [恋与深空 巧合](http://www.share.minike.top/Article/details/795079283.shtml)
-- 2026-06-30 06:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/14950.shtml)
-- 2026-06-30 06:51 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/310285046414.shtml)
-- 2026-06-30 06:51 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/232626992221.shtml)
-- 2026-06-30 06:32 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/01962.shtml)
-- 2026-06-30 06:46 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/236869432.shtml)
-- 2026-06-30 06:41 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/337943184.shtml)
-- 2026-06-30 06:48 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/3317202.shtml)
-- 2026-06-30 06:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/08724629.shtml)
-- 2026-06-30 06:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/130626.shtml)
-- 2026-06-30 06:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/4227426.shtml)
-- 2026-06-30 06:49 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/361510020.shtml)
-- 2026-06-30 06:40 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/0988026.shtml)
+- 2026-06-30 06:41 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/97653064.shtml)
+- 2026-06-30 06:51 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/977331.shtml)
+- 2026-06-30 06:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/7885559.shtml)
+- 2026-06-30 07:03 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/109709940.shtml)
+- 2026-06-30 06:58 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/49521763944.shtml)
+- 2026-06-30 06:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/953653400578.shtml)
+- 2026-06-30 06:52 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/74677786010.shtml)
+- 2026-06-30 06:36 - [房价什么时候能涨](https://www.share.minike.top/Article/details/09509018750.shtml)
+- 2026-06-30 06:42 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/55864.shtml)
+- 2026-06-30 06:55 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/2896206496.shtml)
+- 2026-06-30 06:58 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/39879305576.shtml)
+- 2026-06-30 06:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/06694984761.shtml)
+- 2026-06-30 06:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/153330.shtml)
+- 2026-06-30 06:42 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/49334640676.shtml)
+- 2026-06-30 07:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/985463910556.shtml)

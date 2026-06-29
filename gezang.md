@@ -1,58 +1,60 @@
-# 光大期货：4月30日软商品日报
+# 两岸近千人嘉庚故里赛龙舟 台北女队首秀抢眼
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西国家商品供应公司（Conab）发布首期2026/27榨季甘蔗调查报告，该机构预计2026/27榨季巴西甘蔗产量将达7.091亿吨，同比增长5.3%，创下该机构统计史上第二高纪录，仅次于2023/24榨季甘蔗产量。巴西2026/27榨季乙醇总产量将达406.9亿升。随着乙醇市场环境持
+发布时间：2026年06月06日 12:58 来源：中国新闻网 为期两天的2026年第十九届“嘉庚杯”“敬贤杯”海峡两岸龙舟赛6月5日在福建厦门集美龙舟池开赛。凤凰花开，热情似火，来自海峡两岸的近千名选手在龙舟竞渡中感受中华传统文化的魅力。今年龙舟赛迎来两支台湾女子队伍，其中社会女子组参赛队伍尤为罕见。首次参赛的台北旭源女子龙舟队，凭借默契的团队配合，以微弱优势力压同组对手，斩
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西国家商品供应公司（Conab）发布首期2026/27榨季甘蔗调查报告，该机构预计2026/27榨季巴西甘蔗产量将达7.091亿吨，同比增长5.3%，创下该机构统计史上第二高纪录，仅次于2023/24榨季甘蔗产量。
+发布时间：2026年06月06日 12:58 来源：中国新闻网 为期两天的2026年第十九届“嘉庚杯”“敬贤杯”海峡两岸龙舟赛6月5日在福建厦门集美龙舟池开赛。
 
-巴西2026/27榨季乙醇总产量将达406.9亿升。
+凤凰花开，热情似火，来自海峡两岸的近千名选手在龙舟竞渡中感受中华传统文化的魅力。
 
-随着乙醇市场环境持续向好，叠加甘蔗制乙醇与玉米制乙醇产量同步扩张，预计乙醇总产量同比增长8.5%，或将刷新历史纪录。
+今年龙舟赛迎来两支台湾女子队伍，其中社会女子组参赛队伍尤为罕见。
 
-预计甘蔗制乙醇产量达292.6亿升，同比增加7.1%。
+首次参赛的台北旭源女子龙舟队，凭借默契的团队配合，以微弱优势力压同组对手，斩获500米直道赛预赛小组第一名。
 
-现货报价方面，广西制糖集团报价区间5310~5400元/吨，部分下调10元/吨；云南制糖集团报价5140~5220元/吨，下调10元/吨；加工糖厂主流报价区间为5600~5880元/吨，个别下调10元/吨。
+这支队伍由26位来自各行各业的普通女性组成，因热爱龙舟竞技而集结。
 
-原糖方面，受原油大幅上涨影响，糖价涨幅超3%，除宏观扰动外，未来巴西压榨进度是短期市场焦点。
+本届海峡两岸龙舟赛以“龙舟集美行 两岸一家亲”为主题，设22人龙舟200米和500米直道赛两个项目，分为社会男子组、女子组以及青少年男子组、女子组四个组别，共有36支两岸队伍参赛，包含9支来自台湾的队伍。
 
-国内方面，上有丰产压力下有政策及成本支撑，远期天气和通胀题材仍未发酵，多空双方仍将交织反复。
+不少台湾队伍已是多次参赛，其中，台北关渡勇士龙舟发展协会男子龙舟队已经是第16年参与这项赛事。
 
-假期在即，注意持仓风险。
+据悉，“嘉庚杯”“敬贤杯”海峡两岸龙舟赛自2006年创办以来成功举办19届，如今已成为两岸体育文化交流的纽带。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 06:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 06:51 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 06:36 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 06:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 06:31 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:56 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 06:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 06:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 06:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 06:57 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 06:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 06:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 06:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 06:57 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 06:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 06:59 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 06:40 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 07:01 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 06:37 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 06:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 06:59 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 06:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:53 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 06:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:39 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/380967.shtml)
-- 2026-06-30 06:39 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/927361.shtml)
-- 2026-06-30 06:51 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/179164977.shtml)
-- 2026-06-30 06:33 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/1222903096.shtml)
-- 2026-06-30 06:51 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/15810368653.shtml)
-- 2026-06-30 06:52 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/09513966.shtml)
-- 2026-06-30 06:35 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/2606022749.shtml)
-- 2026-06-30 06:42 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/74488476352.shtml)
-- 2026-06-30 06:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/29459.shtml)
-- 2026-06-30 06:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/14518.shtml)
-- 2026-06-30 06:56 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/4608252966.shtml)
-- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/69810456.shtml)
-- 2026-06-30 06:41 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/332791879486.shtml)
-- 2026-06-30 06:58 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/4980944.shtml)
-- 2026-06-30 06:30 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/699530068375.shtml)
+- 2026-06-30 06:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/354334361933.shtml)
+- 2026-06-30 06:36 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/32718287687.shtml)
+- 2026-06-30 06:56 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/1021530771.shtml)
+- 2026-06-30 06:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/4956446.shtml)
+- 2026-06-30 06:55 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/1594998.shtml)
+- 2026-06-30 06:42 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/2906494845.shtml)
+- 2026-06-30 06:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/91010439256.shtml)
+- 2026-06-30 07:01 - [森保一 保守](http://www.share.minike.top/Article/details/73747468.shtml)
+- 2026-06-30 06:59 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/1478687.shtml)
+- 2026-06-30 06:57 - [急先锋](https://www.blog.kurohicncr.top/Article/details/90387767.shtml)
+- 2026-06-30 06:55 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/637472.shtml)
+- 2026-06-30 06:56 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/88032011300.shtml)
+- 2026-06-30 06:43 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/99176.shtml)
+- 2026-06-30 06:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/53981304.shtml)
+- 2026-06-30 06:46 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/474476574837.shtml)

@@ -1,60 +1,58 @@
-# 花旗撤出实物金属市场 裁减交易员团队
+# Village Farms获1500万美元股权融资，股价盘前下跌
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-伦敦某劳资仲裁法庭庭审消息显示，花旗集团正退出工业金属实物交易业务，并已对旗下大宗商品部门多名员工实施裁员。 近年花旗已成长为大宗商品领域头部银行之一，对高盛、麦格理、摩根士丹利等传统行业龙头形成竞争挑战。该行曾在伦敦金属交易所大举布局，通过激进的融资交易承接实物金属交割业务，与大型贸易商正面竞争，一度在市场引发不小震动。 然而，据 2026 年 1 月一封裁员警示信件（庭审相
+Village Farms International Inc．宣布已与领先的美国机构投资者签订证券购买协议，通过注册直接发行方式出售750万股普通股，预计募集资金约1500万美元。该交易预计将于6月8日前后完成。 公司首席执行官Michael DeGiglio表示，虽然公司资产负债表并不急需注资，但这一机会能够优化资本结构并引入高质量机构资本伙伴。DeGiglio称，这反映了
 
 ## 正文
 
-伦敦某劳资仲裁法庭庭审消息显示，花旗集团正退出工业金属实物交易业务，并已对旗下大宗商品部门多名员工实施裁员。
+Village Farms International Inc．宣布已与领先的美国机构投资者签订证券购买协议，通过注册直接发行方式出售750万股普通股，预计募集资金约1500万美元。
 
-近年花旗已成长为大宗商品领域头部银行之一，对高盛、麦格理、摩根士丹利等传统行业龙头形成竞争挑战。
+该交易预计将于6月8日前后完成。
 
-该行曾在伦敦金属交易所大举布局，通过激进的融资交易承接实物金属交割业务，与大型贸易商正面竞争，一度在市场引发不小震动。
+公司首席执行官Michael DeGiglio表示，虽然公司资产负债表并不急需注资，但这一机会能够优化资本结构并引入高质量机构资本伙伴。
 
-然而，据 2026 年 1 月一封裁员警示信件（庭审相关材料已对外公开）披露，花旗目前正缩减实物业务布局，金属实物交易将不再列为核心业务。
+DeGiglio称，这反映了知名机构投资者对公司未来前景的信心，特别是对公司在欧洲和北美市场持续扩张的领先地位和竞争优势的认可。
 
-花旗代理律师杰西・克罗齐尔直言，该行实质上已关停金属实物业务。
+融资消息公布后，Village Farms股价在周五盘前交易中下跌约8.9%，主要反映了现有股东对股权稀释的担忧。
 
-花旗提交的庭审材料显示，今年 1 月其已通知大宗商品部门 11 名员工面临裁员风险，此后已有多人被正式解雇。
+本次发行完成后，公司预计已发行及流通普通股总数将达到约1.218亿股。
 
-花旗在邮件声明中表示：“本次小幅收缩实物业务布局仅针对工业金属实物营销与交易板块，不影响工业金属其他业务线运营。
+Village Farms此前披露，2026年第一季度末持有现金5500万美元，并预计在2026年余下时间内通过正向经营现金流进一步提升现金余额。
 
-花旗仍保留工业金属实物融资业务能力，同时在贵金属及整体大宗商品领域维持大规模业务布局。
+本次融资所得净收益将用于营运资金及一般企业用途。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 06:36 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 06:36 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 06:57 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 06:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 06:57 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 06:54 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 06:59 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 06:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 06:50 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 06:59 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 06:37 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 06:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 07:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 06:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:37 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 06:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 06:38 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 06:49 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 06:43 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 06:38 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:56 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 06:37 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 06:36 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 06:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/343213364810.shtml)
-- 2026-06-30 06:37 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/481990876155.shtml)
-- 2026-06-30 06:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/62893126354.shtml)
-- 2026-06-30 06:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/421365534.shtml)
-- 2026-06-30 06:51 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/75541900.shtml)
-- 2026-06-30 06:53 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/1239945182.shtml)
-- 2026-06-30 06:49 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/777778.shtml)
-- 2026-06-30 06:59 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/84492940.shtml)
-- 2026-06-30 06:59 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/9033686.shtml)
-- 2026-06-30 06:40 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/3065043.shtml)
-- 2026-06-30 06:51 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/083085.shtml)
-- 2026-06-30 06:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/8753050256.shtml)
-- 2026-06-30 06:54 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/52138004.shtml)
-- 2026-06-30 06:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/738102.shtml)
-- 2026-06-30 06:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/09636.shtml)
+- 2026-06-30 06:57 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/0701337100.shtml)
+- 2026-06-30 06:47 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/5243183.shtml)
+- 2026-06-30 06:44 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/59192238623.shtml)
+- 2026-06-30 06:40 - [扫黑风暴](http://www.share.minike.top/Article/details/467399441152.shtml)
+- 2026-06-30 06:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/190186.shtml)
+- 2026-06-30 07:05 - [小娘惹](http://www.share.kurohicncr.top/Article/details/069776488031.shtml)
+- 2026-06-30 06:59 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/5565361.shtml)
+- 2026-06-30 06:47 - [啊啊啊](http://www.blog.minike.top/Article/details/134827653.shtml)
+- 2026-06-30 06:52 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/8125871553.shtml)
+- 2026-06-30 06:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/01484.shtml)
+- 2026-06-30 06:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/5539763.shtml)
+- 2026-06-30 06:55 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/00701658.shtml)
+- 2026-06-30 06:45 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/596735149882.shtml)
+- 2026-06-30 06:51 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/109715777471.shtml)
+- 2026-06-30 06:48 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/4835869.shtml)

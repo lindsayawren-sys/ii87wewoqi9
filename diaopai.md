@@ -1,61 +1,60 @@
-# 巴斯夫无视中东冲突确认年度目标，重组稳步推进
+# 金饰价格，年内大降400元
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-尽管中东地区冲突给全球经济带来巨大不确定性，德国化工巨头巴斯夫仍确认了其2026财年目标，并持续推进集团重组。 在周四的年度股东大会上，巴斯夫首席执行官凯礼博士表示，全球经济正经历根本性转变，公司必须通过降低复杂性和提高效率来应对，“等待不是选项”。首席财务官Dirk Elvermann则强调，公司近年来建立的韧性正得到回报，巴斯夫受益于其全球布局和本地供应链，迄今未观察到供应
+中新经纬6月6日电 (李晓萱)北京时间6日早间，现货黄金收报于4328.920美元/盎司，大跌3.25%，本周已跌4.61%超200美元，较年内高点已跌超1200美元。 中新经纬查询发现，今年年初(1月2日)，现货黄金开盘报4318.270美元/盎司，此后几个月内经历两次冲高回落，至今已几近抹去年内所有涨幅。Wind数据显示，今年以来，现货黄金振幅较大，盘中最高触及5598.7
 
 ## 正文
 
-尽管中东地区冲突给全球经济带来巨大不确定性，德国化工巨头巴斯夫仍确认了其2026财年目标，并持续推进集团重组。
+中新经纬6月6日电 (李晓萱)北京时间6日早间，现货黄金收报于4328.920美元/盎司，大跌3.25%，本周已跌4.61%超200美元，较年内高点已跌超1200美元。
 
-在周四的年度股东大会上，巴斯夫首席执行官凯礼博士表示，全球经济正经历根本性转变，公司必须通过降低复杂性和提高效率来应对，“等待不是选项”。
+中新经纬查询发现，今年年初(1月2日)，现货黄金开盘报4318.270美元/盎司，此后几个月内经历两次冲高回落，至今已几近抹去年内所有涨幅。
 
-首席财务官Dirk Elvermann则强调，公司近年来建立的韧性正得到回报，巴斯夫受益于其全球布局和本地供应链，迄今未观察到供应瓶颈。
+Wind数据显示，今年以来，现货黄金振幅较大，盘中最高触及5598.750美元/盎司，最低下探到4090美元，振幅超1500美元/盎司。
 
-一季度业绩方面，巴斯夫实现了“稳健”开局。
+受此影响，国内金饰价格也大幅下跌。
 
-财报显示，受汇率和价格因素影响，季度销售额微降3%至160.2亿欧元，但净利润增长14.8%至9.27亿欧元。
+中新经纬6日查询发现，周生生金饰1315元/克，单日跌39元。
 
-尽管中东冲突自3月起冲击了市场环境，得益于中国市场的增长，几乎所有业务领域销量均实现增长。
+老庙黄金金饰1321元/克，单日下跌35元；老凤祥为1316元/克，单日跌39元。
 
-调整后息税、折旧及摊销前收益为23.6亿欧元，超出分析师预期的约21.9亿欧元。
+1月29日，国金品牌金饰价格曾达到年内阶段性高点，周生生、老庙黄金、老凤祥当日的金饰克价分别1708元、1722元、1713元。
 
-Elvermann指出，巴斯夫在中东地区的客户销售额仅占集团总收入的不到1%，风险可控。
+和年内高点相比，三家品牌金饰克价已分别下跌、393元、401元、397元，跌幅均为23%。
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 06:52 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 06:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 06:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 06:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 06:35 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 06:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 06:31 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 06:41 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 06:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 06:50 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 06:47 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 06:58 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 06:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 06:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 06:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 07:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 06:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 06:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 07:05 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 06:44 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 06:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 06:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 06:43 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 06:56 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 06:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 07:02 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 06:48 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/3949131300.shtml)
-- 2026-06-30 06:39 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/161088.shtml)
-- 2026-06-30 06:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/75196616.shtml)
-- 2026-06-30 06:48 - [孙兴慜道歉](https://www.share.minike.top/Article/details/28964.shtml)
-- 2026-06-30 06:43 - [请回答王牌2019](http://www.share.minike.top/Article/details/97393410066.shtml)
-- 2026-06-30 06:55 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/047488.shtml)
-- 2026-06-30 06:32 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/518160133.shtml)
-- 2026-06-30 06:36 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/000975711808.shtml)
-- 2026-06-30 06:32 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/84240.shtml)
-- 2026-06-30 06:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/07709701.shtml)
-- 2026-06-30 06:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/630708.shtml)
-- 2026-06-30 06:46 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/571371.shtml)
-- 2026-06-30 06:58 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/90823042147.shtml)
-- 2026-06-30 06:38 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/96327240.shtml)
-- 2026-06-30 06:54 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/444592.shtml)
+- 2026-06-30 06:52 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/85874.shtml)
+- 2026-06-30 06:49 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/138938.shtml)
+- 2026-06-30 06:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/574564264.shtml)
+- 2026-06-30 06:36 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/49861.shtml)
+- 2026-06-30 06:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/45139792.shtml)
+- 2026-06-30 06:50 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/68885.shtml)
+- 2026-06-30 07:05 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/63762548.shtml)
+- 2026-06-30 06:42 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/694310007.shtml)
+- 2026-06-30 06:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/542239.shtml)
+- 2026-06-30 06:47 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/329024452.shtml)
+- 2026-06-30 06:43 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/00171942.shtml)
+- 2026-06-30 06:41 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/57169958075.shtml)
+- 2026-06-30 06:39 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/6954538287.shtml)
+- 2026-06-30 06:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/86088723056.shtml)
+- 2026-06-30 07:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/7087532.shtml)

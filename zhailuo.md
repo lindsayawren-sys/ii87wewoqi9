@@ -1,59 +1,55 @@
-# “中药茅”片仔癀走到十字路口
+# 韩国股市一度重挫5% 芯片股随美国同业下滑
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 黄华 界面新闻编辑 | 谢欣 4月30日，片仔癀发布2025年业绩报和2026年一季报，显示公司业绩承压。 2025年，片仔癀实现营收90亿元，同比下降16.56%；归母净利润、扣非净利润分别为21.59亿元、19.99亿元，同比下降27.49%、34.25%。这是企业十年内的首次年度业绩负增长。 2026年一季度，片仔癀实现营收27.4亿元，同比下降12.7
+韩国Kospi指数一度暴跌5%，连续第二天走低，在隔夜美国芯片股下跌后，韩国相关业者股价也走低。SK海力士、三星电子和SK Square领跌。美国芯片股指数周四收跌2.2%，其中美光科技下跌7.7%。韩国小盘股Kosdaq指数一度下跌2.9%。周五早盘，韩国股市成为亚洲跌幅最大的股市，MSCI亚太指数下跌约1%。责任编辑：王永生
 
 ## 正文
 
-界面新闻记者 | 黄华 界面新闻编辑 | 谢欣 4月30日，片仔癀发布2025年业绩报和2026年一季报，显示公司业绩承压。
+韩国Kospi指数一度暴跌5%，连续第二天走低，在隔夜美国芯片股下跌后，韩国相关业者股价也走低。
 
-2025年，片仔癀实现营收90亿元，同比下降16.56%；归母净利润、扣非净利润分别为21.59亿元、19.99亿元，同比下降27.49%、34.25%。
+SK海力士、三星电子和SK Square领跌。
 
-这是企业十年内的首次年度业绩负增长。
+美国芯片股指数周四收跌2.2%，其中美光科技下跌7.7%。
 
-2026年一季度，片仔癀实现营收27.4亿元，同比下降12.74%；归母净利润、扣非净利润分别为7.43亿元、7.26亿元，同比下降25.64%、27.73%，延续了下海势头。
+韩国小盘股Kosdaq指数一度下跌2.9%。
 
-二级市场上，片仔癀4月30日涨超4%。
+周五早盘，韩国股市成为亚洲跌幅最大的股市，MSCI亚太指数下跌约1%。
 
-截至收盘时，企业报收143.55元/股，涨3.04%，最新总市值866亿元。
-
-片仔癀是知名A股上市公司，为中华老字号企业，主要产品包括片仔癀、安宫牛黄丸、复方片仔癀含片、茵胆平肝胶囊等。
-
-在二级市场上，该企业一度是“中药茅”，巅峰时期的市值超2900亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 06:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 06:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 06:47 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 06:42 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 06:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 06:48 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 06:32 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 06:33 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 06:33 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 06:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 06:36 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 06:44 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 06:46 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 06:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 06:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 06:49 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 06:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 06:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 06:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 06:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 07:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 07:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 06:36 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/573870882757.shtml)
-- 2026-06-30 06:41 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/1235066.shtml)
-- 2026-06-30 06:46 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/679661.shtml)
-- 2026-06-30 06:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/96789044644.shtml)
-- 2026-06-30 06:44 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/9969753.shtml)
-- 2026-06-30 06:39 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/584505697.shtml)
-- 2026-06-30 06:53 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/87797837063.shtml)
-- 2026-06-30 06:39 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/4009139.shtml)
-- 2026-06-30 06:41 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/0022588.shtml)
-- 2026-06-30 06:31 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/4636753333.shtml)
-- 2026-06-30 06:49 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/13695239.shtml)
-- 2026-06-30 06:45 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/4890541.shtml)
-- 2026-06-30 06:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/452287267135.shtml)
-- 2026-06-30 06:53 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/02994613973.shtml)
-- 2026-06-30 06:51 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/198701.shtml)
+- 2026-06-30 07:04 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/078720875.shtml)
+- 2026-06-30 06:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/11368.shtml)
+- 2026-06-30 06:47 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/53021742892.shtml)
+- 2026-06-30 06:36 - [《共患难》](http://www.share.minike.top/Article/details/13631617.shtml)
+- 2026-06-30 06:48 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/2653157.shtml)
+- 2026-06-30 06:45 - [日本16强魔咒](https://www.share.minike.top/Article/details/873268910.shtml)
+- 2026-06-30 06:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/836657984897.shtml)
+- 2026-06-30 07:00 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/514463418089.shtml)
+- 2026-06-30 06:42 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/15049.shtml)
+- 2026-06-30 07:03 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/55298.shtml)
+- 2026-06-30 07:03 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/58381034870.shtml)
+- 2026-06-30 06:36 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/5533439973.shtml)
+- 2026-06-30 06:57 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/595018522.shtml)
+- 2026-06-30 06:46 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/95196.shtml)
+- 2026-06-30 06:46 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/977590.shtml)

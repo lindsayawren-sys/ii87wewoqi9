@@ -1,58 +1,56 @@
-# 梦龙冰淇淋开局业绩稳健，确认全年业绩展望
+# 五洲特纸并购切入电解电容器纸，仅小规模量产，家族纸企寻找新增长点 | 长三角资本局
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 公司预计 2026 年内生销售额增长 3%–5% 梦龙冰淇淋表示，尽管当前地缘政治局势带来不确定性，但公司今年开局业绩向好，并维持全年业绩指引不变。 这家旗下拥有本杰瑞、布雷耶、可尼多等品牌的冰淇淋企业，一季度营收录得17.7 亿欧元（折合 20.7 亿美元）。 财报口径名义营收同比下滑 1.2%，但内生销售额增长 4.5%。 公司首席执行
+文|新浪财经上海站 十里 五洲特纸切入电解电容器纸，并不是一笔金额巨大的跨界收购。 6月5日，五洲特纸在互动平台回复投资者称，公司2025年通过并购新增电解电容器纸产品赛道，目前相关产品已经实现小规模量产，下一步将继续推进研发和生产。 这项业务背后的并购标的，是五洲莱勒克特种纸业（衢州）有限公司。五洲特纸2025年年报显示，公司于当年6月与杭州冠程电子有限公司、自然人王玮及五洲
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 公司预计 2026 年内生销售额增长 3%–5% 梦龙冰淇淋表示，尽管当前地缘政治局势带来不确定性，但公司今年开局业绩向好，并维持全年业绩指引不变。
+文|新浪财经上海站 十里 五洲特纸切入电解电容器纸，并不是一笔金额巨大的跨界收购。
 
-这家旗下拥有本杰瑞、布雷耶、可尼多等品牌的冰淇淋企业，一季度营收录得17.7 亿欧元（折合 20.7 亿美元）。
+6月5日，五洲特纸在互动平台回复投资者称，公司2025年通过并购新增电解电容器纸产品赛道，目前相关产品已经实现小规模量产，下一步将继续推进研发和生产。
 
-财报口径名义营收同比下滑 1.2%，但内生销售额增长 4.5%。
+这项业务背后的并购标的，是五洲莱勒克特种纸业（衢州）有限公司。
 
-公司首席执行官彼得・特尔库尔夫表示：“我们已为夏季销售旺季做好充分准备。
+五洲特纸2025年年报显示，公司于当年6月与杭州冠程电子有限公司、自然人王玮及五洲莱勒克签署增资协议，出资约906.30万元取得五洲莱勒克51.92%股权，并从2025年7月起将其纳入合并报表。
 
-” 公司目标实现营收增长与盈利能力提升，预计 2026 年内生销售额增长 3%–5%，调整后息税折旧摊销前利润率将提升 40 至 60 个基点。
+从交易规模看，这笔并购更接近一次小规模产品补充。
 
-CEO 坦言：“我们留意到全球不确定性加剧，尤其是中东局势带来的风险。
+五洲莱勒克自并表日至2025年末实现营业收入1735.36万元、净利润222.96万元，分别只占五洲特纸同期营收和归母净利润的较小比例。
 
-” 但他同时指出，公司在该地区直接业务敞口有限，且已出台相关对冲应对措施。
+五洲特纸已经给出了电解电容器纸的产能数据。
 
-责任编辑：郭明煜
+公司2025年年报显示，该产品年设计产能为6000吨。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 06:58 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:48 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 06:42 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 06:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 06:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 06:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 06:56 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 06:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 06:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 06:42 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 06:43 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 06:36 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 06:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 06:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 06:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 06:54 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 07:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 06:42 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 07:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 06:48 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/64188186414.shtml)
-- 2026-06-30 06:30 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/31281.shtml)
-- 2026-06-30 06:47 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/079542.shtml)
-- 2026-06-30 06:46 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/73114195.shtml)
-- 2026-06-30 06:57 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/5371952.shtml)
-- 2026-06-30 06:59 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/9531092.shtml)
-- 2026-06-30 06:40 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/153002.shtml)
-- 2026-06-30 06:48 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/8473823469.shtml)
-- 2026-06-30 06:55 - [美人鱼](https://www.share.minike.top/Article/details/246978567.shtml)
-- 2026-06-30 06:30 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/22515723644.shtml)
-- 2026-06-30 06:55 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/58616383963.shtml)
-- 2026-06-30 06:44 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/54777315.shtml)
-- 2026-06-30 06:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/53169.shtml)
-- 2026-06-30 06:39 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/375168775635.shtml)
-- 2026-06-30 06:31 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/1231669983.shtml)
+- 2026-06-30 06:58 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/3224851193.shtml)
+- 2026-06-30 06:50 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/3802778395.shtml)
+- 2026-06-30 06:37 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/2146096502.shtml)
+- 2026-06-30 06:40 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/00368754.shtml)
+- 2026-06-30 07:02 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/996046.shtml)
+- 2026-06-30 06:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/76881171.shtml)
+- 2026-06-30 06:59 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/25145816.shtml)
+- 2026-06-30 06:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/69329.shtml)
+- 2026-06-30 07:04 - [世界杯](https://www.blog.minike.top/Article/details/96136730987.shtml)
+- 2026-06-30 06:47 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/330281.shtml)
+- 2026-06-30 06:56 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/964038.shtml)
+- 2026-06-30 06:56 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/3362967.shtml)
+- 2026-06-30 07:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/40243900.shtml)
+- 2026-06-30 06:38 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/944322.shtml)
+- 2026-06-30 06:53 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/81221727221.shtml)

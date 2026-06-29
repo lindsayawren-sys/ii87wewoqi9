@@ -1,58 +1,57 @@
-# 美国债市：美债与欧洲债市一道走高 油价下跌和日元飙升带来支撑
+# 外交部回应中欧“贸易平衡”问题：望欧方能恪守市场经济基本原则
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-美国国债守住了早盘涨势，当时欧洲和英国政府债券在欧洲央行和英国央行宣布利率决定后走强，而纽约时间下午4点会进行月底指数再平衡。德国国债在欧洲央行行长拉加德的新闻发布会期间扩大涨幅。油价回落，日本当局干预后日元飙升，这均为美国国债提供了额外支撑。 纽约时间下午3点刚过，美国国债收益率曲线趋陡，收益率全线走低2-7个基点，扭转了周三的大部分走势。 OIS合约下调了对美联储明年加息的
+6月5日，外交部发言人毛宁主持例行记者会。彭博社记者提问，欧盟贸易代表已向中方提出，要求解决中国“不可持续”的贸易平衡问题。发言人能否进一步介绍迄今为止中欧双方讨论了哪些内容，以及中方对于欧盟可能针对中国贸易做法采取措施有何关切？ “具体问题你可以向主管部门了解。”毛宁表示，最近我们也多次就中欧经贸关系介绍中方的立场，我们认为中欧经贸关系本质是互利共赢的，中方从不刻意追求贸易顺
 
 ## 正文
 
-美国国债守住了早盘涨势，当时欧洲和英国政府债券在欧洲央行和英国央行宣布利率决定后走强，而纽约时间下午4点会进行月底指数再平衡。
+6月5日，外交部发言人毛宁主持例行记者会。
 
-德国国债在欧洲央行行长拉加德的新闻发布会期间扩大涨幅。
+彭博社记者提问，欧盟贸易代表已向中方提出，要求解决中国“不可持续”的贸易平衡问题。
 
-油价回落，日本当局干预后日元飙升，这均为美国国债提供了额外支撑。
+发言人能否进一步介绍迄今为止中欧双方讨论了哪些内容，以及中方对于欧盟可能针对中国贸易做法采取措施有何关切？
 
-纽约时间下午3点刚过，美国国债收益率曲线趋陡，收益率全线走低2-7个基点，扭转了周三的大部分走势。
+“具体问题你可以向主管部门了解。
 
-OIS合约下调了对美联储明年加息的押注，但仍消化了到第一季度末加息约5个基点的情境。
+”毛宁表示，最近我们也多次就中欧经贸关系介绍中方的立场，我们认为中欧经贸关系本质是互利共赢的，中方从不刻意追求贸易顺差。
 
-德国国债和英国国债在美国早盘交易中上涨，市场下调了对欧洲央行加息的押注；英国央行按兵不动，行长安德鲁·贝利称利率处于合理位置。
+我们也注意到欧方有关对华的表态，正在密切关注欧方的动向。
 
-日元在日本政府干预后一度上涨3%，创近两年来最大单日涨幅，美元走软，这也为美国国债提供了支撑。
+毛宁强调，我们愿意同欧方进行对话沟通，希望欧方能够恪守自由贸易、公平竞争、开放合作等市场经济的基本原则，避免保护主义措施，坚持通过对话协商处理分歧，解决彼此的关切。
 
-截至纽约时间下午3：48，2年期国债收益率报3.8812%； 5年期国债收益率报4.0195%； 10年期国债收益率报4.3887%； 30年期国债收益率报4.9896%； 5年和30年期国债收益率差报96.84个基点； 2年和10年期国债收益率差报50.54个基点。
+澎湃新闻记者 杨文钦 朱郑勇责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 06:34 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 06:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 06:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 06:50 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 06:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 06:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 06:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 06:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 06:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 06:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 07:00 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 06:58 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:58 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 07:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 06:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 06:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 06:39 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 06:46 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 06:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/5586039317.shtml)
-- 2026-06-30 06:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/41974210324.shtml)
-- 2026-06-30 06:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/21787.shtml)
-- 2026-06-30 06:40 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/39465383295.shtml)
-- 2026-06-30 06:39 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/28937.shtml)
-- 2026-06-30 06:59 - [时光音乐会](https://www.blog.minike.top/Article/details/779175830.shtml)
-- 2026-06-30 06:45 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/023582937.shtml)
-- 2026-06-30 06:55 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/985170.shtml)
-- 2026-06-30 06:31 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/671578.shtml)
-- 2026-06-30 06:41 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/2228260522.shtml)
-- 2026-06-30 06:37 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/1415978958.shtml)
-- 2026-06-30 06:46 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/2570068476.shtml)
-- 2026-06-30 06:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/6221922.shtml)
-- 2026-06-30 06:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/760822780850.shtml)
-- 2026-06-30 06:56 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/6221564101.shtml)
+- 2026-06-30 06:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/85433.shtml)
+- 2026-06-30 06:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/31556365.shtml)
+- 2026-06-30 06:51 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/271100993531.shtml)
+- 2026-06-30 06:45 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/576520.shtml)
+- 2026-06-30 07:00 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/32850958746.shtml)
+- 2026-06-30 06:42 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/159697090.shtml)
+- 2026-06-30 06:49 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/6687099885.shtml)
+- 2026-06-30 07:03 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/792805361462.shtml)
+- 2026-06-30 06:58 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/47991096337.shtml)
+- 2026-06-30 06:48 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/969880.shtml)
+- 2026-06-30 07:01 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/8426384.shtml)
+- 2026-06-30 07:00 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/0317849.shtml)
+- 2026-06-30 06:53 - [扬名立万](http://www.share.kurohicncr.top/Article/details/006849.shtml)
+- 2026-06-30 06:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/671315309654.shtml)
+- 2026-06-30 06:39 - [美股](https://www.blog.minike.top/Article/details/18345.shtml)

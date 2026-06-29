@@ -1,56 +1,56 @@
-# Meta被认定违反欧盟法律：未能有效阻止儿童使用脸书与Instagram
+# 光大期货0605热点追踪：高库存压制盘面，多晶硅价格持续下探
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-核心要点 欧盟委员会周三裁定，Meta违反《欧盟数字服务法》。 初步调查显示，该平台未能有效阻止 13 岁以下儿童注册和使用旗下社交产品。今年以来，Meta 在平台儿童安全管控方面持续受到监管机构的严厉审查。 随着监管对这家科技巨头的儿童安全管控力度持续加码，欧盟委员会认定，Meta 未能阻止 13 岁以下未成年人接入旗下平台，已违反欧盟相关法律。 欧盟委员会于周三公布初步调查
+周五，多晶硅价格进一步下行，日内跌幅超2%，创一个月来新低。调整后最低交割品标准降至31000元/吨，现货贴水收至4000元/吨附近。05合约仓单集中注销后、硅厂和期现商仓单抛售压力或给予06合约较大压力，硅料厂此前挺价策略难以延续。近期光伏展会暂无新增供需动态，多晶硅市场出现预期落空回调趋势。短期宜谨慎等待后续动向，警惕盘面因真假消息扰动出现高波动情况。 基本面来看，6月中旬
 
 ## 正文
 
-核心要点 欧盟委员会周三裁定，Meta违反《欧盟数字服务法》。
+周五，多晶硅价格进一步下行，日内跌幅超2%，创一个月来新低。
 
-初步调查显示，该平台未能有效阻止 13 岁以下儿童注册和使用旗下社交产品。
+调整后最低交割品标准降至31000元/吨，现货贴水收至4000元/吨附近。
 
-今年以来，Meta 在平台儿童安全管控方面持续受到监管机构的严厉审查。
+05合约仓单集中注销后、硅厂和期现商仓单抛售压力或给予06合约较大压力，硅料厂此前挺价策略难以延续。
 
-随着监管对这家科技巨头的儿童安全管控力度持续加码，欧盟委员会认定，Meta 未能阻止 13 岁以下未成年人接入旗下平台，已违反欧盟相关法律。
+近期光伏展会暂无新增供需动态，多晶硅市场出现预期落空回调趋势。
 
-欧盟委员会于周三公布初步调查结论：Instagram 和 Facebook 法定最低使用年龄为 13 岁，但 Meta并未充分执行年龄准入规则，涉嫌违反《欧盟数字服务法》。
+短期宜谨慎等待后续动向，警惕盘面因真假消息扰动出现高波动情况。
 
-欧盟指出：未成年人注册账号时可随意填报虚假出生日期，平台没有任何核验机制进行把关。
+基本面来看，6月中旬多晶硅头部企业投料复产，供应压力全面显性化。
 
-此外，举报未成年人账号的工具操作繁琐，用户需要点击多达七次才能进入举报表单；即便有人举报未成年账号，平台往往也缺乏完善的后续跟进与下架管控措施。
+绿电直连政策发力周期较慢，终端带来的批量备货不足。
 
-欧盟委员会在公告中表示：“委员会认为，Instagram 和 Facebook 必须整改风险评估机制，重新评估两款产品在欧盟境内存在的各类未成年人风险，以及风险的具体表现形式。
+受制于套保盘和高库存的现实，硅料厂此前挺价策略难以延续，混包料价格或逐步松动。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 06:55 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 06:54 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 06:47 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 06:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 06:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 06:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 06:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 06:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 06:52 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 06:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 06:40 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 06:58 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 06:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 06:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 06:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 06:40 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 07:05 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 06:51 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/2127992.shtml)
-- 2026-06-30 06:54 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/467982480245.shtml)
-- 2026-06-30 06:33 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/976727721208.shtml)
-- 2026-06-30 06:41 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/572526825099.shtml)
-- 2026-06-30 06:58 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/632527.shtml)
-- 2026-06-30 06:55 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/83701551.shtml)
-- 2026-06-30 06:49 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/6406183427.shtml)
-- 2026-06-30 06:53 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/0409378.shtml)
-- 2026-06-30 06:43 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/2658505236.shtml)
-- 2026-06-30 06:40 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/38379.shtml)
-- 2026-06-30 06:54 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/7443546.shtml)
-- 2026-06-30 06:56 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/6772475738.shtml)
-- 2026-06-30 06:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/6628717.shtml)
-- 2026-06-30 06:44 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/4404700.shtml)
-- 2026-06-30 06:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/560708.shtml)
+- 2026-06-30 06:58 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/6013644693.shtml)
+- 2026-06-30 06:52 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1256727.shtml)
+- 2026-06-30 07:00 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/2251852603.shtml)
+- 2026-06-30 07:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/10394129767.shtml)
+- 2026-06-30 06:48 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/5842642804.shtml)
+- 2026-06-30 06:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/60141.shtml)
+- 2026-06-30 07:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/411650213945.shtml)
+- 2026-06-30 06:59 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/5570117617.shtml)
+- 2026-06-30 06:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/607629888.shtml)
+- 2026-06-30 06:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/06304.shtml)
+- 2026-06-30 06:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/138529451413.shtml)
+- 2026-06-30 06:43 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/4286815757.shtml)
+- 2026-06-30 07:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/461030483.shtml)
+- 2026-06-30 07:03 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/4759109902.shtml)
+- 2026-06-30 06:50 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2596589784.shtml)

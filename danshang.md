@@ -1,55 +1,56 @@
-# 解读地图背后历史变迁《北京中轴线古旧地图集》分享会举办
+# 白宫人工智能政策顾问斯里拉姆·克里希南即将离任
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网北京4月30日电 (记者 高凯)《北京中轴线古旧地图集》分享会日前在北京举办，意在让承载着中华文明基因的北京中轴线，通过古旧地图这一独特载体，走进更多人的阅读生活。 《北京中轴线古旧地图集》是国内首部系统整理北京中轴线历史变迁的古旧地图集。书中涉及的古旧地图以中国国家图书馆馆藏为主，正文选取从明代至1949年的近百幅中外古旧地图及相关图档，涵盖单幅绘本、刻本、专门地图集等
+特朗普政府首席人工智能政策顾问斯里拉姆·克里希南计划于6月底离任。两位知情人士透露，克里希南已商议在卸任后创办一家政策研究机构。其中一人称，该机构将配备工程师，为特朗普政府的白宫人工智能计划提供支持。白宫发言人尚未就此置评请求作出即时回应。 克里希南原籍印度，2007年移居美国任职于微软，由此开启了在美国科技行业的长期职业生涯。2020年，他成为安德森·霍洛维茨基金（a16z）
 
 ## 正文
 
-中新网北京4月30日电 (记者 高凯)《北京中轴线古旧地图集》分享会日前在北京举办，意在让承载着中华文明基因的北京中轴线，通过古旧地图这一独特载体，走进更多人的阅读生活。
+特朗普政府首席人工智能政策顾问斯里拉姆·克里希南计划于6月底离任。
 
-《北京中轴线古旧地图集》是国内首部系统整理北京中轴线历史变迁的古旧地图集。
+两位知情人士透露，克里希南已商议在卸任后创办一家政策研究机构。
 
-书中涉及的古旧地图以中国国家图书馆馆藏为主，正文选取从明代至1949年的近百幅中外古旧地图及相关图档，涵盖单幅绘本、刻本、专门地图集等多种形式，全面展现了北京中轴线从明朝到民国时期的历史变迁。
+其中一人称，该机构将配备工程师，为特朗普政府的白宫人工智能计划提供支持。
 
-该书入选2024年北京市优秀古籍整理出版扶持项目、2025年度北京市图书出版重点选题。
+白宫发言人尚未就此置评请求作出即时回应。
 
-活动中，《北京中轴线古旧地图集》的作者，国家图书馆研究馆员、古籍馆舆图组组长白鸿叶依托书中收录的《北京城宫殿之图》《首善全图》《北京名胜鸟瞰图》等珍贵地图，深入解读地图背后的历史故事，全方位拆解北京中轴线作为“政治之轴、文化之轴、生活之轴”的完整肌理，带领现场读者沉浸式感受古都中轴线的营建脉络与文化魅力。
+克里希南原籍印度，2007年移居美国任职于微软，由此开启了在美国科技行业的长期职业生涯。
 
-她表示，中轴线不仅是北京城的“脊梁”，更是中国古代都城建造智慧的集中体现，本书呈现了不同时期的北京中轴线及地图，解析了中轴线古旧地图的绘制技艺、历史背景及文化内涵。
+2020年，他成为安德森·霍洛维茨基金（a16z）的普通合伙人。
 
-(完)
+2024年12月，特朗普任命克里希南为新一届政府高级政策顾问，专注人工智能领域，并直接与特朗普任命的人工智能与加密货币事务主管戴维·萨克斯协同工作。
+
+克里希南协助牵头制定了特朗普政府于2025年7月发布的《人工智能行动计划》，以及白宫推出的其他相关举措，包括推动相关立法。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 06:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 06:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 06:39 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 06:42 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 06:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 06:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 06:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 06:53 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 06:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 06:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 06:54 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 06:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 06:43 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 06:47 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 06:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 06:38 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 06:46 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 06:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/08664.shtml)
-- 2026-06-30 06:46 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/907395841.shtml)
-- 2026-06-30 06:47 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/633358504916.shtml)
-- 2026-06-30 06:42 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/768182958.shtml)
-- 2026-06-30 06:36 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/2975589352.shtml)
-- 2026-06-30 06:38 - [《贺子珍》](https://www.blog.minike.top/Article/details/87752.shtml)
-- 2026-06-30 06:37 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1684118.shtml)
-- 2026-06-30 06:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/8344797.shtml)
-- 2026-06-30 06:31 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/94234336.shtml)
-- 2026-06-30 06:49 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/5672002352.shtml)
-- 2026-06-30 06:51 - [巴西绝杀日本](http://www.share.minike.top/Article/details/34269760.shtml)
-- 2026-06-30 06:53 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/0457558.shtml)
-- 2026-06-30 06:44 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/750177972026.shtml)
-- 2026-06-30 06:40 - [月亮](http://www.share.minike.top/Article/details/817986517571.shtml)
-- 2026-06-30 06:52 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/31794643796.shtml)
+- 2026-06-30 06:36 - [沙丘](http://www.share.minike.top/Article/details/2335314540.shtml)
+- 2026-06-30 07:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/1914229.shtml)
+- 2026-06-30 06:58 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/40451494.shtml)
+- 2026-06-30 06:46 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/08733447.shtml)
+- 2026-06-30 07:03 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/7018103.shtml)
+- 2026-06-30 06:48 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/46849408.shtml)
+- 2026-06-30 06:50 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/55182.shtml)
+- 2026-06-30 06:46 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/330269425.shtml)
+- 2026-06-30 06:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/282591.shtml)
+- 2026-06-30 06:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/9817702424.shtml)
+- 2026-06-30 06:58 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/0106823147.shtml)
+- 2026-06-30 07:02 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/8645797.shtml)
+- 2026-06-30 06:52 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/20458.shtml)
+- 2026-06-30 06:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/101638423404.shtml)
+- 2026-06-30 07:00 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/78873737.shtml)

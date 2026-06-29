@@ -1,60 +1,58 @@
-# 微软预计今年资本支出达1900亿美元，AI业务年后收入将达300亿美元
+# 赛豆是谁？字节跳动否认造车
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-微软周三预测，其Azure云业务今年的销售额将超过华尔街预期。这家软件巨头还公布了2026年1900亿美元的资本支出计划，同样超出预期。 微软表示，预计其Azure及其他云服务业务在第四财季的营收（按固定汇率计算）将增长39%至40%，高于Visible Alpha此前预测的36.7%。 该业务部门在第三财季的营收增长了40%，高于前三个月的39%，但与市场普遍预期相符。 微软
+【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。 对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。 字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包
 
 ## 正文
 
-微软周三预测，其Azure云业务今年的销售额将超过华尔街预期。
+【TechWeb】6月7日消息，一则关于“字节跳动进军汽车制造业、推出‘赛豆’汽车品牌”的消息近日在网络上迅速发酵，引发行业内外广泛关注。
 
-这家软件巨头还公布了2026年1900亿美元的资本支出计划，同样超出预期。
+对此，字节跳动官方于6月6日正式发布声明，明确否认造车传闻，并厘清其与新兴汽车品牌“赛豆”的真实关系。
 
-微软表示，预计其Azure及其他云服务业务在第四财季的营收（按固定汇率计算）将增长39%至40%，高于Visible Alpha此前预测的36.7%。
+字节跳动：不造车，无股权合作 字节跳动在声明中表示，公司“没有造车或推出汽车品牌的计划”，网传的“赛豆”汽车品牌并非字节跳动或旗下“豆包”大模型推出的产品，双方之间不存在任何股权合作。
 
-该业务部门在第三财季的营收增长了40%，高于前三个月的39%，但与市场普遍预期相符。
+字节跳动强调，其在汽车行业的角色始终是技术合作伙伴，通过旗下的火山引擎为车企提供豆包大模型、智能座舱等AI技术服务，而非整车制造。
 
-微软预测第四财季营收将在 867 亿美元至 878 亿美元之间，与LSEG调查的分析师的平均预期基本一致。
+这意味着，任何将字节跳动与“造车”直接划等号的说法，均属误读。
 
-微软表示，预计今年资本支出将达到 1900 亿美元，根据 Visible Alpha 的数据，这一数字远超分析师此前预测的 1500 亿美元以上。
+“赛豆”的真实身份：从蓝电到赛豆 那么，这个突然闯入公众视野的“赛豆”究竟是谁？
 
-微软投资者关系副总裁乔纳森·尼尔森表示，每月收费 30 美元的 M365 Copilot 人工智能助手的用户数量从 1 月份披露的 1500 万增至 2000 万。
+根据公开信息，“赛豆”是重庆赛豆科技有限公司即将推出的全新大众化新能源品牌。
 
-尼尔森说：“我们在一个季度内新增了 500 万用户，这无疑是一个非常令人振奋的消息。
+而“赛豆科技”的前身，正是赛力斯集团旗下定位大众市场的“蓝电科技”。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 06:45 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 06:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 06:53 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 06:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 06:53 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 06:46 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 06:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 06:50 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 06:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 06:38 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:33 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 06:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 06:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 06:59 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:40 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 07:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 06:41 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 06:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 06:57 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 06:46 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 07:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 07:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/23765.shtml)
-- 2026-06-30 06:57 - [月亮](http://www.share.kurohicncr.top/Article/details/26138197.shtml)
-- 2026-06-30 06:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/953055427953.shtml)
-- 2026-06-30 06:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/276222666535.shtml)
-- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/332229360.shtml)
-- 2026-06-30 06:53 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/98732541414.shtml)
-- 2026-06-30 06:54 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/810809.shtml)
-- 2026-06-30 06:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/291119971.shtml)
-- 2026-06-30 06:47 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/685836731.shtml)
-- 2026-06-30 06:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/94457.shtml)
-- 2026-06-30 06:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/13356.shtml)
-- 2026-06-30 06:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/7900402395.shtml)
-- 2026-06-30 06:42 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/02633206053.shtml)
-- 2026-06-30 06:30 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/789811.shtml)
-- 2026-06-30 06:55 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/1319101642.shtml)
+- 2026-06-30 06:54 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/576431018.shtml)
+- 2026-06-30 06:48 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/7554106918.shtml)
+- 2026-06-30 07:02 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/6208402.shtml)
+- 2026-06-30 06:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/964660.shtml)
+- 2026-06-30 06:43 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/01915.shtml)
+- 2026-06-30 07:00 - [巴西2比1日本](https://www.blog.minike.top/Article/details/83008.shtml)
+- 2026-06-30 07:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/98424770872.shtml)
+- 2026-06-30 06:59 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/04218.shtml)
+- 2026-06-30 06:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/51679090.shtml)
+- 2026-06-30 06:59 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/925872596.shtml)
+- 2026-06-30 06:41 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/67480354387.shtml)
+- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0291373858.shtml)
+- 2026-06-30 06:41 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/951732793825.shtml)
+- 2026-06-30 07:04 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/036674.shtml)
+- 2026-06-30 07:05 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/508585151.shtml)

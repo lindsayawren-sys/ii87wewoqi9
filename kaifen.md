@@ -1,50 +1,44 @@
-# 第164次中老缅泰湄公河联合巡逻执法行动结束
+# 习近平举行仪式欢迎老挝人民革命党中央总书记、国家主席通伦访华
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网昆明5月1日电 (记者 缪超)据云南省公安厅消息，4月30日第164次中老缅泰湄公河联合巡逻执法行动结束。 此次行动中老缅泰四国共派出执法队员131人、执法艇5艘，历时11天，总航程1100余公里。 行动期间，四国在澜沧江景哈至湄公河金三角水域开展全线联巡、分段巡逻等执法行动，重点打击跨境违法犯罪，维护流域船只及沿岸民众安全。 此外，还在泰国清盛召开多边信息交流会，通报边
+6月5日下午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎老挝人民革命党中央总书记、国家主席通伦对我国进行国事访问。 应中共中央总书记、国家主席习近平邀请，老挝人民革命党中央总书记、国家主席通伦于6月2日至6日对中国进行国事访问。
 
 ## 正文
 
-中新网昆明5月1日电 (记者 缪超)据云南省公安厅消息，4月30日第164次中老缅泰湄公河联合巡逻执法行动结束。
+6月5日下午，中共中央总书记、国家主席习近平在北京人民大会堂东门外广场举行仪式，欢迎老挝人民革命党中央总书记、国家主席通伦对我国进行国事访问。
 
-此次行动中老缅泰四国共派出执法队员131人、执法艇5艘，历时11天，总航程1100余公里。
-
-行动期间，四国在澜沧江景哈至湄公河金三角水域开展全线联巡、分段巡逻等执法行动，重点打击跨境违法犯罪，维护流域船只及沿岸民众安全。
-
-此外，还在泰国清盛召开多边信息交流会，通报边境管理、打击跨境犯罪等情况，研判犯罪形势，就线索核查、信息共享等方面达成共识，助推四国执法合作走深走实。
-
-(完)
+应中共中央总书记、国家主席习近平邀请，老挝人民革命党中央总书记、国家主席通伦于6月2日至6日对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 06:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 06:32 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 06:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 06:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 06:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 06:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 06:59 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 06:34 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 06:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 06:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 07:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 06:41 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 06:51 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 06:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 07:03 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 07:04 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 06:52 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 06:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:37 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/071206.shtml)
-- 2026-06-30 06:56 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/2102749867.shtml)
-- 2026-06-30 06:42 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/413706512072.shtml)
-- 2026-06-30 06:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/08532562332.shtml)
-- 2026-06-30 06:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/27088295834.shtml)
-- 2026-06-30 06:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/7056986469.shtml)
-- 2026-06-30 06:48 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/464792.shtml)
-- 2026-06-30 06:57 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/8392578954.shtml)
-- 2026-06-30 06:55 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/357752046832.shtml)
-- 2026-06-30 06:43 - [斛珠夫人](http://www.blog.minike.top/Article/details/3238662376.shtml)
-- 2026-06-30 06:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/94005.shtml)
-- 2026-06-30 06:40 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/3089277.shtml)
-- 2026-06-30 06:36 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/148271441.shtml)
-- 2026-06-30 06:37 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/9823933.shtml)
-- 2026-06-30 06:46 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/144599140.shtml)
+- 2026-06-30 06:43 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/040437134819.shtml)
+- 2026-06-30 06:49 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/1267295.shtml)
+- 2026-06-30 07:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/6686440077.shtml)
+- 2026-06-30 06:46 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/279520240036.shtml)
+- 2026-06-30 06:55 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/18127932453.shtml)
+- 2026-06-30 07:00 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/46804861.shtml)
+- 2026-06-30 06:48 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/229794833.shtml)
+- 2026-06-30 06:41 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/482624181.shtml)
+- 2026-06-30 06:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/777640.shtml)
+- 2026-06-30 06:51 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/3141361456.shtml)
+- 2026-06-30 06:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/918647.shtml)
+- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/16986998.shtml)
+- 2026-06-30 06:43 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/180621046.shtml)
+- 2026-06-30 06:50 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/21869.shtml)
+- 2026-06-30 06:58 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/016795425.shtml)

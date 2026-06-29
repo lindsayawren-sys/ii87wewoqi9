@@ -1,50 +1,48 @@
-# 印度大幅下调5月上半月柴油、航空燃油出口税
+# 中华企业：公司积极参与上海地产集团城市更新平台建设
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-因国际基准油价变动，印度大幅下调5月前15天柴油与航空燃油的出口关税。印度政府当地时间周四晚间发布声明称：柴油特别附加消费税从每升55.55卢比下调至23卢比（约合24美分）；航空燃油出口税由每升42卢比下调至33卢比。受霍尔木兹海峡通航中断冲击原油进口影响，印度曾于3月27日对上述燃油加征出口税，以保障国内库存供应。责任编辑：王永生
+证券日报网讯 6月5日，中华企业在互动平台回答投资者提问时表示，近年来，公司通过深耕上海，积极参与上海地产集团城市更新平台建设，以服务集团区域整体开发为导向，加强市场化土地资源拓展，增强发展后劲，努力深化城市生活服务板块，致力于成为上海有重要影响力的城市更新综合开发运营企业。（文章来源：证券日报）
 
 ## 正文
 
-因国际基准油价变动，印度大幅下调5月前15天柴油与航空燃油的出口关税。
+证券日报网讯 6月5日，中华企业在互动平台回答投资者提问时表示，近年来，公司通过深耕上海，积极参与上海地产集团城市更新平台建设，以服务集团区域整体开发为导向，加强市场化土地资源拓展，增强发展后劲，努力深化城市生活服务板块，致力于成为上海有重要影响力的城市更新综合开发运营企业。
 
-印度政府当地时间周四晚间发布声明称：柴油特别附加消费税从每升55.55卢比下调至23卢比（约合24美分）；航空燃油出口税由每升42卢比下调至33卢比。
-
-受霍尔木兹海峡通航中断冲击原油进口影响，印度曾于3月27日对上述燃油加征出口税，以保障国内库存供应。
-
-责任编辑：王永生
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 06:47 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 06:52 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 06:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 06:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 06:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 06:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 06:53 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 06:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 06:39 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:03 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 06:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 06:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 07:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 06:38 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:40 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 06:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 07:04 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 07:06 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 06:56 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 07:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 06:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 06:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 06:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/85450.shtml)
-- 2026-06-30 06:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/4607485440.shtml)
-- 2026-06-30 06:57 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/0758934.shtml)
-- 2026-06-30 06:38 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/95817.shtml)
-- 2026-06-30 06:45 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/221749.shtml)
-- 2026-06-30 06:59 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/97393628.shtml)
-- 2026-06-30 06:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/381099.shtml)
-- 2026-06-30 06:55 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/811737.shtml)
-- 2026-06-30 06:51 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/86969.shtml)
-- 2026-06-30 06:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/634337435409.shtml)
-- 2026-06-30 06:32 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/56749.shtml)
-- 2026-06-30 06:50 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/52542711181.shtml)
-- 2026-06-30 06:47 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/11581785.shtml)
-- 2026-06-30 06:40 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/672246.shtml)
-- 2026-06-30 06:43 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/872843.shtml)
+- 2026-06-30 06:44 - [美股](http://www.blog.minike.top/Article/details/852779.shtml)
+- 2026-06-30 06:55 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/57788123120.shtml)
+- 2026-06-30 06:37 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/56192473125.shtml)
+- 2026-06-30 06:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/011549818.shtml)
+- 2026-06-30 06:50 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/075270713754.shtml)
+- 2026-06-30 07:00 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/42648.shtml)
+- 2026-06-30 06:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/2490345.shtml)
+- 2026-06-30 06:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/48504826233.shtml)
+- 2026-06-30 07:04 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/13088259.shtml)
+- 2026-06-30 07:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/925298583110.shtml)
+- 2026-06-30 06:57 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/83101953.shtml)
+- 2026-06-30 06:36 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/53705760.shtml)
+- 2026-06-30 06:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/8801626.shtml)
+- 2026-06-30 06:58 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/642829742308.shtml)
+- 2026-06-30 06:59 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/796435.shtml)

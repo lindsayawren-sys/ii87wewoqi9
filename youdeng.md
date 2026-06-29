@@ -1,58 +1,57 @@
-# 中方关于日本拥核问题的工作文件
+# 美法官下达禁令 叫停特朗普政府食品券申领附加条件
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-一、近年来，日本在拥有核武器问题上消极言行不断，日方官员多次公然讨论修改“无核三原则”(即“不拥有、不制造、不运进核武器”)。2025年11月，日本首相在众议院应询称，无法确认“无核三原则”是否将在日本安保政策修订过程中保持不变。2025年12月，日本首相官邸高官公开声称“日本应该拥有核武器”，暴露日本右翼势力的核野心，挑战国际社会底线。日本还不断寻求强化所谓“延伸威慑”合作，
+一名联邦法官于当地时间周五站在20个民主党州一边，叫停了特朗普政府的一项举措。该举措试图强制各州满足多项条件，才能领取数十亿美元的补充营养援助计划（食品券）资金。 美国地区法官Myong Joun就此项针对食品券资金申领附加条件的诉讼，下达了临时禁令。附加条件涉及“性别理念”、“移民政策”，以及保障女性与女童平等“体育赛事机会”等相关限制。 法官表示，后续将出具备忘录阐释裁决理
 
 ## 正文
 
-一、近年来，日本在拥有核武器问题上消极言行不断，日方官员多次公然讨论修改“无核三原则”(即“不拥有、不制造、不运进核武器”)。
+一名联邦法官于当地时间周五站在20个民主党州一边，叫停了特朗普政府的一项举措。
 
-2025年11月，日本首相在众议院应询称，无法确认“无核三原则”是否将在日本安保政策修订过程中保持不变。
+该举措试图强制各州满足多项条件，才能领取数十亿美元的补充营养援助计划（食品券）资金。
 
-2025年12月，日本首相官邸高官公开声称“日本应该拥有核武器”，暴露日本右翼势力的核野心，挑战国际社会底线。
+美国地区法官Myong Joun就此项针对食品券资金申领附加条件的诉讼，下达了临时禁令。
 
-日本还不断寻求强化所谓“延伸威慑”合作，试图发展核动力潜艇，达成所谓“核共享”安排，图谋重新在日本部署核武器。
+附加条件涉及“性别理念”、“移民政策”，以及保障女性与女童平等“体育赛事机会”等相关限制。
 
-国际社会必须保持高度警惕并坚决反对日方上述试探挑衅言行。
+法官表示，后续将出具备忘录阐释裁决理由。
 
-日本拥核图谋由来已久，早在二战期间就曾秘密开展核武器研发。
+各州在诉讼中主张，美国农业部设置了多项违宪且违法的阻碍，割裂国会设立的福利项目与依赖该项目的各州之间的联系，危及重要的营养补助、农业研究工作，以及全国食品供应链和社区安全。
 
-日右翼代表人物、前航空自卫队幕僚长田母神俊雄于2013年出版《日本核武装计划》一书，详细制定20年内按照“三阶段、八步走”战略、实现自主拥核路线图。
+联邦政府律师反对这项临时禁令，并在庭审文件中称，新规定有助于合理管理纳税人资金，强化农业部对专项拨款的管控与监督，同时确保补助申领方遵守联邦法律法规及相关政策。
 
-目前，日本掌握后处理技术、有能力提取武器级钚、有可运行的后处理设施，长期制造、储存远超民用核能实际需求的钚材料1，拥有短期内实现“核突破”的能力。
+食品券计划是美国社会保障体系的重要组成部分，约有3900万美国人（每9人中就有1人）依靠该计划购买食品。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 06:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 06:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 06:56 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 06:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 06:34 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 06:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 06:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 06:50 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:54 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 06:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 06:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 06:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 07:01 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 06:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 06:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 06:46 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 06:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 06:40 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 06:44 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 06:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 06:44 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 06:54 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/502769277418.shtml)
-- 2026-06-30 06:33 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/7376207.shtml)
-- 2026-06-30 06:56 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/976206913433.shtml)
-- 2026-06-30 06:36 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/7784019713.shtml)
-- 2026-06-30 06:39 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3341883320.shtml)
-- 2026-06-30 06:45 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/4415716.shtml)
-- 2026-06-30 06:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/5381733.shtml)
-- 2026-06-30 06:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/16259277.shtml)
-- 2026-06-30 06:56 - [日本16强魔咒](https://www.blog.minike.top/Article/details/2785117469.shtml)
-- 2026-06-30 06:32 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/9888703.shtml)
-- 2026-06-30 06:55 - [千香](https://www.share.minike.top/Article/details/89351012218.shtml)
-- 2026-06-30 06:30 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/4710387079.shtml)
-- 2026-06-30 06:30 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/070951434934.shtml)
-- 2026-06-30 06:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/073425985826.shtml)
-- 2026-06-30 06:59 - [女心理师](https://www.blog.minike.top/Article/details/2148357577.shtml)
+- 2026-06-30 06:45 - [月亮](https://www.share.kurohicncr.top/Article/details/51149.shtml)
+- 2026-06-30 06:43 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/42498928207.shtml)
+- 2026-06-30 06:51 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/49900.shtml)
+- 2026-06-30 06:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/19532294.shtml)
+- 2026-06-30 06:50 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/896654.shtml)
+- 2026-06-30 06:45 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/3046570.shtml)
+- 2026-06-30 07:01 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/529992122514.shtml)
+- 2026-06-30 07:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/4600859210.shtml)
+- 2026-06-30 06:57 - [送你一朵小红花](https://www.share.minike.top/Article/details/9663335.shtml)
+- 2026-06-30 06:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/958220145702.shtml)
+- 2026-06-30 06:39 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/7339405685.shtml)
+- 2026-06-30 07:00 - [沉睡花园](https://www.blog.minike.top/Article/details/765706221.shtml)
+- 2026-06-30 06:42 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/107920935.shtml)
+- 2026-06-30 06:41 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/714621.shtml)
+- 2026-06-30 06:58 - [沙丘](https://www.share.minike.top/Article/details/9081143334.shtml)

@@ -1,55 +1,45 @@
-# 印度中央邦发生车祸已致12人死亡、23人受伤
+# 关注旅游领域四项新国标 首个饭店无障碍国标今年8月将落地
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网北京4月30日电 新德里消息：据《印度斯坦时报》报道，印度中央邦当地时间29日晚发生一起交通事故，一辆载有务工人员的皮卡车在高速行驶中失控翻覆，并与一辆SUV相撞，造成至少12人死亡、23人受伤。 事故发生在中央邦印多尔市至古吉拉特邦艾哈迈达巴德市高速公路上一处加油站附近。 警方表示，事发时皮卡车上载有约35名工人。车辆在行驶过程中车速很快，失去控制，连续翻滚三四次后偏离
+发布时间：2026年06月06日 10:49 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京4月30日电 新德里消息：据《印度斯坦时报》报道，印度中央邦当地时间29日晚发生一起交通事故，一辆载有务工人员的皮卡车在高速行驶中失控翻覆，并与一辆SUV相撞，造成至少12人死亡、23人受伤。
-
-事故发生在中央邦印多尔市至古吉拉特邦艾哈迈达巴德市高速公路上一处加油站附近。
-
-警方表示，事发时皮卡车上载有约35名工人。
-
-车辆在行驶过程中车速很快，失去控制，连续翻滚三四次后偏离车道，与一辆SUV发生碰撞。
-
-12名遇难者中有2名儿童，伤者已被送往医院救治。
-
-印度总理莫迪在社交媒体发文对这起事故表达哀悼。
-
-(完)
+发布时间：2026年06月06日 10:49 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 06:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 06:53 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 06:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 06:35 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 06:59 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 06:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 06:58 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 06:34 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 06:59 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 07:00 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 07:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:51 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:44 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 07:01 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 06:54 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 06:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 06:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 06:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 06:49 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 06:36 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/82613546.shtml)
-- 2026-06-30 06:43 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/32642564772.shtml)
-- 2026-06-30 06:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/78789130938.shtml)
-- 2026-06-30 06:49 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/527593809470.shtml)
-- 2026-06-30 06:47 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/9836893793.shtml)
-- 2026-06-30 06:41 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/77371.shtml)
-- 2026-06-30 06:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/878450579.shtml)
-- 2026-06-30 06:43 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/68174.shtml)
-- 2026-06-30 06:34 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/600619.shtml)
-- 2026-06-30 06:44 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/6999658.shtml)
-- 2026-06-30 06:53 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/1319288300.shtml)
-- 2026-06-30 06:45 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/83904955.shtml)
-- 2026-06-30 06:49 - [世界杯](http://www.share.minike.top/Article/details/273109089.shtml)
-- 2026-06-30 06:57 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/145831735.shtml)
-- 2026-06-30 06:59 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/47810859.shtml)
+- 2026-06-30 06:42 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/4799607.shtml)
+- 2026-06-30 07:05 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/461126510.shtml)
+- 2026-06-30 07:01 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/553093332621.shtml)
+- 2026-06-30 07:04 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/93341.shtml)
+- 2026-06-30 06:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/85546.shtml)
+- 2026-06-30 06:45 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/3889918.shtml)
+- 2026-06-30 06:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/149799317.shtml)
+- 2026-06-30 06:43 - [一见倾心](http://www.blog.minike.top/Article/details/8204496001.shtml)
+- 2026-06-30 06:39 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/4425092878.shtml)
+- 2026-06-30 06:38 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/3882616.shtml)
+- 2026-06-30 07:00 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/25926798079.shtml)
+- 2026-06-30 06:39 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/7533747069.shtml)
+- 2026-06-30 06:44 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/490515.shtml)
+- 2026-06-30 06:49 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/899863068.shtml)
+- 2026-06-30 06:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/6166682.shtml)

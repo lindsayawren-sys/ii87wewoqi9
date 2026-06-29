@@ -1,61 +1,61 @@
-# 瑞银一季度净利润飙升80% 股价涨5%
+# 18岁脑瘫少年躺着用舌头剪辑短视频 获大量网友点赞
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 伦敦证券交易所集团汇编的市场共识数据显示： 瑞银一季度归属于股东的净利润达 30 亿美元，同比大涨 80%，高于分析师预期的 28 亿美元。 这家瑞士银行及资管巨头的一级核心资本充足率（CET1）（衡量银行偿债抗风险能力的关键指标）本季升至14.7%，上一季度为 14.4%。 瑞银于周三公布一季度财报，称仍将按计划在二季度下一份财
+原标题：18岁脑瘫少年做了件了不起的事 四肢无法动弹的王博文躺着用舌头剪辑短视频 “君子自强不息，哪怕如蜉蝣撼树，也总会有树叶掉下来的时候。”谁能想到如此坚定而又执着的话，出自一位全身无法动弹，却想靠短视频创业的脑瘫少年。近日，南通通州的“舔屏少年”王博文用舌头剪辑的一条视频火了。视频中，王博文仅靠舌头在平板上剪辑动漫，收获了大量网友的点赞和鼓励。 6月3日，扬子晚报/紫牛新闻
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 伦敦证券交易所集团汇编的市场共识数据显示： 瑞银一季度归属于股东的净利润达 30 亿美元，同比大涨 80%，高于分析师预期的 28 亿美元。
+原标题：18岁脑瘫少年做了件了不起的事 四肢无法动弹的王博文躺着用舌头剪辑短视频 “君子自强不息，哪怕如蜉蝣撼树，也总会有树叶掉下来的时候。
 
-这家瑞士银行及资管巨头的一级核心资本充足率（CET1）（衡量银行偿债抗风险能力的关键指标）本季升至14.7%，上一季度为 14.4%。
+”谁能想到如此坚定而又执着的话，出自一位全身无法动弹，却想靠短视频创业的脑瘫少年。
 
-瑞银于周三公布一季度财报，称仍将按计划在二季度下一份财报发布前完成30 亿美元股票回购；本季度已回购 9 亿美元股份，同时官宣年底前将推出新一轮股票回购计划。
+近日，南通通州的“舔屏少年”王博文用舌头剪辑的一条视频火了。
 
-财报出炉后，瑞银盘中股价大涨超 5%。
+视频中，王博文仅靠舌头在平板上剪辑动漫，收获了大量网友的点赞和鼓励。
 
-总部位于苏黎世的瑞银表示，市场寄望中东冲突能达成持久解决方案，整体表现仍具韧性。
+6月3日，扬子晚报/紫牛新闻记者来到南通通州二甲镇的王博文家中。
 
-但该行也承认，局势瞬息万变之下风险仍处于高位，并预警：旗下全球财富管理、个人与企业银行业务的二季度净利息收入或将整体持平。
+5年前，他曾因求学之路靠“舔屏”自学的励志故事受到关注。
 
-瑞银 CEO 塞尔吉奥・埃尔莫蒂表示，公司交出了 “极为强劲的一个季度”，即便受美伊战争地缘紧张拖累，依旧展现出韧性；市场普遍隐含定价已反映冲突终将得到解决。
+由于先天性脑瘫，他四肢无法活动、常年卧床受限，靠着舌头“舔屏”完成学业。
 
-埃尔莫蒂周三做客 CNBC《欧洲财经早间栏目》时指出，投行股权资本市场业务表现亮眼，另类资产板块也实现增长，集团整体业务势头向好。
+去年他经历了一场重症肺炎，在ICU抢救27天硬是闯过了“鬼门关”。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 06:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 06:31 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 06:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 06:38 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 06:52 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 06:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 06:35 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 06:45 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 06:49 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 06:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 06:42 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 06:38 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 06:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 06:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 07:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 06:57 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 06:53 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 06:58 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 07:03 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 06:49 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 06:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 06:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 06:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 06:41 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 06:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 07:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 07:05 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 06:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 07:05 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/093711.shtml)
-- 2026-06-30 06:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/617647146405.shtml)
-- 2026-06-30 06:47 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/007621184.shtml)
-- 2026-06-30 06:59 - [日本进球](https://www.share.minike.top/Article/details/112251.shtml)
-- 2026-06-30 06:47 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/889381.shtml)
-- 2026-06-30 06:50 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/392694237214.shtml)
-- 2026-06-30 06:31 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/98475288610.shtml)
-- 2026-06-30 06:52 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/87328111527.shtml)
-- 2026-06-30 06:50 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/738529.shtml)
-- 2026-06-30 06:44 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/571558.shtml)
-- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/182691380220.shtml)
-- 2026-06-30 06:51 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/96234742877.shtml)
-- 2026-06-30 06:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/68032868.shtml)
-- 2026-06-30 06:43 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/608112.shtml)
-- 2026-06-30 06:32 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/969650317.shtml)
+- 2026-06-30 06:57 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/35392.shtml)
+- 2026-06-30 06:57 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/0889593.shtml)
+- 2026-06-30 06:40 - [85花告别古偶](http://www.blog.minike.top/Article/details/23834076.shtml)
+- 2026-06-30 06:54 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/7010099.shtml)
+- 2026-06-30 06:38 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/2576852.shtml)
+- 2026-06-30 07:03 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/76466847.shtml)
+- 2026-06-30 07:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/7971844991.shtml)
+- 2026-06-30 06:41 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/01976672268.shtml)
+- 2026-06-30 06:51 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/737796780751.shtml)
+- 2026-06-30 06:44 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/760774.shtml)
+- 2026-06-30 06:48 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/53695897.shtml)
+- 2026-06-30 06:50 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/90704859230.shtml)
+- 2026-06-30 06:47 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/842780042320.shtml)
+- 2026-06-30 06:46 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/4660800773.shtml)
+- 2026-06-30 07:04 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/270781.shtml)

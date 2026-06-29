@@ -1,61 +1,57 @@
-# 苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%
+# 票种做加法，流程做减法，铁路新规暖了
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-苹果发布2026 财年第二季度财报，在服务业务增长的拉动下，盈利和营收均超出分析师预期。iPhone 销售额在近三个季度内第二次不及市场预期，也是本周四财报中唯一一项明显低于预期的核心业绩数据。 公司周四在一份声明中表示，该季度营收同比增长17%，至1112亿美元，高于分析师平均预期的1097亿美元。苹果此前曾预计销售额将增长13%至16%。每股收益（EPS）为2.01美元。
+暑运的脚步声越来越近，学子们的出行“礼包”已提前送达。6月1日起，新版《中国国家铁路集团有限公司铁路旅客运输规程》正式实施。据报道，新版客规一次性做出28处调整。在“票种”上大做加法，在“流程”上巧做减法，一加一减之间，体验感十足，暖意融融。票种做加法，加的是选择权，更是一份成长的关怀。过去，持学生优惠票只能坐普通车的硬座、硬卧或动车组二等座，除此之外的席别都与学生优惠票“绝缘
 
 ## 正文
 
-苹果发布2026 财年第二季度财报，在服务业务增长的拉动下，盈利和营收均超出分析师预期。
+暑运的脚步声越来越近，学子们的出行“礼包”已提前送达。
 
-iPhone 销售额在近三个季度内第二次不及市场预期，也是本周四财报中唯一一项明显低于预期的核心业绩数据。
+6月1日起，新版《中国国家铁路集团有限公司铁路旅客运输规程》正式实施。
 
-公司周四在一份声明中表示，该季度营收同比增长17%，至1112亿美元，高于分析师平均预期的1097亿美元。
+据报道，新版客规一次性做出28处调整。
 
-苹果此前曾预计销售额将增长13%至16%。
+在“票种”上大做加法，在“流程”上巧做减法，一加一减之间，体验感十足，暖意融融。
 
-每股收益（EPS）为2.01美元。
+票种做加法，加的是选择权，更是一份成长的关怀。
 
-市场同时重点关注以下核心业务板块表现： iPhone营收： 569.9亿美元，预期为572.1亿美元 Mac 营收： 84 亿美元，高于预期的 80.2 亿美元。
+过去，持学生优惠票只能坐普通车的硬座、硬卧或动车组二等座，除此之外的席别都与学生优惠票“绝缘”。
 
-iPad营收： 69.1亿美元，高于预期的66.6亿美元。
+此次新规最亮眼的突破，就是将学生优惠票的使用范围，扩大至动车组列车的一等座、二等包座、多功能座以及动车组卧铺各席别。
 
-可穿戴设备、家居及配件业务营收： 79亿美元，高于预期的77亿美元。
+学生乘坐火车的优惠空间再度“扩容”，高级别席位与优惠票价“不可兼得”的尴尬一去不复返，旅途的幸福感直线上升。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 06:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:42 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 06:52 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 06:57 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 06:59 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:54 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 06:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 06:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 06:55 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 06:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 06:49 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 06:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 06:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 06:59 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 07:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 06:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 06:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 06:44 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 06:45 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 06:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 06:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 07:00 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 06:52 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/907429974973.shtml)
-- 2026-06-30 06:36 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/936722800605.shtml)
-- 2026-06-30 06:34 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/2634331.shtml)
-- 2026-06-30 06:59 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/5447403.shtml)
-- 2026-06-30 06:57 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/226908088542.shtml)
-- 2026-06-30 06:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/996923777.shtml)
-- 2026-06-30 06:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/370849.shtml)
-- 2026-06-30 06:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/455538938.shtml)
-- 2026-06-30 06:43 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/374877796.shtml)
-- 2026-06-30 06:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/8317284.shtml)
-- 2026-06-30 06:31 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/373540.shtml)
-- 2026-06-30 06:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/55425159102.shtml)
-- 2026-06-30 06:42 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/373408431734.shtml)
-- 2026-06-30 06:45 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/6627669031.shtml)
-- 2026-06-30 06:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/81400873.shtml)
+- 2026-06-30 06:54 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/49188.shtml)
+- 2026-06-30 07:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/411501535675.shtml)
+- 2026-06-30 06:54 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/524154021.shtml)
+- 2026-06-30 06:50 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/6187311372.shtml)
+- 2026-06-30 06:50 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/725838.shtml)
+- 2026-06-30 06:36 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/38878420933.shtml)
+- 2026-06-30 06:41 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/319501500064.shtml)
+- 2026-06-30 06:59 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/641123.shtml)
+- 2026-06-30 06:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/89760.shtml)
+- 2026-06-30 06:39 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/71865.shtml)
+- 2026-06-30 07:01 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/335790176546.shtml)
+- 2026-06-30 06:36 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/840436575366.shtml)
+- 2026-06-30 06:49 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/88498.shtml)
+- 2026-06-30 06:55 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/409469491311.shtml)
+- 2026-06-30 06:46 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/858486766539.shtml)

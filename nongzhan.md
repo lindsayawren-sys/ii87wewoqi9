@@ -1,56 +1,48 @@
-# 衢州市侨联召开八届三次全委会议
+# 出膛！直击单兵火箭筒实弹射击高燃现场
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-4月28日，衢州市侨联召开八届三次全委会议。会上传达学习了省委、市委全会，中国侨联、省侨联全委会会议精神，总结八届二次全委会议以来的侨联工作，研究部署今后的工作重点任务。市侨联党组书记、主席马伟民作工作报告，市纪委监委驻市委统战部纪检组组长李水良出席会议。会议认为，2025年，在市委、市政府的坚强领导下，在省侨联和市委统战部的精心指导下，市侨联与全市各级侨联组织一道，紧紧围绕服
+发布时间：2026年06月05日 13:51 来源：中国新闻网 野外山地硝烟升腾，武警官兵肩扛单兵火箭筒，精准瞄准击发。官兵立足实战，锤炼火力技能，在实弹实训中夯实操作本领，锻造过硬攻坚尖兵。(作者：赵亮 闫皇辉 刘元瑞 段宇航) 责任编辑：【魏聪聪】
 
 ## 正文
 
-4月28日，衢州市侨联召开八届三次全委会议。
+发布时间：2026年06月05日 13:51 来源：中国新闻网 野外山地硝烟升腾，武警官兵肩扛单兵火箭筒，精准瞄准击发。
 
-会上传达学习了省委、市委全会，中国侨联、省侨联全委会会议精神，总结八届二次全委会议以来的侨联工作，研究部署今后的工作重点任务。
+官兵立足实战，锤炼火力技能，在实弹实训中夯实操作本领，锻造过硬攻坚尖兵。
 
-市侨联党组书记、主席马伟民作工作报告，市纪委监委驻市委统战部纪检组组长李水良出席会议。
-
-会议认为，2025年，在市委、市政府的坚强领导下，在省侨联和市委统战部的精心指导下，市侨联与全市各级侨联组织一道，紧紧围绕服务大局、服务侨胞，突出重点、上下同心，大力实施“五侨工程”，侨联工作取得新进展，侨联组织呈现新气象。
-
-2025年11月，衢州市侨联被浙江省侨联、浙江省侨办、浙江省人力社保厅联合表彰为“全省侨联系统先进单位”。
-
-会议强调，2026年是中国共产党建党105周年、中国侨联成立70周年，是“十五五”规划开局之年，也是衢州走向高质量发展的关键之年。
-
-会议要求，全市侨联系统要坚持以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想、关于群团工作和侨务工作的重要论述、关于侨联工作的重要指示批示精神，全面贯彻落实党的二十届四中全会、全国两会精神，坚决执行上级党委和上级侨联部署要求，紧密对接省市发展大局，尽责履行侨联六大职能，以“之江同心”为牵引，以“侨兴衢州”为主题，以“六侨联动”为抓手，守正创新、担当作为，在思想引领、助力发展、联络联谊、服务侨胞、建强基层中彰显衢侨贡献度、辨识度、显示度。
-
-会议对2026年市侨联重点工作任务作了部署。
+(作者：赵亮 闫皇辉 刘元瑞 段宇航) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 06:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 06:51 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 06:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 06:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 06:52 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 06:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 06:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 06:37 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 06:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 06:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 06:49 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 06:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 06:37 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 06:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 06:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 06:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 07:04 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 07:03 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 07:00 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 06:57 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 06:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/91192294.shtml)
-- 2026-06-30 06:39 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/5541036.shtml)
-- 2026-06-30 06:41 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/4266922296.shtml)
-- 2026-06-30 06:38 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/732915.shtml)
-- 2026-06-30 06:48 - [起风了](https://www.share.minike.top/Article/details/829082279035.shtml)
-- 2026-06-30 06:49 - [一见倾心](https://www.blog.minike.top/Article/details/15317.shtml)
-- 2026-06-30 06:55 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/521875.shtml)
-- 2026-06-30 06:53 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/65309414.shtml)
-- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/136335310.shtml)
-- 2026-06-30 06:31 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3337103093.shtml)
-- 2026-06-30 06:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/26180.shtml)
-- 2026-06-30 06:39 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/122408947.shtml)
-- 2026-06-30 06:42 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/6856159.shtml)
-- 2026-06-30 06:36 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/860204.shtml)
-- 2026-06-30 06:54 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/96845.shtml)
+- 2026-06-30 06:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/7487710.shtml)
+- 2026-06-30 06:52 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/973732.shtml)
+- 2026-06-30 06:46 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/2303336.shtml)
+- 2026-06-30 07:05 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/8643885.shtml)
+- 2026-06-30 06:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/143368640384.shtml)
+- 2026-06-30 06:41 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/25388185.shtml)
+- 2026-06-30 07:01 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/1487132389.shtml)
+- 2026-06-30 06:38 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/314121436.shtml)
+- 2026-06-30 06:50 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/2129532.shtml)
+- 2026-06-30 06:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/24392684978.shtml)
+- 2026-06-30 06:45 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/0670926587.shtml)
+- 2026-06-30 06:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/6243324766.shtml)
+- 2026-06-30 06:37 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/651826.shtml)
+- 2026-06-30 07:03 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/5116194901.shtml)
+- 2026-06-30 06:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/84940.shtml)

@@ -1,60 +1,56 @@
-# 迪哲医药一季度实现收入2.53亿元，同比增长58%
+# 兰芝明洞全球旗舰店开业 主推AI定制化美妆服务
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-4月29日，迪哲医药披露2026年一季度业绩。报告显示，2026年一季度实现收入2.53亿元，同比增长58%。 迪哲医药创始人、董事长兼首席执行官张小林表示：“2026年一季度，迪哲医药取得多项突破性进展。公司营收持续增长，运营效率稳步提升，全球化影响力不断加强。展望未来，我们将坚持源头创新核心战略，加速核心管线的临床开发与商业化进程的同时，持续优化研发资源配置及经营效率，以高
+历经18个月的改造，兰芝于6月5日正式揭幕其位于首尔明洞的全球首家旗舰店“LANEIGE Seoul”。该门店集成了多项AI皮肤分析与定制化美妆技术，是品牌迄今为止规模最大的旗舰空间。 旗舰店的开业恰逢兰芝品牌加速全球扩张的时期。作为爱茉莉太平洋旗下的护肤品牌，兰芝近年来持续在美妆科技领域进行布局，将皮肤诊断与定制化制造技术相结合。此次开业的明洞旗舰店是这一战略的实体化呈现，旨
 
 ## 正文
 
-4月29日，迪哲医药披露2026年一季度业绩。
+历经18个月的改造，兰芝于6月5日正式揭幕其位于首尔明洞的全球首家旗舰店“LANEIGE Seoul”。
 
-报告显示，2026年一季度实现收入2.53亿元，同比增长58%。
+该门店集成了多项AI皮肤分析与定制化美妆技术，是品牌迄今为止规模最大的旗舰空间。
 
-迪哲医药创始人、董事长兼首席执行官张小林表示：“2026年一季度，迪哲医药取得多项突破性进展。
+旗舰店的开业恰逢兰芝品牌加速全球扩张的时期。
 
-公司营收持续增长，运营效率稳步提升，全球化影响力不断加强。
+作为爱茉莉太平洋旗下的护肤品牌，兰芝近年来持续在美妆科技领域进行布局，将皮肤诊断与定制化制造技术相结合。
 
-展望未来，我们将坚持源头创新核心战略，加速核心管线的临床开发与商业化进程的同时，持续优化研发资源配置及经营效率，以高质量经营成果回馈广大股东。
+此次开业的明洞旗舰店是这一战略的实体化呈现，旨在提供区别于传统产品销售的品牌体验。
 
-” 舒沃替尼和戈利昔替尼进入第二个医保年度，在医保扩容的促进下，两款产品营收增量逐季攀升。
+门店内部设有三大核心定制服务。
 
-2026年，公司将稳步提升两款产品的市场覆盖率和渗透率，实现销售收入的持续放量。
+“Bespoke Lip Sleeping Mask Swirl”服务允许顾客从10种香氛中选择两种，通过专用设备现场定制唇膜产品，最多可组合出45种搭配。
 
-在商业收入规模扩大的同时，迪哲医药实现商业化效率的优化，加速迈向全面盈利。
+“Bespoke Neo”服务基于品牌气垫产品和150种肤色数据，通过色彩分析和制造机器人在店内完成个性化气垫的制作。
 
 ## 相关推荐
 
-- 2026-06-30 06:38 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 06:45 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 06:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 06:48 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 06:42 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 06:31 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 06:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 06:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 06:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 06:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 06:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 06:44 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 06:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 06:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 06:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 06:37 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 06:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 07:05 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 06:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 06:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 06:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 06:48 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 06:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/06229924.shtml)
-- 2026-06-30 06:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/8589196.shtml)
-- 2026-06-30 06:36 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/9981832.shtml)
-- 2026-06-30 06:39 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/3697769.shtml)
-- 2026-06-30 06:56 - [毒液2](https://www.share.kurohicncr.top/Article/details/317904.shtml)
-- 2026-06-30 06:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2158472.shtml)
-- 2026-06-30 06:51 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/950908178.shtml)
-- 2026-06-30 06:51 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/7139578.shtml)
-- 2026-06-30 06:34 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/88296.shtml)
-- 2026-06-30 06:30 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/14564062.shtml)
-- 2026-06-30 06:36 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/28036255866.shtml)
-- 2026-06-30 06:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/28508.shtml)
-- 2026-06-30 06:42 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/945174838917.shtml)
-- 2026-06-30 06:48 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/442410451.shtml)
-- 2026-06-30 06:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/150397333652.shtml)
+- 2026-06-30 06:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/730285.shtml)
+- 2026-06-30 06:54 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/415769.shtml)
+- 2026-06-30 06:40 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/86967906.shtml)
+- 2026-06-30 07:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/00505490.shtml)
+- 2026-06-30 06:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/73139346892.shtml)
+- 2026-06-30 07:02 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/15545215600.shtml)
+- 2026-06-30 06:58 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/43880943.shtml)
+- 2026-06-30 07:04 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/6538340.shtml)
+- 2026-06-30 07:00 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/1425512321.shtml)
+- 2026-06-30 06:47 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/713584578.shtml)
+- 2026-06-30 06:48 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/429745503.shtml)
+- 2026-06-30 06:39 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/755944376.shtml)
+- 2026-06-30 06:47 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/25285183787.shtml)
+- 2026-06-30 06:58 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/952851173999.shtml)
+- 2026-06-30 07:04 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/648439300921.shtml)

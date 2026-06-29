@@ -1,61 +1,58 @@
-# FCC主席公开否认白宫施压启动迪士尼调查
+# 赵乐际会见老挝人民革命党中央总书记、国家主席通伦
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-美国联邦通信委员会主席布伦丹·卡尔周四公开否认，白宫曾就其对迪士尼旗下ABC电视台发起提前牌照审查一事施加任何压力。 卡尔在FCC的新闻发布会上表示：“这是我们在机构内部根据执法进展做出的决定。没有来自外界的压力，没有来自外界的建议，也没有来自外界要求采取行动的电话。”他指出，此举是基于对迪士尼多元、平等与包容政策的长期调查，该调查始于一年多前，涉及多次文件索取请求。FCC认为
+中新社北京6月5日电 中共中央政治局常委、全国人大常委会委员长赵乐际5日上午在北京会见老挝人民革命党中央总书记、国家主席通伦。 赵乐际表示，在习近平总书记、国家主席和通伦总书记、国家主席战略引领下，中老关系处于历史最好时期。中方愿同老方一道，落实好两党两国最高领导人战略共识，携手构建高标准、高质量、高水平的中老命运共同体。中国全国人大愿同老挝国会深化多层次多领域合作，就法治建设
 
 ## 正文
 
-美国联邦通信委员会主席布伦丹·卡尔周四公开否认，白宫曾就其对迪士尼旗下ABC电视台发起提前牌照审查一事施加任何压力。
+中新社北京6月5日电 中共中央政治局常委、全国人大常委会委员长赵乐际5日上午在北京会见老挝人民革命党中央总书记、国家主席通伦。
 
-卡尔在FCC的新闻发布会上表示：“这是我们在机构内部根据执法进展做出的决定。
+赵乐际表示，在习近平总书记、国家主席和通伦总书记、国家主席战略引领下，中老关系处于历史最好时期。
 
-没有来自外界的压力，没有来自外界的建议，也没有来自外界要求采取行动的电话。
+中方愿同老方一道，落实好两党两国最高领导人战略共识，携手构建高标准、高质量、高水平的中老命运共同体。
 
-”他指出，此举是基于对迪士尼多元、平等与包容政策的长期调查，该调查始于一年多前，涉及多次文件索取请求。
+中国全国人大愿同老挝国会深化多层次多领域合作，就法治建设、立法等开展交流，为各自国家现代化建设提供法治保障。
 
-FCC认为迪士尼在文件提交方面“不够坦诚，像是在和我们玩花招”。
+通伦表示，无论国际风云如何变幻，老中命运共同体建设将不断巩固发展。
 
-就在FCC采取行动的前一天，美国总统特朗普及第一夫人梅拉尼娅刚刚公开呼吁ABC解雇金梅尔。
+热烈祝贺中国共产党领导中国取得巨大成就，希望两国立法机构深化立法等领域交流，为促进老中关系作出贡献。
 
-上周，金梅尔在节目中将梅拉尼娅比作“准寡妇”，两天后白宫记者晚宴现场发生针对特朗普的暗杀未遂事件，特朗普夫妇认为金梅尔的言论煽动了暴力。
+雪克来提·扎克尔参加会见。
 
-FCC内部出现严重分歧。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 06:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 06:33 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 06:54 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 06:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 06:45 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 06:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 06:44 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 06:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 06:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 06:33 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 06:52 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 06:53 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 06:42 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 06:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 07:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 06:36 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 06:37 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 06:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 06:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:59 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 06:56 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 06:56 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 07:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [锐评T1零封KC](https://www.share.minike.top/Article/details/02926.shtml)
-- 2026-06-30 06:34 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/963968918.shtml)
-- 2026-06-30 06:41 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/13211017.shtml)
-- 2026-06-30 06:36 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/752558.shtml)
-- 2026-06-30 06:31 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/29513768.shtml)
-- 2026-06-30 06:59 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/260780397.shtml)
-- 2026-06-30 06:33 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/71742327.shtml)
-- 2026-06-30 06:55 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2015671924.shtml)
-- 2026-06-30 06:59 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/79176134787.shtml)
-- 2026-06-30 06:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/4083484843.shtml)
-- 2026-06-30 06:44 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/09134218.shtml)
-- 2026-06-30 06:50 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/65020.shtml)
-- 2026-06-30 06:41 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/0281351529.shtml)
-- 2026-06-30 06:58 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/625994327671.shtml)
-- 2026-06-30 06:32 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/77060591658.shtml)
+- 2026-06-30 07:03 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2027621.shtml)
+- 2026-06-30 06:46 - [一生一世](http://www.share.minike.top/Article/details/27937691.shtml)
+- 2026-06-30 06:59 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/85177911430.shtml)
+- 2026-06-30 07:03 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/52079679956.shtml)
+- 2026-06-30 06:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/92764.shtml)
+- 2026-06-30 06:49 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/924113433406.shtml)
+- 2026-06-30 06:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/821295.shtml)
+- 2026-06-30 06:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/5512810421.shtml)
+- 2026-06-30 07:02 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/5957258841.shtml)
+- 2026-06-30 06:57 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/593220.shtml)
+- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/938224827.shtml)
+- 2026-06-30 06:39 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/24531.shtml)
+- 2026-06-30 06:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/222641500.shtml)
+- 2026-06-30 06:36 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/66791080.shtml)
+- 2026-06-30 07:00 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/12452201.shtml)

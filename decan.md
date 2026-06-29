@@ -1,52 +1,57 @@
-# 美国官员：根据战争权力决议 美国与伊朗2月爆发的敌对行动已“终止”
+# 上海举办港澳代表人士培训班 赋能沪港澳深度融合
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-特朗普政府一名高级官员周四晚间表示，根据战争权力决议（War Powers Resolution），美国与伊朗自2月以来的敌对行动已“终止”。 “双方于4月7日（周二）达成了一项为期两周的停火协议，并且此后已延长了停火时间，”该官员表示。“自4月7日以来，美军与伊朗之间没有发生过交火。”责任编辑：王永生
+中新网上海6月5日电 (范宇斌)近日，由上海市委统战部、上海行政学院主办的第6期港澳代表人士培训班举行，32名港澳学员参训。本次培训班设置理论学习、现场教学、交流研讨三大教学模块，搭建学习交流平台，助力港澳学员了解上海发展布局、找准沪港澳融合切入点，推动港澳资源优势对接国家及上海发展战略。本次培训班课程设置紧扣国家与上海发展大局，兼顾政策理论深度与一线实践广度。授课内容锚定上海
 
 ## 正文
 
-特朗普政府一名高级官员周四晚间表示，根据战争权力决议（War Powers Resolution），美国与伊朗自2月以来的敌对行动已“终止”。
+中新网上海6月5日电 (范宇斌)近日，由上海市委统战部、上海行政学院主办的第6期港澳代表人士培训班举行，32名港澳学员参训。
 
-“双方于4月7日（周二）达成了一项为期两周的停火协议，并且此后已延长了停火时间，”该官员表示。
+本次培训班设置理论学习、现场教学、交流研讨三大教学模块，搭建学习交流平台，助力港澳学员了解上海发展布局、找准沪港澳融合切入点，推动港澳资源优势对接国家及上海发展战略。
 
-“自4月7日以来，美军与伊朗之间没有发生过交火。
+本次培训班课程设置紧扣国家与上海发展大局，兼顾政策理论深度与一线实践广度。
 
-”责任编辑：王永生
+授课内容锚定上海“十五五”规划整体部署，围绕“五个中心”深化建设、新质生产力培育、高水平对外开放、民生提质等关键任务展开系统解读，并立足港澳治理实际，夯实学员政策理论根基。
+
+在现场教学环节，学员走进香港科技大学上海中心北杨基地，调研沪港高校科创成果转化、校企联合育才的落地模式；前往徐汇区漕河泾街道党群服务中心及社区便民配套场所，了解上海精细化基层治理实践；到访上海市华侨事务中心、上海香港联会与上海澳门联谊会联合办公地点，了解上海面向港澳同胞、海外侨胞的普惠服务体系。
+
+学员还探访虹桥国际中央商务区、虹桥品荟、虹桥长三角低空经济展贸中心、张江机器人谷等，观摩上海“五个中心”建设落地成效，挖掘港澳深度融入上海产业发展的合作契机。
+
+在交流研讨环节，学员们围绕“立足‘十五五’规划战略布局，发挥港澳独特优势，主动对接国家发展战略”“港澳爱国同乡社团建设”“推动港澳青年融入国家发展大局”等主题，碰撞合作思路、凝聚发展共识。
+
+学员陈怡立足两地产业协同提出构想，在“十五五”规划指引下，香港除传统“超级联系人”定位外，有望升级为嵌入内地产业链、科创链、资本链的“超级合伙人”“超级增值人”，可从科创落地、金融与专业服务互通、制度民生对接、文旅消费升级四大方向发力，依托自身特色助力内地高水平对外开放，实现本地产业多元化转型升级。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 06:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 06:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 06:33 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 06:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 06:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 06:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 06:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 06:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 06:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 06:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 06:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 06:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 06:58 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 07:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 06:59 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 06:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 07:04 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 06:56 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 07:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 06:52 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 06:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 06:38 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/871816450388.shtml)
-- 2026-06-30 06:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/555902.shtml)
-- 2026-06-30 06:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/7015688.shtml)
-- 2026-06-30 06:37 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/33210596769.shtml)
-- 2026-06-30 06:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/878543790.shtml)
-- 2026-06-30 06:40 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/18339.shtml)
-- 2026-06-30 06:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/8652311.shtml)
-- 2026-06-30 06:54 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/70508568751.shtml)
-- 2026-06-30 06:31 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/138673820.shtml)
-- 2026-06-30 06:54 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/01756415994.shtml)
-- 2026-06-30 06:46 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/131706671664.shtml)
-- 2026-06-30 06:42 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/501306244.shtml)
-- 2026-06-30 06:48 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/34363956.shtml)
-- 2026-06-30 06:33 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/99112535218.shtml)
-- 2026-06-30 06:47 - [扬名立万](https://www.share.kurohicncr.top/Article/details/441152006881.shtml)
+- 2026-06-30 06:40 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/08611.shtml)
+- 2026-06-30 06:59 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/889246.shtml)
+- 2026-06-30 06:52 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/70603564584.shtml)
+- 2026-06-30 06:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/830804571148.shtml)
+- 2026-06-30 07:04 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/87319.shtml)
+- 2026-06-30 06:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/73080.shtml)
+- 2026-06-30 06:51 - [请回答王牌2019](http://www.blog.minike.top/Article/details/79570.shtml)
+- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/123911.shtml)
+- 2026-06-30 06:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/1593949.shtml)
+- 2026-06-30 06:58 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/216226057.shtml)
+- 2026-06-30 07:05 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/62872505143.shtml)
+- 2026-06-30 06:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/901659.shtml)
+- 2026-06-30 07:03 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/037171.shtml)
+- 2026-06-30 06:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/277452544328.shtml)
+- 2026-06-30 06:44 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/65311.shtml)

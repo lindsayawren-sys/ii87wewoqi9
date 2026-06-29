@@ -1,60 +1,58 @@
-# 巴西Wilson Sons测试海上无人机配送，提升效率并降低排放
+# 全球规模最大海上换流站“海风之心”将开展海上安装作业
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-巴西海上物流与港口运营商Wilson Sons已开始在瓜纳巴拉湾测试无人机配送服务，用于海上物流作业，旨在提高效率并减少排放。 该公司正在为其平台供应船执行首次无人机递送和收集文件的作业。自4月6日起，试运行从其位于里约的海上支持基地展开。用于测试的无人机由Speedbird Aero公司运营，目前处于概念验证阶段，以评估其技术可行性。 Wilson Sons表示，已获得巴西国
+历经一千多海里海上运输后，全球规模最大海上换流站——“海风之心”抵达广东阳江青洲海上风电场安装海域，今天将开展海上浮托安装作业。 记者在广东阳江青洲海域看到，搭载“海风之心”的大型半潜船“祥泰口”在经历一周的航行后，已到达预定的海上安装位置附近，“海风之心”将安装在导管架上，在海上安家落户。 “海风之心”是全球首个±500千伏/2000兆瓦柔性直流海上换流站，平面面积接近一个标
 
 ## 正文
 
-巴西海上物流与港口运营商Wilson Sons已开始在瓜纳巴拉湾测试无人机配送服务，用于海上物流作业，旨在提高效率并减少排放。
+历经一千多海里海上运输后，全球规模最大海上换流站——“海风之心”抵达广东阳江青洲海上风电场安装海域，今天将开展海上浮托安装作业。
 
-该公司正在为其平台供应船执行首次无人机递送和收集文件的作业。
+记者在广东阳江青洲海域看到，搭载“海风之心”的大型半潜船“祥泰口”在经历一周的航行后，已到达预定的海上安装位置附近，“海风之心”将安装在导管架上，在海上安家落户。
 
-自4月6日起，试运行从其位于里约的海上支持基地展开。
+“海风之心”是全球首个±500千伏/2000兆瓦柔性直流海上换流站，平面面积接近一个标准足球场，高度约等于15层楼，重达2.5万吨。
 
-用于测试的无人机由Speedbird Aero公司运营，目前处于概念验证阶段，以评估其技术可行性。
+由于重量远超国内船机吊装能力极限，将采用国际先进的整体浮托安装工艺进行作业。
 
-Wilson Sons表示，已获得巴西国家民航局和空域管制部等主管部门的所有必要批准。
+三峡集团广东分公司阳江公司海上风电项目负责人 黄勇：海上浮托借助潮汐变化、船舶调载、高精度定位系统，在海上完成毫米级精度安装。
 
-这些无人机可运送重量不超过5公斤的轻量物品，在约8公里的距离上，预计递送时间仅为9分钟。
+现在的海况风平浪静，非常符合海上浮托的条件，后续我们将持续关注海上的风、涌和潮汐的变化，“祥泰口”将托着“海风之心”缓缓进入导管架进行浮托安装。
 
-Wilson Sons船务代理公司运营经理表示：“Wilson Sons使用递送无人机是港口和物流行业的一个里程碑，它使运营更加安全和高效，从而通过创新和新技术支持海上能源行业的脱碳和巴西的可持续发展。
+“海风之心”建成后，三峡阳江青洲五期、七期海上风电场163台风机产生的电能将在这里完成汇集、升压和交流转直流处理，通过海底电缆输送至陆地电网，每年可输送约60亿度绿电。
 
-” Wilson Sons海上支持基地运营总经理补充道：“这项技术提高了海上作业的效率，并直接有助于实现可持续发展目标，强化了我们支持合作伙伴减少温室气体排放的角色。
+(央视新闻客户端 总台央视记者 张伟 张宁馨)
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 06:37 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 06:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 06:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 06:50 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:51 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 06:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 06:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 06:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 06:31 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 06:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 06:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 06:32 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 06:58 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 06:53 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 06:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 06:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 06:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 06:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 07:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 06:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:54 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 06:57 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 06:57 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/9763120255.shtml)
-- 2026-06-30 06:42 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/8066387.shtml)
-- 2026-06-30 06:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/825891.shtml)
-- 2026-06-30 06:45 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/991201.shtml)
-- 2026-06-30 06:34 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/92050681.shtml)
-- 2026-06-30 06:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/243194962007.shtml)
-- 2026-06-30 06:47 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/66634.shtml)
-- 2026-06-30 06:57 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/305515982.shtml)
-- 2026-06-30 06:40 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/7373779.shtml)
-- 2026-06-30 06:46 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/721573105.shtml)
-- 2026-06-30 06:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8540050.shtml)
-- 2026-06-30 06:35 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/2076741486.shtml)
-- 2026-06-30 06:55 - [恋与深空 日服](https://www.blog.minike.top/Article/details/921195.shtml)
-- 2026-06-30 06:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/467319.shtml)
-- 2026-06-30 06:48 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/890829.shtml)
+- 2026-06-30 07:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/223316062349.shtml)
+- 2026-06-30 06:45 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/091938874.shtml)
+- 2026-06-30 06:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/97963959045.shtml)
+- 2026-06-30 06:44 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/400762168764.shtml)
+- 2026-06-30 06:44 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/88206287.shtml)
+- 2026-06-30 07:00 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6718481.shtml)
+- 2026-06-30 07:05 - [田中碧失误](http://www.blog.minike.top/Article/details/125073.shtml)
+- 2026-06-30 06:47 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/00828.shtml)
+- 2026-06-30 06:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/694429.shtml)
+- 2026-06-30 06:56 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/1303834.shtml)
+- 2026-06-30 06:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/02039.shtml)
+- 2026-06-30 06:43 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/89038469.shtml)
+- 2026-06-30 07:01 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/3517733.shtml)
+- 2026-06-30 06:55 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/012024807.shtml)
+- 2026-06-30 07:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/722058.shtml)

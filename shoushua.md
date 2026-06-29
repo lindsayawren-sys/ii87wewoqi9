@@ -1,42 +1,53 @@
-# 伊朗高级官员：将以“前所未有的军事行动”回应美“海盗行为”
+# 泰国寻求6月底前与美国达成贸易协议 目标关税为10%
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-新华社德黑兰4月29日电 伊朗新闻电视台29日援引一名高级安全官员的话说，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
+泰国正努力在6月底前与美国完成贸易谈判。 泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。 他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。责任编辑：于健 SF069
 
 ## 正文
 
-新华社德黑兰4月29日电 伊朗新闻电视台29日援引一名高级安全官员的话说，伊朗将很快以“前所未有的军事行动”回应美国“持续不断的海盗行为”。
+泰国正努力在6月底前与美国完成贸易谈判。
+
+泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。
+
+他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。
+
+政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 06:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 06:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 06:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 06:38 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 06:32 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 06:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 06:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 06:56 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 06:55 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 06:43 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 06:57 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 06:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 07:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 06:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 06:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 06:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 06:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 06:49 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 06:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 06:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 06:52 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 06:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/121668376576.shtml)
-- 2026-06-30 06:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/61923.shtml)
-- 2026-06-30 06:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/6669199270.shtml)
-- 2026-06-30 06:38 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/5767874148.shtml)
-- 2026-06-30 06:30 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/48656594026.shtml)
-- 2026-06-30 06:36 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/45384733.shtml)
-- 2026-06-30 06:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/54542938.shtml)
-- 2026-06-30 06:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/947795231.shtml)
-- 2026-06-30 06:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/47638.shtml)
-- 2026-06-30 06:58 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/45488731.shtml)
-- 2026-06-30 06:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/55719109385.shtml)
-- 2026-06-30 06:41 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/372506.shtml)
-- 2026-06-30 06:39 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/21398068.shtml)
-- 2026-06-30 06:30 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/4575753055.shtml)
-- 2026-06-30 06:49 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/7842469.shtml)
+- 2026-06-30 06:40 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/841966.shtml)
+- 2026-06-30 07:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/651999253778.shtml)
+- 2026-06-30 06:56 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/164382213813.shtml)
+- 2026-06-30 06:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/584952007.shtml)
+- 2026-06-30 06:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/9874687.shtml)
+- 2026-06-30 06:59 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/7508092359.shtml)
+- 2026-06-30 06:59 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/86159221266.shtml)
+- 2026-06-30 06:43 - [逃狱兄弟](https://www.blog.minike.top/Article/details/24460.shtml)
+- 2026-06-30 06:43 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/3608506860.shtml)
+- 2026-06-30 06:39 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/7537056017.shtml)
+- 2026-06-30 06:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/091047082817.shtml)
+- 2026-06-30 06:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/080561.shtml)
+- 2026-06-30 06:46 - [巴西绝杀](https://www.share.minike.top/Article/details/06779215.shtml)
+- 2026-06-30 06:42 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/5707897708.shtml)
+- 2026-06-30 06:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/729015652.shtml)

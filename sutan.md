@@ -1,56 +1,49 @@
-# 陕西通报7起违反中央八项规定精神问题
+# 两岸新媒体产业携手共探创新发展路径
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据中央纪委国家监委网站消息，五一将至，为持续释放从严执纪、一抓到底的强烈信号，充分发挥案件查办的警示震慑效应，日前，陕西省纪委监委对7起违反中央八项规定精神典型问题进行公开通报。具体如下：1.省政府驻广州办事处原主任唐利如违规收受礼品礼金、接受可能影响公正执行公务的宴请等问题。2009年至2025年，唐利如多次收受管理和服务对象所送礼品礼金，接受可能影响公正
+发布时间：2026年06月06日 14:48 来源：中国新闻网 大陆音乐人王搏、台湾自媒体人“历史哥”李易修、台湾青年影视演员葛兆恩，当这三位年轻的自媒体创作者相聚在一起，会碰撞出怎样的火花？6月5日，在上海举行的2026海峡两岸新媒体产业发展研讨会上，他们虽是初次见面，却像老朋友一样聊得热火朝天。 本次研讨会以“马到功成：AI无界，心相连”为主题，汇聚了两岸新媒体领域的领军人
 
 ## 正文
 
-中新网4月30日电 据中央纪委国家监委网站消息，五一将至，为持续释放从严执纪、一抓到底的强烈信号，充分发挥案件查办的警示震慑效应，日前，陕西省纪委监委对7起违反中央八项规定精神典型问题进行公开通报。
+发布时间：2026年06月06日 14:48 来源：中国新闻网 大陆音乐人王搏、台湾自媒体人“历史哥”李易修、台湾青年影视演员葛兆恩，当这三位年轻的自媒体创作者相聚在一起，会碰撞出怎样的火花？
 
-具体如下：1.省政府驻广州办事处原主任唐利如违规收受礼品礼金、接受可能影响公正执行公务的宴请等问题。
+6月5日，在上海举行的2026海峡两岸新媒体产业发展研讨会上，他们虽是初次见面，却像老朋友一样聊得热火朝天。
 
-2009年至2025年，唐利如多次收受管理和服务对象所送礼品礼金，接受可能影响公正执行公务的宴请，安排私营企业主支付其招待朋友的相关费用。
+本次研讨会以“马到功成：AI无界，心相连”为主题，汇聚了两岸新媒体领域的领军人物、专家学者及青年代表近200人，共同探讨新媒体产业的创新发展路径。
 
-唐利如还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
-
-2.陕西农业发展集团有限公司原党委书记、董事长韩霁昌政绩观错位、搞虚假政绩，接受可能影响公正执行公务的宴请，违规改变公务行程借机旅游，违规多占办公用房等问题。
-
-2015年至2024年，韩霁昌担任地建集团党委书记、董事长期间，为捞取个人政治资本，弄虚作假，追求“数字政绩”，造成不良影响。
-
-韩霁昌多次接受管理和服务对象安排的宴请，并饮用高档酒水；赴境外参加学术会议、考察项目过程中，擅自改变公务行程借机旅游，超标准乘坐公务舱、住豪华套房；长期违规多占办公用房。
-
-韩霁昌还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+(缪璐 娄瀚锟） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 06:35 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 06:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 06:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 06:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 06:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 06:40 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 06:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 06:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 06:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 06:30 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 06:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 06:58 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 06:53 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 07:02 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 06:54 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 07:03 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 06:52 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 06:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 06:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 06:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 07:03 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/753460575.shtml)
-- 2026-06-30 06:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/424605.shtml)
-- 2026-06-30 06:38 - [一生一世](https://www.share.kurohicncr.top/Article/details/3440949329.shtml)
-- 2026-06-30 06:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/34744403277.shtml)
-- 2026-06-30 06:43 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/6058939495.shtml)
-- 2026-06-30 06:46 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/4090866598.shtml)
-- 2026-06-30 06:34 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/450062.shtml)
-- 2026-06-30 06:35 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/42336707251.shtml)
-- 2026-06-30 06:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/0479919.shtml)
-- 2026-06-30 06:30 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/50028596998.shtml)
-- 2026-06-30 06:31 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/47422947.shtml)
-- 2026-06-30 06:45 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/206556501109.shtml)
-- 2026-06-30 06:34 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/93632806143.shtml)
-- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/543441.shtml)
-- 2026-06-30 06:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/80725.shtml)
+- 2026-06-30 06:42 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/387420.shtml)
+- 2026-06-30 06:40 - [扫黑风暴](https://www.blog.minike.top/Article/details/279203042143.shtml)
+- 2026-06-30 06:43 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/37891870.shtml)
+- 2026-06-30 06:47 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/762684101639.shtml)
+- 2026-06-30 06:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/66663731.shtml)
+- 2026-06-30 06:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/8425550723.shtml)
+- 2026-06-30 07:04 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/03858765752.shtml)
+- 2026-06-30 06:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/54657385201.shtml)
+- 2026-06-30 06:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/054799460.shtml)
+- 2026-06-30 07:03 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/02255509888.shtml)
+- 2026-06-30 07:03 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/71036037.shtml)
+- 2026-06-30 06:50 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/72856.shtml)
+- 2026-06-30 06:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/8918433975.shtml)
+- 2026-06-30 07:05 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/51640.shtml)
+- 2026-06-30 06:57 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/957113482648.shtml)

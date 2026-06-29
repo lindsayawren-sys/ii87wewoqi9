@@ -1,49 +1,57 @@
-# 四川省达州市政协原副主席王洪波被开除党籍
+# 劳尔·卡斯特罗出席古巴内政部庆祝活动
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据四川省纪委监委消息：日前，经四川省委批准，四川省纪委监委对达州市政协原副主席王洪波严重违纪违法问题进行了立案审查调查。 经查，王洪波丧失理想信念，背弃初心使命，对党不忠诚不老实，串供对抗组织审查；违背组织原则，在组织函询时不如实说明问题；廉洁底线失守，向管理和服务对象转嫁公务接待费用，利用职务上的影响为亲属谋取利益，长期违规收受礼金；把党和人民赋予的权力当
+据古巴国家电视台5日报道，古巴革命领袖劳尔·卡斯特罗当天在首都哈瓦那出席了古巴内政部的一项庆祝活动。这是自上月美国政府对他提起刑事诉讼以来，这位95岁的古巴政要首次公开亮相。 此前，美国特朗普政府指控曾担任古巴革命武装力量部部长的劳尔·卡斯特罗在1996年下令击落了由古巴流亡组织驾驶的飞机。古巴方面对此坚决反对，古方舆论普遍认为美方的指控是华盛顿加大对古巴政府施压和敌视政策的升
 
 ## 正文
 
-中新网4月29日电 据四川省纪委监委消息：日前，经四川省委批准，四川省纪委监委对达州市政协原副主席王洪波严重违纪违法问题进行了立案审查调查。
+据古巴国家电视台5日报道，古巴革命领袖劳尔·卡斯特罗当天在首都哈瓦那出席了古巴内政部的一项庆祝活动。
 
-经查，王洪波丧失理想信念，背弃初心使命，对党不忠诚不老实，串供对抗组织审查；违背组织原则，在组织函询时不如实说明问题；廉洁底线失守，向管理和服务对象转嫁公务接待费用，利用职务上的影响为亲属谋取利益，长期违规收受礼金；把党和人民赋予的权力当作谋取私利的工具，利用职务上的便利，为他人在项目承揽、工程款拨付等方面谋取利益，并非法收受巨额财物。
+这是自上月美国政府对他提起刑事诉讼以来，这位95岁的古巴政要首次公开亮相。
 
-王洪波严重违反党的政治纪律、组织纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+此前，美国特朗普政府指控曾担任古巴革命武装力量部部长的劳尔·卡斯特罗在1996年下令击落了由古巴流亡组织驾驶的飞机。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经四川省纪委常委会会议研究并报四川省委批准，决定给予王洪波开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物及孳息一并移送。
+古巴方面对此坚决反对，古方舆论普遍认为美方的指控是华盛顿加大对古巴政府施压和敌视政策的升级表现。
+
+劳尔·卡斯特罗生于1931年6月3日，本周三刚刚迎来95岁生日。
+
+他此前最后一次公开露面是在今年5月1日哈瓦那举行的国际劳动节庆祝活动上，随后美方宣布了对他的所谓“起诉”。
+
+而在今年更早时候，他曾于1月15日出席公开集会，悼念在美军抓捕委内瑞拉总统尼古拉斯·马杜罗行动中牺牲的32名古巴军人。
+
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 06:33 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 06:36 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 06:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:44 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 06:57 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 06:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 06:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 06:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 06:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:47 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 06:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 06:38 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 06:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 06:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 06:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 06:37 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 07:02 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 06:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 06:45 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 06:46 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/338573.shtml)
-- 2026-06-30 06:39 - [乔家的儿女](http://www.blog.minike.top/Article/details/97979559667.shtml)
-- 2026-06-30 06:57 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/568310742539.shtml)
-- 2026-06-30 06:52 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/1354568.shtml)
-- 2026-06-30 06:34 - [恋与深空 巧合](https://www.share.minike.top/Article/details/60852862.shtml)
-- 2026-06-30 06:36 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/953473540.shtml)
-- 2026-06-30 06:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/74308927.shtml)
-- 2026-06-30 06:34 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/90635655.shtml)
-- 2026-06-30 06:54 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/353166570.shtml)
-- 2026-06-30 06:40 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/8341582402.shtml)
-- 2026-06-30 06:38 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3925565465.shtml)
-- 2026-06-30 06:51 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/420413.shtml)
-- 2026-06-30 06:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/768397.shtml)
-- 2026-06-30 06:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/54190828.shtml)
-- 2026-06-30 06:38 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/6420271362.shtml)
+- 2026-06-30 06:57 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/590493144.shtml)
+- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/624837.shtml)
+- 2026-06-30 06:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/72077273058.shtml)
+- 2026-06-30 06:45 - [三星投资计划](https://www.share.minike.top/Article/details/4356207.shtml)
+- 2026-06-30 07:00 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/6809387.shtml)
+- 2026-06-30 06:39 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/897951063.shtml)
+- 2026-06-30 06:59 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/51583237123.shtml)
+- 2026-06-30 06:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/89103663.shtml)
+- 2026-06-30 06:55 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/095080958.shtml)
+- 2026-06-30 06:49 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/282157600.shtml)
+- 2026-06-30 06:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/409192193400.shtml)
+- 2026-06-30 06:54 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/571701895.shtml)
+- 2026-06-30 06:50 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/9013773.shtml)
+- 2026-06-30 07:05 - [金刚川](http://www.blog.minike.top/Article/details/042364746.shtml)
+- 2026-06-30 06:59 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/94742455.shtml)

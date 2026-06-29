@@ -1,60 +1,43 @@
-# 外交部领事保护中心提醒“五一”假期出境中国公民加强安全防范
+# 受能源价格上涨拖累 欧元区经济出现萎缩
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。 一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，
+发布时间：2026年06月06日 13:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网4月29日电 据领事直通车微信公众号消息，“五一”假期将至，外交部领事保护中心提醒出境中国公民树牢安全意识，防范各类风险，平安顺利出行。
-
-一、了解海外安全形势 提前通过中国领事服务网、“领事直通车”新媒体平台、中国驻外使领馆网站等渠道，了解目的地风险提示信息、涉外国人管理法规、入出境要求等，特别注意关于禁止、限制携带物品、药品、现金等事项要求，事先确认护照、签证等有效期，留存重要旅行证件复印件。
-
-避免前往安全风险高、社会治安不靖以及近期发生过恐袭、骚乱或大规模游行、示威的国家和地区。
-
-当前，中东地区军事冲突延宕，伊朗安全形势仍然复杂严峻。
-
-再次提醒中国公民暂勿前往伊朗，仍在当地中国公民坚持底线思维，加强安全防范，避免靠近军事等敏感设施，尽快转移至安全地区。
-
-二、强化安全风险意识增强自身“海外安全第一责任人”意识，提升安全风险防范应对能力，及时配置海外出行所需保险。
-
-遵守当地法律法规，尊重当地宗教信仰和风俗习惯，文明参观游览，避免前往未开发、缺乏安全保障、有禁令标识区域。
-
-提前了解并严格遵照当地拍照、录像或使用无人机规定要求，不在敏感区域拍摄“打卡”。
+发布时间：2026年06月06日 13:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 06:31 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:31 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 06:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 06:31 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 06:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 06:56 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 06:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 06:39 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 06:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 06:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 06:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 06:39 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 07:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 06:50 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 06:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 06:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 06:46 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 06:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 06:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 06:59 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 06:51 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 07:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 06:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/01810.shtml)
-- 2026-06-30 06:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/1834118343.shtml)
-- 2026-06-30 06:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/303749133.shtml)
-- 2026-06-30 06:40 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/56831155414.shtml)
-- 2026-06-30 06:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/43920068776.shtml)
-- 2026-06-30 06:35 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/877273554235.shtml)
-- 2026-06-30 06:31 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/902475.shtml)
-- 2026-06-30 06:49 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/6293997.shtml)
-- 2026-06-30 06:57 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/255956217011.shtml)
-- 2026-06-30 06:45 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/127198.shtml)
-- 2026-06-30 06:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/17639280229.shtml)
-- 2026-06-30 06:35 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/160366847.shtml)
-- 2026-06-30 06:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/283151360.shtml)
-- 2026-06-30 06:37 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/888053922953.shtml)
-- 2026-06-30 06:45 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/438093157394.shtml)
+- 2026-06-30 06:43 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/7464802.shtml)
+- 2026-06-30 06:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/420968500.shtml)
+- 2026-06-30 06:41 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/39850.shtml)
+- 2026-06-30 06:38 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/81424677.shtml)
+- 2026-06-30 06:41 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/13545879.shtml)
+- 2026-06-30 07:03 - [千香](https://www.blog.minike.top/Article/details/667620913007.shtml)
+- 2026-06-30 06:41 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/867328224.shtml)
+- 2026-06-30 07:04 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/3303759325.shtml)
+- 2026-06-30 06:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/909540055382.shtml)
+- 2026-06-30 06:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/3599940507.shtml)
+- 2026-06-30 06:42 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/939205381.shtml)
+- 2026-06-30 06:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/36418.shtml)
+- 2026-06-30 06:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/50961.shtml)
+- 2026-06-30 06:49 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/612954.shtml)
+- 2026-06-30 06:42 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/7624794988.shtml)

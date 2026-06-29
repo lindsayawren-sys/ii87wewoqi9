@@ -1,59 +1,45 @@
-# 特朗普再批ABC，称应立即解雇主持人吉米·坎摩尔
+# 金斯瑞生物科技授出合共1473.67万个限制性股份单位
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普再次向ABC及迪士尼施压，要求立即解雇深夜脱口秀主持人吉米·坎摩尔，并称此事“最好尽快解决”。 特朗普在Truth Social上发文称：“ABC假新闻网络什么时候才能解雇那个一点都不好笑的吉米·坎摩尔？他无能地主持着电视上收视率最低的节目之一。人们都很愤怒。这件事最好尽快解决！” 这场风波的导火索是坎摩尔在4月23日节目中的一段调侃。当时他模仿主持白宫记
+金斯瑞生物科技（01548）发布公告，于2026年6月4日，本公司向4名董事、本公司轮值首席执行官、若干雇员及一名服务提供者授出合共1473.67万个限制性股份单位，惟待接纳及须遵守2021年限制性股份单位计划的条款及条件。责任编辑：卢昱君
 
 ## 正文
 
-美国总统唐纳德·特朗普再次向ABC及迪士尼施压，要求立即解雇深夜脱口秀主持人吉米·坎摩尔，并称此事“最好尽快解决”。
+金斯瑞生物科技（01548）发布公告，于2026年6月4日，本公司向4名董事、本公司轮值首席执行官、若干雇员及一名服务提供者授出合共1473.67万个限制性股份单位，惟待接纳及须遵守2021年限制性股份单位计划的条款及条件。
 
-特朗普在Truth Social上发文称：“ABC假新闻网络什么时候才能解雇那个一点都不好笑的吉米·坎摩尔？
-
-他无能地主持着电视上收视率最低的节目之一。
-
-人们都很愤怒。
-
-这件事最好尽快解决！
-
-” 这场风波的导火索是坎摩尔在4月23日节目中的一段调侃。
-
-当时他模仿主持白宫记者协会晚宴，对着镜头向梅拉尼娅·特朗普说：“特朗普夫人，你散发着像一位‘准寡妇’般的光彩。
-
-”该节目播出两天后，白宫记者协会晚宴现场发生枪击事件，一名特勤人员受伤。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:32 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 06:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 06:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 06:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 06:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 06:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 06:52 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 06:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 06:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 06:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 06:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 07:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 06:54 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 06:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 06:38 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 06:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 06:37 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 06:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 06:58 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:52 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 06:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 07:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/496415479277.shtml)
-- 2026-06-30 06:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/399154137805.shtml)
-- 2026-06-30 06:40 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/73616539.shtml)
-- 2026-06-30 06:32 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/735313354069.shtml)
-- 2026-06-30 06:45 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/55909810.shtml)
-- 2026-06-30 06:37 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/39470.shtml)
-- 2026-06-30 06:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/9356403.shtml)
-- 2026-06-30 06:41 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/640509869557.shtml)
-- 2026-06-30 06:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/9858727237.shtml)
-- 2026-06-30 06:55 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/23312.shtml)
-- 2026-06-30 06:30 - [小娘惹](http://www.share.minike.top/Article/details/420202790.shtml)
-- 2026-06-30 06:35 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/744672.shtml)
-- 2026-06-30 06:50 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/49850927.shtml)
-- 2026-06-30 06:33 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/780009136.shtml)
-- 2026-06-30 06:55 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/216503942.shtml)
+- 2026-06-30 06:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/0364548.shtml)
+- 2026-06-30 07:04 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/547572766.shtml)
+- 2026-06-30 06:52 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/2004932343.shtml)
+- 2026-06-30 07:00 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/170682719.shtml)
+- 2026-06-30 06:53 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/777178.shtml)
+- 2026-06-30 06:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/131535223.shtml)
+- 2026-06-30 06:59 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/65526.shtml)
+- 2026-06-30 07:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/23472121.shtml)
+- 2026-06-30 07:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/11509.shtml)
+- 2026-06-30 07:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/18952043578.shtml)
+- 2026-06-30 06:41 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/194961413.shtml)
+- 2026-06-30 07:02 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/42927897.shtml)
+- 2026-06-30 06:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/41990491894.shtml)
+- 2026-06-30 06:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/78441455015.shtml)
+- 2026-06-30 06:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/44673636.shtml)

@@ -1,56 +1,57 @@
-# 长春法院2025年受理劳动人事争议案件超万件
+# 深圳楼市新政满月，外地客户热捧下5月成交再破万套
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网长春4月30日电 (谭伟旗 金乔)4月30日，长春市中级人民法院召开劳动者权益保护新闻发布会，通报全市法院劳动争议审判工作成效。 长春市中级人民法院审判委员会专职委员姚建新介绍，2025年，长春法院共受理劳动人事争议案件10002件，依法高效化解一批重大劳动争议纠纷，有效平衡劳资双方权益。 随着经济业态迭代更新，传统用工与平台新业态用工交织叠加，当地劳动争议呈现类型多元化
+深圳二手住宅在售库存降至近1年的最低水平。 “‘429’新政之后，前来咨询看房的外地客户明显变多了。”位于深圳福田区的中原地产香蜜湖水榭花都店店董杨志雄告诉第一财经，这些客户大多为企业主，来自广州、北京、上海和周边城市，“客户看好深圳的竞争力，在新政放松了核心区限购政策之后，他们也觉得有必要在深圳进行一些资产配置。” 4月底深圳出台的新政定向针对福田区、南山区、宝安新安街道的购
 
 ## 正文
 
-中新网长春4月30日电 (谭伟旗 金乔)4月30日，长春市中级人民法院召开劳动者权益保护新闻发布会，通报全市法院劳动争议审判工作成效。
+深圳二手住宅在售库存降至近1年的最低水平。
 
-长春市中级人民法院审判委员会专职委员姚建新介绍，2025年，长春法院共受理劳动人事争议案件10002件，依法高效化解一批重大劳动争议纠纷，有效平衡劳资双方权益。
+“‘429’新政之后，前来咨询看房的外地客户明显变多了。
 
-随着经济业态迭代更新，传统用工与平台新业态用工交织叠加，当地劳动争议呈现类型多元化、诉求复杂化、纠纷群体化新特点。
+”位于深圳福田区的中原地产香蜜湖水榭花都店店董杨志雄告诉第一财经，这些客户大多为企业主，来自广州、北京、上海和周边城市，“客户看好深圳的竞争力，在新政放松了核心区限购政策之后，他们也觉得有必要在深圳进行一些资产配置。
 
-对此，长春法院聚焦劳动司法领域重点难点，公正高效审理各类案件，兼顾劳动者合法权益与企业生存发展。
+” 4月底深圳出台的新政定向针对福田区、南山区、宝安新安街道的购房资格进行了松绑，凭居住证即可在前述区域购房，符合要求的购房者则可加购一套。
 
-姚建新表示，长春法院一方面坚决守护劳动者劳动报酬、社会保险、工伤赔偿、休息休假等核心权益，依法整治违法用工、恶意欠薪、违规辞退等行为；另一方面坚持善意文明司法，引导企业规范用工、完善制度、合规经营，助力企业健康发展，营造规范有序、公平公正、和谐稳定的用工环境。
+政策立竿见影，“五一”小长假期间，深圳本地中介机构乐有家就接待了来自浙江、沈阳、长沙、香港等地的客户，其中便有客户在办好居住证后直接线上签约。
 
-针对农民工欠薪问题，长春法院开展专项整治，通过“快立、快审、快调、快执”机制高效追回欠薪。
+新政影响之下，作为直接受益的核心区，福田区和南山区的成交保持活跃，成交量在5月份明显向好。
 
-同时，法院强化机制创新，推动劳动仲裁与诉讼建立常态化沟通，统一裁判尺度，畅通维权渠道；聚焦新业态用工，在商圈设立新业态案件巡回审判点，及时回应群众司法需求；广泛开展普法宣传，引导用人单位规范用工，提升劳动者依法维权意识。
+乐有家研究中心数据显示，5月份，福田区一手住宅网签环比上涨52%，二手环比上涨12%，合计网签1068套，环比增长约14%；南山区一手住宅网签环比上涨45%，二手环比上涨24%，合计网签1319套，环比上涨24%。
 
-姚建新说，依法维护劳动者合法权益，是人民法院践行司法为民宗旨、履行审判职能的重要使命，也是稳定就业、优化营商环境、化解基层矛盾、增进民生福祉的关键举措。
+由于两大核心区是深圳传统的改善聚集地，新政大幅降低了入场门槛，有效推动改善需求集中释放，进一步推高了区域内高端房源成交占比。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 06:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 06:52 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 06:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 06:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 06:42 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 06:42 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:39 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 06:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 06:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 06:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 06:53 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 06:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 06:38 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 06:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 07:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 06:51 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 06:56 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 06:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 06:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 06:49 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/92988133.shtml)
-- 2026-06-30 06:40 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/08933490.shtml)
-- 2026-06-30 06:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/952012.shtml)
-- 2026-06-30 06:35 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/1728318100.shtml)
-- 2026-06-30 06:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/50087214.shtml)
-- 2026-06-30 06:54 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/7594807.shtml)
-- 2026-06-30 06:40 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/26341.shtml)
-- 2026-06-30 06:45 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/16590.shtml)
-- 2026-06-30 06:35 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/574285.shtml)
-- 2026-06-30 06:51 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/24817.shtml)
-- 2026-06-30 06:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/6918118.shtml)
-- 2026-06-30 06:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/22748858882.shtml)
-- 2026-06-30 06:37 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/726994564.shtml)
-- 2026-06-30 06:47 - [金牌调解](http://www.share.minike.top/Article/details/330836326307.shtml)
-- 2026-06-30 06:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/6562666494.shtml)
+- 2026-06-30 06:55 - [天道](https://www.blog.kurohicncr.top/Article/details/50433109.shtml)
+- 2026-06-30 06:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/237148132.shtml)
+- 2026-06-30 06:39 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/4681695.shtml)
+- 2026-06-30 06:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/458228710.shtml)
+- 2026-06-30 06:47 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/195216.shtml)
+- 2026-06-30 07:01 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/22818689183.shtml)
+- 2026-06-30 07:01 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/18133833.shtml)
+- 2026-06-30 06:49 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/208216974716.shtml)
+- 2026-06-30 06:58 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/550064989031.shtml)
+- 2026-06-30 06:38 - [青春环游记第三季](https://www.blog.minike.top/Article/details/949804598.shtml)
+- 2026-06-30 07:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/5126232.shtml)
+- 2026-06-30 06:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/92424327915.shtml)
+- 2026-06-30 06:52 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/97650260.shtml)
+- 2026-06-30 06:41 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/86667670952.shtml)
+- 2026-06-30 06:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/678146079.shtml)

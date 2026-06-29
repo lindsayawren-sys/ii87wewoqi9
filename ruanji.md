@@ -1,56 +1,58 @@
-# 科技型企业贷款增速明显 湖南提升科创金融服务水平
+# 日本5月外汇储备大幅下降
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网长沙4月29日电(向一鹏)中国人民银行湖南省分行29日召开新闻发布会透露，截至今年3月末，湖南科技型企业贷款增速20.7%，新发放科技型企业贷款利率2.48%，“专精特新”企业获贷率达87%。 去年8月，湖南出台关于做好湖南金融“五篇大文章”服务经济高质量发展的实施意见，提出推行科技金融“湘伴前行”计划，引导更多长期资本、耐心资本和优质资本支持科技创新，促进“科技—产业—
+中新社东京6月5日电 (记者 朱晨曦)日本财务省5日公布的数据显示，截至今年5月末，日本外汇储备约为1.31万亿美元，较4月末减少约771亿美元，降幅达5.6%，为有可比数据以来最大月度降幅。 数据显示，包括美国国债在内的证券持有量下降是日本外汇储备减少的主要原因。截至5月末，日本外汇储备中的证券资产约为9316.8亿美元，较4月末减少7.5%。 据日本《读卖新闻》报道，日本可
 
 ## 正文
 
-中新网长沙4月29日电(向一鹏)中国人民银行湖南省分行29日召开新闻发布会透露，截至今年3月末，湖南科技型企业贷款增速20.7%，新发放科技型企业贷款利率2.48%，“专精特新”企业获贷率达87%。
+中新社东京6月5日电 (记者 朱晨曦)日本财务省5日公布的数据显示，截至今年5月末，日本外汇储备约为1.31万亿美元，较4月末减少约771亿美元，降幅达5.6%，为有可比数据以来最大月度降幅。
 
-去年8月，湖南出台关于做好湖南金融“五篇大文章”服务经济高质量发展的实施意见，提出推行科技金融“湘伴前行”计划，引导更多长期资本、耐心资本和优质资本支持科技创新，促进“科技—产业—金融”良性循环。
+数据显示，包括美国国债在内的证券持有量下降是日本外汇储备减少的主要原因。
 
-目前，该省正多措并举提升科技创新金融服务水平，全省科技创新领域融资供给实现“量增、价降、面扩、质升”。
+截至5月末，日本外汇储备中的证券资产约为9316.8亿美元，较4月末减少7.5%。
 
-据了解，中国人民银行湖南省分行联合相关省直部门、市州政府举办专场政金企对接活动，组织创投基金、银行、保险、担保等金融机构深入市县、园区送产品、送服务，邀请企业现场路演、发布融资需求，有效搭建政金企对接合作平台，提升科技型企业金融服务质效。
+据日本《读卖新闻》报道，日本可能出售了美国国债等证券为4月28日至5月27日实施的汇市干预措施筹措资金。
 
-目前，已围绕常德合成生物、岳阳石化转型、益阳高端电子元器件举办三场对接活动。
+4月末，日元汇率一度触及1美元兑160.7日元的低位。
 
-金融机构与市州政府签订合作备忘录，意向支持金额超2500亿元。
+为遏制日元持续贬值，日本政府和中央银行在4月28日至5月27日期间实施总额11.73万亿日元(约合738亿美元)的汇市干预措施。
 
-开展科技金融“湘伴前行”计划试点，湖南推动试点金融机构围绕科技型企业不同成长阶段融资需求，创新推出差异化金融产品。
+这是日本在日元贬值阶段实施汇市干预规模的历史最高纪录。
 
-针对初创期企业，指导金融机构创新银企中长期合作模式，探索“贷款+外部直投”服务模式，累计发放相关贷款38.5亿元；针对成长期企业，推出人才贷系列产品，累计支持4812人(次)高层次人才创新创业及其所在企业发展，金额905亿元；针对成熟期企业，推动金融机构稳步发展并购贷款、银团贷款等业务，全省“专精特新”企业贷款余额保持较快增长。
+分析人士认为，日本外汇储备大幅下降既反映了日本政府干预外汇市场对外汇储备的消耗，也受到美国长期利率上升导致债券资产估值下滑的影响。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 06:42 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 06:37 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 06:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 06:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 06:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 06:55 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 06:36 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 06:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 06:39 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 06:57 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 06:56 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 06:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:45 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 06:40 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 06:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 07:04 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 06:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 06:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 06:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 07:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/18309.shtml)
-- 2026-06-30 06:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/807317028.shtml)
-- 2026-06-30 06:43 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/7995239.shtml)
-- 2026-06-30 06:38 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/744823795998.shtml)
-- 2026-06-30 06:45 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/660215190674.shtml)
-- 2026-06-30 06:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/275975140.shtml)
-- 2026-06-30 06:52 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/809667506.shtml)
-- 2026-06-30 06:50 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/791795.shtml)
-- 2026-06-30 06:48 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/4085859456.shtml)
-- 2026-06-30 06:44 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/7699543.shtml)
-- 2026-06-30 06:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/69523010.shtml)
-- 2026-06-30 06:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/58431588758.shtml)
-- 2026-06-30 06:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/96892024716.shtml)
-- 2026-06-30 06:57 - [逃狱兄弟](https://www.share.minike.top/Article/details/298175422.shtml)
-- 2026-06-30 06:55 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/141205820.shtml)
+- 2026-06-30 06:49 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/25968.shtml)
+- 2026-06-30 07:02 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/35723023.shtml)
+- 2026-06-30 06:51 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/18922.shtml)
+- 2026-06-30 06:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/7107206655.shtml)
+- 2026-06-30 06:44 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/4485498870.shtml)
+- 2026-06-30 06:54 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/6239480486.shtml)
+- 2026-06-30 07:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/99856.shtml)
+- 2026-06-30 06:40 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/13656185645.shtml)
+- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/64127360743.shtml)
+- 2026-06-30 06:57 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/825854.shtml)
+- 2026-06-30 06:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/07643194.shtml)
+- 2026-06-30 06:57 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/56073294465.shtml)
+- 2026-06-30 06:46 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/90121292342.shtml)
+- 2026-06-30 06:36 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/9573197.shtml)
+- 2026-06-30 06:36 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/39925539.shtml)

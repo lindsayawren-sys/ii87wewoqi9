@@ -1,56 +1,46 @@
-# 蒂森克虏伯有望在通力-蒂升电梯交易中进账40亿美元
+# 乌合麒麟邀您关注统战新语 一起画好同心圆
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-在芬兰通力电梯公司提出以294亿欧元收购蒂升电梯后，德国工业集团蒂森克虏伯有望从中获得高达40亿美元的巨额收益。蒂森克虏伯目前持有蒂升电梯16.2%的股份，分析师认为这笔交易的财务回报相当于其当前市值的近三分之二。 根据交易条款，通力将以现金加新股的方式完成收购。蒂升电梯的原股东将获得50亿欧元现金分配，按持股比例计算，蒂森克虏伯将从中获得约8.1亿欧元。此外，蒂森克虏伯预计还
+发布时间：2026年06月06日 19:54 来源：中国新闻网 乌合麒麟邀您关注统战新语，一起画好同心圆。 责任编辑：【王祎】
 
 ## 正文
 
-在芬兰通力电梯公司提出以294亿欧元收购蒂升电梯后，德国工业集团蒂森克虏伯有望从中获得高达40亿美元的巨额收益。
+发布时间：2026年06月06日 19:54 来源：中国新闻网 乌合麒麟邀您关注统战新语，一起画好同心圆。
 
-蒂森克虏伯目前持有蒂升电梯16.2%的股份，分析师认为这笔交易的财务回报相当于其当前市值的近三分之二。
-
-根据交易条款，通力将以现金加新股的方式完成收购。
-
-蒂升电梯的原股东将获得50亿欧元现金分配，按持股比例计算，蒂森克虏伯将从中获得约8.1亿欧元。
-
-此外，蒂森克虏伯预计还将获得价值约24.6亿欧元的新发行通力股票，从而持有合并后新公司约5.5%的股份。
-
-杰富瑞与摩根大通的分析师指出，加上其在蒂升电梯的账面价值，这笔意外之财对于正处于重大重组中的蒂森克虏伯无疑是重大利好。
-
-蒂森克虏伯股价周三盘中应声大涨逾11%，反映了投资者对此交易的高度认可。
-
-蒂森克虏伯在声明中确认，正积极研究该交易对其持有的蒂升电梯16.2%股权的影响。
+责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 06:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 06:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 06:56 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 06:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 06:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 06:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 06:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 06:46 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 06:50 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 06:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 07:03 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 06:45 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:49 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 06:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 06:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 06:43 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 06:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 06:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 06:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 06:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:32 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/492127680489.shtml)
-- 2026-06-30 06:58 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/988988.shtml)
-- 2026-06-30 06:30 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/34134943002.shtml)
-- 2026-06-30 06:48 - [世界杯](https://www.blog.minike.top/Article/details/657587050.shtml)
-- 2026-06-30 06:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/919475103724.shtml)
-- 2026-06-30 06:55 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/59247.shtml)
-- 2026-06-30 06:37 - [美人鱼](http://www.share.minike.top/Article/details/5258037965.shtml)
-- 2026-06-30 06:53 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/4489792.shtml)
-- 2026-06-30 06:41 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/638266534812.shtml)
-- 2026-06-30 06:49 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/80695439.shtml)
-- 2026-06-30 06:53 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/645145870839.shtml)
-- 2026-06-30 06:53 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/10560.shtml)
-- 2026-06-30 06:34 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/548157.shtml)
-- 2026-06-30 06:39 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/634165718505.shtml)
-- 2026-06-30 06:56 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/529919.shtml)
+- 2026-06-30 06:43 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/9241253.shtml)
+- 2026-06-30 07:05 - [毒液2](https://www.share.kurohicncr.top/Article/details/305358594.shtml)
+- 2026-06-30 06:42 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/5195431.shtml)
+- 2026-06-30 06:47 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/5656971.shtml)
+- 2026-06-30 06:41 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/03496747421.shtml)
+- 2026-06-30 06:51 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/66516.shtml)
+- 2026-06-30 06:45 - [爱很美味](https://www.share.minike.top/Article/details/15727264525.shtml)
+- 2026-06-30 06:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/46456504909.shtml)
+- 2026-06-30 06:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/26741091.shtml)
+- 2026-06-30 07:01 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/490788506.shtml)
+- 2026-06-30 06:44 - [世界杯](http://www.blog.kurohicncr.top/Article/details/793204.shtml)
+- 2026-06-30 07:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/24434549483.shtml)
+- 2026-06-30 06:57 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/528746.shtml)
+- 2026-06-30 06:52 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/57591316597.shtml)
+- 2026-06-30 06:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/801243.shtml)

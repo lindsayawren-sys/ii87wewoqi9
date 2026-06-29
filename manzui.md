@@ -1,56 +1,55 @@
-# 日本向投机客发出“最后警告”后日元应声走强 市场猜测干预已至
+# 美国银行：英伟达新一代芯片将推动潜在市场规模翻倍
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-在日本官员向投机客发出“最后警告”、要求停止抛售日元的数小时后，市场猜测日本已出手干预外汇市场，推动日元一度飙升3%，创近两年来最大盘中涨幅。 日本财务省官员未立即回应置评请求。不过，据报道，日本政府已入市干预，买入日元、卖出美元。 周四，日元一度触及1美元兑155.57日元，为2月底以来最强水平。此前，日本外汇事务负责人三村淳呼应了财务大臣片山皋月关于“采取大胆措施的时机正在
+英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。 分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观
 
 ## 正文
 
-在日本官员向投机客发出“最后警告”、要求停止抛售日元的数小时后，市场猜测日本已出手干预外汇市场，推动日元一度飙升3%，创近两年来最大盘中涨幅。
+英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。
 
-日本财务省官员未立即回应置评请求。
+该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。
 
-不过，据报道，日本政府已入市干预，买入日元、卖出美元。
+分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观。
 
-周四，日元一度触及1美元兑155.57日元，为2月底以来最强水平。
+他援引英伟达的预测称，每一代新系统都能显著扩大公司的可触达市场：从当前Blackwell Ultra的每吉瓦约400亿美元，到Vera Rubin和Rubin Ultra的每吉瓦600至800亿美元，再到Feynman的每吉瓦约1000亿美元。
 
-此前，日本外汇事务负责人三村淳呼应了财务大臣片山皋月关于“采取大胆措施的时机正在临近”的警告。
+阿里亚指出，尽管具体数字可能存在差异，但英伟达每一代都在覆盖AI系统中更多的环节。
 
-这一剧烈波动引发交易员和策略师猜测，当局已入市支撑日元。
+阿里亚还将英伟达称为“多元化之王”，这得益于其同时为超大规模企业以及日益增长的AI云、工业和企业公司提供服务的混合业务结构。
 
-此前该货币一直徘徊在四十年来最低水平附近。
-
-日元兑美元的盘中涨幅为自2024年8月以来最大。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 06:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 06:43 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 06:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 06:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 06:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 06:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 06:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 06:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 06:33 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 06:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 06:44 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 06:38 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 06:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 06:42 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 06:38 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 06:40 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 06:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 07:02 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 06:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 06:40 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/33822274.shtml)
-- 2026-06-30 06:38 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/6239895384.shtml)
-- 2026-06-30 06:49 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/22222601353.shtml)
-- 2026-06-30 06:53 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/08050.shtml)
-- 2026-06-30 06:59 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/2244148872.shtml)
-- 2026-06-30 06:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/121454261.shtml)
-- 2026-06-30 06:30 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/66475.shtml)
-- 2026-06-30 06:30 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/256383.shtml)
-- 2026-06-30 06:48 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/50291279356.shtml)
-- 2026-06-30 06:32 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/0452634.shtml)
-- 2026-06-30 06:55 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/7698582.shtml)
-- 2026-06-30 06:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/601129.shtml)
-- 2026-06-30 06:43 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/04004112.shtml)
-- 2026-06-30 06:40 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/81069.shtml)
-- 2026-06-30 06:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/74477608128.shtml)
+- 2026-06-30 06:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/542866804152.shtml)
+- 2026-06-30 07:00 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/8316225323.shtml)
+- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/504533.shtml)
+- 2026-06-30 06:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/74055.shtml)
+- 2026-06-30 06:44 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/05032840089.shtml)
+- 2026-06-30 06:38 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/454401.shtml)
+- 2026-06-30 06:52 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/1795541.shtml)
+- 2026-06-30 07:04 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/892158.shtml)
+- 2026-06-30 06:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/597863890143.shtml)
+- 2026-06-30 06:51 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/013203.shtml)
+- 2026-06-30 06:47 - [毒液2](https://www.share.minike.top/Article/details/91368.shtml)
+- 2026-06-30 06:49 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/36775467848.shtml)
+- 2026-06-30 06:45 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/77208105.shtml)
+- 2026-06-30 07:01 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/660897890.shtml)
+- 2026-06-30 06:51 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/62601.shtml)

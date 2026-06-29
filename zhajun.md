@@ -1,60 +1,57 @@
-# 楼市政策接力！天津出台促进住房消费“十一条”
+# 建设银行：提名曹利群、唐炜担任非执行董事，提名杨强担任独立董事
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-赶在“五一”小长假来临之际，天津加入新一轮楼市政策潮。 4月30日，天津市住房城乡建设委等11部门联合印发《关于优化本市房地产市场供给促进住房消费的通知》，涵盖存量盘活、扩大住房消费、优化供给和服务等11条内容。 从政策方向看，盘活存量商品房、存量土地，是当前楼市政策的重点内容，天津也提出相关支持政策；在促进住房消费方面，主要通过发放购房补贴、税收优惠等促进需求释放。 盘活存量
+6月5日金融一线消息，建设银行昨日晚间披露董事会会议决议公告，公司以书面审议形式召开董事会并全票通过三项董事提名议案，提名曹利群、唐炜出任非执行董事，提名杨强担任独立董事，上述提名后续均需提交股东大会履行选举程序。 简历显示，曹利群，1971年5月出生。2020年进入中央汇金投资有限责任公司工作。自2020年1月起任中国工商银行股份有限公司非执行董事。2010年10月至2020
 
 ## 正文
 
-赶在“五一”小长假来临之际，天津加入新一轮楼市政策潮。
+6月5日金融一线消息，建设银行昨日晚间披露董事会会议决议公告，公司以书面审议形式召开董事会并全票通过三项董事提名议案，提名曹利群、唐炜出任非执行董事，提名杨强担任独立董事，上述提名后续均需提交股东大会履行选举程序。
 
-4月30日，天津市住房城乡建设委等11部门联合印发《关于优化本市房地产市场供给促进住房消费的通知》，涵盖存量盘活、扩大住房消费、优化供给和服务等11条内容。
+简历显示，曹利群，1971年5月出生。
 
-从政策方向看，盘活存量商品房、存量土地，是当前楼市政策的重点内容，天津也提出相关支持政策；在促进住房消费方面，主要通过发放购房补贴、税收优惠等促进需求释放。
+2020年进入中央汇金投资有限责任公司工作。
 
-盘活存量房、存量土地 新政首要提及“盘活存量商品房”，各区要因地制宜用足用好国家财政、金融等政策工具，优先收购符合条件的存量商品房用作配租型保障性住房、配售型保障性住房、安置房、宿舍、人才房等。
+自2020年1月起任中国工商银行股份有限公司非执行董事。
 
-鼓励住房租赁企业等经营主体多渠道筹集资金，收购存量商品房用作租赁住房。
+2010年10月至2020年3月先后任国家外汇管理局管理检查司副司长，综合司（政策法规司）巡视员、二级巡视员，其中2018年8月至2019年8月挂任北京市中关村科技园区管理委员会副主任；2001年3月至2010年10月先后在国家外汇管理局综合司法规处、管理检查司非金融机构检查处、综合业务处工作。
 
-中指研究院天津分院副总经理赵玉国表示，该项政策与天津“十五五”规划方向一致。
+曹利群是经济师，获中国政法大学法学学士、中国人民大学经济学硕士、北京大学公共管理硕士学位。
 
-收储存量商品房将对天津市场产生多方面影响：第一，有利于加快保障性住房供给，更好满足工薪收入群体的住房需求，促进房产资源合理配置。
+唐炜，1973年2月出生。
 
-第二，有利于市场库存的去化，缓解开发企业的资金压力。
+2023年3月至今先后任国家金融监督管理总局资管机构监管司副司长、一级巡视员；2018年3月至2023年3月任中国银行保险监督管理委员会信托监管部副主任；2016年4月至2018年3月任中国银行业监督管理委员会信托监管部副主任；2000年8月至2016年4月先后在中国人民银行银行监管一司、中国银行业监督管理委员会银行监管一部、国有控股大型商业银行监管部、信托监管部工作。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 06:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 06:43 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 06:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 06:54 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 06:35 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 06:33 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 06:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 06:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 06:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 06:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 06:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 06:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 06:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 06:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 06:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 06:54 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 06:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 06:39 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 06:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 06:48 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 06:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 07:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:41 - [月亮](https://www.blog.minike.top/Article/details/04195.shtml)
-- 2026-06-30 06:35 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/95529206600.shtml)
-- 2026-06-30 06:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/24417.shtml)
-- 2026-06-30 06:55 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/781126955291.shtml)
-- 2026-06-30 06:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/9282490171.shtml)
-- 2026-06-30 06:46 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/03254783955.shtml)
-- 2026-06-30 06:50 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/006815947810.shtml)
-- 2026-06-30 06:38 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/621358.shtml)
-- 2026-06-30 06:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/0438831801.shtml)
-- 2026-06-30 06:58 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7900528984.shtml)
-- 2026-06-30 06:54 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/48557402454.shtml)
-- 2026-06-30 06:47 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/23141485186.shtml)
-- 2026-06-30 06:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/11024533105.shtml)
-- 2026-06-30 06:32 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/535653822543.shtml)
-- 2026-06-30 06:34 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/61058.shtml)
+- 2026-06-30 06:45 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/462489.shtml)
+- 2026-06-30 06:43 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/6379684.shtml)
+- 2026-06-30 06:59 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/40299386.shtml)
+- 2026-06-30 06:53 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/0561979070.shtml)
+- 2026-06-30 06:55 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/4403691.shtml)
+- 2026-06-30 06:38 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/492311918.shtml)
+- 2026-06-30 06:58 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/077055282974.shtml)
+- 2026-06-30 07:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/5556404764.shtml)
+- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/593510.shtml)
+- 2026-06-30 06:59 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6079616831.shtml)
+- 2026-06-30 06:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/09160.shtml)
+- 2026-06-30 06:36 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/286134.shtml)
+- 2026-06-30 06:49 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/27468584.shtml)
+- 2026-06-30 06:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/0181744.shtml)
+- 2026-06-30 07:02 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/297144.shtml)

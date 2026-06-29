@@ -1,55 +1,42 @@
-# 王小洪在全国公安机关常态化开展扫黑除恶斗争推进会议上强调 以为人民出政绩以实干出政绩的使命担当 坚决抓好常态化扫黑除恶斗争
+# 纽约股市三大股指5日大幅下跌
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 全国公安机关常态化开展扫黑除恶斗争推进会议29日召开，中共中央书记处书记、公安部部长王小洪出席并讲话。王小洪强调，要深入贯彻落实习近平总书记重要指示精神和党中央决策部署，坚定拥护“两个确立”、坚决做到“两个维护”，牢固树立、深入践行正确政绩观，以为人民出政绩、以实干出政绩的使命担当，坚决抓好常态化扫黑除恶斗争，不断取得党和人民满意的新成效，努力为实现“十
+发布时间：2026年06月06日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-新华社北京4月29日电 全国公安机关常态化开展扫黑除恶斗争推进会议29日召开，中共中央书记处书记、公安部部长王小洪出席并讲话。
-
-王小洪强调，要深入贯彻落实习近平总书记重要指示精神和党中央决策部署，坚定拥护“两个确立”、坚决做到“两个维护”，牢固树立、深入践行正确政绩观，以为人民出政绩、以实干出政绩的使命担当，坚决抓好常态化扫黑除恶斗争，不断取得党和人民满意的新成效，努力为实现“十五五”良好开局创造安全稳定的政治社会环境。
-
-王小洪要求，准确把握形势任务，坚持主动出击、露头就打、穷追猛打，坚决打好重大案件突破、重点类案侦办等攻坚战，向黑恶犯罪不断发起凌厉攻势。
-
-持续推进综合治理，坚持惩防并举、标本兼治，加强系统治理、综合施策，强力整治重点地区，推动加强基层治理，提升依法治理水平，努力实现常治长效。
-
-强化工作组织保障，优化运行机制，细化任务分工，层层压实责任，建强专业队伍，推进常态化扫黑除恶走深走实。
+发布时间：2026年06月06日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 06:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 06:39 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 06:52 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 06:58 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 06:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 06:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 06:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 06:54 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 06:44 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 06:50 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 06:45 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 06:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 06:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 06:58 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 06:47 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 06:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 06:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 06:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:52 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:43 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 06:36 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 06:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 06:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:35 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/518577127.shtml)
-- 2026-06-30 06:39 - [扬名立万](https://www.share.kurohicncr.top/Article/details/88872.shtml)
-- 2026-06-30 06:47 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/8897946.shtml)
-- 2026-06-30 06:34 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/530445545309.shtml)
-- 2026-06-30 06:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/20360.shtml)
-- 2026-06-30 06:53 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/45086811.shtml)
-- 2026-06-30 06:47 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/37669507804.shtml)
-- 2026-06-30 06:31 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/0766508.shtml)
-- 2026-06-30 06:58 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/74069.shtml)
-- 2026-06-30 06:46 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/0723085.shtml)
-- 2026-06-30 06:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/83295387415.shtml)
-- 2026-06-30 06:48 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/08163958.shtml)
-- 2026-06-30 06:45 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/09755.shtml)
-- 2026-06-30 06:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/916671144.shtml)
-- 2026-06-30 06:32 - [周生如故](http://www.share.kurohicncr.top/Article/details/5967889.shtml)
+- 2026-06-30 06:56 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/58875364487.shtml)
+- 2026-06-30 06:51 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/739560.shtml)
+- 2026-06-30 07:05 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/33807.shtml)
+- 2026-06-30 06:40 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/742177005943.shtml)
+- 2026-06-30 06:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/04290895.shtml)
+- 2026-06-30 06:48 - [千与千寻](http://www.share.kurohicncr.top/Article/details/4920045590.shtml)
+- 2026-06-30 06:42 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/940007.shtml)
+- 2026-06-30 06:37 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/50129748596.shtml)
+- 2026-06-30 06:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/26519387.shtml)
+- 2026-06-30 06:52 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/576365845.shtml)
+- 2026-06-30 07:02 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/331259791266.shtml)
+- 2026-06-30 06:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3036427591.shtml)
+- 2026-06-30 06:45 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/769376.shtml)
+- 2026-06-30 06:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/2081333773.shtml)
+- 2026-06-30 06:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/982121.shtml)

@@ -1,49 +1,61 @@
-# 外交部批一些日本政客：对历史遗留问题噤若寒蝉 却对中国台湾说三道四
+# 4倍光模块牛股！301319，收关注函
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-新华社北京4月30日电(记者吴梦桐、王慧慧)外交部发言人林剑30日在例行记者会上回答有关提问时表示，日本国内的很多有识之士都在反思日本的内政外交政策，围绕“慰安妇”、强征劳工等历史遗留问题和日本国内的原住民、少数族裔权利等问题也有很多讨论。一些日本政客对这些问题要么噤若寒蝉，要么装聋作哑，却对中国台湾说三道四，真正的意图究竟是什么，恐怕只有他们自己最清楚。(完)
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】大牛股，被关注了 中国基金报记者 泰勒 大家好啊，今晚关注一下光模块概念的牛股——唯特偶，受到深交所关注了。 今日晚间，上市公司唯特偶收到深交所的关注函。 其中提到，近期，公司股价涨幅较大，路演频繁，共计发布7份投资者关系记录表，并多次在问答环节提及光模块、先进封装等热点领域相关业务。 而唯特偶的主营业
 
 ## 正文
 
-新华社北京4月30日电(记者吴梦桐、王慧慧)外交部发言人林剑30日在例行记者会上回答有关提问时表示，日本国内的很多有识之士都在反思日本的内政外交政策，围绕“慰安妇”、强征劳工等历史遗留问题和日本国内的原住民、少数族裔权利等问题也有很多讨论。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：中国基金报 【导读】大牛股，被关注了 中国基金报记者 泰勒 大家好啊，今晚关注一下光模块概念的牛股——唯特偶，受到深交所关注了。
 
-一些日本政客对这些问题要么噤若寒蝉，要么装聋作哑，却对中国台湾说三道四，真正的意图究竟是什么，恐怕只有他们自己最清楚。
+今日晚间，上市公司唯特偶收到深交所的关注函。
 
-(完)
+其中提到，近期，公司股价涨幅较大，路演频繁，共计发布7份投资者关系记录表，并多次在问答环节提及光模块、先进封装等热点领域相关业务。
+
+而唯特偶的主营业务是微电子焊接材料的研发、生产及销售。
+
+深交所要求公司说明所属行业当前竞争格局、资金及技术进入壁垒，公司在竞争中的优劣势情况；结合公司最近一年一期经营情况，主要财务数据及其变动趋势、原因，主营产品目前销售领域、主要客户构成、所属领域、销售金额、毛利情况，与同行业可比公司是否存在显著差异。
+
+另外，深交所要求说明截至目前公司主营产品微电子焊接材料与微电子辅助焊接材料（锡膏、锡条、锡线、助焊剂、清洗剂等）主要直接及间接客户、产能及产能利用率、月度产销量、月度销售额、在手订单、具体用途等情况，上述情况是否较前期披露信息发生较大变化，相关变化对公司经营业绩产生的具体影响，并充分提示相关风险。
+
+光模块业务方面，深交所要求公司说明光模块生产商在光模块及其部件生产过程中各环节所需使用锡膏的含量，对应单价及金额、占光模块产品价格的比例；说明公司目前主营产品分别应用在光模块生产三大环节的具体情况，包括各环节对应的主要客户名称、最近一年及一期已实现的销售金额、毛利率、在手订单金额。
+
+先进封装方面，深交所要求公司说明半导体封装过程中各环节所需使用锡膏的含量，对应单价及金额、占终端产品价格的比例；说明公司目前主营产品分别应用在先进封装各环节的具体情况，包括各环节对应的客户名称、最近一年及一期已实现的销售金额、毛利率、在手订单金额。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 06:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 06:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 06:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 06:46 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 06:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 06:35 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 06:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 06:40 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 06:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 06:37 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 06:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 06:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 06:44 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 06:38 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 06:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:36 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 06:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 07:04 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 06:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 06:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 06:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 07:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 06:56 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 06:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:48 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 07:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 06:44 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [起风了](http://www.share.minike.top/Article/details/689536128320.shtml)
-- 2026-06-30 06:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/08251.shtml)
-- 2026-06-30 06:36 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/5641715230.shtml)
-- 2026-06-30 06:40 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/987417186.shtml)
-- 2026-06-30 06:56 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/747309.shtml)
-- 2026-06-30 06:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/70359719.shtml)
-- 2026-06-30 06:52 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/7852543.shtml)
-- 2026-06-30 06:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/075754821.shtml)
-- 2026-06-30 06:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/75520131763.shtml)
-- 2026-06-30 06:32 - [月亮](http://www.blog.minike.top/Article/details/11502362866.shtml)
-- 2026-06-30 06:47 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/0370778.shtml)
-- 2026-06-30 06:41 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/449179360.shtml)
-- 2026-06-30 06:55 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/491042573.shtml)
-- 2026-06-30 06:55 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/55860338328.shtml)
-- 2026-06-30 06:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/83487586694.shtml)
+- 2026-06-30 06:38 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/7459042544.shtml)
+- 2026-06-30 06:56 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/23284479.shtml)
+- 2026-06-30 06:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/90057.shtml)
+- 2026-06-30 06:40 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/8297552247.shtml)
+- 2026-06-30 06:54 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/03315446.shtml)
+- 2026-06-30 06:39 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/729222696.shtml)
+- 2026-06-30 07:01 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/9690600.shtml)
+- 2026-06-30 06:36 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/12351.shtml)
+- 2026-06-30 06:59 - [第一炉香](https://www.share.kurohicncr.top/Article/details/661681751352.shtml)
+- 2026-06-30 06:43 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/0747809271.shtml)
+- 2026-06-30 06:46 - [田中碧失误](http://www.blog.minike.top/Article/details/962667.shtml)
+- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/26487.shtml)
+- 2026-06-30 06:37 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/3722424194.shtml)
+- 2026-06-30 06:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/15844029650.shtml)
+- 2026-06-30 06:40 - [巴西扳平比分](http://www.blog.minike.top/Article/details/5946165.shtml)

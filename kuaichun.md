@@ -1,61 +1,56 @@
-# 台湾演员张震：带着笃定与投入完成每一场表演
+# 四川雅砻江流域连续16年增殖放流鱼类累计超3000万尾
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。“演话剧有一气呵成的感觉。”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。 2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。《江／云·之／间》脱胎于《暗恋桃花源》暗
+中新网成都6月5日电(记者 王鹏)6月5日，45万尾细鳞裂腹鱼、金沙鲈鲤、长薄鳅等长江上游特有鱼类在位于四川省凉山州的雅砻江杨房沟河段成功放流。记者获悉，目前雅砻江全流域珍稀鱼类增殖放流总量累计突破3000万尾、放流鱼类种类达13种，长江上游特有鱼类放流数量居全国前列。 雅砻江是长江上游最大支流，是长江流域重要的生态屏障，肩负着长江上游生态保护的重要责任。国投集团雅砻江流域水电
 
 ## 正文
 
-中新网广州4月30日电 (记者 程景伟)作为《暗恋桃花源》的精神续篇，话剧《江／云·之／间》将于5月2日至3日首次登陆广州大剧院。
+中新网成都6月5日电(记者 王鹏)6月5日，45万尾细鳞裂腹鱼、金沙鲈鲤、长薄鳅等长江上游特有鱼类在位于四川省凉山州的雅砻江杨房沟河段成功放流。
 
-“演话剧有一气呵成的感觉。
+记者获悉，目前雅砻江全流域珍稀鱼类增殖放流总量累计突破3000万尾、放流鱼类种类达13种，长江上游特有鱼类放流数量居全国前列。
 
-”在该剧中演绎经典角色“江滨柳”的台湾演员张震近日在广州接受记者采访时称，他带着笃定与投入，好好完成每一场表演。
+雅砻江是长江上游最大支流，是长江流域重要的生态屏障，肩负着长江上游生态保护的重要责任。
 
-2026年适逢赖声川执导的华语剧场传奇作品《暗恋桃花源》首演40周年。
+国投集团雅砻江流域水电开发有限公司(下称雅砻江公司)统筹推进流域水电开发与生态保护协同发展，累计投入近5亿元，科学规划建成锦屏·官地、二滩·桐子林、雅砻江中游、两河口·牙根等四座鱼类增殖放流站。
 
-《江／云·之／间》脱胎于《暗恋桃花源》暗恋篇，聚焦两个主角“江滨柳”与“云之凡”的爱情故事，由赖声川编剧并执导，张震与萧艾携手出演，胡德夫参与特别演出。
+放流站点覆盖雅砻江干流开发河段，构建起全域化、体系化的鱼类增殖放流保护格局。
 
-张震坦言，接演此戏是因为一种“特别的缘分”：“我的姥爷是长春人，江滨柳也是长春人，这让我有机会通过角色去贴近那一代人的乡愁与生命轨迹。
+目前，雅砻江流域鱼类增殖放流规模超300万尾/年，珍稀保护鱼类增殖放流规模为水电行业最大。
 
-”为了呈现角色数十载的沉浮，张震在舞台上的每一次转身与停顿，都努力呈现充满电影质感的细腻张力。
+据介绍，历经多年科研攻坚，雅砻江公司全面掌握了细鳞裂腹鱼、西昌白鱼(雅砻亚种)等11种本土鱼类全链条繁育核心技术。
 
-《牯岭街少年杀人事件》《卧虎藏龙》《绣春刀》……张震因为这些影视剧而被观众所熟知。
+除规模化增殖放流外，雅砻江流域目前已构建起全方位水生生态保护体系。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 06:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 06:36 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 06:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 06:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 06:45 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 06:39 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 06:46 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 06:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 06:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 06:31 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 06:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 06:53 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 06:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 06:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 06:47 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 06:57 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 06:57 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 06:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 06:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 07:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 06:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 06:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 06:50 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 06:45 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/499774327447.shtml)
-- 2026-06-30 06:54 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/17464.shtml)
-- 2026-06-30 06:33 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/61912.shtml)
-- 2026-06-30 06:58 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/8666271959.shtml)
-- 2026-06-30 06:38 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/720175.shtml)
-- 2026-06-30 06:30 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/14901421.shtml)
-- 2026-06-30 06:37 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/21171144.shtml)
-- 2026-06-30 06:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/535591361.shtml)
-- 2026-06-30 06:31 - [啊啊啊](http://www.blog.minike.top/Article/details/4744193404.shtml)
-- 2026-06-30 06:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/74795.shtml)
-- 2026-06-30 06:38 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/88992346496.shtml)
-- 2026-06-30 06:34 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/90455.shtml)
-- 2026-06-30 06:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/8023003.shtml)
-- 2026-06-30 06:57 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/964236824156.shtml)
-- 2026-06-30 06:57 - [美股](http://www.share.kurohicncr.top/Article/details/214773.shtml)
+- 2026-06-30 06:44 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/709149490217.shtml)
+- 2026-06-30 06:40 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/089975202.shtml)
+- 2026-06-30 06:53 - [金刚川](https://www.share.kurohicncr.top/Article/details/0613746.shtml)
+- 2026-06-30 06:41 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/4989627.shtml)
+- 2026-06-30 06:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/59312456.shtml)
+- 2026-06-30 06:44 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/1199800317.shtml)
+- 2026-06-30 06:39 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/4033296551.shtml)
+- 2026-06-30 07:01 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/594916313757.shtml)
+- 2026-06-30 06:46 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/81025695486.shtml)
+- 2026-06-30 06:42 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/047825.shtml)
+- 2026-06-30 06:44 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/87258.shtml)
+- 2026-06-30 06:51 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/69095.shtml)
+- 2026-06-30 06:51 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/817496156.shtml)
+- 2026-06-30 06:55 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/8569212.shtml)
+- 2026-06-30 06:55 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/6008550.shtml)

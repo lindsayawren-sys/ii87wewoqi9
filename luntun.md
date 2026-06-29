@@ -1,57 +1,51 @@
-# 民生直通车丨一季度新增就业299万人 下一步稳就业有实招
+# 致欧科技：当前业务聚焦于海外市场的深耕与拓展
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。今年一季度就业形势如何？下一步稳就业有哪些政策举措？4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。 人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。有
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，致欧科技在互动平台回答投资者提问时表示，公司始终秉持“全球互联网家居领导品牌”的愿景，当前业务聚焦于海外市场的深耕与拓展。关于国内消费市场布局，公司暂未披露相关计划。主要基于以下考量：首先公司产品开发主要围绕欧美市场需求开发，与国内消费者偏好存在差异；同时，海外市场空间广阔，增速较快仍有较大的发展空间；国
 
 ## 正文
 
-新华社北京4月28日电 题：一季度新增就业299万人 下一步稳就业有实招 新华社记者张晓洁 就业是最基本的民生。
+登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯 6月5日，致欧科技在互动平台回答投资者提问时表示，公司始终秉持“全球互联网家居领导品牌”的愿景，当前业务聚焦于海外市场的深耕与拓展。
 
-今年一季度就业形势如何？
+关于国内消费市场布局，公司暂未披露相关计划。
 
-下一步稳就业有哪些政策举措？
+主要基于以下考量：首先公司产品开发主要围绕欧美市场需求开发，与国内消费者偏好存在差异；同时，海外市场空间广阔，增速较快仍有较大的发展空间；国内电商与跨境电商业务模式存在显著差异，未来若有涉及业务战略的重大调整，公司将严格遵守信息披露规定及时公告。
 
-4月28日举行的人力资源社会保障部例行新闻发布会上，有关负责人介绍就业情况。
-
-人力资源社会保障部政策研究司司长崔鹏程介绍，1至3月，全国城镇新增就业299万人，城镇调查失业率平均值为5.3%，就业形势保持总体稳定。
-
-有关部门加大惠企利民政策落实力度，发放失业保险稳岗返还资金31亿元、一次性扩岗补助5亿元、技能提升补贴8亿元。
-
-开展春风行动暨就业援助季活动，累计举办招聘会5.9万场、发布岗位3600万个。
-
-全力促进高质量充分就业，更多实招硬招即将推出。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 06:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 06:31 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 06:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 06:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 06:54 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 06:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 06:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 06:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 06:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 06:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 06:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 06:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 06:53 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 06:39 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 06:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 06:50 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 06:46 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:58 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 06:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 06:52 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 06:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 06:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/121852.shtml)
-- 2026-06-30 06:39 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/464809.shtml)
-- 2026-06-30 06:46 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/056169288.shtml)
-- 2026-06-30 06:46 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/60683587332.shtml)
-- 2026-06-30 06:50 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/91442.shtml)
-- 2026-06-30 06:47 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/7086661.shtml)
-- 2026-06-30 06:38 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/8557897540.shtml)
-- 2026-06-30 06:47 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/281768323.shtml)
-- 2026-06-30 06:44 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/12254.shtml)
-- 2026-06-30 06:45 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/87935274884.shtml)
-- 2026-06-30 06:52 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/2991407510.shtml)
-- 2026-06-30 06:40 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/36028064571.shtml)
-- 2026-06-30 06:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/548396245.shtml)
-- 2026-06-30 06:41 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/4933777.shtml)
-- 2026-06-30 06:47 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/979255781.shtml)
+- 2026-06-30 07:01 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/218035.shtml)
+- 2026-06-30 06:38 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/75441932.shtml)
+- 2026-06-30 07:02 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/4512654.shtml)
+- 2026-06-30 06:57 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/914150853.shtml)
+- 2026-06-30 07:00 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/1201429793.shtml)
+- 2026-06-30 06:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/84916495.shtml)
+- 2026-06-30 06:56 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/8248057.shtml)
+- 2026-06-30 06:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/668496641769.shtml)
+- 2026-06-30 06:36 - [世界杯](http://www.blog.kurohicncr.top/Article/details/79301.shtml)
+- 2026-06-30 06:47 - [巴西扳平比分](http://www.share.minike.top/Article/details/07954715.shtml)
+- 2026-06-30 06:47 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/837685633559.shtml)
+- 2026-06-30 06:53 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/6190219811.shtml)
+- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/06046.shtml)
+- 2026-06-30 06:52 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/606897737138.shtml)
+- 2026-06-30 07:03 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/223425249501.shtml)

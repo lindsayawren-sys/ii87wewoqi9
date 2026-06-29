@@ -1,54 +1,59 @@
-# 南网科研院发布行业首款“人工智能+专业仿真技术”电力装备数字孪生软件
+# 半导体大牛股，副总经理拟减持
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 4月29日，在第九届数字中国建设峰会上，南网科研院自主研发的电力装备数字孪生软件 TRSim Twin正式亮相，这是国内首款将人工智能与专业仿真技术深度融合的电力装备数字孪生工业软件，关键技术经中国电力企业联合会鉴定达国际领先水平。该软件创新性融合AI算法与多物理场仿真技术，可打通电力装备外部监测数据与内部仿真计算壁垒，无需停机即可实时推演装备内部关键参
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！江波龙发布高级管理人员减持股份预披露公告。 6月5日晚间，半导体板块大牛股江波龙（301308）发布公告称，公司副总经理朱宇因个人资金需求，计划在2026年6月30日至2026年9月29日期间通过证券交易所以集中竞价、大宗交易方式合计减持公司股份不超过约59.84万股（占公司总股本比例为0.1414%）。据
 
 ## 正文
 
-中新网福州4月29日电 4月29日，在第九届数字中国建设峰会上，南网科研院自主研发的电力装备数字孪生软件 TRSim Twin正式亮相，这是国内首款将人工智能与专业仿真技术深度融合的电力装备数字孪生工业软件，关键技术经中国电力企业联合会鉴定达国际领先水平。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该软件创新性融合AI算法与多物理场仿真技术，可打通电力装备外部监测数据与内部仿真计算壁垒，无需停机即可实时推演装备内部关键参数，精准研判运行状态、智能诊断故障隐患，相当于为每台电力装备配备一台高精度“数智CT”，破解了传统电力装备运维难以直观感知内部状态的行业难题。
+江波龙发布高级管理人员减持股份预披露公告。
 
-技术层面，TRSim Twin底层内核与南方电网自研的多物理场计算专用软件TRSim无缝衔接，覆盖电力装备设计仿真、数字化交付、运行维护全生命周期场景。
+6月5日晚间，半导体板块大牛股江波龙（301308）发布公告称，公司副总经理朱宇因个人资金需求，计划在2026年6月30日至2026年9月29日期间通过证券交易所以集中竞价、大宗交易方式合计减持公司股份不超过约59.84万股（占公司总股本比例为0.1414%）。
 
-开发端集成多类型AI算法，可根据装备特性与物理场数据智能优选模型，大幅提升数字孪生模型精度与实时性；应用端通过感知数据与AI模型联动，依托智能反演算法全景还原装备内部多物理场分布特性，实现装备内特性实时孪生与状态评估，为沙戈荒、深远海等复杂场景高端电力装备无人化、少人化运维提供完整解决方案。
+据悉，朱宇持有公司股份239.35万股，占公司总股本比例为0.5658%。
 
-目前，TRSim Twin已在粤港澳大湾区直流背靠背电网工程、阳江三山岛海上风电柔直送出工程、棠下背靠背超大城市电网柔性多端互联示范工程等多个国家重大直流工程中落地应用，以数智技术赋能电力装备安全稳定运行与高效运维。
+公开资料显示，江波龙主营业务为存储器和主控芯片的研发设计、封装测试、技术支持与销售。
 
-此外，南方电网自研的电力装备仿真工业软件TRSim，已入围国务院国资委第五届中央企业熠星创新创意大赛工业软件赛道，作为创业融资类项目高分通过初选，持续推动自主可控电力工业软件创新突破与产业化应用。
+公司面向端侧AI设备、AI服务器、数据中心、具身智能、汽车、价值消费类电子、工业（安防、监控等）等应用场景，为客户提供高性能、高品质、创新领先的半导体存储产品。
 
-(完)
+目前，公司拥有自研芯片、嵌入式存储、固态硬盘、移动存储和内存条等产品线。
+
+2025年，江波龙实现营业收入227.66亿元，同比增长30.36%，实现归母净利润14.23亿元，同比增长185.41%。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 06:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 06:46 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 06:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 06:46 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 06:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 06:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 06:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 06:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 06:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 06:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 06:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 06:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 06:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 06:36 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 06:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 06:48 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 06:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 06:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 07:01 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 06:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 06:54 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/3306932.shtml)
-- 2026-06-30 06:44 - [巴西绝杀日本](http://www.share.minike.top/Article/details/185438748.shtml)
-- 2026-06-30 06:40 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/00359679.shtml)
-- 2026-06-30 06:46 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/478721076737.shtml)
-- 2026-06-30 06:30 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/11618.shtml)
-- 2026-06-30 06:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/39999016816.shtml)
-- 2026-06-30 06:43 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/780828.shtml)
-- 2026-06-30 06:58 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/249216362.shtml)
-- 2026-06-30 06:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/3575387923.shtml)
-- 2026-06-30 06:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/534584767528.shtml)
-- 2026-06-30 06:30 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/7932902927.shtml)
-- 2026-06-30 06:47 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/69631319197.shtml)
-- 2026-06-30 06:40 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/454836.shtml)
-- 2026-06-30 06:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/13484.shtml)
-- 2026-06-30 06:40 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/695139831224.shtml)
+- 2026-06-30 06:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/0875881500.shtml)
+- 2026-06-30 06:46 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/880057480184.shtml)
+- 2026-06-30 06:36 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/016420.shtml)
+- 2026-06-30 06:47 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/137147.shtml)
+- 2026-06-30 06:40 - [电影后室值得看吗](http://www.share.minike.top/Article/details/691188010712.shtml)
+- 2026-06-30 07:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/74209241.shtml)
+- 2026-06-30 06:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/07062.shtml)
+- 2026-06-30 06:55 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/774121463.shtml)
+- 2026-06-30 07:06 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/890482092006.shtml)
+- 2026-06-30 06:56 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/514103769.shtml)
+- 2026-06-30 06:40 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/983678840856.shtml)
+- 2026-06-30 06:41 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/386896360.shtml)
+- 2026-06-30 06:45 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/31394.shtml)
+- 2026-06-30 06:47 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/3704709.shtml)
+- 2026-06-30 07:02 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/794831933560.shtml)

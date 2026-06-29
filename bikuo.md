@@ -1,56 +1,56 @@
-# 西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲
+# 联合国缅怀殉职维和人员
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。 这家西班牙银行过半业务收入来自欧洲以外市场。其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧
+中新社联合国6月5日电 联合国5日举行活动，缅怀多年来在联合国维和行动中殉职的近4500名维和人员。 当天，联合国秘书长古特雷斯在纽约联合国总部的维和人员纪念碑前敬献花圈。随后，他向68名殉职维和人员追授达格·哈马舍尔德勋章，并表彰多名在维和行动中展现勇气和领导力者。他还向一名殉职的乌克兰籍维和人员追授姆巴耶·迪亚涅勋章，并向另一名曾多次冒险深入交火地区营救伤员的乌拉圭籍维和士
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。
+中新社联合国6月5日电 联合国5日举行活动，缅怀多年来在联合国维和行动中殉职的近4500名维和人员。
 
-这家西班牙银行过半业务收入来自欧洲以外市场。
+当天，联合国秘书长古特雷斯在纽约联合国总部的维和人员纪念碑前敬献花圈。
 
-其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧元。
+随后，他向68名殉职维和人员追授达格·哈马舍尔德勋章，并表彰多名在维和行动中展现勇气和领导力者。
 
-一季度营业总收入同比增长 14%，至106.5 亿欧元，同样超出分析师 100.5 亿欧元的预期。
+他还向一名殉职的乌克兰籍维和人员追授姆巴耶·迪亚涅勋章，并向另一名曾多次冒险深入交火地区营救伤员的乌拉圭籍维和士兵颁发这一勋章。
 
-营收增长主要由两大板块拉动：净利息收入实现两位数增幅（贷款利息收入减去客户存款利息支出），同时资产管理、支付及保险业务带来的手续费及佣金净收入同步提升。
+古特雷斯致辞说，目前全球各地部署着超过5万名维和人员，他们致力于保护平民生命安全。
 
-西班牙与墨西哥两大市场贡献该行约三分之二营收，BBVA 在两地的企业贷与个人消费贷规模均实现增长。
+维和人员遏制暴力、促成政治解决方案、支持选举、提供人道主义援助、清除地雷等。
 
-此外，土耳其及南美分支机构业绩表现改善，企业与投行业务也保持持续扩张。
+他们冒着生命危险，展现出令人敬佩的勇气。
 
-运营成本同比攀升 14%，至40.5 亿欧元，部分源于西班牙本土自愿离职裁员计划。
+古特雷斯表示，联合国蓝盔是全球范围内弱势群体的保护者，是最黑暗时刻的希望象征。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 06:40 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 06:46 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 06:57 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 06:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 06:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 06:49 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 06:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 06:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 06:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 06:47 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 06:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 06:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 06:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 06:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 06:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 06:44 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 06:59 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 06:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 06:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/89793332.shtml)
-- 2026-06-30 06:59 - [一见倾心](https://www.share.minike.top/Article/details/6917048.shtml)
-- 2026-06-30 06:47 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/144422.shtml)
-- 2026-06-30 06:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/434280.shtml)
-- 2026-06-30 06:45 - [孙兴慜道歉](http://www.share.minike.top/Article/details/79585253.shtml)
-- 2026-06-30 06:39 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/704539.shtml)
-- 2026-06-30 06:47 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/78845.shtml)
-- 2026-06-30 06:47 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/53567644793.shtml)
-- 2026-06-30 06:39 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/61103.shtml)
-- 2026-06-30 06:47 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0880526168.shtml)
-- 2026-06-30 06:40 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/14645.shtml)
-- 2026-06-30 06:46 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/539962938154.shtml)
-- 2026-06-30 06:32 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/64340829.shtml)
-- 2026-06-30 06:58 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/6373901075.shtml)
-- 2026-06-30 06:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/19730465770.shtml)
+- 2026-06-30 06:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/863196.shtml)
+- 2026-06-30 06:43 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/774385.shtml)
+- 2026-06-30 07:04 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/6430266.shtml)
+- 2026-06-30 06:55 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/5217872470.shtml)
+- 2026-06-30 06:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/4191259571.shtml)
+- 2026-06-30 06:37 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/7871318.shtml)
+- 2026-06-30 07:00 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/18784413.shtml)
+- 2026-06-30 06:39 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/6215238329.shtml)
+- 2026-06-30 06:59 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/55662456602.shtml)
+- 2026-06-30 06:49 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/3706169782.shtml)
+- 2026-06-30 07:01 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/92913678559.shtml)
+- 2026-06-30 06:44 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/151827.shtml)
+- 2026-06-30 06:36 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/27058192.shtml)
+- 2026-06-30 06:54 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/000535297.shtml)
+- 2026-06-30 06:40 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/2147731.shtml)

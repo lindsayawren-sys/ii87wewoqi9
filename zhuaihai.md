@@ -1,61 +1,56 @@
-# 高盛：美元/日元若快速升至163-164 或加剧日本干预风险
+# 农业农村现代化 五年后会是什么样
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-专题：A股风格切换一触即发？5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+日前，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施。 那么，未来五年，农业和农村发展建设的主要思路是怎样的？这份规划在未来五年将带给农民们怎样的期待？ 《规划》中为何设定两项约束性指标？ 关于未来五年农业方面的建设到底怎么做，《规划》中实际上给出了15项非常清晰的指标，其中有两项属于约束
 
 ## 正文
 
-专题：A股风格切换一触即发？
+日前，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施。
 
-5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。
+那么，未来五年，农业和农村发展建设的主要思路是怎样的？
 
-策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。
+这份规划在未来五年将带给农民们怎样的期待？
 
-不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+《规划》中为何设定两项约束性指标？
 
-因此，尽管官员们的口头评论更加频繁，但立即开展行动的理由看起来“不那么令人信服”。
+关于未来五年农业方面的建设到底怎么做，《规划》中实际上给出了15项非常清晰的指标，其中有两项属于约束性指标，一个关于产量，一个关于质量，为什么把这两项列为一个必须完成的硬杠杆？
 
-在能源引发通胀冲击之际，预计日元将面临更大的贬值压力。
+中国农业科学院农业经济与发展研究所所长胡向东介绍，“十五五”提出来的约束性指标和预期性指标，其实是为“十五五”将发展到什么程度给了定量的目标。
 
-这使得日元在战术层面上成为一种颇具吸引力的套利工具。
+关于这两个约束性指标： “到2030年，我国粮食综合生产能力，要达到1.45万亿斤左右。
 
-责任编辑：王永生
+”建设农业农村现代化首要是让全国人民吃饱饭、吃好饭，这是一个非常重要的目标，也是底线要求。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 06:38 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 06:36 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:48 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 06:33 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 06:37 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 06:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 06:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 06:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 06:39 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 06:47 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 06:42 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 06:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 06:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 06:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 06:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 06:52 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 06:36 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 06:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 06:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 06:42 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 06:40 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 06:48 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 06:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/89043690.shtml)
-- 2026-06-30 06:34 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/16916836.shtml)
-- 2026-06-30 06:47 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/454725.shtml)
-- 2026-06-30 06:35 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/053935.shtml)
-- 2026-06-30 06:32 - [巴西扳平比分](http://www.share.minike.top/Article/details/813979992.shtml)
-- 2026-06-30 06:55 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/98635831789.shtml)
-- 2026-06-30 06:40 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/34079.shtml)
-- 2026-06-30 06:53 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/56644587556.shtml)
-- 2026-06-30 06:43 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/7121679.shtml)
-- 2026-06-30 06:45 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/6798539.shtml)
-- 2026-06-30 06:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/67310.shtml)
-- 2026-06-30 06:54 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/9785180.shtml)
-- 2026-06-30 06:47 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/7226589.shtml)
-- 2026-06-30 06:36 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/34729627792.shtml)
-- 2026-06-30 06:35 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/3126975.shtml)
+- 2026-06-30 07:05 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/7519577.shtml)
+- 2026-06-30 07:03 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/0944180371.shtml)
+- 2026-06-30 06:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/725507.shtml)
+- 2026-06-30 06:37 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/370235592.shtml)
+- 2026-06-30 06:57 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/2107219.shtml)
+- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/21596.shtml)
+- 2026-06-30 07:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/926329.shtml)
+- 2026-06-30 06:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/994338346113.shtml)
+- 2026-06-30 06:44 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/6610668.shtml)
+- 2026-06-30 06:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/53460.shtml)
+- 2026-06-30 06:37 - [金牌调解](http://www.blog.minike.top/Article/details/046769989.shtml)
+- 2026-06-30 07:04 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/01664.shtml)
+- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/782477363.shtml)
+- 2026-06-30 06:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/450803641778.shtml)
+- 2026-06-30 06:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/25621648277.shtml)

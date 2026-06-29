@@ -1,58 +1,49 @@
-# 深圳大学低空基础设施规划管理研究中心成立
+# 中新健康｜眼睛“凸”然变大？一查竟是甲状腺眼病
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网深圳4月30日电 (记者 索有为)深圳大学低空基础设施规划管理研究中心29日揭牌成立，将为深圳低空基础设施规划管理提供坚实智库支撑。同期，“高密度城市低空基础设施规划”研讨会举办。 广东省社会科学界联合会二级巡视员何方俊、中国工程院院士孟建民、深圳大学副校长巢乃鹏以及深圳市发展和改革委员会、深圳市交通运输局有关负责人分别致辞，对中心成立表示祝贺。 在研讨会主题报告环节，深
+发布时间：2026年06月06日 22:42 来源：中国新闻网 甲状腺眼病为自身免疫病，早期可见眼球突出、眼睑挛缩充血水肿，病情加重会眼球偏斜、角膜发炎、视力受损，既破坏视力与面容，还损伤心理健康。甲功异常伴随眼干异物感、眼痛、视物重影需尽快就医。患病需规律作息、平稳情绪、严格戒烟，定期复查调控甲状腺功能。(张静) 责任编辑：【岳川】
 
 ## 正文
 
-中新网深圳4月30日电 (记者 索有为)深圳大学低空基础设施规划管理研究中心29日揭牌成立，将为深圳低空基础设施规划管理提供坚实智库支撑。
+发布时间：2026年06月06日 22:42 来源：中国新闻网 甲状腺眼病为自身免疫病，早期可见眼球突出、眼睑挛缩充血水肿，病情加重会眼球偏斜、角膜发炎、视力受损，既破坏视力与面容，还损伤心理健康。
 
-同期，“高密度城市低空基础设施规划”研讨会举办。
+甲功异常伴随眼干异物感、眼痛、视物重影需尽快就医。
 
-广东省社会科学界联合会二级巡视员何方俊、中国工程院院士孟建民、深圳大学副校长巢乃鹏以及深圳市发展和改革委员会、深圳市交通运输局有关负责人分别致辞，对中心成立表示祝贺。
+患病需规律作息、平稳情绪、严格戒烟，定期复查调控甲状腺功能。
 
-在研讨会主题报告环节，深圳市低空经济产业协会党支部书记赵文娟介绍，深圳立足低空经济先行优势，实现“实践落地+标准引领+长效运营”三维突破，为全国高密度城市低空基础设施建设提供了可复制的“深圳范本”。
-
-华中科技大学建筑与城市规划学院院长谭刚毅呼吁聚焦低空人居环境与基础设施协同发展，构建“多维度适配、系统性融合”的理论框架，并提出“建筑作为低空空域发展基础设施”的创新论断，为复合型人居环境建设提供理论支撑。
-
-深圳市城市规划设计研究院党委书记、董事长俞露分享了以应用场景创新推动低空经济路径突破的实践体会，提出通过场景创新激活低空空间价值，为高密度城市低空经济发展提供实践参考。
-
-深圳大学建筑与城市规划学院副教授张彤彤、土木与交通工程学院助理教授莫栋分别带来专题分享，聚焦低空新型基础设施标准完善，并创新提出低空救援视角下的超高层避难设计理念。
-
-当日，与会多方达成共识，将以研究中心为核心纽带，依托深大多学科交叉优势，深化校企联合攻关与协同育人，聚焦低空基础设施规划、建设、运营全链条的关键问题，培育低空经济复合型专业人才，助力低空经济新质生产力培育。
+(张静) 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 06:32 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 06:38 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 06:37 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 06:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 06:46 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 06:59 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 06:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 06:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 06:51 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 06:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 06:42 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 06:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 06:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 06:51 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 07:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 06:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 07:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 06:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 06:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 06:47 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 06:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 06:51 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/7967182.shtml)
-- 2026-06-30 06:58 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/0373000493.shtml)
-- 2026-06-30 06:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/052200661607.shtml)
-- 2026-06-30 06:37 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/390948531632.shtml)
-- 2026-06-30 06:46 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/87031246.shtml)
-- 2026-06-30 06:52 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/093512711643.shtml)
-- 2026-06-30 06:34 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/23697942.shtml)
-- 2026-06-30 06:37 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/68681.shtml)
-- 2026-06-30 06:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/324185.shtml)
-- 2026-06-30 06:37 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/5486638.shtml)
-- 2026-06-30 06:55 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/503739.shtml)
-- 2026-06-30 06:43 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/727887.shtml)
-- 2026-06-30 06:33 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/43288127997.shtml)
-- 2026-06-30 06:31 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/02304.shtml)
-- 2026-06-30 06:37 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/62526335.shtml)
+- 2026-06-30 06:36 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/239204033948.shtml)
+- 2026-06-30 07:02 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/114730997.shtml)
+- 2026-06-30 06:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/94919143.shtml)
+- 2026-06-30 06:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/5376956086.shtml)
+- 2026-06-30 06:56 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/18286925.shtml)
+- 2026-06-30 06:52 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/729351.shtml)
+- 2026-06-30 07:02 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/6582450.shtml)
+- 2026-06-30 07:04 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/947645.shtml)
+- 2026-06-30 07:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/62338.shtml)
+- 2026-06-30 07:01 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/203589044.shtml)
+- 2026-06-30 06:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/21319941.shtml)
+- 2026-06-30 06:57 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/223004656585.shtml)
+- 2026-06-30 06:40 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/591178.shtml)
+- 2026-06-30 06:59 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/349386503.shtml)
+- 2026-06-30 06:44 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/244724.shtml)

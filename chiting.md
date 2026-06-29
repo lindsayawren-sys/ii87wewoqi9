@@ -1,56 +1,57 @@
-# 浙江专家成功实施肝移植术后双心室辅助术 患者恢复良好
+# 前5月惠州港船舶进出港5.5万艘次 同比增6.2%
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网杭州4月29日电(张煜欢)29日，国内首例肝移植术后双心室长期辅助(双人工心)手术患者在浙江大学医学院附属第一医院(下称浙大一院)接受复查，结果显示各项指标正常，康复情况良好。此次手术的成功，为更多终末期心衰患者带来了新生希望，也标志着浙江专家在多学科联合救治终末期心衰患者领域取得重大突破。 患者沈大爷(化名)今年61岁，有扩张型心肌病史多年。2016年，其心室射血分数E
+中新网惠州6月6日电 (记者 郭军)惠州海事局5日召开新闻发布会称，今年1月至5月，惠州辖区水上交通安全形势总体稳定向好，多项指标呈现积极增长，海事部门在保障安全、服务发展、提升治理能力等方面取得了显著成效。据统计，今年1月至5月，惠州港船舶进出港5.5万艘次，同比增长6.2%；船载货物进出港5218万吨，同比增长6.5%，其中危险货物4398万吨，同比增长11%。 为保障辖区
 
 ## 正文
 
-中新网杭州4月29日电(张煜欢)29日，国内首例肝移植术后双心室长期辅助(双人工心)手术患者在浙江大学医学院附属第一医院(下称浙大一院)接受复查，结果显示各项指标正常，康复情况良好。
+中新网惠州6月6日电 (记者 郭军)惠州海事局5日召开新闻发布会称，今年1月至5月，惠州辖区水上交通安全形势总体稳定向好，多项指标呈现积极增长，海事部门在保障安全、服务发展、提升治理能力等方面取得了显著成效。
 
-此次手术的成功，为更多终末期心衰患者带来了新生希望，也标志着浙江专家在多学科联合救治终末期心衰患者领域取得重大突破。
+据统计，今年1月至5月，惠州港船舶进出港5.5万艘次，同比增长6.2%；船载货物进出港5218万吨，同比增长6.5%，其中危险货物4398万吨，同比增长11%。
 
-患者沈大爷(化名)今年61岁，有扩张型心肌病史多年。
+为保障辖区水上交通安全形势稳定，今年1月至5月，惠州海事局派出执法人员886人次，出动船艇356艘次，巡航里程5699海里。
 
-2016年，其心室射血分数EF值仅为36%，远低于正常成年人50%至70%的水平，被诊断为心功能不全并接受药物治疗。
+惠州市海上应急搜救中心成功处置险情4宗，遇险船舶5艘，遇险6人，救起6人，搜救成功率100%，水上交通安全形势总体保持稳定。
 
-2022年，沈大爷在体检中查出肝癌，因肿瘤位置特殊，专家建议其进行肝移植。
+为筑牢安全防线，惠州海事局深入推进水上交通安全治本攻坚系列专项行动，并在节假日等重点时段对重大危险源实施提级管控；深化“商渔共治”，建成并实体化运行3个商渔船“联管中心”，对辖区20座重要桥梁落实“一桥一策”方案；强化水域管控，开展联合巡航执法行动25次，协同地方政府查获并拆解“三无”船舶，有效净化了通航环境。
 
-同年年底，通过国家卫健委COTRS系统分配，沈大爷在浙大一院成功接受肝移植手术，术后恢复良好，回归正常生活。
+针对大型危险品船舶进出港安全保障，该局落地精细化管控举措，对30万吨级油轮、LNG运输船舶实行“一船一策”全流程监管服务；依托气象联动预警机制，完善极端天气预判预警链条，在恶劣天气管控时段实现辖区水上零险情、零事故、零伤亡。
 
-然而今年2月初，沈大爷因突发晕厥被送医，后出现胸闷、气喘、头晕等症状，转入浙大一院急诊科。
-
-经该院心脏大血管外科医生紧急会诊，确诊其已发展为终末期心衰。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 06:55 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 06:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 06:35 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 06:54 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 06:53 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 06:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 06:32 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 06:41 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 06:47 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 06:44 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 06:55 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 06:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 06:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 06:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 06:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 06:48 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 06:47 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 06:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 06:43 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/190715036593.shtml)
-- 2026-06-30 06:42 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/9992644183.shtml)
-- 2026-06-30 06:32 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/2464328.shtml)
-- 2026-06-30 06:45 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/5233160938.shtml)
-- 2026-06-30 06:34 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/549574420235.shtml)
-- 2026-06-30 06:44 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/101884457780.shtml)
-- 2026-06-30 06:50 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/950885024.shtml)
-- 2026-06-30 06:44 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/6832387.shtml)
-- 2026-06-30 06:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/63287893.shtml)
-- 2026-06-30 06:38 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/20311988131.shtml)
-- 2026-06-30 06:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/451999.shtml)
-- 2026-06-30 06:34 - [刘念回应](http://www.share.minike.top/Article/details/122090722.shtml)
-- 2026-06-30 06:57 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/45220141.shtml)
-- 2026-06-30 06:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/032099316.shtml)
-- 2026-06-30 06:54 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/87338364656.shtml)
+- 2026-06-30 06:46 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/031363180949.shtml)
+- 2026-06-30 06:36 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/936765610492.shtml)
+- 2026-06-30 06:38 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/132916869700.shtml)
+- 2026-06-30 07:01 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/224520138.shtml)
+- 2026-06-30 06:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/728611942.shtml)
+- 2026-06-30 06:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3501207982.shtml)
+- 2026-06-30 06:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/34340924.shtml)
+- 2026-06-30 06:57 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/5025122816.shtml)
+- 2026-06-30 07:03 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/75850.shtml)
+- 2026-06-30 06:46 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/9282510.shtml)
+- 2026-06-30 06:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/11299203.shtml)
+- 2026-06-30 06:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/896804.shtml)
+- 2026-06-30 07:04 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/3368145905.shtml)
+- 2026-06-30 06:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/128540.shtml)
+- 2026-06-30 07:02 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/597533793.shtml)

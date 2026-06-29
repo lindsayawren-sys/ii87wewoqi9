@@ -1,60 +1,52 @@
-# “五一”假期 中外年轻人都去哪儿
+# 专访岳云鹏：热闹留给观众，独处归于自己
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻
+发布时间：2026年06月05日 18:12 来源：中国新闻网 与舞台上“热闹”的风格不同，离开对焦的镜头，岳云鹏的世界是安静的，他是“师兄弟中不爱说话的那个”。接受中国新闻网专访时，岳云鹏回顾了过去这段时间的跨界尝试，从相声到演唱会，他力求做每件事都能全身心投入。对于接下来的演唱会，岳云鹏希望可以请到师父(郭德纲)和于老师(于谦)。(记者 陈庆洋 刘星晨） 责任编辑：【程春雨
 
 ## 正文
 
-4月24日，上海，中外游客在2026年长三角文旅惠民市集体验非遗昆曲《牡丹亭》。
+发布时间：2026年06月05日 18:12 来源：中国新闻网 与舞台上“热闹”的风格不同，离开对焦的镜头，岳云鹏的世界是安静的，他是“师兄弟中不爱说话的那个”。
 
-视觉中国供图 “五一”假期临近，随着中国免签“朋友圈”不断扩大，“中国游”与出境游热度同步攀升，年轻群体成为假期出游主力，一边是出境游持续回暖，长线目的地热度攀升；另一边是入境游话题热度不减，外国游客走进更多“小而美”的中国城市。
+接受中国新闻网专访时，岳云鹏回顾了过去这段时间的跨界尝试，从相声到演唱会，他力求做每件事都能全身心投入。
 
-从“打卡式旅游”到“沉浸式体验”，出入境游双向流动背后，折射出这届年轻人文旅消费趋势的变化，也释放出中国文旅市场持续复苏的积极信号。
+对于接下来的演唱会，岳云鹏希望可以请到师父(郭德纲)和于老师(于谦)。
 
-长线目的地热度明显攀升 “五一”假期，出境出行活力持续释放。
-
-航旅纵横大数据显示，截至4月28日，“五一”假期出入境航线机票预订量超112万张，较去年同期稳步增长。
-
-在线旅游平台去哪儿发布的数据显示，平台用户已预订“五一”期间入住全球3000多个城市的酒店，热门出境目的地酒店预订量同比增长20%。
-
-泰国、韩国、马来西亚、中国香港、新加坡、越南、澳大利亚、印度尼西亚、中国澳门、意大利位列热门出境游目的地前十。
-
-值得关注的是，增幅最高的20个出境目的地中，有14个为飞行距离4000公里及以上的中长线目的地，覆盖欧洲、美洲及中亚等区域，长线游增势尤为明显。
+(记者 陈庆洋 刘星晨） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 06:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 06:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 06:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 06:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 06:46 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 06:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 06:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 06:42 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 06:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 06:46 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 06:31 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 06:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 06:53 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 06:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 06:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 06:44 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 07:05 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 07:05 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 06:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 07:03 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 07:04 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 06:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 06:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 06:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 06:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 06:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:30 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/097433814.shtml)
-- 2026-06-30 06:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/509366.shtml)
-- 2026-06-30 06:51 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/649565665.shtml)
-- 2026-06-30 06:40 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/95278926782.shtml)
-- 2026-06-30 06:54 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/360887.shtml)
-- 2026-06-30 06:31 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/659971367.shtml)
-- 2026-06-30 06:41 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/9778605.shtml)
-- 2026-06-30 06:47 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/44991370796.shtml)
-- 2026-06-30 06:50 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/5847794.shtml)
-- 2026-06-30 06:46 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/4132096188.shtml)
-- 2026-06-30 06:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/22289706219.shtml)
-- 2026-06-30 06:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/9324963104.shtml)
-- 2026-06-30 06:44 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/635168380503.shtml)
-- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/9822269.shtml)
-- 2026-06-30 06:35 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/27475738.shtml)
+- 2026-06-30 06:40 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/07929.shtml)
+- 2026-06-30 06:43 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/0497342367.shtml)
+- 2026-06-30 07:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/88558456513.shtml)
+- 2026-06-30 06:57 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/573154427.shtml)
+- 2026-06-30 07:04 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/8876068.shtml)
+- 2026-06-30 06:36 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/73524366.shtml)
+- 2026-06-30 06:56 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/00850867.shtml)
+- 2026-06-30 06:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/1623624.shtml)
+- 2026-06-30 06:40 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/064815.shtml)
+- 2026-06-30 06:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/063402843592.shtml)
+- 2026-06-30 06:43 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/43228464243.shtml)
+- 2026-06-30 06:42 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/8426249070.shtml)
+- 2026-06-30 06:40 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/2271954461.shtml)
+- 2026-06-30 06:36 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/87815.shtml)
+- 2026-06-30 07:02 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/11916588361.shtml)

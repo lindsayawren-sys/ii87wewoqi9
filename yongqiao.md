@@ -1,43 +1,57 @@
-# 王沪宁出席长江生态环境保护民主监督总结暨黄河流域生态保护和高质量发展民主监督工作启动会
+# 广东肇庆推进产教研融合 逾百个项目签约赋能产业升级
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月01日 08:31 来源：央视新闻客户端 责任编辑：【王祎】
+中新网肇庆6月5日电 (记者 蔡敏婕)肇庆市产教研融合发展大会5日在粤港澳大湾区(肇庆)科学家小镇举行。大会推动117个重点产教研合作项目集中签约，涵盖新能源汽车、新型储能、新材料、电子信息、低空经济等领域。 肇庆市位于广东省中西部，是粤港澳大湾区内地城市之一。肇庆连续两年跻身全国先进制造业百强市，“十四五”期间，该市规上工业总产值由3196亿元增至4417亿元，形成新能源汽车
 
 ## 正文
 
-发布时间：2026年05月01日 08:31 来源：央视新闻客户端 责任编辑：【王祎】
+中新网肇庆6月5日电 (记者 蔡敏婕)肇庆市产教研融合发展大会5日在粤港澳大湾区(肇庆)科学家小镇举行。
+
+大会推动117个重点产教研合作项目集中签约，涵盖新能源汽车、新型储能、新材料、电子信息、低空经济等领域。
+
+肇庆市位于广东省中西部，是粤港澳大湾区内地城市之一。
+
+肇庆连续两年跻身全国先进制造业百强市，“十四五”期间，该市规上工业总产值由3196亿元增至4417亿元，形成新能源汽车、金属加工2个千亿级产业集群，新型储能、新一代电子信息等多个产业跻身500亿级梯队，“主导+特色”产业占规上工业比重达82%。
+
+当天，肇庆市产教研联盟揭牌成立，搭建起政府、企业、高校、科研机构等多方联动、协同创新平台。
+
+肇庆产教研联盟是一个非营利性、非法人开放合作平台，采用“联席会议+盟主单位+专业委员会+成员单位”组织架构，按新能源汽车、新材料、电子信息等重点产业设立专业委员会，现有首批成员单位50家，涵盖企业、大中专院校、科研院所、行业协会等各类主体，构建“企业出题、院校育人、科研答题、市场阅卷”产教研闭环发展生态。
+
+联盟聚焦七大核心任务：共建产业学院与实训基地；集聚培育高层次与技能人才，完善双导师制度；共建创新联合体，攻关产业关键技术；创新多元模式，加速科技成果落地转化；统筹科研设备、课程、专家等资源开放共享；打通校企招工就业对接渠道；联动广深港澳创新资源，拓宽对外合作等。
+
+据介绍，肇庆将构建“一廊四园多节点”空间格局：以高鼎端科教创新走廊为主轴，以肇庆高新区、东进产业园、砚阳湖高新区、金利高新区为主阵地，发挥高校、科研平台等重要节点作用，积极对接广深港、广珠澳科技创新走廊，建好用好粤港澳大湾区(肇庆)科学家小镇，打造肇庆科教创新主平台。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 06:36 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 06:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 06:40 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 06:47 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 06:51 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 06:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 06:54 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 06:32 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 06:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 06:45 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 06:37 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 06:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 07:05 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 06:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 06:46 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 07:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 06:47 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 06:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 06:43 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:42 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 06:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/07684599.shtml)
-- 2026-06-30 06:53 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/51573.shtml)
-- 2026-06-30 06:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/48094.shtml)
-- 2026-06-30 06:51 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/745368124.shtml)
-- 2026-06-30 06:32 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/1545870.shtml)
-- 2026-06-30 06:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/12058774625.shtml)
-- 2026-06-30 06:39 - [小娘惹](http://www.share.minike.top/Article/details/738573513.shtml)
-- 2026-06-30 06:44 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/24057162.shtml)
-- 2026-06-30 06:47 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/294015674.shtml)
-- 2026-06-30 06:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/77705.shtml)
-- 2026-06-30 06:51 - [扬名立万](https://www.share.minike.top/Article/details/72955145000.shtml)
-- 2026-06-30 06:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/93329.shtml)
-- 2026-06-30 06:41 - [斛珠夫人](http://www.blog.minike.top/Article/details/12471692683.shtml)
-- 2026-06-30 06:43 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/727025328188.shtml)
-- 2026-06-30 06:31 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/70182.shtml)
+- 2026-06-30 06:43 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/59662479946.shtml)
+- 2026-06-30 06:40 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/64727714437.shtml)
+- 2026-06-30 07:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/79774.shtml)
+- 2026-06-30 06:55 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/499496679088.shtml)
+- 2026-06-30 07:02 - [周生如故](http://www.share.minike.top/Article/details/16107.shtml)
+- 2026-06-30 06:54 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/0107316.shtml)
+- 2026-06-30 06:56 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/3849788365.shtml)
+- 2026-06-30 06:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/181000638526.shtml)
+- 2026-06-30 06:48 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/39292604.shtml)
+- 2026-06-30 06:55 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/8050455.shtml)
+- 2026-06-30 06:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/20725999.shtml)
+- 2026-06-30 06:50 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/3999895657.shtml)
+- 2026-06-30 07:00 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/07964055529.shtml)
+- 2026-06-30 06:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/87619756.shtml)
+- 2026-06-30 06:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/3343231593.shtml)

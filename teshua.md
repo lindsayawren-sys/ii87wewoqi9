@@ -1,54 +1,57 @@
-# 三亚亚沙会：中国体育代表团已创参赛历史最好成绩
+# 2026年国家统一法律职业资格考试将于6月15日起报名
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 21:00 来源：中国新闻网 4月29日，第六届亚洲沙滩运动会渐近尾声。三亚亚沙会中国体育代表团副团长兼秘书长张新受访时说，截至目前，中国体育代表团共获得22金17银11铜。虽然比赛尚未结束，但已提前锁定金牌榜、奖牌榜第一，创参赛历史最好成绩。 张新称，从成绩可看出，本届代表团优势项目更加稳固、新增项目取得突破，项目布局更为均衡、年轻选手表现突
+中新网6月5日电 据司法部网站消息，司法部发布2026年国家统一法律职业资格考试公告，明确2026年客观题考试网上报名时间为6月15日至6月29日，交费截止时间为7月4日。 公告明确，2026年实施新一轮国家统一法律职业资格考试放宽政策(2026-2030年)，报名人员户籍在放宽地方的，可将报名学历条件放宽为高等学校本科毕业。考试继续允许符合专业学历条件的全日制普通高等学校、军
 
 ## 正文
 
-发布时间：2026年04月29日 21:00 来源：中国新闻网 4月29日，第六届亚洲沙滩运动会渐近尾声。
+中新网6月5日电 据司法部网站消息，司法部发布2026年国家统一法律职业资格考试公告，明确2026年客观题考试网上报名时间为6月15日至6月29日，交费截止时间为7月4日。
 
-三亚亚沙会中国体育代表团副团长兼秘书长张新受访时说，截至目前，中国体育代表团共获得22金17银11铜。
+公告明确，2026年实施新一轮国家统一法律职业资格考试放宽政策(2026-2030年)，报名人员户籍在放宽地方的，可将报名学历条件放宽为高等学校本科毕业。
 
-虽然比赛尚未结束，但已提前锁定金牌榜、奖牌榜第一，创参赛历史最好成绩。
+考试继续允许符合专业学历条件的全日制普通高等学校、军队院校2027年应届本科、硕士及以上学历毕业生(包括专升本、第二学士学位、专升研)报考。
 
-张新称，从成绩可看出，本届代表团优势项目更加稳固、新增项目取得突破，项目布局更为均衡、年轻选手表现突出，中国沙滩运动整体实力大幅跃升，实现了“巩固优势、挖掘潜力、培育新增长点”的参赛目标。
+同时，考试继续允许具备全日制普通高等学校非法学类本科及以上学历并获得相应学位且从事法律工作满三年的人员报考。
 
-张新表示，通过参加亚沙会，展示了中国体育多元开放的发展前景。
+公告同时明确，考试继续实行计算机化考试，对因身体、年龄等原因使用计算机考试确有困难的，主观题考试保留使用纸笔答题方式。
 
-本次中国体育代表团运动员以专业队为主，同时广泛吸纳社会力量参与，选手来自社会各界多个群体，充分体现体教融合、全民健身、社会力量办体育的丰硕成果，并向世界展示了中国体育开放、包容、创新、多元的良好发展态势。
+报考人员可自主选择在司法行政机关设置的考区报考，如部分考区报考人数达到机位数量上限的，可选择其他考区报考。
 
-(陈英清 部分视频来源 第六届亚洲沙滩运动会组委会) 责任编辑：【周驰】
+公告明确，2026年法律职业资格客观题考试时间为9月12日、13日，主观题考试时间为10月18日。
+
+关于报考地法律职业资格考试其他具体事宜，由本地司法行政机关向社会公告。
 
 ## 相关推荐
 
-- 2026-06-30 06:34 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 06:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 06:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 06:33 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 06:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 06:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 06:53 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 06:56 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 06:48 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 06:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 06:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 06:47 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 06:58 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 06:41 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 06:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 06:38 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 06:37 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 06:40 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 06:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/7156646009.shtml)
-- 2026-06-30 06:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/5627111.shtml)
-- 2026-06-30 06:49 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/119391731.shtml)
-- 2026-06-30 06:48 - [一生一世](http://www.blog.kurohicncr.top/Article/details/58337626724.shtml)
-- 2026-06-30 06:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/250304252556.shtml)
-- 2026-06-30 06:41 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/75663816.shtml)
-- 2026-06-30 06:59 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/144325417594.shtml)
-- 2026-06-30 06:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/5144523856.shtml)
-- 2026-06-30 06:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/776524179970.shtml)
-- 2026-06-30 06:59 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/72441.shtml)
-- 2026-06-30 06:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/2331057826.shtml)
-- 2026-06-30 06:45 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/86843.shtml)
-- 2026-06-30 06:41 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/76027047.shtml)
-- 2026-06-30 06:42 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/707578.shtml)
-- 2026-06-30 06:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/9399192566.shtml)
+- 2026-06-30 06:59 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/82943261530.shtml)
+- 2026-06-30 06:41 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/6290520.shtml)
+- 2026-06-30 06:48 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/82575790200.shtml)
+- 2026-06-30 06:56 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/54932624.shtml)
+- 2026-06-30 06:38 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/77656.shtml)
+- 2026-06-30 06:36 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/04346796.shtml)
+- 2026-06-30 06:37 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/399529939.shtml)
+- 2026-06-30 07:03 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/3079298659.shtml)
+- 2026-06-30 06:47 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/47283325499.shtml)
+- 2026-06-30 06:58 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/49606.shtml)
+- 2026-06-30 06:43 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/704071902.shtml)
+- 2026-06-30 06:36 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/99456450.shtml)
+- 2026-06-30 06:40 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/675842.shtml)
+- 2026-06-30 06:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/221120795.shtml)
+- 2026-06-30 07:05 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/7140486450.shtml)

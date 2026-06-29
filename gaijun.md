@@ -1,59 +1,61 @@
-# 云服务、游戏双双“失速” 中青宝营收四连降 一季度再跌35%创历史新低
+# 操盘必读：影响股市利好或利空消息_2026年6月5日_财经新闻
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-2026年4月28日晚，“网游第一股”中青宝（维权）（300052）同时交出了2025年年报和2026年一季报两份成绩单，数字触目惊心。2025年全年营业收入1.84亿元，同比下降19.16%，已连续第四年下滑；归母净利润亏损5507.62万元，连亏四年。更令人担忧的是，公司才刚刚于4月16日摘掉“ST”的帽子，仅两周后便用一季报的数据击穿了市场刚刚修复的信心。 营收四连降，净
+宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。有记者提问称，日前欧委会全体会议讨论对华关系，有观点认为中欧贸易和投资状况“不可持续”，欧盟应对华“去风险”。毛宁表示，贸易保护主义违背经济规律，损人不利己。希望欧方客观理性看待中欧经贸关系，同中方一道压缩问题清单，做大合作蛋糕，实现互利共赢。 2、商务部昨日举行例行新闻发布会，新闻发言人何咏前在回答美国商务部封堵所谓芯片“监管
 
 ## 正文
 
-2026年4月28日晚，“网游第一股”中青宝（维权）（300052）同时交出了2025年年报和2026年一季报两份成绩单，数字触目惊心。
+宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。
 
-2025年全年营业收入1.84亿元，同比下降19.16%，已连续第四年下滑；归母净利润亏损5507.62万元，连亏四年。
+有记者提问称，日前欧委会全体会议讨论对华关系，有观点认为中欧贸易和投资状况“不可持续”，欧盟应对华“去风险”。
 
-更令人担忧的是，公司才刚刚于4月16日摘掉“ST”的帽子，仅两周后便用一季报的数据击穿了市场刚刚修复的信心。
+毛宁表示，贸易保护主义违背经济规律，损人不利己。
 
-营收四连降，净亏损持续扩大 2025年全年数据触底，交出了一份几乎全线“飘绿”的成绩单。
+希望欧方客观理性看待中欧经贸关系，同中方一道压缩问题清单，做大合作蛋糕，实现互利共赢。
 
-公司全年实现营业总收入1.84亿元，同比下降19.16%；归母净利润亏损5507.62万元，亏损额较上年同期的5274.18万元再扩大4.43%；扣非净利润亏损4557.83万元；经营活动产生的现金流量净额3428.76万元，同比下降37.34%。
+2、商务部昨日举行例行新闻发布会，新闻发言人何咏前在回答美国商务部封堵所谓芯片“监管漏洞”的有关提问时表示，近年来美方不断以国家安全为由滥用出口管制，严重损害中国企业正当权益，严重破坏国际经贸秩序，严重冲击全球半导体产业链供应链稳定，中方对此一贯反对。
 
-从历史纵向看，中青宝的颓势已是积重难返。
+中方敦促美方尽快纠正错误做法，停止对华歧视性措施，维护全球产业链供应链稳定。
 
-自2022年起，公司营业收入便进入持续单边下行通道，四年间几乎每年都在刷新历史最低纪录。
+3、央行公告，为保持银行体系流动性充裕，2026年6月5日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为3个月，到期日为2026年9月5日。
 
-进入2026年，情况非但没有好转，反而呈现加速恶化态势。
+4、6月3日，世贸组织小型部长会议在法国巴黎举行。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 06:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 06:40 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 06:58 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 06:59 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 06:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 06:34 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 06:31 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 06:35 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 06:55 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 06:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 06:35 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 07:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 06:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 07:01 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 07:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 06:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 07:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 07:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 07:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 06:46 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 06:46 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 06:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 07:02 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 06:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 06:45 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 07:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:34 - [毒液2](http://www.share.kurohicncr.top/Article/details/25739.shtml)
-- 2026-06-30 06:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/5016095.shtml)
-- 2026-06-30 06:32 - [极限挑战第一季](http://www.blog.minike.top/Article/details/57743592.shtml)
-- 2026-06-30 06:59 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/2409136.shtml)
-- 2026-06-30 06:35 - [巴西vs日本](http://www.blog.minike.top/Article/details/00827262978.shtml)
-- 2026-06-30 06:58 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/99017354.shtml)
-- 2026-06-30 06:40 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/78742.shtml)
-- 2026-06-30 06:40 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/7655925.shtml)
-- 2026-06-30 06:30 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/98058212.shtml)
-- 2026-06-30 06:53 - [扬名立万](http://www.share.minike.top/Article/details/24434.shtml)
-- 2026-06-30 06:37 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/76001933174.shtml)
-- 2026-06-30 06:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/956631.shtml)
-- 2026-06-30 06:59 - [美人鱼](https://www.share.minike.top/Article/details/0219587.shtml)
-- 2026-06-30 06:39 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/5954035.shtml)
-- 2026-06-30 06:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5557799.shtml)
+- 2026-06-30 06:46 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/279391301.shtml)
+- 2026-06-30 06:37 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/14224.shtml)
+- 2026-06-30 06:43 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/330241913.shtml)
+- 2026-06-30 06:51 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/620136.shtml)
+- 2026-06-30 07:05 - [一生一世](http://www.blog.kurohicncr.top/Article/details/923916425929.shtml)
+- 2026-06-30 06:52 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/02547.shtml)
+- 2026-06-30 06:56 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/75620077946.shtml)
+- 2026-06-30 06:41 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/2974356425.shtml)
+- 2026-06-30 06:37 - [日本16强魔咒](https://www.share.minike.top/Article/details/03004.shtml)
+- 2026-06-30 07:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/0589380.shtml)
+- 2026-06-30 06:38 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/82652.shtml)
+- 2026-06-30 07:00 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/990864.shtml)
+- 2026-06-30 06:56 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/900274603757.shtml)
+- 2026-06-30 06:45 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/4936458.shtml)
+- 2026-06-30 06:38 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/324520785.shtml)

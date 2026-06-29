@@ -1,61 +1,58 @@
-# 北方多地气温冲击30℃ 五一假期新一轮降雨来袭
+# Chipotle获摩根大通上调评级 股价止跌回升
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。 五一假期新一轮降水发展 南方2日
+Chipotle Mexican Grill股价周五走高，此前摩根大通将该股评级从中性上调至超配，认为这家墨西哥风味快餐连锁店的股价已跌出吸引力。 摩根大通分析师在报告中指出，市场对Chipotle增长放缓的预期已充分反映在股价中。该行将目标股价从38美元下调至35美元，但仍意味着较当前水平存在约24%的上行空间。此次评级上调是在与分析师的会面之后做出的，Chipotle管理层
 
 ## 正文
 
-北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。
+Chipotle Mexican Grill股价周五走高，此前摩根大通将该股评级从中性上调至超配，认为这家墨西哥风味快餐连锁店的股价已跌出吸引力。
 
-不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。
+摩根大通分析师在报告中指出，市场对Chipotle增长放缓的预期已充分反映在股价中。
 
-五一假期新一轮降水发展 南方2日至3日迎强降雨 4月26日夜间开始的南方强降雨过程，给广西、广东、贵州、湖南、江西等多地带来暴雨，不少地方甚至打破当地降雨量纪录。
+该行将目标股价从38美元下调至35美元，但仍意味着较当前水平存在约24%的上行空间。
 
-昨天这轮过程有所减弱，但上海东部、浙江、福建东部和北部、广东东部及台湾岛北部等地出现大雨或暴雨，广东珠海、河源、潮州等局地遭遇大暴雨。
+此次评级上调是在与分析师的会面之后做出的，Chipotle管理层承认了2025年运营中出现的失误，并概述了通过市场营销、运营改进和国际扩张来重振增长的计划。
 
-今天，南方降雨过程基本结束，全国大部地区天气晴好，仅西藏、青海等地有明显降水。
+Chipotle股价此前经历了持续下跌，周四触及28.04美元，为三年多来的最低点。
 
-预计，西藏中北部、青海大部、川西高原北部、新疆南疆西部山区等地部分地区有小到中雪或雨夹雪，其中，西藏北部、青海西南部等地部分地区有大雪；西藏东南部、青海东部、云南西南部、台湾岛等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
+过去12个月，该股累计跌幅超过46%，大幅跑输行业平均水平。
 
-明天，五一假期将开启，新一轮降水又将发展起来，青藏高原、西北地区东部、华北大部、黄淮南部及南方地区自西向东将有大范围降水过程，其中江南、华南中北部等地有大到暴雨，局地大暴雨，部分地区伴有雷暴大风、短时强降水等强对流天气，强降雨时段主要在5月2日至3日。
+Chipotle正面临显著的利润压力。
 
-具体来看，明天降雨主要集中在青藏高原、西北地区东部、西南地区等地，预计内蒙古东北部、黑龙江西北部、新疆南疆西部山区、西藏中部、青海东部和南部、川西高原北部、甘肃河西等地部分地区有小到中雪或雨夹雪；西藏东南部、陕西南部、湖北西部、重庆大部、四川北部和东部等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
+管理层预计2026年全年价格涨幅约为1%至2%，而通胀率预计在3%至4%区间，这一缺口预计将带来约150个基点的餐厅层面利润率压力。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 06:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 06:43 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 06:37 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 06:57 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 06:50 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 06:30 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 06:43 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 06:34 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 06:57 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 06:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 06:30 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 06:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 06:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 06:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 06:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 06:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 07:02 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 06:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 06:56 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:04 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 06:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 06:46 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 06:52 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 06:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 06:38 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:36 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/305559679508.shtml)
-- 2026-06-30 06:48 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/573053.shtml)
-- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/99737.shtml)
-- 2026-06-30 06:57 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/690304359.shtml)
-- 2026-06-30 06:33 - [内马尔替补](https://www.blog.minike.top/Article/details/86441167694.shtml)
-- 2026-06-30 06:59 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/5101154.shtml)
-- 2026-06-30 06:40 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/72458141303.shtml)
-- 2026-06-30 06:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/41512931.shtml)
-- 2026-06-30 06:45 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/78826070.shtml)
-- 2026-06-30 06:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/287325311640.shtml)
-- 2026-06-30 06:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/04133164691.shtml)
-- 2026-06-30 06:56 - [沙丘](http://www.blog.minike.top/Article/details/8311890.shtml)
-- 2026-06-30 06:55 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/55321409.shtml)
-- 2026-06-30 06:52 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/00020.shtml)
-- 2026-06-30 06:44 - [美人鱼](http://www.share.kurohicncr.top/Article/details/694356082.shtml)
+- 2026-06-30 07:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/789494.shtml)
+- 2026-06-30 06:54 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/19949663.shtml)
+- 2026-06-30 06:58 - [一生一世](http://www.blog.kurohicncr.top/Article/details/1750670.shtml)
+- 2026-06-30 06:58 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/53114089.shtml)
+- 2026-06-30 06:36 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/223852126.shtml)
+- 2026-06-30 06:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/77381237226.shtml)
+- 2026-06-30 07:00 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/487296186626.shtml)
+- 2026-06-30 07:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/86644827.shtml)
+- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/1998870972.shtml)
+- 2026-06-30 06:38 - [日本16强魔咒](http://www.blog.minike.top/Article/details/9017490565.shtml)
+- 2026-06-30 06:58 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/02120249093.shtml)
+- 2026-06-30 06:57 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/8236839301.shtml)
+- 2026-06-30 06:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/36956493.shtml)
+- 2026-06-30 06:48 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/30522039.shtml)
+- 2026-06-30 06:52 - [千香](http://www.blog.kurohicncr.top/Article/details/4342300392.shtml)

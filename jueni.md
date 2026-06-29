@@ -1,43 +1,57 @@
-# 视频|杨德龙：中国4月官方制造业PMI小幅下滑至50.3 后续保持温和复苏状态
+# 美参议院通过约700亿美元移民执法拨款法案
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-责任编辑：石秀珍 SF183
+中新社华盛顿6月5日电 (记者 沙晗汀)美国国会参议院当地时间5日投票通过一项约700亿美元拨款法案，将向移民执法相关部门提供资金。 在当天的投票中，52票赞成、47票反对。投票结果基本按照党派划线，一名共和党议员加入民主党阵营投票反对。 该法案将向移民执法相关部门提供未来3年总计约700亿美元资金，其中向移民与海关执法局提供385亿美元资金，向海关与边境保护局提供260亿美元
 
 ## 正文
 
-责任编辑：石秀珍 SF183
+中新社华盛顿6月5日电 (记者 沙晗汀)美国国会参议院当地时间5日投票通过一项约700亿美元拨款法案，将向移民执法相关部门提供资金。
+
+在当天的投票中，52票赞成、47票反对。
+
+投票结果基本按照党派划线，一名共和党议员加入民主党阵营投票反对。
+
+该法案将向移民执法相关部门提供未来3年总计约700亿美元资金，其中向移民与海关执法局提供385亿美元资金，向海关与边境保护局提供260亿美元资金，另外50亿美元资金由国土安全部长马林支配。
+
+该法案整个投票过程耗时18小时，从4日开始至5日凌晨才产生结果。
+
+在投票过程中，民主党和共和党议员多次提出补充条款，但均被否决。
+
+接下来，众议院将对该法案举行投票。
+
+如果获得通过，将送往白宫由总统签字生效。
 
 ## 相关推荐
 
-- 2026-06-30 06:41 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 06:51 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 06:49 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 06:52 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 06:45 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 06:37 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 06:50 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 06:56 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 06:53 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 06:43 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 06:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 06:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 06:46 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 06:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 06:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 06:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:53 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 06:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 06:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 07:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 06:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/78931.shtml)
-- 2026-06-30 06:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/32519632398.shtml)
-- 2026-06-30 06:44 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/86340750.shtml)
-- 2026-06-30 06:39 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/429244921.shtml)
-- 2026-06-30 06:54 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/4672378.shtml)
-- 2026-06-30 06:55 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/72526654026.shtml)
-- 2026-06-30 06:58 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/6689177058.shtml)
-- 2026-06-30 06:55 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/639151980937.shtml)
-- 2026-06-30 06:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/79668.shtml)
-- 2026-06-30 06:57 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/7923574.shtml)
-- 2026-06-30 06:40 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6371779.shtml)
-- 2026-06-30 06:30 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/66858.shtml)
-- 2026-06-30 06:34 - [扫黑风暴](http://www.blog.minike.top/Article/details/246963.shtml)
-- 2026-06-30 06:40 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/706419587.shtml)
-- 2026-06-30 06:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/6378168.shtml)
+- 2026-06-30 06:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/430737.shtml)
+- 2026-06-30 07:03 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/59264.shtml)
+- 2026-06-30 06:55 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/157246046320.shtml)
+- 2026-06-30 06:47 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/594660467.shtml)
+- 2026-06-30 06:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/83898.shtml)
+- 2026-06-30 06:46 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/462887.shtml)
+- 2026-06-30 06:55 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/28609757577.shtml)
+- 2026-06-30 06:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/63539.shtml)
+- 2026-06-30 06:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9039446.shtml)
+- 2026-06-30 07:05 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/93276436.shtml)
+- 2026-06-30 06:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/495725.shtml)
+- 2026-06-30 06:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/737044379072.shtml)
+- 2026-06-30 06:37 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/075816664369.shtml)
+- 2026-06-30 07:02 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/30949756.shtml)
+- 2026-06-30 07:03 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4857394891.shtml)

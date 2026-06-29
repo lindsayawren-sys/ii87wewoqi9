@@ -1,55 +1,59 @@
-# 十二花神添春意 2026上海龙华庙会热闹开启
+# 焦点访谈｜智能时代的“用电量”！这个爆火的硬核新词，正在重塑千行百业
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 17:52 来源：中国新闻网 4月30日，2026上海龙华庙会在徐汇区龙华广场热闹启幕。“十二花神”巡街，为这场沪上春日盛会增添一抹亮色。 上海龙华庙会历史悠久，已被列入国家级非物质文化遗产名录。 今年的上海龙华庙会，以“十二花神”为全新文化故事线，形成“1场庙会、2处市集、3个舞台、70多个摊位、12个花神打卡点、85场演出、12场巡游、35
+央视网消息(焦点访谈)：最近有个新词儿很火，Token，也就是词元。词元是大模型处理信息的最小单元，简单来说，就像我们说话时的词语、标点，是AI理解和生成语言的基本“积木”，一句话、一段文字都会被拆成若干个词元来计算。和我们通过用电量来衡量工业活力一样，词元调用量也是衡量人工智能发展的全新时代标尺。今年3月，我国日均词元调用量突破140万亿，两年增长超千倍。那么，为什么会出现如
 
 ## 正文
 
-发布时间：2026年04月30日 17:52 来源：中国新闻网 4月30日，2026上海龙华庙会在徐汇区龙华广场热闹启幕。
+央视网消息(焦点访谈)：最近有个新词儿很火，Token，也就是词元。
 
-“十二花神”巡街，为这场沪上春日盛会增添一抹亮色。
+词元是大模型处理信息的最小单元，简单来说，就像我们说话时的词语、标点，是AI理解和生成语言的基本“积木”，一句话、一段文字都会被拆成若干个词元来计算。
 
-上海龙华庙会历史悠久，已被列入国家级非物质文化遗产名录。
+和我们通过用电量来衡量工业活力一样，词元调用量也是衡量人工智能发展的全新时代标尺。
 
-今年的上海龙华庙会，以“十二花神”为全新文化故事线，形成“1场庙会、2处市集、3个舞台、70多个摊位、12个花神打卡点、85场演出、12场巡游、35场非遗体验”的盛大庙会，现场可玩、可购，为市民游客奉上“文商旅体展”深度融合的春日盛宴。
+今年3月，我国日均词元调用量突破140万亿，两年增长超千倍。
 
-(记者 郑莹莹 制作 徐妙巧） 责任编辑：【周驰】
+那么，为什么会出现如此巨量的增长？
+
+词元用到了哪些地方？
+
+这场词元大爆炸又意味着什么？
+
+最近，Token这个词特别火，Token中文名叫词元。
 
 ## 相关推荐
 
-- 2026-06-30 06:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 06:42 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 06:46 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 06:32 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 06:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 06:46 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 06:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 06:46 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 06:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 06:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 06:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 06:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 06:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 06:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 06:31 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 06:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 06:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 06:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 06:58 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 07:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 06:45 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 07:01 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 06:43 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 06:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 06:46 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 07:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 06:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 06:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/78273.shtml)
-- 2026-06-30 06:40 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/51412613.shtml)
-- 2026-06-30 06:45 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/5456101.shtml)
-- 2026-06-30 06:43 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/59892.shtml)
-- 2026-06-30 06:59 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/97513881450.shtml)
-- 2026-06-30 06:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/948653148.shtml)
-- 2026-06-30 06:54 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/861711.shtml)
-- 2026-06-30 06:34 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/2501562718.shtml)
-- 2026-06-30 06:50 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/941880919206.shtml)
-- 2026-06-30 06:51 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/897545.shtml)
-- 2026-06-30 06:30 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/955074.shtml)
-- 2026-06-30 06:31 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/3190662411.shtml)
-- 2026-06-30 06:42 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/86074454027.shtml)
-- 2026-06-30 06:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/02808.shtml)
-- 2026-06-30 06:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/24900283.shtml)
+- 2026-06-30 06:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/7323644104.shtml)
+- 2026-06-30 06:51 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/470730.shtml)
+- 2026-06-30 06:39 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/368654.shtml)
+- 2026-06-30 06:51 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/596332345.shtml)
+- 2026-06-30 06:39 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/633789463900.shtml)
+- 2026-06-30 06:39 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/417739458721.shtml)
+- 2026-06-30 06:47 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/08380270.shtml)
+- 2026-06-30 07:01 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/54379.shtml)
+- 2026-06-30 06:51 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/059184323.shtml)
+- 2026-06-30 06:54 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7395100457.shtml)
+- 2026-06-30 07:03 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/278727988.shtml)
+- 2026-06-30 06:48 - [毒液2](http://www.share.minike.top/Article/details/405664839679.shtml)
+- 2026-06-30 07:05 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/94056219338.shtml)
+- 2026-06-30 06:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/68634.shtml)
+- 2026-06-30 06:58 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/82501759916.shtml)

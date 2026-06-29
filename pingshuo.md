@@ -1,58 +1,57 @@
-# 宁夏以“数字农具”刷新农业现代化底色
+# 外媒称全球AI竞赛进入了“中美争霸”，外交部回应
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网银川4月30日电 (记者 于晶)4月30日，在宁夏银川市一智慧农场里，搭载北斗导航系统的农机正沿着预设路径自动作业，完成播种、施肥、植保等一系列工序。数据显示，相比传统方式，种子用量减少40%，智能变量施肥节约肥料22%，无人机植保减少农药用量25%，每亩生产成本降低超过160元。 “以前10个人管300亩地，现在3个人通过终端就能操控所有农机。”该农场负责人介绍。这种由
+6月5日，外交部发言人毛宁主持例行记者会。 有记者提问，我们注意到，近期西方媒体有观点认为，全球AI竞赛进入了“中美争霸”，或将加剧科技领域的阵营对抗。同时，中美科技企业在通用大模型机器人等领域最近也落地了多个合作项目，不少业界人士呼吁两国在AI方面开展合作。请问中方如何看待上述动向？ 毛宁表示，人工智能正在深刻改变生产生活方式，是人类需要共同面对的新课题。人工智能不是大国的专
 
 ## 正文
 
-中新网银川4月30日电 (记者 于晶)4月30日，在宁夏银川市一智慧农场里，搭载北斗导航系统的农机正沿着预设路径自动作业，完成播种、施肥、植保等一系列工序。
+6月5日，外交部发言人毛宁主持例行记者会。
 
-数据显示，相比传统方式，种子用量减少40%，智能变量施肥节约肥料22%，无人机植保减少农药用量25%，每亩生产成本降低超过160元。
+有记者提问，我们注意到，近期西方媒体有观点认为，全球AI竞赛进入了“中美争霸”，或将加剧科技领域的阵营对抗。
 
-“以前10个人管300亩地，现在3个人通过终端就能操控所有农机。
+同时，中美科技企业在通用大模型机器人等领域最近也落地了多个合作项目，不少业界人士呼吁两国在AI方面开展合作。
 
-”该农场负责人介绍。
+请问中方如何看待上述动向？
 
-这种由“汗水农业”向“智慧农业”转变的场景，正在宁夏各地不断上演。
+毛宁表示，人工智能正在深刻改变生产生活方式，是人类需要共同面对的新课题。
 
-2026年一季度，宁夏农林牧渔业总产值达140.1亿元，同比增长5.7%；第一产业增加值61.49亿元，同比增长5.8%，增速位居全国第3位。
+人工智能不是大国的专利，更不应滑向竞争对抗。
 
-其中，数据驱动成为关键变量。
+中方始终坚持人工智能以人为本、开放包容。
 
-春耕生产中，宁夏60.49万亩春小麦播种任务已全面完成，冬小麦越冬存活率保持在95%左右，苗情长势为近年较好水平。
+我们提出全球人工智能治理倡议，连续8年举行世界人工智能大会，倡议成立世界人工智能合作组织，核心就是通过对话凝聚共识、深化合作，打造开放、平等、公平、非歧视的人工智能发展环境。
 
 ## 相关推荐
 
-- 2026-06-30 06:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 06:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 06:42 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 06:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 06:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 06:46 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 06:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 06:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 06:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 06:51 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 06:48 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 06:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 06:53 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 06:40 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 06:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 06:48 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 06:59 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 06:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 06:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 06:38 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 06:39 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 06:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/1109334.shtml)
-- 2026-06-30 06:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/1623574556.shtml)
-- 2026-06-30 06:47 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/27095235.shtml)
-- 2026-06-30 06:39 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/3777628.shtml)
-- 2026-06-30 06:41 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/3639377.shtml)
-- 2026-06-30 06:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/6512698.shtml)
-- 2026-06-30 06:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/3833155.shtml)
-- 2026-06-30 06:42 - [沉睡花园](https://www.share.minike.top/Article/details/52101.shtml)
-- 2026-06-30 06:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/76950558.shtml)
-- 2026-06-30 06:54 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/5662450008.shtml)
-- 2026-06-30 06:32 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/68335095362.shtml)
-- 2026-06-30 06:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/546781413752.shtml)
-- 2026-06-30 06:38 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/723021111.shtml)
-- 2026-06-30 06:49 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/40622.shtml)
-- 2026-06-30 06:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/2602049196.shtml)
+- 2026-06-30 06:44 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/722733.shtml)
+- 2026-06-30 06:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/5482386.shtml)
+- 2026-06-30 07:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/83974418.shtml)
+- 2026-06-30 06:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/0635876458.shtml)
+- 2026-06-30 06:41 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/023636475873.shtml)
+- 2026-06-30 06:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/62471.shtml)
+- 2026-06-30 06:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/81603275.shtml)
+- 2026-06-30 06:44 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/50384288002.shtml)
+- 2026-06-30 06:38 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/80770567347.shtml)
+- 2026-06-30 07:04 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/58573272904.shtml)
+- 2026-06-30 06:54 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/22169.shtml)
+- 2026-06-30 06:39 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/68890848798.shtml)
+- 2026-06-30 06:46 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/59593674097.shtml)
+- 2026-06-30 06:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/820510751.shtml)
+- 2026-06-30 06:48 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/54536711.shtml)

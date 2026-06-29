@@ -1,58 +1,53 @@
-# 温克尔沃斯兄弟加密交易所获关键监管批准，剑指衍生品扩张
+# “爱达·魔都号”开启全国首个邮轮无目的地海上游航次
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-Gemini Space Station已获得美国商品期货交易委员会（CFTC）批准，可运营其自有的受监管衍生品清算所。这一举措使温克尔沃斯兄弟旗下的这家加密货币交易所能够自行清算和结算交易，而无需依赖外部基础设施，从而对其预测市场产品的运作和规模化获得更大的控制权。 此消息推动该公司股价在盘前交易中上涨了2.5%。 Gemini总裁兼联合创始人卡梅伦·温克尔沃斯在接受CNBC
+发布时间：2026年06月06日 21:29 来源：中国新闻网 6月6日，中国首艘国产大型邮轮“爱达·魔都号”搭载4000余名宾客从上海吴淞口国际邮轮港出发，开启全国首个无目的地海上游航次，为国内外宾客带来一场海上微度假。 此次，“爱达·魔都号”从上海出发，以海上狂欢为主题，开启为期3天2晚的海上周末之旅。作为邮轮产品创新的一次突破，该航次旨在为行业探索出一条从“靠港游”到“船
 
 ## 正文
 
-Gemini Space Station已获得美国商品期货交易委员会（CFTC）批准，可运营其自有的受监管衍生品清算所。
+发布时间：2026年06月06日 21:29 来源：中国新闻网 6月6日，中国首艘国产大型邮轮“爱达·魔都号”搭载4000余名宾客从上海吴淞口国际邮轮港出发，开启全国首个无目的地海上游航次，为国内外宾客带来一场海上微度假。
 
-这一举措使温克尔沃斯兄弟旗下的这家加密货币交易所能够自行清算和结算交易，而无需依赖外部基础设施，从而对其预测市场产品的运作和规模化获得更大的控制权。
+此次，“爱达·魔都号”从上海出发，以海上狂欢为主题，开启为期3天2晚的海上周末之旅。
 
-此消息推动该公司股价在盘前交易中上涨了2.5%。
+作为邮轮产品创新的一次突破，该航次旨在为行业探索出一条从“靠港游”到“船上体验游”的新路径。
 
-Gemini总裁兼联合创始人卡梅伦·温克尔沃斯在接受CNBC独家采访时表示：“考虑到预测市场以及未来加密衍生品的巨大机遇，端到端地拥有和运营市场是非常强大的。
-
-” 此次获批标志着Gemini在构建全方位合规衍生品平台的道路上迈出了关键一步。
-
-据悉，Gemini旗下的Olympus部门获得的这张衍生品清算组织（DCO）牌照，使其能够作为内部清算机构，独立处理结算、风险管理及抵押品管理。
-
-这彻底改变了之前必须依赖第三方清算机构的模式，有望显著降低运营成本并提升交易效率。
-
-早在2025年12月，Gemini的一家关联实体已获得CFTC颁发的指定合约市场（DCM）牌照，并借此推出了预测市场。
+(李秋莹 谢梦圆 制作 王佳琪） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 06:45 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 06:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 06:53 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 06:35 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 06:50 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 06:32 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 06:30 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 06:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:49 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 06:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 06:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 06:37 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 07:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 06:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 06:44 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 06:43 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 06:49 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 07:05 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 06:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 06:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 06:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 06:42 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 06:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 06:48 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 06:44 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:33 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/802522713.shtml)
-- 2026-06-30 06:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6168881.shtml)
-- 2026-06-30 06:47 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/280544981.shtml)
-- 2026-06-30 06:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/604033888.shtml)
-- 2026-06-30 06:31 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/74154.shtml)
-- 2026-06-30 06:44 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/7610564.shtml)
-- 2026-06-30 06:39 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/50064360485.shtml)
-- 2026-06-30 06:38 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/930122.shtml)
-- 2026-06-30 06:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/647885487.shtml)
-- 2026-06-30 06:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/109183953022.shtml)
-- 2026-06-30 06:41 - [日本领先巴西](https://www.share.minike.top/Article/details/171442.shtml)
-- 2026-06-30 06:53 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/1683404263.shtml)
-- 2026-06-30 06:47 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/99552134963.shtml)
-- 2026-06-30 06:49 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8353031.shtml)
-- 2026-06-30 06:31 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/9154204721.shtml)
+- 2026-06-30 06:39 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/3107493.shtml)
+- 2026-06-30 06:53 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/72603.shtml)
+- 2026-06-30 06:44 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/03295463.shtml)
+- 2026-06-30 06:37 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/605785873220.shtml)
+- 2026-06-30 07:03 - [扬名立万](http://www.share.kurohicncr.top/Article/details/12519130652.shtml)
+- 2026-06-30 06:37 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/19630341.shtml)
+- 2026-06-30 06:57 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/692462187.shtml)
+- 2026-06-30 07:00 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/997148331252.shtml)
+- 2026-06-30 06:40 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/659631672871.shtml)
+- 2026-06-30 06:58 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/921371280908.shtml)
+- 2026-06-30 06:40 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/9748064070.shtml)
+- 2026-06-30 06:53 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/351891.shtml)
+- 2026-06-30 06:55 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/28291812393.shtml)
+- 2026-06-30 06:43 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/68965.shtml)
+- 2026-06-30 06:53 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/0675338.shtml)

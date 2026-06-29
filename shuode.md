@@ -1,46 +1,56 @@
-# 美国汽油价格触及四年高点
+# 最新！士兵被打死，以色列继续空袭！黎真主党拒绝停火！俄乌，突传重磅！油价大跌
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-由于霍尔木兹海峡中断和原油价格坚挺，平均汽油价格达到每加仑4.18美元，这对埃克森美孚和炼油企业来说是一个关键的宏观因素。责任编辑：张俊 SF065
+来源：期货日报 早上好，先来关注下最新消息。 以色列继续空袭黎巴嫩 央视新闻援引黎巴嫩方面消息，当地时间6月4日，以色列军队当天继续对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。以色列军方宣布，一名以军士兵在黎南部死于黎真主党袭击。 据悉，当天伤亡最严重的一起空袭发生在贝卡谷地索赫穆尔镇，造成5人死亡、4人受伤。黎南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共
 
 ## 正文
 
-由于霍尔木兹海峡中断和原油价格坚挺，平均汽油价格达到每加仑4.18美元，这对埃克森美孚和炼油企业来说是一个关键的宏观因素。
+来源：期货日报 早上好，先来关注下最新消息。
 
-责任编辑：张俊 SF065
+以色列继续空袭黎巴嫩 央视新闻援引黎巴嫩方面消息，当地时间6月4日，以色列军队当天继续对黎南部和东部贝卡谷地发动一系列空袭，造成至少9人死亡、数十人受伤。
+
+以色列军方宣布，一名以军士兵在黎南部死于黎真主党袭击。
+
+据悉，当天伤亡最严重的一起空袭发生在贝卡谷地索赫穆尔镇，造成5人死亡、4人受伤。
+
+黎南部阿巴西耶镇和迈阿鲁卜镇也遭以军空袭，共造成4人死亡、2人受伤。
+
+以军战机和无人机当天还对黎南部另外几地发动空袭，造成多人受伤，部分民用设施受损。
+
+黎真主党拒绝以黎停火 据央视新闻消息，黎巴嫩真主党领导人纳伊姆·卡西姆6月4日发表声明，拒绝美国、以色列与黎巴嫩政府就以黎停火发表的联合声明，拒绝执行联合声明中要求真主党武装人员撤离黎巴嫩南部的要求，并强调以色列必须完全撤出黎巴嫩领土。
+
+卡西姆在通过黎巴嫩“灯塔”电视台发布的这份声明中表示，该联合声明打着“虚假停火”的旗号推进安全议程，实质上“就是投降，就是失败，就是实现敌人的目标”。
 
 ## 相关推荐
 
-- 2026-06-30 06:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 06:56 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 06:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 06:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 06:54 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 06:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 06:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 06:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 06:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 06:42 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 06:46 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 06:39 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 06:37 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 06:50 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:03 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:51 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 06:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 06:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 06:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 06:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:31 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/24490.shtml)
-- 2026-06-30 06:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/26255.shtml)
-- 2026-06-30 06:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/2826531.shtml)
-- 2026-06-30 06:46 - [日本16强魔咒](https://www.share.minike.top/Article/details/0517655956.shtml)
-- 2026-06-30 06:57 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/9629006.shtml)
-- 2026-06-30 06:51 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/202056480880.shtml)
-- 2026-06-30 06:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/19055969.shtml)
-- 2026-06-30 06:51 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/867004590.shtml)
-- 2026-06-30 06:53 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/13104578315.shtml)
-- 2026-06-30 06:52 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/071620808.shtml)
-- 2026-06-30 06:35 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/01338735.shtml)
-- 2026-06-30 06:36 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/06578.shtml)
-- 2026-06-30 06:40 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/15813.shtml)
-- 2026-06-30 06:51 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/20063.shtml)
-- 2026-06-30 06:31 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/8210195435.shtml)
+- 2026-06-30 06:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/764932176.shtml)
+- 2026-06-30 06:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/35233163716.shtml)
+- 2026-06-30 07:03 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/084570235.shtml)
+- 2026-06-30 06:48 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/61653209.shtml)
+- 2026-06-30 06:45 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/204991960.shtml)
+- 2026-06-30 06:55 - [日本领先巴西](https://www.blog.minike.top/Article/details/711230756258.shtml)
+- 2026-06-30 06:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/921307715.shtml)
+- 2026-06-30 06:43 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/7025227670.shtml)
+- 2026-06-30 06:52 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/53868840.shtml)
+- 2026-06-30 06:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/39875896.shtml)
+- 2026-06-30 07:01 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/08928.shtml)
+- 2026-06-30 06:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/936205.shtml)
+- 2026-06-30 06:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/99738.shtml)
+- 2026-06-30 07:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/85348332.shtml)
+- 2026-06-30 06:38 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/712195704028.shtml)

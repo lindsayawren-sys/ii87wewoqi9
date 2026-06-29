@@ -1,59 +1,59 @@
-# 紫金银行“夹缝求生”：营收净利双降，不良升至1.35%
+# 日本实际工资连续第四个月上涨 为日央行加息提供支撑
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-随着2025年年报季接近尾声，A股上市农商行的业绩答卷呈现出明显的“冷暖分化”。 在常熟银行、无锡银行等同业保持稳健增长的同时，紫金农商行（以下简称“紫金银行”）却经历了营收与净利润的双重下滑，成为目前已披露年报的江苏上市农商行中唯一一家营收与归母净利润双双负增长的机构。 在银行业存量竞争的时代，有业内人士好奇：为何这家扎根南京的农商行会在去年出现业绩“掉队”现象，其业绩拐点又
+日本劳动者实际工资连续第四个月走高，创下四年以来最长连涨周期，利好日本央行本月加息。日本厚生劳动省周五公布数据：剔除通胀后的实际工资同比上涨1.9%，较上月修正值1.4%进一步提速，高于经济学家预期的1.7%，创下2021年末以来最长月度连增纪录。名义薪资同比增长3.5%，同样超出市场一致预期的3.1%。基本工资涨幅3.4%；日本央行重点跟踪、规避抽样偏差的全职员工薪资指标上涨
 
 ## 正文
 
-随着2025年年报季接近尾声，A股上市农商行的业绩答卷呈现出明显的“冷暖分化”。
+日本劳动者实际工资连续第四个月走高，创下四年以来最长连涨周期，利好日本央行本月加息。
 
-在常熟银行、无锡银行等同业保持稳健增长的同时，紫金农商行（以下简称“紫金银行”）却经历了营收与净利润的双重下滑，成为目前已披露年报的江苏上市农商行中唯一一家营收与归母净利润双双负增长的机构。
+日本厚生劳动省周五公布数据：剔除通胀后的实际工资同比上涨1.9%，较上月修正值1.4%进一步提速，高于经济学家预期的1.7%，创下2021年末以来最长月度连增纪录。
 
-在银行业存量竞争的时代，有业内人士好奇：为何这家扎根南京的农商行会在去年出现业绩“掉队”现象，其业绩拐点又将何时出现？
+名义薪资同比增长3.5%，同样超出市场一致预期的3.1%。
 
-分析指出，其背后可能为区域竞争、息差收窄与资产质量压力的多重挑战。
+基本工资涨幅3.4%；日本央行重点跟踪、规避抽样偏差的全职员工薪资指标上涨2.6%，两项数据均体现薪资基本面走强。
 
-不过，21世纪经济报道记者注意到，该行的2026年一季度报告显示，该行今年一季度实现营收11.66亿元，同比增长2.22%；实现归母净利润4.29亿元，同比增长1.62%，相关数据反映该行创收盈利能力或正走出低谷、进入企稳回升期。
+薪资数据出炉之际，日本央行正筹备6月15日至16日的货币政策会议，市场普遍预计央行理事会将上调基准利率25个基点。
 
-业绩表现“失速”：去年净利降幅超两成，息差下破1.2% 具体来看，去年紫金银行交出的成绩单中：该行2025年实现营业收入41.18亿元，同比下降7.72%；归母净利润12.44亿元，同比大幅下滑23.35%。
+薪资稳步增长预示内需韧性充足，进一步支撑货币政策回归常态化。
 
-从季度数据看，业绩下滑的信号在去年三季度早有所显现。
+知情人士本周透露，日本监管机构将在本次议息会议上考量加息事宜，同时研讨2026年后续阶段进一步加息的空间。
 
-2025年三季度，该行营收较二季度下降29.66%至8.81亿元；四季度进一步下滑4.05%至8.45亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 06:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 06:59 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 06:35 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 06:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 06:58 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 06:46 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 06:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 06:53 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 06:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 06:50 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 06:33 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 06:33 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 06:40 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 06:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 07:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 06:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 06:49 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 06:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 06:59 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:53 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 06:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 06:44 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 07:04 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 06:51 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 07:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/8150097008.shtml)
-- 2026-06-30 06:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/50707002.shtml)
-- 2026-06-30 06:39 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/9451128.shtml)
-- 2026-06-30 06:44 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/4556800.shtml)
-- 2026-06-30 06:41 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/349142477.shtml)
-- 2026-06-30 06:55 - [一生一世](https://www.blog.kurohicncr.top/Article/details/29451.shtml)
-- 2026-06-30 06:40 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/0667558.shtml)
-- 2026-06-30 06:37 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/814817540900.shtml)
-- 2026-06-30 06:43 - [沉睡花园](http://www.blog.minike.top/Article/details/746998221524.shtml)
-- 2026-06-30 06:58 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/2081287.shtml)
-- 2026-06-30 06:54 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/1442907830.shtml)
-- 2026-06-30 06:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/6962648341.shtml)
-- 2026-06-30 06:58 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/62579702.shtml)
-- 2026-06-30 06:31 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/238483.shtml)
-- 2026-06-30 06:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7953616.shtml)
+- 2026-06-30 06:41 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/77051414839.shtml)
+- 2026-06-30 06:49 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/93399852319.shtml)
+- 2026-06-30 07:01 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/203474542779.shtml)
+- 2026-06-30 06:56 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/2932111350.shtml)
+- 2026-06-30 06:50 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/783849368.shtml)
+- 2026-06-30 07:04 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/353119709.shtml)
+- 2026-06-30 06:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/8234940255.shtml)
+- 2026-06-30 07:02 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/6221529.shtml)
+- 2026-06-30 06:56 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/51739520.shtml)
+- 2026-06-30 06:51 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/178313641.shtml)
+- 2026-06-30 06:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/70496.shtml)
+- 2026-06-30 07:00 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/9015371206.shtml)
+- 2026-06-30 06:39 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/2095637.shtml)
+- 2026-06-30 07:04 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/81202792362.shtml)
+- 2026-06-30 06:53 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/904579.shtml)

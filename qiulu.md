@@ -1,56 +1,58 @@
-# 北京大学南南学院成立十周年，中外人士共话全球南方可持续发展
+# 中方在世贸组织就欧盟《网络安全法》修订草案和《工业加速器法案》提出严重关切
 
-> 更新时间：2026-06-30 07:00:02 UTC+8
+> 更新时间：2026-06-30 07:06:03 UTC+8
 
 ## 摘要
 
-中新网北京4月30日电 (陶思阅)4月29日，全球南方可持续发展论坛暨南南合作与发展学院成立十周年会议在北京大学举行。来自驻华使团、中央国家机关、国际学界和业界的嘉宾，北京大学校内各单位和南南学院师生校友代表参加会议。在圆桌讨论环节，专家围绕相关议题展开深入讨论，共话南南合作。 国家国际发展合作署署长陈晓东表示，2016年北京大学南南合作与发展学院正式成立，十年来，南南学院蓬勃
+新华社日内瓦6月4日电(记者焦倩)世界贸易组织4日在瑞士日内瓦召开服务贸易理事会年度第二次会议。中方主动设置议题，就欧盟《网络安全法》修订草案和《工业加速器法案》提出严重关切，指出相关规定违反世贸组织规则，一旦实施将严重损害多边贸易规则的权威性和有效性，敦促欧方尽快予以修改调整。中方表示，欧盟《网络安全法》修订草案以维护所谓“网络安全”为名，要求基于“非技术风险”这种极度不合理
 
 ## 正文
 
-中新网北京4月30日电 (陶思阅)4月29日，全球南方可持续发展论坛暨南南合作与发展学院成立十周年会议在北京大学举行。
+新华社日内瓦6月4日电(记者焦倩)世界贸易组织4日在瑞士日内瓦召开服务贸易理事会年度第二次会议。
 
-来自驻华使团、中央国家机关、国际学界和业界的嘉宾，北京大学校内各单位和南南学院师生校友代表参加会议。
+中方主动设置议题，就欧盟《网络安全法》修订草案和《工业加速器法案》提出严重关切，指出相关规定违反世贸组织规则，一旦实施将严重损害多边贸易规则的权威性和有效性，敦促欧方尽快予以修改调整。
 
-在圆桌讨论环节，专家围绕相关议题展开深入讨论，共话南南合作。
+中方表示，欧盟《网络安全法》修订草案以维护所谓“网络安全”为名，要求基于“非技术风险”这种极度不合理和充满随意性的因素，判定“网络安全关切国家”。
 
-国家国际发展合作署署长陈晓东表示，2016年北京大学南南合作与发展学院正式成立，十年来，南南学院蓬勃发展，有力推动了治国理政经验交流。
+欧方监管部门可以据此将相关企业一律界定为“高风险供应商”，以强制性“一刀切”方式，任意、系统排除特定国家企业进入欧盟市场。
 
-南南合作与发展学院名誉院长林毅夫介绍，南南学院最重要的独创之处在于总结中国和其他发展中国家的发展经验，打破西方发展模式的垄断话语权。
+草案规定的措施波及范围广、歧视性强、贸易禁止限制负面影响大，是变相的产业保护措施，违反《服务贸易总协定》等规则及欧盟在世贸组织的承诺。
 
-面向未来，南南学院要努力成为在全球南方发展议题中具备重要影响力的学术创新机构、人才培养基地和推动构建人类命运共同体的思想重镇。
+中方指出，欧盟《工业加速器法案》对外国投资欧盟境内的电池、电动汽车、光伏及关键原材料等四大新兴战略行业设置了不合理的限制性要求，对特定外国投资强行设置技术转让、股比限制、本地含量、本地员工占比等诸多限制性条款。
 
-“南南学院创新了适用于全球南方的发展知识体系，培养了服务于全球发展的杰出治理人才。
+该法案影响与制造业相关的服务，有违商业自愿和公平竞争等市场经济基本原则，构成投资壁垒和制度性歧视，与包括《服务贸易总协定》在内的世贸组织规则严重不符。
 
-”教育部国际合作与交流司司长杨丹说，希望学院坚持自身的可持续发展，推动形成更加公平普惠包容的全球发展和全球治理新格局。
+中方敦促欧盟遵守世贸组织规则，删除或实质性修改《网络安全法》修订草案中关于“网络安全关切国家”“非技术风险”“高风险供应商”认定及相关禁止性和限制性措施，修改《工业加速器法案》，取消对特定国家的歧视措施。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 06:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 06:54 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 06:40 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 06:41 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 06:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 06:50 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 06:35 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 06:49 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 06:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 06:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 06:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 06:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 06:58 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 06:38 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 06:42 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 06:58 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 06:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 06:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:38 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/04012.shtml)
-- 2026-06-30 06:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/1914443.shtml)
-- 2026-06-30 06:58 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/14474.shtml)
-- 2026-06-30 06:33 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/5914194122.shtml)
-- 2026-06-30 06:51 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/1934228975.shtml)
-- 2026-06-30 06:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/0054272.shtml)
-- 2026-06-30 06:55 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/3523963425.shtml)
-- 2026-06-30 06:48 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/854125.shtml)
-- 2026-06-30 06:54 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/5796831103.shtml)
-- 2026-06-30 06:41 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/464591315658.shtml)
-- 2026-06-30 06:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/59591480141.shtml)
-- 2026-06-30 06:34 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/161628301891.shtml)
-- 2026-06-30 06:56 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/132709670.shtml)
-- 2026-06-30 06:38 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/035025518.shtml)
-- 2026-06-30 06:58 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/753777.shtml)
+- 2026-06-30 06:59 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/24286113.shtml)
+- 2026-06-30 06:39 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/8115439.shtml)
+- 2026-06-30 07:05 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/2518394292.shtml)
+- 2026-06-30 06:37 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/972484.shtml)
+- 2026-06-30 06:57 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/278835355333.shtml)
+- 2026-06-30 06:46 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/67021421584.shtml)
+- 2026-06-30 06:49 - [流金岁月](http://www.share.minike.top/Article/details/85535214.shtml)
+- 2026-06-30 06:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/15970219.shtml)
+- 2026-06-30 06:41 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/8412411993.shtml)
+- 2026-06-30 06:52 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/5913126.shtml)
+- 2026-06-30 06:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/412529.shtml)
+- 2026-06-30 06:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/7730614.shtml)
+- 2026-06-30 06:43 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/62601810.shtml)
+- 2026-06-30 06:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/1554860.shtml)
+- 2026-06-30 06:49 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/52329096595.shtml)
