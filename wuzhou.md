@@ -1,56 +1,56 @@
-# 习近平同苏林共同会见中越青年代表
+# （乡村行·看振兴）上海三明携手育新瓜：一颗南瓜连起两地农科路
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林共同会见参加“红色研学之旅”的中越青年代表。 习近平发表讲话，表示去年我和苏林总书记一道启动“红色研学之旅”项目，一年来，两国青年共同探寻中越友好的红色基因，感受中国式现代化的万千气象，在中国各地留下许多互学互鉴、相知相亲的生动故事。不久前，我收到越
+中新网福建沙县5月8日电 (吴伟 黄晓燕)近日，在福建三明沙县区柱源村的二十四功夫农场，“小皇冠西瓜”苗正沿吊线攀爬生长。农场主蔡荣添用手机拍下视频，发给600多公里外的上海市农业科学院专家陆世钧。陆世钧远程指导：“瓜苗长势不错，注意授粉和留瓜。” 这是上海与三明开展对口合作(沪明合作)以来，农业技术跨省落地的一个典型案例。 蔡荣添自2008年起在柱源村从事规模种植，最初以百合
 
 ## 正文
 
-中新社北京4月15日电 4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林共同会见参加“红色研学之旅”的中越青年代表。
+中新网福建沙县5月8日电 (吴伟 黄晓燕)近日，在福建三明沙县区柱源村的二十四功夫农场，“小皇冠西瓜”苗正沿吊线攀爬生长。
 
-习近平发表讲话，表示去年我和苏林总书记一道启动“红色研学之旅”项目，一年来，两国青年共同探寻中越友好的红色基因，感受中国式现代化的万千气象，在中国各地留下许多互学互鉴、相知相亲的生动故事。
+农场主蔡荣添用手机拍下视频，发给600多公里外的上海市农业科学院专家陆世钧。
 
-不久前，我收到越南河内国家大学外语附中等学校的同学们用中文写来的信，分享了参加“红色研学之旅”的深刻感悟，立志做中越友谊的传承者和传播者，我感到很欣慰。
+陆世钧远程指导：“瓜苗长势不错，注意授粉和留瓜。
 
-习近平强调，青年是推动社会发展进步的有生力量，也是中越两党两国事业薪火相传的接棒人。
+” 这是上海与三明开展对口合作(沪明合作)以来，农业技术跨省落地的一个典型案例。
 
-我对大家提出三点希望：一是希望你们守望相助，让中越“同志加兄弟”的深厚情谊焕发青春光彩；二是希望你们挺膺担当，用青春的活力和创造力激荡起创新、开放、合作、共赢的澎湃春潮；三是希望你们胸怀天下，争做构建人类命运共同体的先锋队，为人类进步事业贡献青春力量。
+蔡荣添自2008年起在柱源村从事规模种植，最初以百合花为主，后因经营不善，百合花滞销，亏损超过200万元。
 
-苏林表示，“红色研学之旅”启动一年来，上千名越南青年沿着老一辈领导人足迹参访在中国的红色遗址，体悟两国的革命传统和深厚友谊。
+此后，他开始寻求转型，并于2022年前往山东寿光考察，决定改种贝贝南瓜。
 
-青年是越中两党两国关系的重要桥梁，希望两国青年进一步坚定理想信念，提高政治本领，掌握科学知识，深化对越中关系的认识，为各自国家发展和两国友好发挥重要作用。
+2023年，在沪明合作框架下，上海市农科院与三明市农科院共建“科技成果展示基地”。
 
-参加“红色研学之旅”活动的越方200多名青年代表和中方100多名青年代表出席此次活动。
+同年，上海市农科院马坤博士团队进入蔡荣添的农场，提供适应当地气候的贝贝南瓜新品种及配套种植技术。
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 02:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:06 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 02:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 02:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 02:48 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 02:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 02:56 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 02:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:09 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 02:52 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 02:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 03:00 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 02:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 03:15 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 02:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 03:02 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 02:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 02:59 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 03:07 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/2782485.shtml)
-- 2026-06-30 03:08 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/838915.shtml)
-- 2026-06-30 03:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/9793394063.shtml)
-- 2026-06-30 02:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/85305309.shtml)
-- 2026-06-30 03:09 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/68236539.shtml)
-- 2026-06-30 02:51 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/27464081.shtml)
-- 2026-06-30 02:47 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/79668407341.shtml)
-- 2026-06-30 03:06 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/450171.shtml)
-- 2026-06-30 02:47 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/117036208.shtml)
-- 2026-06-30 03:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/59743.shtml)
-- 2026-06-30 03:08 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/07288588500.shtml)
-- 2026-06-30 03:07 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/36180.shtml)
-- 2026-06-30 03:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/68202013.shtml)
-- 2026-06-30 02:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/2270991.shtml)
-- 2026-06-30 02:58 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/74862023853.shtml)
+- 2026-06-30 02:55 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/57792.shtml)
+- 2026-06-30 02:54 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/54009952289.shtml)
+- 2026-06-30 03:08 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/9090053.shtml)
+- 2026-06-30 03:02 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/5833498.shtml)
+- 2026-06-30 03:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/473678593.shtml)
+- 2026-06-30 02:53 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/82170.shtml)
+- 2026-06-30 02:50 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/99778402.shtml)
+- 2026-06-30 02:58 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6709192.shtml)
+- 2026-06-30 03:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/116828364420.shtml)
+- 2026-06-30 03:13 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/540196272.shtml)
+- 2026-06-30 03:11 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/36303105219.shtml)
+- 2026-06-30 02:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/99230436.shtml)
+- 2026-06-30 03:10 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/590950626941.shtml)
+- 2026-06-30 03:14 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/1511910218.shtml)
+- 2026-06-30 02:55 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/981216332486.shtml)

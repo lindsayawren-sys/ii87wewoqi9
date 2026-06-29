@@ -1,61 +1,57 @@
-# 以AI提效为由，Snap计划裁员16%，股价大涨11%
+# Brand Finance 2026中国品牌价值500强发布，抖音连续三年蝉联榜首
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-核心要点 周三，Snap 公司宣布以人工智能提效为理由，计划在全球范围内裁员至多 16%，消息一出其股价应声大涨。 首席执行官埃文・斯皮格尔在致员工信中表示，此次裁员将影响约 1000 名员工，同时至少 300 个空缺岗位将被取消。截至发稿，该公司盘前股价上涨 10.9%。 Snap 是热门社交应用 Snapchat 的母公司，目前正计划将资源重新投向核心战略项目，包括提升净利
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
 
 ## 正文
 
-核心要点 周三，Snap 公司宣布以人工智能提效为理由，计划在全球范围内裁员至多 16%，消息一出其股价应声大涨。
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
 
-首席执行官埃文・斯皮格尔在致员工信中表示，此次裁员将影响约 1000 名员工，同时至少 300 个空缺岗位将被取消。
+报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
 
-截至发稿，该公司盘前股价上涨 10.9%。
+国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
 
-Snap 是热门社交应用 Snapchat 的母公司，目前正计划将资源重新投向核心战略项目，包括提升净利润盈利水平。
+之后是金融领域工行、建行、中行、农行。
 
-斯皮格尔写道：“去年秋天，我曾表示 Snap 正处于关键转折点，需要更快速、更高效的全新工作模式，同时转向盈利性增长。
+四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
 
-” 他补充道：“我们认为，人工智能技术的快速发展能够让团队减少重复性工作、提升推进速度，更好地服务用户、合作伙伴及广告客户。
+新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
 
-” “我们已经看到，小型团队借助 AI 工具在多个重要项目上取得了显著进展，包括 Snapchat + 会员服务、广告平台性能优化，以及 Snap Lite 基础架构的效率提升。
+同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
 
-” 公司表示，预计第二季度将产生 9500 万至 1.3 亿美元的相关费用，主要为遣散费、合同终止成本及其他资产减值支出。
+在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 02:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 02:53 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 02:47 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 02:59 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 03:11 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 02:42 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 02:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 02:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 02:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 02:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 02:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 02:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 02:56 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 03:16 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 03:08 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 03:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 03:14 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 02:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 03:11 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:09 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 03:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 03:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 03:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 03:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/62159062653.shtml)
-- 2026-06-30 02:59 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/419202.shtml)
-- 2026-06-30 02:51 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/71696608.shtml)
-- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/570895.shtml)
-- 2026-06-30 02:58 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/681702.shtml)
-- 2026-06-30 03:05 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/53969.shtml)
-- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/412359090.shtml)
-- 2026-06-30 02:51 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/3260393.shtml)
-- 2026-06-30 02:43 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/19617617304.shtml)
-- 2026-06-30 03:02 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/838193832.shtml)
-- 2026-06-30 02:45 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/227055.shtml)
-- 2026-06-30 03:11 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/567732764.shtml)
-- 2026-06-30 03:04 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/2813356.shtml)
-- 2026-06-30 02:59 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/57194235.shtml)
-- 2026-06-30 02:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/214405665747.shtml)
+- 2026-06-30 03:15 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/780303027488.shtml)
+- 2026-06-30 03:15 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/461687919.shtml)
+- 2026-06-30 02:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/89403887816.shtml)
+- 2026-06-30 02:57 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/4835208334.shtml)
+- 2026-06-30 03:15 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/367310161286.shtml)
+- 2026-06-30 02:59 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/8248270.shtml)
+- 2026-06-30 02:49 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/3590279186.shtml)
+- 2026-06-30 03:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/392128472780.shtml)
+- 2026-06-30 02:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/51736.shtml)
+- 2026-06-30 03:17 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/4334984.shtml)
+- 2026-06-30 03:05 - [极限挑战第一季](https://www.blog.minike.top/Article/details/27185828.shtml)
+- 2026-06-30 03:15 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/71859.shtml)
+- 2026-06-30 03:10 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/1852473248.shtml)
+- 2026-06-30 03:14 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/90109.shtml)
+- 2026-06-30 02:54 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/87574.shtml)

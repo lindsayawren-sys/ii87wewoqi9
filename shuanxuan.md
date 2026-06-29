@@ -1,57 +1,57 @@
-# 欧洲债市：债券收益率小幅上升 市场走势平静
+# 《智能体规范应用与创新发展实施意见》答记者问
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-欧洲国债周三小幅下跌，投资者正等待有关伊朗战争的实质性消息。市场窄幅震荡，并未受到美伊停火可能延长两周的影响。 收益率曲线熊市陡化，德国、法国和意大利的2年期国债收益率变化不大。2年10年期曲线陡化2-3个基点。 期限较长的英国国债跌幅最大，30年期英国国债收益率上涨4个基点。 市场加大对英国央行收紧货币政策的押注，预计到12月累计加息40个基点。 自伊朗战争爆发以来，债券表现
+近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》(以下简称《实施意见》)。国家网信办有关负责同志就《实施意见》回答了记者提问。 1.问：请介绍一下《实施意见》的出台背景。 答：近年来，以手机助手、终端智能管家、云端智能体等为代表的智能体产品加速涌现，呈现规模化应用态势，极大便利人们工作生活。同时，智能体高自主性、高权限等特性也带来了隐
 
 ## 正文
 
-欧洲国债周三小幅下跌，投资者正等待有关伊朗战争的实质性消息。
+近日，国家网信办、国家发展改革委、工业和信息化部联合印发《智能体规范应用与创新发展实施意见》(以下简称《实施意见》)。
 
-市场窄幅震荡，并未受到美伊停火可能延长两周的影响。
+国家网信办有关负责同志就《实施意见》回答了记者提问。
 
-收益率曲线熊市陡化，德国、法国和意大利的2年期国债收益率变化不大。
+1.问：请介绍一下《实施意见》的出台背景。
 
-2年10年期曲线陡化2-3个基点。
+答：近年来，以手机助手、终端智能管家、云端智能体等为代表的智能体产品加速涌现，呈现规模化应用态势，极大便利人们工作生活。
 
-期限较长的英国国债跌幅最大，30年期英国国债收益率上涨4个基点。
+同时，智能体高自主性、高权限等特性也带来了隐私泄露、越权操作、行为失控等安全风险，需要统筹发展与安全，促进智能体规范应用和创新发展。
 
-市场加大对英国央行收紧货币政策的押注，预计到12月累计加息40个基点。
+党中央、国务院高度重视人工智能发展。
 
-自伊朗战争爆发以来，债券表现一直与能源价格密切相关，周三能源价格也小幅波动，布伦特原油价格上涨0.6%。
+习近平总书记在中共中央政治局第二十次集体学习时强调，要把握人工智能发展趋势和规律，加紧制定完善相关法律法规、政策制度、应用规范、伦理准则，构建技术监测、风险预警、应急响应体系，确保人工智能安全、可靠、可控。
 
-市场： 德国国债收益率上涨2个基点至3.04%； 德国国债期货跌4.00个点至125.28%； 意大利10年期国债收益率上涨3个基点至3.81%； 意大利-德国国债利差扩大2个基点至77基点； 法国10年期国债收益率上涨2个基点至3.68%； 10年期英国国债收益率上涨3个基点至4.81%。
+2025年8月，国务院印发《关于深入实施“人工智能+”行动的意见》，以科学技术、产业发展、消费提质、民生福祉、治理能力等领域为重点，提出到2027年，率先实现人工智能与重点领域广泛深度融合，新一代智能终端、智能体等应用普及率超70%的阶段性目标。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 02:44 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 02:50 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 02:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 02:49 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 03:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 02:44 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 02:46 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 03:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 02:52 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 02:51 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 03:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 03:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 02:56 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 03:00 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 02:56 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 03:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 03:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 03:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 02:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 02:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/88025215526.shtml)
-- 2026-06-30 03:03 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/1973798.shtml)
-- 2026-06-30 03:04 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/84185.shtml)
-- 2026-06-30 02:43 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/43471597569.shtml)
-- 2026-06-30 03:06 - [世界杯](https://www.share.minike.top/Article/details/867201.shtml)
-- 2026-06-30 03:00 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/104923838017.shtml)
-- 2026-06-30 02:57 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/5990965.shtml)
-- 2026-06-30 03:06 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/6312093.shtml)
-- 2026-06-30 02:57 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/771573751.shtml)
-- 2026-06-30 02:53 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/877102729.shtml)
-- 2026-06-30 03:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/560125261191.shtml)
-- 2026-06-30 02:45 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/095780.shtml)
-- 2026-06-30 03:05 - [85花告别古偶](http://www.blog.minike.top/Article/details/42703529.shtml)
-- 2026-06-30 02:43 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/7037185867.shtml)
-- 2026-06-30 03:10 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/65375083996.shtml)
+- 2026-06-30 03:17 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/9987703.shtml)
+- 2026-06-30 02:51 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/25531219.shtml)
+- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/63268.shtml)
+- 2026-06-30 03:09 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/75010893883.shtml)
+- 2026-06-30 03:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/05699192897.shtml)
+- 2026-06-30 02:57 - [美股](http://www.share.kurohicncr.top/Article/details/174167185894.shtml)
+- 2026-06-30 03:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/106658.shtml)
+- 2026-06-30 03:13 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/0903275793.shtml)
+- 2026-06-30 02:59 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/664307947.shtml)
+- 2026-06-30 02:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/40227379896.shtml)
+- 2026-06-30 02:52 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/4837639634.shtml)
+- 2026-06-30 03:07 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/902305.shtml)
+- 2026-06-30 03:17 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4655074.shtml)
+- 2026-06-30 02:48 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/349276434.shtml)
+- 2026-06-30 03:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/754344958.shtml)

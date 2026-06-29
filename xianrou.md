@@ -1,58 +1,58 @@
-# 比亚迪又拿下两大电芯订单！
+# 用心用情用力解决群众急难愁盼问题
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-继3月份宣布与西班牙清洁能源领军企业Grenergy达成全新战略合作，将为智利中部绿洲光储项目提供468套MC Cube-T储能系统、容量总计2.6GWh后，比亚迪又有两大电芯订单传出。首先是4月1日，比亚迪储能与南源储能（前身为北京远鹏智能电网）于北京正式签署战略合作协议。 南源储能总经理左红辉、比亚迪储能事业部华北区总监马涛出席签约仪式，双方将充分发挥技术、产能与市场优势，
+各地区各部门各单位深入开展学习教育—— 用心用情用力解决群众急难愁盼问题(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位坚持高标准谋划、高质量推进，一体推进学查改，用心用情用力解决群众急难愁盼问题，以促发展、惠民生的实际成效检验学习教育成果。 理论武装 学深悟透天津市河东区坚持把加强理论武装作为重要任务贯穿学习教育始终，区委常委会带头领学《习近
 
 ## 正文
 
-继3月份宣布与西班牙清洁能源领军企业Grenergy达成全新战略合作，将为智利中部绿洲光储项目提供468套MC Cube-T储能系统、容量总计2.6GWh后，比亚迪又有两大电芯订单传出。
+各地区各部门各单位深入开展学习教育—— 用心用情用力解决群众急难愁盼问题(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位坚持高标准谋划、高质量推进，一体推进学查改，用心用情用力解决群众急难愁盼问题，以促发展、惠民生的实际成效检验学习教育成果。
 
-首先是4月1日，比亚迪储能与南源储能（前身为北京远鹏智能电网）于北京正式签署战略合作协议。
+理论武装 学深悟透天津市河东区坚持把加强理论武装作为重要任务贯穿学习教育始终，区委常委会带头领学《习近平关于树立和践行正确政绩观论述摘编》，各级党组织立足实际进行学习研讨，区委党校还组织学员开展树立和践行正确政绩观主题讨论，引导党员干部自觉增强党性修养、提高思想觉悟。
 
-南源储能总经理左红辉、比亚迪储能事业部华北区总监马涛出席签约仪式，双方将充分发挥技术、产能与市场优势，围绕储能电芯供应、储能系统集成、大型储能项目开发、新能源配套储能等领域展开深度合作，携手推动新型储能产业高质量发展。
+为推动学习教育入脑入心，湖南省益阳市依托“青思享”学习交流活动，聚焦党员干部理论提升与思想共鸣，构建党校打样、试点示范、全域覆盖的理论学习体系，用通俗语言与鲜活案例把理论政策讲深讲透，引导中青年干部以正确政绩观立身立业、实干争先，为经济社会高质量发展注入强劲动能。
 
-据了解，南源储能作为专注储能系统解决方案的高新技术企业，具备从电芯、系统集成到项目交付、智慧运维的全链条能力，在大型储能、工商业储能场景积累丰富项目经验。
+河北省邢台市柏乡县通过读书班、理论学习中心组、“三会一课”、主题党日等多种形式加强学习，推动正确政绩观内化于心、外化于行。
 
-比亚迪有望借此进一步扩大储能产能的市场渗透。
+针对流动党员、离退休党员等群体分类施策，灵活组织学习。
 
-其次是4月12日，比亚迪与绿联达成战略合作，双方将围绕“移动电源新国标电芯”展开深度合作，共同响应刚发布的移动电源新国标新规，全面提升产品安全性能。
+同时用好正反两方面典型，用正面典型立起价值标杆、激发奋进力量；用反面典型敲警钟、划红线、正风气，推动学习教育取得实效。
 
-达成合作后，绿联与比亚迪电池将联合研发并量产符合新国标的高安全电芯，同时还将在近期发布搭载比亚迪电池新国标电芯的绿联移动电源。
+查摆问题 动真碰硬 办公室里拍脑袋，不如基层一线找答案。
 
-资料显示，绿联科技成立于2012年，总部位于深圳，是一家集研发、设计、生产、销售于一体的3C消费电子产品企业。
+江苏省泰州市市县两级党员干部走出办公室，深入社区农村、企业车间、项目现场，查找存在的政绩观偏差问题，边查边改、立行立改。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 02:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 03:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 02:58 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:59 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 03:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 02:43 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 02:44 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 03:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 03:11 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 02:56 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 02:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 02:58 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 03:03 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 03:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 03:03 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 03:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 02:48 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 03:06 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 02:51 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 03:04 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 02:57 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/770839.shtml)
-- 2026-06-30 02:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/5235285093.shtml)
-- 2026-06-30 02:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/399570639751.shtml)
-- 2026-06-30 03:06 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/940526.shtml)
-- 2026-06-30 02:55 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/345157097.shtml)
-- 2026-06-30 03:10 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/566796809466.shtml)
-- 2026-06-30 03:11 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/083468283.shtml)
-- 2026-06-30 02:42 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/680987258913.shtml)
-- 2026-06-30 03:08 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/48269109248.shtml)
-- 2026-06-30 03:07 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/5933040360.shtml)
-- 2026-06-30 02:44 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/91836.shtml)
-- 2026-06-30 03:02 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/382982866.shtml)
-- 2026-06-30 03:04 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/15939.shtml)
-- 2026-06-30 02:48 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/84215937.shtml)
-- 2026-06-30 02:44 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/108690.shtml)
+- 2026-06-30 03:06 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/031871045.shtml)
+- 2026-06-30 03:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/7801195125.shtml)
+- 2026-06-30 03:16 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/227507369.shtml)
+- 2026-06-30 03:14 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/561775460.shtml)
+- 2026-06-30 02:53 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/84190028456.shtml)
+- 2026-06-30 02:57 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/5165338895.shtml)
+- 2026-06-30 03:11 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/471717473411.shtml)
+- 2026-06-30 03:13 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/2715066.shtml)
+- 2026-06-30 03:10 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/75322.shtml)
+- 2026-06-30 03:11 - [女心理师](https://www.share.kurohicncr.top/Article/details/7767452.shtml)
+- 2026-06-30 03:14 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/877902449715.shtml)
+- 2026-06-30 03:02 - [天道](https://www.blog.kurohicncr.top/Article/details/43672149627.shtml)
+- 2026-06-30 03:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/3667548308.shtml)
+- 2026-06-30 03:11 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/138131.shtml)
+- 2026-06-30 02:54 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/11032239782.shtml)

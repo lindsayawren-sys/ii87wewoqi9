@@ -1,47 +1,46 @@
-# 加拿大暂停征收联邦燃油税至9月初
+# 大连电瓷：预计公司2026年海外收入占比与2025年基本持平
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-加拿大总理马克·卡尼将加拿大的燃油消费税暂停至9月初，以抵消战时价格飙升的影响，这一举措对包括森科能源（SU）在内的交通运输和能源利益相关方产生影响。责任编辑：张俊 SF065
+证券日报网5月8日讯，大连电瓷在接受调研者提问时表示，随着公司江西工厂两期产能完全释放，结合后续海外电力需求，预计公司2026年海外收入占比与2025年基本持平。
 
 ## 正文
 
-加拿大总理马克·卡尼将加拿大的燃油消费税暂停至9月初，以抵消战时价格飙升的影响，这一举措对包括森科能源（SU）在内的交通运输和能源利益相关方产生影响。
-
-责任编辑：张俊 SF065
+证券日报网5月8日讯，大连电瓷在接受调研者提问时表示，随着公司江西工厂两期产能完全释放，结合后续海外电力需求，预计公司2026年海外收入占比与2025年基本持平。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 03:04 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 03:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 02:55 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 02:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:49 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 03:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 03:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 02:57 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 02:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 02:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:49 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 03:11 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 02:54 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 02:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 03:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:03 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 03:06 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 02:49 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 03:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 03:03 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 03:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 02:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 03:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/106632.shtml)
-- 2026-06-30 02:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/1302718519.shtml)
-- 2026-06-30 03:05 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/81990400695.shtml)
-- 2026-06-30 02:53 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/97144126527.shtml)
-- 2026-06-30 03:05 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/339063281167.shtml)
-- 2026-06-30 03:06 - [日本16强魔咒](https://www.blog.minike.top/Article/details/86837.shtml)
-- 2026-06-30 03:02 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/23072.shtml)
-- 2026-06-30 03:08 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/041805320.shtml)
-- 2026-06-30 02:58 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/2075369006.shtml)
-- 2026-06-30 03:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/20494.shtml)
-- 2026-06-30 03:05 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/597361098.shtml)
-- 2026-06-30 02:52 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/2680056588.shtml)
-- 2026-06-30 03:11 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/89871952.shtml)
-- 2026-06-30 03:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/667465.shtml)
-- 2026-06-30 02:57 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/92486.shtml)
+- 2026-06-30 03:15 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/93841.shtml)
+- 2026-06-30 02:51 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/2063996.shtml)
+- 2026-06-30 03:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/562316.shtml)
+- 2026-06-30 02:48 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/8369946.shtml)
+- 2026-06-30 03:06 - [月亮](http://www.share.minike.top/Article/details/5587039771.shtml)
+- 2026-06-30 03:14 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/733312906564.shtml)
+- 2026-06-30 02:56 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/49309639638.shtml)
+- 2026-06-30 03:15 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/63434.shtml)
+- 2026-06-30 02:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/526299476469.shtml)
+- 2026-06-30 03:00 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/2224489948.shtml)
+- 2026-06-30 03:08 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/97117018168.shtml)
+- 2026-06-30 03:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/01001057978.shtml)
+- 2026-06-30 03:03 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/42358.shtml)
+- 2026-06-30 02:49 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1205605401.shtml)
+- 2026-06-30 02:50 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/49594.shtml)

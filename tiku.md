@@ -1,57 +1,58 @@
-# 第一大成份股业绩大超预期！借道稀土ETF华泰柏瑞（516780）把握稀土产业“涨价潮”机遇
+# 公安部公布无人机影响铁路安全典型案例
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-昨日，稀土行业龙头企业披露2025年度业绩快报，公司归母净利润同比大幅增长超124%，盈利表现显著超预期。作为中证稀土产业指数第一大权重股，该龙头亮眼的业绩不仅充分印证了行业景气度持续回升，也有望为稀土板块整体估值带来有力提振。与此同时，4月10日行业内两大核心企业同步上调二季度稀土精矿关联交易价格，延续了此前持续上行的价格趋势。 在业绩向好与基本面共振的双重驱动下，稀土板块近
+中新网5月9日电 据公安部微信公众号消息，近年来，我国无人机保有量持续攀升、应用场景不断拓展。但个别人员操控无人机在铁路沿线开展飞行拍摄、从事农林作业等活动时，因安全意识淡薄、操作不当侵入高铁线路区域或违法飞越铁路线路上空，严重影响铁路运输秩序，危害高铁运行安全。公安部今日公布今年以来公安机关查处的无人机影响铁路安全典型案例。公安机关提醒广大群众，无人机侵入铁路线路及两侧规定范
 
 ## 正文
 
-昨日，稀土行业龙头企业披露2025年度业绩快报，公司归母净利润同比大幅增长超124%，盈利表现显著超预期。
+中新网5月9日电 据公安部微信公众号消息，近年来，我国无人机保有量持续攀升、应用场景不断拓展。
 
-作为中证稀土产业指数第一大权重股，该龙头亮眼的业绩不仅充分印证了行业景气度持续回升，也有望为稀土板块整体估值带来有力提振。
+但个别人员操控无人机在铁路沿线开展飞行拍摄、从事农林作业等活动时，因安全意识淡薄、操作不当侵入高铁线路区域或违法飞越铁路线路上空，严重影响铁路运输秩序，危害高铁运行安全。
 
-与此同时，4月10日行业内两大核心企业同步上调二季度稀土精矿关联交易价格，延续了此前持续上行的价格趋势。
+公安部今日公布今年以来公安机关查处的无人机影响铁路安全典型案例。
 
-在业绩向好与基本面共振的双重驱动下，稀土板块近期交易情绪持续升温，交投活跃度显著提升。
+公安机关提醒广大群众，无人机侵入铁路线路及两侧规定范围管制空域，飞越铁路线路行为，违反《中华人民共和国治安管理处罚法》《无人驾驶航空器飞行管理暂行条例》《高速铁路安全防护管理办法》等法律法规，依法应予行政处罚；构成犯罪的，还将依法追究刑事责任。
 
-市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）连续五个交易日单日成交额站上1亿元关口，最新规模达29.82亿元，流动性优势较突出。
+广大无人机使用者要严格遵守法律法规，规范操作，守法飞行，共同守护低空秩序，维护铁路运行安全。
 
-从驱动逻辑看，稀土板块“涨价潮”的核心仍在于供需格局的持续趋紧。
+一、吴某某过失损坏交通工具案 2026年4月，吴某某在河北省沧州市境内京沪高铁沿线操控无人机为麦田喷洒农药，其间无人机违法从铁路高架桥下穿越飞行，之后又上升到高架桥面，随后失控坠入铁路线路。
 
-在供给侧，我国作为全球稀土生产的主导力量，持续实施开采总量调控与出口管理，同时海外供应因各种扰动而收缩，导致国内外市场库存不断去化；在需求侧，新能源、人形机器人等高成长赛道快速发展，稀土作为关键功能材料的应用需求稳步提升。
+G15次列车途经坠落点撞击无人机，造成车辆故障，停车32分钟，63趟列车晚点。
 
-此外，全球能源格局变化下资源民族主义抬头，也为稀土价格中枢提供了中长期支撑。
+吴某某因涉嫌过失损坏交通工具罪，被公安机关依法采取刑事强制措施。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 02:56 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 03:08 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 02:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 03:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 02:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 02:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 02:47 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 03:11 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 03:06 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 02:55 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 03:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 02:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 03:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 02:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 03:16 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 03:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 02:52 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 02:52 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 02:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 03:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/895587967499.shtml)
-- 2026-06-30 02:58 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/49264098051.shtml)
-- 2026-06-30 02:55 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/8217296851.shtml)
-- 2026-06-30 02:49 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/15721737143.shtml)
-- 2026-06-30 03:09 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/975337089606.shtml)
-- 2026-06-30 02:56 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/161743013.shtml)
-- 2026-06-30 02:46 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/10716.shtml)
-- 2026-06-30 03:04 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/08284629118.shtml)
-- 2026-06-30 02:55 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/998639388.shtml)
-- 2026-06-30 02:46 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/9933492.shtml)
-- 2026-06-30 02:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8899607.shtml)
-- 2026-06-30 03:07 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/082223844.shtml)
-- 2026-06-30 02:44 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/27308351.shtml)
-- 2026-06-30 02:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/19199125.shtml)
-- 2026-06-30 03:00 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/470057090.shtml)
+- 2026-06-30 03:09 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/01726.shtml)
+- 2026-06-30 02:59 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/656014696007.shtml)
+- 2026-06-30 02:57 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/46040009.shtml)
+- 2026-06-30 03:14 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/3065277842.shtml)
+- 2026-06-30 03:00 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/28616459307.shtml)
+- 2026-06-30 03:05 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/42952853.shtml)
+- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/699881038.shtml)
+- 2026-06-30 03:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/083927.shtml)
+- 2026-06-30 02:57 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/614999.shtml)
+- 2026-06-30 02:52 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/012996160.shtml)
+- 2026-06-30 02:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/66290.shtml)
+- 2026-06-30 03:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/519482822.shtml)
+- 2026-06-30 03:05 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/60708644925.shtml)
+- 2026-06-30 03:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/268238900738.shtml)
+- 2026-06-30 02:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/2661987.shtml)

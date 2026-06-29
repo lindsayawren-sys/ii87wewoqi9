@@ -1,46 +1,57 @@
-# 全民防线 《兰花草》国安版
+# “全国销冠”被刑拘，泰康人寿紧急回应
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 22:28 来源：法治日报-法治网 责任编辑：【李太源】
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客
 
 ## 正文
 
-发布时间：2026年04月15日 22:28 来源：法治日报-法治网 责任编辑：【李太源】
+近日，“泰康人寿‘全国销冠’任晓敏被刑拘”的消息，引发关注。
+
+5月8日，泰康人寿对中国证券报·中证金牛座记者表示，近日，公司个人代理人任某某被青岛市公安机关立案侦查。
+
+对此，公司高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
+
+该公司强调，始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
+
+目前，公司已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
+
+此前，有媒体报道，青岛市公安机关以涉嫌诈骗罪对泰康人寿青岛分公司个人代理人任晓敏立案侦查，涉案本金规模约3亿至4亿元。
+
+记者了解到，任晓敏曾是多项荣誉加身、泰康人寿力捧的标杆代理人。
+
+公开宣传资料显示，2020-2022年任晓敏累计签下“幸福有约”保单超百件，服务高净值客户近百人，2022年度她实现标保业绩1761万元，拿下幸福有约41单，成为当年新业务系列全国第一；2025年，任晓敏仅“开门红”期间的个人标保业绩就突破2900万元。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 02:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 02:58 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 02:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 03:01 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:09 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 02:59 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:52 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 03:01 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 03:01 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 02:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 03:07 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 03:11 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 02:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 02:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 02:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 03:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 03:02 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 02:51 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 03:06 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 03:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 02:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 03:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 02:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 03:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/234658609.shtml)
-- 2026-06-30 02:56 - [天道](http://www.share.minike.top/Article/details/67355777273.shtml)
-- 2026-06-30 02:58 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/10136704033.shtml)
-- 2026-06-30 02:52 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/0338633.shtml)
-- 2026-06-30 02:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/710749.shtml)
-- 2026-06-30 02:53 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/4491508.shtml)
-- 2026-06-30 03:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/91133300161.shtml)
-- 2026-06-30 03:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/73740849.shtml)
-- 2026-06-30 02:42 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/087405048605.shtml)
-- 2026-06-30 03:11 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/78207.shtml)
-- 2026-06-30 03:08 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/690042.shtml)
-- 2026-06-30 02:49 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/351253.shtml)
-- 2026-06-30 02:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/994812.shtml)
-- 2026-06-30 02:59 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/07596.shtml)
-- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/99534662976.shtml)
+- 2026-06-30 03:16 - [明星大侦探第四季](https://www.share.minike.top/Article/details/763638.shtml)
+- 2026-06-30 02:55 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/82576581.shtml)
+- 2026-06-30 03:02 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/646006695.shtml)
+- 2026-06-30 03:10 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/5092872144.shtml)
+- 2026-06-30 03:14 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/367904014477.shtml)
+- 2026-06-30 02:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/746399.shtml)
+- 2026-06-30 02:58 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/7288586263.shtml)
+- 2026-06-30 03:04 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/472916.shtml)
+- 2026-06-30 03:13 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/48973.shtml)
+- 2026-06-30 03:12 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/11438010.shtml)
+- 2026-06-30 03:00 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/3721042.shtml)
+- 2026-06-30 02:52 - [我们的少年时代2](http://www.share.minike.top/Article/details/27094.shtml)
+- 2026-06-30 03:15 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/35660114.shtml)
+- 2026-06-30 02:53 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/0812828351.shtml)
+- 2026-06-30 03:08 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/319470699.shtml)

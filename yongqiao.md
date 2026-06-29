@@ -1,59 +1,56 @@
-# 国台办：习近平总书记重要讲话为两岸关系发展进一步指明方向
+# 剑指冠军！国乒男团3-1战胜法国队晋级世乒赛决赛
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)4月10日，中共中央总书记习近平在北京会见中国国民党主席郑丽文率领的访问团，并就推进两党关系、两岸关系发表重要讲话。国务院台办新闻发言人陈斌华15日在北京举行的例行新闻发布会上表示，习近平总书记的重要讲话为两岸关系发展进一步指明了方向，是做好新时代对台工作的根本遵循和行动指南。 陈斌华指出，习近平总书记在讲话中就两岸关系发展提出了
+北京时间5月10日，在2026伦敦世界乒乓球团体锦标赛男子团体半决赛，中国队总比分3-1战胜法国队，晋级男团决赛。接下来，​中国男团决赛将对战日本队。 首盘，王楚钦3-2战胜科顿，为中国队总比分先得一分，比分为：15-13、11-13、9-11、11-4、11-8。总比分中国队1-0法国队。 第二盘，林诗栋0-3不敌费利克斯-勒布伦，比分为：9-11、9-11、10-12。总比
 
 ## 正文
 
-中新社北京4月15日电 (记者 刘大炜 张晓曦)4月10日，中共中央总书记习近平在北京会见中国国民党主席郑丽文率领的访问团，并就推进两党关系、两岸关系发表重要讲话。
+北京时间5月10日，在2026伦敦世界乒乓球团体锦标赛男子团体半决赛，中国队总比分3-1战胜法国队，晋级男团决赛。
 
-国务院台办新闻发言人陈斌华15日在北京举行的例行新闻发布会上表示，习近平总书记的重要讲话为两岸关系发展进一步指明了方向，是做好新时代对台工作的根本遵循和行动指南。
+接下来，​中国男团决赛将对战日本队。
 
-陈斌华指出，习近平总书记在讲话中就两岸关系发展提出了4点意见，深刻阐明新形势下推动两岸关系和平发展、推进祖国统一大业的大政方针，揭示两岸同胞同属中华民族、都是中国人，传承弘扬中华文化，强化正确认同，促进同胞心灵契合的重大意义；揭示两岸同属一个中国，坚决反对“台独”分裂和外来干涉，推动两岸关系和平发展，守护中华民族共同家园的坚定决心；展现我们继续秉持两岸一家亲理念，推动两岸交流融合，增进同胞民生福祉的诚意善意；激励两岸同胞团结奋斗，携手共创祖国统一、民族复兴的美好未来。
+首盘，王楚钦3-2战胜科顿，为中国队总比分先得一分，比分为：15-13、11-13、9-11、11-4、11-8。
 
-陈斌华续指，习近平总书记的重要讲话贯通历史、现在、未来，彰显世界级领袖的格局胸襟气度，体现了为两岸谋和平、为同胞谋福祉、为民族谋复兴的使命情怀和历史担当，饱含着对台湾同胞的关心关爱和深情厚意，引发海内外中华儿女强烈共鸣和国际社会热烈反响，必将对两岸关系发展产生重大深远影响。
+总比分中国队1-0法国队。
 
-“我们将深入贯彻落实习近平总书记重要讲话精神，坚持‘九二共识’，广泛团结台湾同胞，深化两岸交流合作、融合发展，坚决反对‘台独’分裂和外来干涉，推动两岸关系和平发展，推进祖国统一、民族复兴伟业。
+第二盘，林诗栋0-3不敌费利克斯-勒布伦，比分为：9-11、9-11、10-12。
 
-”陈斌华表示，希望广大台湾同胞顺应历史大势，坚守民族大义，与我们一道坚定守护中华民族共同家园，共创中华民族绵长福祉，共享祖国统一、民族复兴伟大荣光。
+总比分中国队1-1法国队。
 
-(完)
+第三盘，梁靖崑3-2逆转艾利克斯-勒布伦，比分为：3-11、1-11、15-13、12-10、11-2，总比分中国队2-1法国队。
+
+第四盘，王楚钦3-1战胜费利克斯·勒布伦，比分为：13-11、9-11、11-9、11-4，总比分中国队3-1法国队。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 03:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 02:47 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 02:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:04 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 02:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 02:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 02:55 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 02:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 03:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 02:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 03:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 02:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 03:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 02:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 03:01 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 03:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 02:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 03:06 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:05 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 03:11 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 02:52 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 03:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/9004694.shtml)
-- 2026-06-30 02:57 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/05848548351.shtml)
-- 2026-06-30 02:43 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/35349.shtml)
-- 2026-06-30 02:47 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/630285665809.shtml)
-- 2026-06-30 03:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/16762656761.shtml)
-- 2026-06-30 02:58 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/62402268.shtml)
-- 2026-06-30 03:04 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/847883990623.shtml)
-- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/5420090888.shtml)
-- 2026-06-30 03:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/33218197.shtml)
-- 2026-06-30 03:10 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/74738162.shtml)
-- 2026-06-30 03:11 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/5976889956.shtml)
-- 2026-06-30 03:08 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0041794711.shtml)
-- 2026-06-30 02:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/320213391720.shtml)
-- 2026-06-30 02:59 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/1759393.shtml)
-- 2026-06-30 02:49 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/5572291177.shtml)
+- 2026-06-30 03:08 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/1066298.shtml)
+- 2026-06-30 03:08 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/165584.shtml)
+- 2026-06-30 03:13 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/11926.shtml)
+- 2026-06-30 03:09 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/9305565.shtml)
+- 2026-06-30 03:13 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/077993551.shtml)
+- 2026-06-30 03:03 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/6046746.shtml)
+- 2026-06-30 03:11 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/020892641587.shtml)
+- 2026-06-30 03:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/2217012.shtml)
+- 2026-06-30 03:14 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/6254487.shtml)
+- 2026-06-30 03:13 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/4333331.shtml)
+- 2026-06-30 02:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/4493014.shtml)
+- 2026-06-30 02:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/169860591928.shtml)
+- 2026-06-30 03:16 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/084731.shtml)
+- 2026-06-30 03:02 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/465545.shtml)
+- 2026-06-30 02:54 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/812194.shtml)

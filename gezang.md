@@ -1,60 +1,49 @@
-# 上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设
+# 视频|李大霄：如何看待美股金融板块的背离？
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：学习时报 作者：吴伟 “十五五”规划纲要指出，加快建设上海国际金融中心。这是党中央着眼中国式现代化建设全局作出的重大战略决策。“十五五”时期，我们要锐意进取、奋发有为，不断开创上海国际金融中心建设新局面，为以中国式现代化全面推进强国建设、民族复兴伟业提供强有力的金融支撑。 进一步增强加快建设上海国际金融中心的政治自觉、思想
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：学习时报 作者：吴伟 “十五五”规划纲要指出，加快建设上海国际金融中心。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是党中央着眼中国式现代化建设全局作出的重大战略决策。
-
-“十五五”时期，我们要锐意进取、奋发有为，不断开创上海国际金融中心建设新局面，为以中国式现代化全面推进强国建设、民族复兴伟业提供强有力的金融支撑。
-
-进一步增强加快建设上海国际金融中心的政治自觉、思想自觉和行动自觉 以习近平同志为核心的党中央不断加强对金融工作的全面领导和统筹谋划，奋力开拓中国特色金融发展之路，就上海国际金融中心建设作出一系列重大部署。
-
-我们要深刻认识到，加快建设上海国际金融中心，是全球竞争背景下建设金融强国宏伟目标赋予上海的重大政治责任和光荣历史使命。
-
-强大的国际金融中心是金融强国的重要支撑。
-
-习近平总书记强调，金融是国家重要的核心竞争力；金融强国应当具备强大的国际金融中心等一系列关键核心金融要素；拥有强大的国际金融中心，能够吸引全球投资者，影响国际定价体系；增强上海国际金融中心的竞争力和影响力。
-
-这一系列新思想、新观点、新论断高屋建瓴、思想深邃、内涵丰富，把我们对金融强国和国际金融中心建设地位与作用的认识提升到新高度。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 03:11 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 02:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 03:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 03:11 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 03:11 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 02:59 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 02:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 03:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 02:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 02:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 03:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 02:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 03:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 02:49 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 03:08 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 03:07 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 03:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 03:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 03:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 03:03 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 03:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 02:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 02:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 03:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 03:14 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/54680672.shtml)
-- 2026-06-30 03:02 - [扬名立万](https://www.blog.minike.top/Article/details/864787840.shtml)
-- 2026-06-30 02:52 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/96904273015.shtml)
-- 2026-06-30 03:00 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/9292075242.shtml)
-- 2026-06-30 02:45 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/243473438880.shtml)
-- 2026-06-30 02:53 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/299198816896.shtml)
-- 2026-06-30 03:00 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/0224589.shtml)
-- 2026-06-30 02:43 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/74426703700.shtml)
-- 2026-06-30 02:47 - [速度与激情9](https://www.share.minike.top/Article/details/1631999.shtml)
-- 2026-06-30 02:44 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/3090997.shtml)
-- 2026-06-30 02:50 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/603654158090.shtml)
-- 2026-06-30 02:49 - [月亮](https://www.share.minike.top/Article/details/25721967.shtml)
-- 2026-06-30 02:44 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/159025140.shtml)
-- 2026-06-30 03:04 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/92286.shtml)
-- 2026-06-30 02:42 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/3526525.shtml)
+- 2026-06-30 02:56 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/5701802.shtml)
+- 2026-06-30 02:49 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/09392197815.shtml)
+- 2026-06-30 02:59 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/448201790089.shtml)
+- 2026-06-30 03:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/9228706047.shtml)
+- 2026-06-30 02:57 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/68630332.shtml)
+- 2026-06-30 03:01 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/932098190116.shtml)
+- 2026-06-30 02:52 - [千香](https://www.share.minike.top/Article/details/366178877.shtml)
+- 2026-06-30 02:54 - [TOP Prada](http://www.blog.minike.top/Article/details/209491.shtml)
+- 2026-06-30 03:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/82297906304.shtml)
+- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/0995799.shtml)
+- 2026-06-30 03:18 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0754463.shtml)
+- 2026-06-30 02:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/747090330643.shtml)
+- 2026-06-30 03:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/192378.shtml)
+- 2026-06-30 03:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/15056.shtml)
+- 2026-06-30 03:12 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/974480688309.shtml)

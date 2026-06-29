@@ -1,54 +1,58 @@
-# 光环新网：2024年底公司进一步拓展数据中心业务半径
+# 法国驻阿尔及利亚大使恢复履职
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。两个项目可实现同城双中心互为备份，更好地满足客户需求。目前两个项目均已经取得项目用地，正处于项目前期审批筹
+中新网巴黎5月9日电(李洋 孙羽婷)据法国媒体8日报道，法国总统马克龙表示希望与阿尔及利亚“恢复有效对话”，此前因法阿外交危机被召回的法国驻阿尔及利亚大使罗马泰已于8日恢复履职。 法国官方称，罗马泰将陪同法国国防部部长级代表吕福访问阿尔及利亚，出席塞提夫事件纪念活动，并与阿方讨论“巩固双边关系的下一步措施”。马克龙希望法阿双方建立“互信且面向未来”的关系，并“恢复有效对话”。
 
 ## 正文
 
-证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。
+中新网巴黎5月9日电(李洋 孙羽婷)据法国媒体8日报道，法国总统马克龙表示希望与阿尔及利亚“恢复有效对话”，此前因法阿外交危机被召回的法国驻阿尔及利亚大使罗马泰已于8日恢复履职。
 
-其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。
+法国官方称，罗马泰将陪同法国国防部部长级代表吕福访问阿尔及利亚，出席塞提夫事件纪念活动，并与阿方讨论“巩固双边关系的下一步措施”。
 
-两个项目可实现同城双中心互为备份，更好地满足客户需求。
+马克龙希望法阿双方建立“互信且面向未来”的关系，并“恢复有效对话”。
 
-目前两个项目均已经取得项目用地，正处于项目前期审批筹划阶段。
+这是法国首次派部长级官员赴阿尔及利亚参加塞提夫事件纪念活动。
 
-公司将以市场为导向，根据客户需求采取分期建设的方式进行。
+1945年5月，阿尔及利亚塞提夫等地爆发要求独立的示威活动，随后遭法国殖民当局镇压。
+
+相关历史问题长期影响法阿关系。
+
+阿尔及利亚曾是法国殖民地，近年来与法国关系持续紧张。
+
+2025年4月，在两国外交争端升级背景下，法国召回驻阿尔及利亚大使。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 03:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 03:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 03:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 02:46 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 03:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 03:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 03:05 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 02:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 03:06 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 02:53 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 02:42 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 02:47 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 03:09 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 02:55 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:10 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 03:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 02:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 02:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 03:15 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:51 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 02:51 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 03:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 02:50 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1627741205.shtml)
-- 2026-06-30 02:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/731286435.shtml)
-- 2026-06-30 02:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/179546867637.shtml)
-- 2026-06-30 03:02 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/6302809.shtml)
-- 2026-06-30 02:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/302258212.shtml)
-- 2026-06-30 02:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/5272337856.shtml)
-- 2026-06-30 03:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/07707790.shtml)
-- 2026-06-30 03:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/060177991544.shtml)
-- 2026-06-30 03:05 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/716427.shtml)
-- 2026-06-30 02:48 - [恋与深空 日服](https://www.blog.minike.top/Article/details/1166981106.shtml)
-- 2026-06-30 03:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/20678725.shtml)
-- 2026-06-30 02:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/865884115.shtml)
-- 2026-06-30 03:06 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/29703679361.shtml)
-- 2026-06-30 02:59 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/94232748153.shtml)
-- 2026-06-30 03:00 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/36131820.shtml)
+- 2026-06-30 03:00 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/60037503.shtml)
+- 2026-06-30 03:00 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/2372949.shtml)
+- 2026-06-30 03:01 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/80975916789.shtml)
+- 2026-06-30 03:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/92712089.shtml)
+- 2026-06-30 03:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/2097631.shtml)
+- 2026-06-30 03:04 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/0042479488.shtml)
+- 2026-06-30 02:52 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/195792631602.shtml)
+- 2026-06-30 03:01 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/69400293.shtml)
+- 2026-06-30 02:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/412306774.shtml)
+- 2026-06-30 03:13 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/28244506160.shtml)
+- 2026-06-30 03:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/9300290.shtml)
+- 2026-06-30 03:01 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/3567332.shtml)
+- 2026-06-30 02:49 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/858380.shtml)
+- 2026-06-30 03:06 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/952834932.shtml)
+- 2026-06-30 02:49 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/026436343.shtml)

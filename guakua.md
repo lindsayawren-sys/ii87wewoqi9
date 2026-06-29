@@ -1,49 +1,58 @@
-# 中国银行获贝莱德增持879.1万股 每股作价约5.01港元
+# 多个板块表现活跃 A股成交额连续两日超过3万亿元
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，4月8日，贝莱德增持中国银行（03988）879.1万股，每股作价5.0122港元，总金额约为4406.23万港元。增持后最新持股数目约为50.19亿股，最新持股比例为6%。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。市场成交额为3.17万亿元，连续2个交
 
 ## 正文
 
-香港联交所最新资料显示，4月8日，贝莱德增持中国银行（03988）879.1万股，每股作价5.0122港元，总金额约为4406.23万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-增持后最新持股数目约为50.19亿股，最新持股比例为6%。
+5月7日，A股市场继续走强，三大指数全线上涨，深证成指、创业板指均涨逾1%，创业板指再创近11年新高。
 
-责任编辑：卢昱君
+光通信、玻璃纤维、光芯片、PEEK材料等板块表现活跃，整个A股市场超3500只股票上涨，逾120只股票涨停，其中东山精密、澜起科技、兆易创新等多只大盘成长股创历史新高。
+
+市场成交额为3.17万亿元，连续2个交易日成交额超3万亿元。
+
+A股总市值超过131万亿元，创历史新高。
+
+资金面上，5月6日A股融资余额创历史新高，5月7日沪深两市超2200只股票出现主力资金净流入，资金情绪仍然乐观。
+
+分析人士认为，外部扰动影响淡化，国内经济形势向好、政策定调积极，风险偏好稳中改善，市场将延续震荡上涨态势，大盘成长占优的中期逻辑仍将成立。
+
+● 本报记者吴玉华 A股总市值超131万亿元 5月7日，A股市场继续走强。
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 02:43 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 03:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 02:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 02:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 02:59 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 03:03 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 02:46 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 02:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 03:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 03:09 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 03:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 02:59 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 03:08 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 02:53 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 03:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 02:53 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 03:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 02:51 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 03:14 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 03:17 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 03:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 03:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 03:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/254351370554.shtml)
-- 2026-06-30 02:44 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/15854.shtml)
-- 2026-06-30 02:44 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/079764.shtml)
-- 2026-06-30 03:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/0343118.shtml)
-- 2026-06-30 03:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/6707021.shtml)
-- 2026-06-30 03:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/81224738204.shtml)
-- 2026-06-30 03:10 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/78819.shtml)
-- 2026-06-30 03:05 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/784322.shtml)
-- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6755943194.shtml)
-- 2026-06-30 02:50 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/846220199222.shtml)
-- 2026-06-30 02:48 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/4831193.shtml)
-- 2026-06-30 02:49 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/7323400135.shtml)
-- 2026-06-30 03:08 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/0891497.shtml)
-- 2026-06-30 03:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/149776734.shtml)
-- 2026-06-30 02:54 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/90576601.shtml)
+- 2026-06-30 03:08 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/47844.shtml)
+- 2026-06-30 03:16 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/35389442.shtml)
+- 2026-06-30 02:51 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/3975411935.shtml)
+- 2026-06-30 02:56 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/9313031744.shtml)
+- 2026-06-30 03:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/181506901696.shtml)
+- 2026-06-30 03:14 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/728175.shtml)
+- 2026-06-30 03:17 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/6917305.shtml)
+- 2026-06-30 02:50 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/5447721.shtml)
+- 2026-06-30 02:57 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/40541.shtml)
+- 2026-06-30 02:56 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/97905721.shtml)
+- 2026-06-30 03:16 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/38581649.shtml)
+- 2026-06-30 02:56 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/35459.shtml)
+- 2026-06-30 03:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/37446.shtml)
+- 2026-06-30 03:02 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/40068.shtml)
+- 2026-06-30 03:16 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/962087.shtml)

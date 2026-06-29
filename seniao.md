@@ -1,58 +1,61 @@
-# 科技赋能舞台 经典集中上演 四月演出市场持续火热
+# 单季亏超10亿元、偿付能力告急，幸福人寿的“幸福”去哪了
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-进入4月，全国演出市场持续火热。 “超现场”看演出 优质艺术成为美好日常 国家大剧院推出的“云端剧院”+“超现场”，通过“艺术+科技”的创新表达，让全国观众在家门口就能看到精彩演出。在国家大剧院公共空间，裸眼3D大屏幕正在实时直播国家大剧院热演的歌剧《阿依达》，与此同时，这部歌剧通过“超现场”模式向全国一百多家影剧院同步直播。这意味着外地观众也能同步观赏、感受国家大剧院的舞台作
+2026年一季度，幸福人寿保险业务收入97.38亿元，同比增长17.31%，跑赢了行业平均增速。但净亏损却高达10.4亿元，同比扩大1757.14%。 更严峻的是，其核心偿付能力充足率从98.99%下滑至72.20%，综合偿付能力充足率从136.95%跌落至106.33%，距离监管红线仅一步之遥；净现金流-82.57亿元，流动性“安全垫”急剧收缩。叠加监管罚单曝光的多项违规、近
 
 ## 正文
 
-进入4月，全国演出市场持续火热。
+2026年一季度，幸福人寿保险业务收入97.38亿元，同比增长17.31%，跑赢了行业平均增速。
 
-“超现场”看演出 优质艺术成为美好日常 国家大剧院推出的“云端剧院”+“超现场”，通过“艺术+科技”的创新表达，让全国观众在家门口就能看到精彩演出。
+但净亏损却高达10.4亿元，同比扩大1757.14%。
 
-在国家大剧院公共空间，裸眼3D大屏幕正在实时直播国家大剧院热演的歌剧《阿依达》，与此同时，这部歌剧通过“超现场”模式向全国一百多家影剧院同步直播。
+更严峻的是，其核心偿付能力充足率从98.99%下滑至72.20%，综合偿付能力充足率从136.95%跌落至106.33%，距离监管红线仅一步之遥；净现金流-82.57亿元，流动性“安全垫”急剧收缩。
 
-这意味着外地观众也能同步观赏、感受国家大剧院的舞台作品魅力。
+叠加监管罚单曝光的多项违规、近四分之一股权遭质押冻结的治理隐患，这家成立近二十年的老牌寿险公司，正站在一个十字路口。
 
-从去年开始，国家大剧院推出的“超现场”影剧院直播，更是打破常规观演模式，多地联动、百城共赏，不仅能看演出直播，还能听导赏、看幕后，是名副其实的超级现场、超越现场。
+一季度保费双位数增长，净利润却亏10.4亿元 国家金融监督管理总局及中国保险行业协会近日发布的数据显示，2026年一季度，我国保险业累计实现原保险保费收入2.31万亿元，同比增长6.2%。
 
-国家大剧院副院长 马荣国：今年我们将XR技术、AI技术，运用到我们的现场直播的内容当中，给大家耳目一新的感觉。
+其中，人身险公司保费收入1.78万亿元，同比增长7.3%。
 
-我们就是希望能够通过我们的线上播出，让全国的观众能够从了解艺术到喜欢艺术。
+在寿险行业整体增速放缓至个位数的背景下，幸福人寿一季度保险业务收入同比增长17.31%。
 
-超现场以影剧院为席，再造现场观演的仪式感，打破了地域、空间、票价的限制，让更多人有更多机会接触优质艺术，更让艺术之美，成为我们中国人的美好日常。
+然而在利润端，偿付能力报告显示，幸福人寿一季度净亏损10.4亿元，相当于每天亏损近1150万元。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 03:07 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 03:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 02:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 02:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 02:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 02:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 03:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 03:00 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 02:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 03:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 03:07 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 03:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 03:15 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 03:12 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 02:54 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 03:15 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 03:08 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 02:59 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 03:16 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 03:06 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 02:51 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 03:06 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 03:17 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 02:52 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 03:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/8314399551.shtml)
-- 2026-06-30 03:01 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/602907.shtml)
-- 2026-06-30 02:48 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/57474535226.shtml)
-- 2026-06-30 02:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/0527941.shtml)
-- 2026-06-30 03:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/1455045.shtml)
-- 2026-06-30 02:54 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/599188050.shtml)
-- 2026-06-30 03:06 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/566133.shtml)
-- 2026-06-30 02:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/70758033.shtml)
-- 2026-06-30 02:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/26629805.shtml)
-- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/7763555.shtml)
-- 2026-06-30 02:42 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/406091.shtml)
-- 2026-06-30 03:11 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/1720787586.shtml)
-- 2026-06-30 02:47 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/633422876.shtml)
-- 2026-06-30 02:45 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/32525.shtml)
-- 2026-06-30 03:09 - [斛珠夫人](https://www.blog.minike.top/Article/details/570072097.shtml)
+- 2026-06-30 02:59 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/10006744.shtml)
+- 2026-06-30 03:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/45962.shtml)
+- 2026-06-30 03:17 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/48751354378.shtml)
+- 2026-06-30 02:51 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/53990494.shtml)
+- 2026-06-30 02:56 - [沉睡花园](https://www.share.minike.top/Article/details/96701.shtml)
+- 2026-06-30 02:56 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/61296.shtml)
+- 2026-06-30 03:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/20851.shtml)
+- 2026-06-30 03:00 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/792172297265.shtml)
+- 2026-06-30 03:12 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/65460309682.shtml)
+- 2026-06-30 03:17 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/32599919909.shtml)
+- 2026-06-30 03:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/938215634968.shtml)
+- 2026-06-30 03:15 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/91275948558.shtml)
+- 2026-06-30 03:03 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/5074725569.shtml)
+- 2026-06-30 03:17 - [逃狱兄弟](https://www.share.minike.top/Article/details/707122580.shtml)
+- 2026-06-30 02:54 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/239854.shtml)

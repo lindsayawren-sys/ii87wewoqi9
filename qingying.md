@@ -1,59 +1,59 @@
-# 林芝消防救援机动支队开展车辆破拆特训 为川藏线自驾游客筑牢“生命屏障”
+# 市值相差千亿，蒙牛距离伊利越来越远
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月14日电 (杨海涛 罗圆梦 费贤浩)近日，林芝消防救援机动支队开展了一场从理论到实战的全流程车辆破拆特训，旨在为日益增多的自驾进藏游客筑起一道更坚实的安全防线。 “轰——”随着液压破拆工具强劲咬合，一辆报废轿车的A柱被精准切断，车顶随即被整体移除。这并非交通事故现场，而是西藏林芝市消防救援机动支队车辆破拆救援培训的实操一幕。 317、318国道串联起绝美的自然风光
+岳家琛 | 作者 孙春芳 | 编辑 棱镜 | 来源 从草原上的同乡宿敌，到中国乳业走向现代化的双引擎；从奶源战、价格战到营销战，从千亿营收竞速到全球乳业十强的排位争夺，这两家总部相距仅百公里的龙头企业，总是不乏故事。 近日，蒙牛披露2025年财务数据。财报显示，蒙牛全年实现营收822.45亿元，同比下滑7.3%，为连续第二年下降。伊利尚未发布年报，去年前三季度，伊利营业收入90
 
 ## 正文
 
-中新网拉萨4月14日电 (杨海涛 罗圆梦 费贤浩)近日，林芝消防救援机动支队开展了一场从理论到实战的全流程车辆破拆特训，旨在为日益增多的自驾进藏游客筑起一道更坚实的安全防线。
+岳家琛 | 作者 孙春芳 | 编辑 棱镜 | 来源 从草原上的同乡宿敌，到中国乳业走向现代化的双引擎；从奶源战、价格战到营销战，从千亿营收竞速到全球乳业十强的排位争夺，这两家总部相距仅百公里的龙头企业，总是不乏故事。
 
-“轰——”随着液压破拆工具强劲咬合，一辆报废轿车的A柱被精准切断，车顶随即被整体移除。
+近日，蒙牛披露2025年财务数据。
 
-这并非交通事故现场，而是西藏林芝市消防救援机动支队车辆破拆救援培训的实操一幕。
+财报显示，蒙牛全年实现营收822.45亿元，同比下滑7.3%，为连续第二年下降。
 
-317、318国道串联起绝美的自然风光，被誉为“中国人的景观大道”，然而其弯急坡陡、车流密集的路况特点，也让车辆事故救援成为一道高难度考题。
+伊利尚未发布年报，去年前三季度，伊利营业收入905.64亿元，同比增长1.71%。
 
-在严重碰撞事故中，严重变形的车身往往成为阻碍救援的“钢铁牢笼”。
+从市值来看，截至最近一个交易日收盘，二者之间的市值鸿沟超千亿。
 
-针对这一痛点，林芝消防救援机动支队将此次培训重点聚焦于“最难啃的硬骨头”。
+其中伊利市值1741.3亿元，蒙牛市值674.15亿港元。
 
-从快速识别碰撞后车辆的结构风险，到构建稳固的顶升支撑矩阵确保操作安全；从平移整体式仪表盘创造宝贵的救援空间，到精准切割A柱、B柱并完整移除车顶，每一个技术环节的打磨，都直指高原道路救援的实际需求。
+“这背后是商业底层逻辑的彻底分化。
 
-此次培训坚持立足实战，精准破解车辆救援中的技术难点。
+”一位乳业分析师如是说。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:47 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 03:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:02 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 03:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 03:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 03:00 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 02:59 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 02:58 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 03:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 03:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 02:46 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 02:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:55 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 03:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 03:00 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 03:07 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 03:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 02:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 02:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 03:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 03:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 03:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 03:01 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 03:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/321721671671.shtml)
-- 2026-06-30 02:45 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/24384446902.shtml)
-- 2026-06-30 02:43 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/598304919.shtml)
-- 2026-06-30 02:56 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/26292054.shtml)
-- 2026-06-30 02:46 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/4406536.shtml)
-- 2026-06-30 02:44 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/34063851220.shtml)
-- 2026-06-30 02:52 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/9584060634.shtml)
-- 2026-06-30 02:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/81268626005.shtml)
-- 2026-06-30 02:46 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/18918.shtml)
-- 2026-06-30 02:49 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/3607578.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/9303843.shtml)
-- 2026-06-30 03:08 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/46623.shtml)
-- 2026-06-30 02:45 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/810355.shtml)
-- 2026-06-30 03:00 - [《贺子珍》](https://www.share.minike.top/Article/details/98515399.shtml)
-- 2026-06-30 02:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/32356435.shtml)
+- 2026-06-30 02:58 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/358630685.shtml)
+- 2026-06-30 03:09 - [一生一世](http://www.blog.minike.top/Article/details/60281603.shtml)
+- 2026-06-30 03:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/112600450.shtml)
+- 2026-06-30 03:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/10469397534.shtml)
+- 2026-06-30 03:17 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/291510.shtml)
+- 2026-06-30 03:10 - [日本进球](https://www.blog.kurohicncr.top/Article/details/5888107542.shtml)
+- 2026-06-30 02:50 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/6560649.shtml)
+- 2026-06-30 02:49 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/5285620.shtml)
+- 2026-06-30 03:07 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/91906474.shtml)
+- 2026-06-30 02:49 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/881433819.shtml)
+- 2026-06-30 03:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/47652.shtml)
+- 2026-06-30 02:50 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/891790665.shtml)
+- 2026-06-30 02:52 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/9662650.shtml)
+- 2026-06-30 03:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/612540.shtml)
+- 2026-06-30 03:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/284682494.shtml)

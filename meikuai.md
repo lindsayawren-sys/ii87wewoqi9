@@ -1,60 +1,46 @@
-# 日薪近2000元，景区“疯抢”NPC
+# 周六福第一季度归母净利润同比增长约29%
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新经纬4月15日电 (郑艺佳)收到日薪近2000元的工作offer是一种怎样的体验？ 近日，一位身高199厘米的“00后”健身教练成功“入职”江苏一景区，成为项羽NPC(非玩家角色)，日薪为“身高×10”，即1990元。随着体验经济爆火，NPC成为备受景区青睐的“香饽饽”，高薪招聘启事更是层出不穷。 NPC日薪近2000元 “身高×10倍拿日薪，上不封顶。”近日，江苏宿迁项王
+周六福（06168）发布公告，本集团2026年第一季度实现营业收入约人民币12.73亿元，得益于“周六福”、“喵际”品牌线上渠道贡献的毛利同比大增约50%等因素，集团合并报表的盈利能力指标进一步提升，同期归属于上市公司股东的净利润同比增长约29%。责任编辑：卢昱君
 
 ## 正文
 
-中新经纬4月15日电 (郑艺佳)收到日薪近2000元的工作offer是一种怎样的体验？
+周六福（06168）发布公告，本集团2026年第一季度实现营业收入约人民币12.73亿元，得益于“周六福”、“喵际”品牌线上渠道贡献的毛利同比大增约50%等因素，集团合并报表的盈利能力指标进一步提升，同期归属于上市公司股东的净利润同比增长约29%。
 
-近日，一位身高199厘米的“00后”健身教练成功“入职”江苏一景区，成为项羽NPC(非玩家角色)，日薪为“身高×10”，即1990元。
-
-随着体验经济爆火，NPC成为备受景区青睐的“香饽饽”，高薪招聘启事更是层出不穷。
-
-NPC日薪近2000元 “身高×10倍拿日薪，上不封顶。
-
-”近日，江苏宿迁项王故里景区高薪招募项羽NPC，招聘条件“简单粗暴”，要求应聘者体型魁梧健硕，有台词功底，能进行简单的舞台互动，身高不低于185厘米。
-
-这意味着，NPC的日薪最低也有1850元。
-
-中新经纬近日致电该景区，相关工作人员告诉中新经纬，这是景区举办的活动，自公布后吸引了近2000人报名。
-
-景区最终通过比赛选出了5名NPC，并在清明假期上岗两天。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 03:04 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 03:00 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 03:01 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 02:46 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 02:53 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 02:46 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 03:01 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 02:48 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 03:02 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 02:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 02:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 03:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:56 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 02:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:48 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 03:15 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 03:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 03:08 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 03:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 02:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 03:15 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 03:14 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 03:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/294384.shtml)
-- 2026-06-30 02:57 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/55605549.shtml)
-- 2026-06-30 03:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/71366739241.shtml)
-- 2026-06-30 03:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/18063656.shtml)
-- 2026-06-30 02:44 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/77444.shtml)
-- 2026-06-30 02:47 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/842308.shtml)
-- 2026-06-30 02:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/849495102161.shtml)
-- 2026-06-30 02:43 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/36197011.shtml)
-- 2026-06-30 03:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/75011092018.shtml)
-- 2026-06-30 03:05 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/74316967.shtml)
-- 2026-06-30 02:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/58953.shtml)
-- 2026-06-30 02:53 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/661106040.shtml)
-- 2026-06-30 02:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/6720245198.shtml)
-- 2026-06-30 02:55 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/18417064141.shtml)
-- 2026-06-30 02:50 - [金刚川](https://www.share.kurohicncr.top/Article/details/9486461663.shtml)
+- 2026-06-30 03:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/75572474.shtml)
+- 2026-06-30 02:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/46210729.shtml)
+- 2026-06-30 03:15 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/618194091841.shtml)
+- 2026-06-30 02:59 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/072129450.shtml)
+- 2026-06-30 02:50 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/14518.shtml)
+- 2026-06-30 03:13 - [急先锋](http://www.blog.minike.top/Article/details/5434085.shtml)
+- 2026-06-30 02:52 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/05978.shtml)
+- 2026-06-30 02:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/779974993.shtml)
+- 2026-06-30 03:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/12041.shtml)
+- 2026-06-30 02:57 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/29699.shtml)
+- 2026-06-30 03:07 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/840371.shtml)
+- 2026-06-30 02:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/6997303.shtml)
+- 2026-06-30 03:17 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/42964.shtml)
+- 2026-06-30 03:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/73468128.shtml)
+- 2026-06-30 03:02 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/879732048.shtml)

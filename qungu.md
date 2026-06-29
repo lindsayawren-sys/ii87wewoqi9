@@ -1,61 +1,60 @@
-# 内蒙古“农牧结亲”的“羊”关道：冷季入园，暖季归原
+# 2026年“国际茶日”中国主场活动即将启幕 邀中外嘉宾共话发展
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔4月15日电 题：内蒙古“农牧结亲”的“羊”关道：冷季入园，暖季归原 中新网记者 张林虎 春日的内蒙古自治区巴彦淖尔市乌拉特中旗德岭山镇兴丰村，田野间还透着些许凉意，一阵阵清脆的羊叫声却让这片土地热闹起来。牧民梁五正忙着把羊群往车上赶，准备返回150公里外的牧区。与他告别的是农区村民常海中——一个连续6年帮着他张罗“倒场”的老朋友。 这并非个例。在乌拉特中旗，每年
+中新网南宁5月9日电(记者 杨陈)茶香袅袅迎盛会。2026年国际茶日中国主场活动将于5月21日在南宁启幕，一场集文化展示、科技创新与国际合作于一体的茶界盛会即将呈现。 2019年，联合国宣布将每年5月21日设立为“国际茶日”。作为中国重要的产茶区之一，广西近年来加快构建以六堡茶、茉莉花茶、早春茶为代表的现代茶产业体系，产业发展态势良好。当前，广西茶园面积稳定在170万亩左右，年
 
 ## 正文
 
-中新网巴彦淖尔4月15日电 题：内蒙古“农牧结亲”的“羊”关道：冷季入园，暖季归原 中新网记者 张林虎 春日的内蒙古自治区巴彦淖尔市乌拉特中旗德岭山镇兴丰村，田野间还透着些许凉意，一阵阵清脆的羊叫声却让这片土地热闹起来。
+中新网南宁5月9日电(记者 杨陈)茶香袅袅迎盛会。
 
-牧民梁五正忙着把羊群往车上赶，准备返回150公里外的牧区。
+2026年国际茶日中国主场活动将于5月21日在南宁启幕，一场集文化展示、科技创新与国际合作于一体的茶界盛会即将呈现。
 
-与他告别的是农区村民常海中——一个连续6年帮着他张罗“倒场”的老朋友。
+2019年，联合国宣布将每年5月21日设立为“国际茶日”。
 
-这并非个例。
+作为中国重要的产茶区之一，广西近年来加快构建以六堡茶、茉莉花茶、早春茶为代表的现代茶产业体系，产业发展态势良好。
 
-在乌拉特中旗，每年春季，一场跨越南北的牲畜转场都会如期上演。
+当前，广西茶园面积稳定在170万亩左右，年产量近14万吨，全产业链综合产值突破700亿元，连续7年位居全国前十。
 
-而近年来推行的“农牧结亲”区域循环发展模式，让这场迁徙多了一份温度，也多了一份共赢的底气。
+据介绍，本次2026年国际茶日中国主场活动由广西壮族自治区人民政府主办，以“丝路茶香 共智共享”为主题，突出人工智能赋能茶产业高质量发展的时代主线，采取“主会场引领、分会场联动、线上线下融合”的方式开展。
 
-冬赴农区：秸秆地里降成本 去年秋天，梁五带着500多只羊来到兴丰村越冬。
+主场活动将于5月21日在南宁举行，包括重要嘉宾致辞、启动仪式、成果展示、主题发言等内容。
 
-如今返程，羊群里多了200多只新生的春羔。
+5月20日至22日，配套活动将在南宁、桂林、梧州同步展开，涵盖乡村工匠制茶技艺竞赛、“世界共饮一杯茶”丝路茶会、“国际茶日·茉莉跨界趣享会”、第十六届“桂林经典·恭城油茶”文化活动周等特色活动。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:04 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 02:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 03:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 02:51 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 02:46 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 03:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 02:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 03:07 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 03:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 02:59 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 03:11 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 02:48 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 02:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 03:05 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 03:10 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 03:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 03:17 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 02:59 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:14 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 03:10 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 03:12 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 03:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 02:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 02:53 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 03:07 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:50 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 03:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 03:08 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/019242319.shtml)
-- 2026-06-30 02:46 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/1212222.shtml)
-- 2026-06-30 03:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/987156110833.shtml)
-- 2026-06-30 02:42 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/3855387.shtml)
-- 2026-06-30 02:42 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/97278983391.shtml)
-- 2026-06-30 02:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/16321971020.shtml)
-- 2026-06-30 02:44 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/07122379.shtml)
-- 2026-06-30 03:10 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/124391134.shtml)
-- 2026-06-30 02:43 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/763887.shtml)
-- 2026-06-30 03:07 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/849600.shtml)
-- 2026-06-30 03:00 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/575581694159.shtml)
-- 2026-06-30 02:51 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/21513.shtml)
-- 2026-06-30 03:09 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/04241598.shtml)
-- 2026-06-30 02:42 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/036668873783.shtml)
-- 2026-06-30 02:54 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/800805.shtml)
+- 2026-06-30 03:05 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/1525182850.shtml)
+- 2026-06-30 03:13 - [毒液2](https://www.share.minike.top/Article/details/1341073699.shtml)
+- 2026-06-30 02:49 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/075020420692.shtml)
+- 2026-06-30 03:14 - [巴西扳平比分](https://www.blog.minike.top/Article/details/194610501440.shtml)
+- 2026-06-30 03:03 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/48234577.shtml)
+- 2026-06-30 02:49 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/68859.shtml)
+- 2026-06-30 02:53 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/9521428.shtml)
+- 2026-06-30 02:50 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1295479226.shtml)
+- 2026-06-30 02:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/315769.shtml)
+- 2026-06-30 03:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/551588.shtml)
+- 2026-06-30 02:50 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/438230349.shtml)
+- 2026-06-30 03:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/56807117.shtml)
+- 2026-06-30 02:52 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/2848797.shtml)
+- 2026-06-30 03:10 - [乔家的儿女](http://www.share.minike.top/Article/details/789330052755.shtml)
+- 2026-06-30 03:16 - [一生一世](https://www.blog.minike.top/Article/details/5057670.shtml)

@@ -1,58 +1,60 @@
-# 《求是》杂志发表习近平总书记重要文章《推动全民阅读，建设书香社会》
+# 清晨，全线跳水！美国发动空袭！特朗普最新发声
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-新华社北京4月15日电 4月16日出版的第8期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《推动全民阅读，建设书香社会》。这是习近平总书记2013年3月至2025年3月期间有关重要论述的节录。 文章指出，阅读是人类获取知识、启智增慧、培养道德的重要途径，可以让人得到思想启发，树立崇高理想，涵养浩然之气。学史可以看成败、鉴得失、知兴替；学诗可以情飞扬、
+局势突变！ 今日清晨，美股三大股指期货集体跳水，截至06：40，纳斯达克100指数期货跌0.22%，标普500指数期货跌0.17%，道指期货跌0.12%。加密货币市场亦全线杀跌，比特币跌超1%，以太坊跌超2%，狗狗币跌超4%，据CoinGlass数据统计，最近24小时，全球共有116118人被爆仓。国际油价则大幅飙升，WTI原油期货大涨超3%。 消息面上，中东局势突然升级。据新
 
 ## 正文
 
-新华社北京4月15日电 4月16日出版的第8期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《推动全民阅读，建设书香社会》。
+局势突变！
 
-这是习近平总书记2013年3月至2025年3月期间有关重要论述的节录。
+今日清晨，美股三大股指期货集体跳水，截至06：40，纳斯达克100指数期货跌0.22%，标普500指数期货跌0.17%，道指期货跌0.12%。
 
-文章指出，阅读是人类获取知识、启智增慧、培养道德的重要途径，可以让人得到思想启发，树立崇高理想，涵养浩然之气。
+加密货币市场亦全线杀跌，比特币跌超1%，以太坊跌超2%，狗狗币跌超4%，据CoinGlass数据统计，最近24小时，全球共有116118人被爆仓。
 
-学史可以看成败、鉴得失、知兴替；学诗可以情飞扬、志高昂、人灵秀；学伦理可以知廉耻、懂荣辱、辨是非。
+国际油价则大幅飙升，WTI原油期货大涨超3%。
 
-要提倡多读书，建设书香社会，不断提升人民思想境界、增强人民精神力量，中华民族的精神世界就能更加厚重深邃。
+消息面上，中东局势突然升级。
 
-文章指出，共产党人要把读马克思主义经典、悟马克思主义原理当作一种生活习惯、当作一种精神追求，用经典涵养正气、淬炼思想、升华境界、指导实践。
+据新华社最新消息，美军7日对伊朗格什姆港和阿巴斯港发动空袭。
 
-干部要结合工作需要学习，做到干什么学什么、缺什么补什么。
+此外，美军还袭击了伊朗南部霍尔木兹甘省米纳卜市的一处海军检查站。
 
-要学习马克思主义理论特别是新时代党的创新理论，学习党史、新中国史、改革开放史、社会主义发展史，学习经济、政治、法律、文化、社会、管理、生态、国际等各方面基础性知识，学习同做好本职工作相关的新知识新技能，不断完善履职尽责必备的知识体系。
+当地时间8日凌晨，伊朗武装部队发表声明称，美军违反停火协议，伊朗武装部队已对霍尔木兹海峡以东及恰巴哈尔港以南的美方军事舰艇实施反击，并称造成“重大损失”。
 
 ## 相关推荐
 
-- 2026-06-30 02:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 03:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 02:59 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 02:55 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 03:04 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 02:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 02:47 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 02:54 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 03:10 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 02:47 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 03:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 03:09 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 03:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 03:13 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 02:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 02:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 03:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 03:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 03:00 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 03:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 03:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 03:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 03:03 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 02:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 03:13 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 03:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/597422549713.shtml)
-- 2026-06-30 02:50 - [青春环游记第三季](https://www.share.minike.top/Article/details/1064147103.shtml)
-- 2026-06-30 02:56 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/13170110275.shtml)
-- 2026-06-30 02:47 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/0991396725.shtml)
-- 2026-06-30 02:59 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/61692551494.shtml)
-- 2026-06-30 02:42 - [美人鱼](https://www.share.kurohicncr.top/Article/details/28271.shtml)
-- 2026-06-30 02:47 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/66209327929.shtml)
-- 2026-06-30 02:42 - [金牌调解](https://www.blog.minike.top/Article/details/912592855616.shtml)
-- 2026-06-30 03:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/268796.shtml)
-- 2026-06-30 02:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/2800774679.shtml)
-- 2026-06-30 03:08 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/548020.shtml)
-- 2026-06-30 03:01 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/74745818070.shtml)
-- 2026-06-30 02:56 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/39711.shtml)
-- 2026-06-30 02:47 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/0115880830.shtml)
-- 2026-06-30 02:58 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/7877109506.shtml)
+- 2026-06-30 02:53 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/17508.shtml)
+- 2026-06-30 03:07 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/595907574.shtml)
+- 2026-06-30 02:58 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/046488.shtml)
+- 2026-06-30 03:01 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/846014.shtml)
+- 2026-06-30 03:05 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/849767621435.shtml)
+- 2026-06-30 03:00 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/04859142.shtml)
+- 2026-06-30 03:10 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/67655.shtml)
+- 2026-06-30 02:56 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/2216119.shtml)
+- 2026-06-30 03:16 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/36030523.shtml)
+- 2026-06-30 03:10 - [巴西扳平比分](https://www.share.minike.top/Article/details/224275.shtml)
+- 2026-06-30 03:06 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/95077438929.shtml)
+- 2026-06-30 03:10 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/669666606.shtml)
+- 2026-06-30 02:48 - [美股](https://www.share.minike.top/Article/details/17435281.shtml)
+- 2026-06-30 03:07 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/635778990.shtml)
+- 2026-06-30 03:13 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/79591.shtml)

@@ -1,50 +1,58 @@
-# 绿色能源科技集团获余小玉增持140.6万股 每股作价0.4175港元
+# 联邦制药盘中涨超3% 长效胰岛素周制剂UBT38006注射液获临床试验默示许可
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，2月28日，余小玉增持绿色能源科技集团（00979）140.6万股，每股作价0.4175港元，总金额为58.7005万港元。增持后最新持股数目为6964万股，最新持股比例为5.13%。责任编辑：卢昱君
+联邦制药（03933）盘中涨超3%，截至发稿，股价上涨2.44%，现报10.09港元，成交额3920.58万港元。 5月7日，联邦制药发布公告，公司全资附属公司联邦生物科技（珠海横琴）有限公司自主研发的1类创新药UBT38006注射液获得中国国家药品监督管理局临床试验默示许可。本次获批是公司在糖尿病治疗领域又一重要创新成果。 UBT38006注射液是一款全新分子结构的长效胰岛素
 
 ## 正文
 
-香港联交所最新数据显示，2月28日，余小玉增持绿色能源科技集团（00979）140.6万股，每股作价0.4175港元，总金额为58.7005万港元。
+联邦制药（03933）盘中涨超3%，截至发稿，股价上涨2.44%，现报10.09港元，成交额3920.58万港元。
 
-增持后最新持股数目为6964万股，最新持股比例为5.13%。
+5月7日，联邦制药发布公告，公司全资附属公司联邦生物科技（珠海横琴）有限公司自主研发的1类创新药UBT38006注射液获得中国国家药品监督管理局临床试验默示许可。
+
+本次获批是公司在糖尿病治疗领域又一重要创新成果。
+
+UBT38006注射液是一款全新分子结构的长效胰岛素周制剂，该药物通过与人胰岛素受体特异性结合发挥降糖药理作用。
+
+相较于现有胰岛素产品，UBT38006最显著的优势在于其独特的分子设计，实现与人体白蛋白的可逆结合，显著延长药物半衰期。
+
+依据临床前动物体内数据，预估可在人体中实现每周一次的给药方案。
+
+UBT38006的开发有望大幅提升糖尿病患者的用药依从性，减轻频繁注射带来的治疗负担，改善患者生活质量。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 03:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 03:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 02:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 03:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 03:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 03:01 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 03:06 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 02:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 02:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 02:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 02:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 02:57 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 03:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 03:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 03:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 03:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 02:55 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:09 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 02:53 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 02:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 02:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 02:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 03:15 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 03:05 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 03:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/35522.shtml)
-- 2026-06-30 03:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/24702.shtml)
-- 2026-06-30 02:46 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/9756390.shtml)
-- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/45907.shtml)
-- 2026-06-30 03:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/0982063148.shtml)
-- 2026-06-30 02:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/177480618881.shtml)
-- 2026-06-30 02:44 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/52823520.shtml)
-- 2026-06-30 03:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/8787472.shtml)
-- 2026-06-30 02:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/25085644047.shtml)
-- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/8567338.shtml)
-- 2026-06-30 02:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/05072634.shtml)
-- 2026-06-30 03:01 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/289473523444.shtml)
-- 2026-06-30 03:10 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/227155062659.shtml)
-- 2026-06-30 03:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/964889.shtml)
-- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/7447292.shtml)
+- 2026-06-30 03:10 - [流金岁月](http://www.blog.minike.top/Article/details/8268736.shtml)
+- 2026-06-30 02:48 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/85967736.shtml)
+- 2026-06-30 03:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/681370108257.shtml)
+- 2026-06-30 03:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/74628318.shtml)
+- 2026-06-30 03:11 - [世界杯](https://www.blog.minike.top/Article/details/458717745807.shtml)
+- 2026-06-30 03:15 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/298080973733.shtml)
+- 2026-06-30 03:15 - [周生如故](http://www.blog.kurohicncr.top/Article/details/214228746.shtml)
+- 2026-06-30 03:13 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/8760426.shtml)
+- 2026-06-30 03:15 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/6868386903.shtml)
+- 2026-06-30 02:53 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/256574.shtml)
+- 2026-06-30 03:06 - [张凌赫 客串](https://www.share.minike.top/Article/details/8229210.shtml)
+- 2026-06-30 03:06 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/239278567.shtml)
+- 2026-06-30 02:49 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/302816.shtml)
+- 2026-06-30 03:11 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/1720658.shtml)
+- 2026-06-30 02:51 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/17172.shtml)

@@ -1,60 +1,57 @@
-# “邮储银行号”遥感卫星升空！银行为何接力放卫星？
+# 浙江舟山首次发现小田鸡、中华短趾百灵
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。 据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。目前，卫星数据已接入邮储银行
+中新网舟山5月9日电 (刘子琳 骆泽明 刘韶宇)近日，浙江野鸟会发布2026年4月浙江省鸟类重要记录，浙江舟山新增小田鸡、中华短趾百灵两个鸟类新记录，当地鸟类“朋友圈”持续扩容。 舟山虽无大片原始森林与大型内陆湖泊，但地处东亚—澳大利西亚候鸟迁徙通道，是候鸟往返西伯利亚繁殖地与东南亚、澳大利亚越冬地的重要“迁徙驿站”，每年数千万候鸟在此停歇补给。 4月15日，舟山普陀山国际机场
 
 ## 正文
 
-每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！
+中新网舟山5月9日电 (刘子琳 骆泽明 刘韶宇)近日，浙江野鸟会发布2026年4月浙江省鸟类重要记录，浙江舟山新增小田鸡、中华短趾百灵两个鸟类新记录，当地鸟类“朋友圈”持续扩容。
 
-4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。
+舟山虽无大片原始森林与大型内陆湖泊，但地处东亚—澳大利西亚候鸟迁徙通道，是候鸟往返西伯利亚繁殖地与东南亚、澳大利亚越冬地的重要“迁徙驿站”，每年数千万候鸟在此停歇补给。
 
-据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。
+4月15日，舟山普陀山国际机场驱鸟员厉佳迪在飞行区巡查时，发现防鸟网上有一只外形特殊的小鸟。
 
-目前，卫星数据已接入邮储银行“绿洲”主动风险防控平台。
+凭借多年工作经验，他判断这并非本地常见鸟种，随即联系专家。
 
-《每日经济新闻》记者注意到，近年来，银行频频布局商业航天赛道，依托遥感卫星技术突破传统金融服务的局限性。
+经确认，该鸟为小田鸡，系舟山首次记录。
 
-在邮储银行之前，平安银行、招商银行、浦发银行三家股份行已将卫星送上太空，其中平安银行和招商银行发射了不止一颗卫星。
+小田鸡属小型涉禽，体长17至18厘米，生性胆小、擅长隐蔽，日常观测难度较大。
 
-那么，银行为何要积极布局商业航天？
+工作人员将其解救后已放归自然。
 
-在探索卫星遥感技术方面又有哪些侧重？
+随着气温回升，候鸟迁徙进入高峰期。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 03:08 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 02:56 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 02:54 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 02:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 03:11 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 02:43 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 02:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 02:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 03:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 02:48 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:55 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 03:07 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 03:09 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 02:57 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 03:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 03:14 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 03:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 02:57 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 03:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 03:04 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:09 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 03:07 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/375169.shtml)
-- 2026-06-30 03:02 - [日本领先巴西](http://www.share.minike.top/Article/details/75305833060.shtml)
-- 2026-06-30 02:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/9157679275.shtml)
-- 2026-06-30 03:02 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/6128476.shtml)
-- 2026-06-30 03:02 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/84234151.shtml)
-- 2026-06-30 03:04 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/9496107.shtml)
-- 2026-06-30 02:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/5414180.shtml)
-- 2026-06-30 02:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/8248314.shtml)
-- 2026-06-30 02:45 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/825849.shtml)
-- 2026-06-30 02:56 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/339264529.shtml)
-- 2026-06-30 02:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44525746.shtml)
-- 2026-06-30 02:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/52840057.shtml)
-- 2026-06-30 03:07 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/29486187157.shtml)
-- 2026-06-30 03:07 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/306315272385.shtml)
-- 2026-06-30 03:02 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/31403.shtml)
+- 2026-06-30 03:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/53582864.shtml)
+- 2026-06-30 02:59 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/67640.shtml)
+- 2026-06-30 03:17 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/848988767.shtml)
+- 2026-06-30 03:10 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/33309.shtml)
+- 2026-06-30 03:11 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/491585.shtml)
+- 2026-06-30 03:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/08622854.shtml)
+- 2026-06-30 02:56 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/58701.shtml)
+- 2026-06-30 03:05 - [巴西vs日本](http://www.share.minike.top/Article/details/884816.shtml)
+- 2026-06-30 03:00 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/21048.shtml)
+- 2026-06-30 02:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/6356673910.shtml)
+- 2026-06-30 03:02 - [爱很美味](http://www.blog.minike.top/Article/details/57169274619.shtml)
+- 2026-06-30 03:16 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/557937820414.shtml)
+- 2026-06-30 03:04 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/86063526251.shtml)
+- 2026-06-30 02:56 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/8255550705.shtml)
+- 2026-06-30 03:15 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/849907889.shtml)

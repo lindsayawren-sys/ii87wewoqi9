@@ -1,44 +1,56 @@
-# 山河智能：年度关联交易预计仅为公司基于期初各关联方的交易信息所做初步规划
+# 双鹭药业：炒股巨亏、信托暴雷、主业萎缩，曾经的“白马股”还能撑多久？
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-证券日报网讯4月15日，山河智能在互动平台回答投资者提问时表示，年度关联交易预计仅为公司基于期初各关联方的交易信息所做初步规划，旨在提前履行信批义务和获得内部审批授权，其实际履行情况需视具体业务进展而定。
+2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。双鹭药业正陷入一场难以轻松脱身的“中年危机”。 一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。尽管公司已报
 
 ## 正文
 
-证券日报网讯4月15日，山河智能在互动平台回答投资者提问时表示，年度关联交易预计仅为公司基于期初各关联方的交易信息所做初步规划，旨在提前履行信批义务和获得内部审批授权，其实际履行情况需视具体业务进展而定。
+2025年营收6.24亿元，炒股亏损2亿元，7.64亿元信托本金难以追回，董事长“自掏腰包”补缺，却难掩公司内控崩塌、业绩断崖、主业疲软的现实。
+
+双鹭药业正陷入一场难以轻松脱身的“中年危机”。
+
+一、内控失灵：信托迷局背后的管理黑洞 双鹭药业在2026年5月公告中承认，公司原财务人员隋某某涉嫌利用职务便利侵占公司利益，导致通过信托产品对外提供的7.64亿元本金难以收回。
+
+尽管公司已报案并立案，但事件暴露出其内部控制的严重缺陷——不仅未履行必要的审议程序，信披也不准确，深交所因此对公司及高管给予公开谴责。
+
+更令人担忧的是，董事长徐明波虽承诺补足差额并已先行缴纳5000万元，但其年薪仅31.85万元（2025年），持股比例22.62%，能否真正兜底仍是未知数。
+
+对于一家年营收刚过6亿元的企业来说，7.64亿元的潜在损失几乎是“灭顶之灾”。
+
+二、沉迷“炒股”与投资：业绩的过山车游戏 近年来，双鹭药业的业绩表现与资本市场波动高度绑定，已然偏离了制药主业的稳健逻辑。
+
+2023年，持仓股价上涨，贡献公允价值收益1.97亿元；2024年，股价回调，公允价值变动损失1.78亿元，导致公司上市以来首次年度净利润亏损；2025年前三季度，公允价值“由亏转盈”，归母净利润短暂暴增943.1%；2025年全年，理财投资亏损6.04亿元，公允价值收益3.54亿元，净拖累2.5亿元，全年净亏损3.47亿元。
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 02:58 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 02:43 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 02:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 03:06 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 02:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 02:50 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 02:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 03:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:01 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 03:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 02:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 02:50 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 03:11 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 03:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 02:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 03:05 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 02:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 03:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/425841445.shtml)
-- 2026-06-30 02:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/506736.shtml)
-- 2026-06-30 03:10 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/847581519.shtml)
-- 2026-06-30 03:03 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/845666363955.shtml)
-- 2026-06-30 02:55 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/2263252.shtml)
-- 2026-06-30 02:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/06387182.shtml)
-- 2026-06-30 03:00 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/482421236566.shtml)
-- 2026-06-30 03:02 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/13227640.shtml)
-- 2026-06-30 02:55 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/798004738948.shtml)
-- 2026-06-30 03:02 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/6186476.shtml)
-- 2026-06-30 03:07 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/7850775.shtml)
-- 2026-06-30 02:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/81128.shtml)
-- 2026-06-30 02:48 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/760748.shtml)
-- 2026-06-30 02:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/853936680.shtml)
-- 2026-06-30 02:44 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/053543487.shtml)
+- 2026-06-30 03:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/578342.shtml)
+- 2026-06-30 03:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/50635363745.shtml)
+- 2026-06-30 03:04 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/13500.shtml)
+- 2026-06-30 03:03 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/314051432674.shtml)
+- 2026-06-30 03:12 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/3762622.shtml)
+- 2026-06-30 03:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/092219635.shtml)
+- 2026-06-30 03:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/890584947187.shtml)
+- 2026-06-30 03:13 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/3493257.shtml)
+- 2026-06-30 02:50 - [斛珠夫人](https://www.blog.minike.top/Article/details/38008.shtml)
+- 2026-06-30 03:17 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9202741794.shtml)
+- 2026-06-30 02:53 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/774188.shtml)
+- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/18166675836.shtml)
+- 2026-06-30 02:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/0539353063.shtml)
+- 2026-06-30 03:08 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/11000.shtml)
+- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/63772.shtml)

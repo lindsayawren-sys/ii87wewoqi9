@@ -1,59 +1,56 @@
-# （乡村行·看振兴）一颗牡蛎的“变形记” 浙江三门滩涂地“长出”富民产业
+# 2026年一季度我国黄金产量81.065吨，同比下降7.08%
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网台州4月14日电(傅飞扬 项瑶莹 刘友情)“五一放假去哪玩，铁强赶海捡牡蛎！”在浙江省台州市三门县横渡镇铁强村，道路旁的标语格外醒目。清明过后，铁强牡蛎销售渐入尾声，当地蛎江滩摇身一变，成了赶海的热门去处。 蛎江滩，也叫铁强滩，位于健跳港上游，咸淡水交融出一片辽阔而洁净的滩涂——早在民国时期，百姓便靠拾捡小海鲜生活；如今，这里成了铁强村村民致富的“金银滩”。 截至目前，铁
+据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。 2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停
 
 ## 正文
 
-中新网台州4月14日电(傅飞扬 项瑶莹 刘友情)“五一放假去哪玩，铁强赶海捡牡蛎！
+据中国黄金协会最新统计数据显示：2026年一季度，国内原料产金81.065吨，同比减少6.178吨，同比下降7.08%；进口原料产金55.165吨，同比增加1.578吨，同比增长2.94%。
 
-”在浙江省台州市三门县横渡镇铁强村，道路旁的标语格外醒目。
+国内原料和进口原料共计生产黄金136.230吨，同比减少4.600吨，同比下降3.27%。
 
-清明过后，铁强牡蛎销售渐入尾声，当地蛎江滩摇身一变，成了赶海的热门去处。
+2026年一季度，黄金行业矿山与冶炼厂集中开展安全检查，对各类生产设施进行隐患排查，部分企业依规停产检修。
 
-蛎江滩，也叫铁强滩，位于健跳港上游，咸淡水交融出一片辽阔而洁净的滩涂——早在民国时期，百姓便靠拾捡小海鲜生活；如今，这里成了铁强村村民致富的“金银滩”。
+系列管控举措在一定程度上影响了一季度国内黄金产量。
 
-截至目前，铁强村已成为三门最大的牡蛎养殖基地，养殖面积达1500亩，年均销售额超4500万元，带动村集体年收入达90余万元。
+同时，行业资源整合持续推进，紫金矿业公告拟收购赤峰黄金股权，进一步集中优质资源。
 
-铁强牡蛎的与众不同，首先在于它的“野生血统”——每年端午节前后，潮水将天然牡蛎幼苗送至滩涂，附着在村民事先插下的条石上，不投苗、不投饵、不施肥，完全靠海水中的浮游生物自然生长，收获的牡蛎肉质紧实、汁水丰盈、鲜味纯粹。
+大型黄金集团境外产能释放强劲，一季度实现矿产金产量24.173吨，同比增长30.77%。
 
-铁强牡蛎的人工养殖历史可追溯至20世纪80年代。
+2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
 
-当年，村民林永海率先尝试用条石养牡蛎：“条石沉在海水里不会腐烂，能反复使用10多年甚至更久。
+其中：黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 03:07 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 03:11 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 02:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 02:44 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 02:48 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 02:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 02:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 02:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 02:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 02:45 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 03:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 02:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 03:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 03:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 02:55 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 02:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 02:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 03:02 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 02:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 02:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [孙兴慜道歉](http://www.share.minike.top/Article/details/50109.shtml)
-- 2026-06-30 02:51 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4466626.shtml)
-- 2026-06-30 02:50 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/93341898.shtml)
-- 2026-06-30 02:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/468098627407.shtml)
-- 2026-06-30 03:07 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/4181933125.shtml)
-- 2026-06-30 02:52 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/376967.shtml)
-- 2026-06-30 03:10 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/168794920248.shtml)
-- 2026-06-30 02:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/732969840241.shtml)
-- 2026-06-30 03:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/58583.shtml)
-- 2026-06-30 02:51 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/59812.shtml)
-- 2026-06-30 02:44 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/33369330023.shtml)
-- 2026-06-30 02:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/43300253.shtml)
-- 2026-06-30 03:08 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/3946826.shtml)
-- 2026-06-30 03:07 - [送你一朵小红花](http://www.blog.minike.top/Article/details/613429186425.shtml)
-- 2026-06-30 02:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/0206484949.shtml)
+- 2026-06-30 02:54 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/35865.shtml)
+- 2026-06-30 03:06 - [千与千寻](https://www.share.minike.top/Article/details/45675.shtml)
+- 2026-06-30 03:17 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/15453.shtml)
+- 2026-06-30 02:58 - [巴西绝杀日本](https://www.share.minike.top/Article/details/670600955835.shtml)
+- 2026-06-30 03:12 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/087932.shtml)
+- 2026-06-30 02:54 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/97870718999.shtml)
+- 2026-06-30 02:51 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/53450921.shtml)
+- 2026-06-30 02:56 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/324377564065.shtml)
+- 2026-06-30 03:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/80317754.shtml)
+- 2026-06-30 03:09 - [《贺子珍》](https://www.share.minike.top/Article/details/3457801.shtml)
+- 2026-06-30 02:49 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/7403710261.shtml)
+- 2026-06-30 02:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/61400799.shtml)
+- 2026-06-30 02:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/165244.shtml)
+- 2026-06-30 03:07 - [一见倾心](http://www.share.minike.top/Article/details/186985553.shtml)
+- 2026-06-30 02:49 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0457181.shtml)

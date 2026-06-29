@@ -1,61 +1,58 @@
-# （乡村行·看振兴）浙江年轻人乡野“筑梦” “慢生活”激发新动能
+# Alpha Tau新型放射疗法在美国完成临床试验患者招募
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网嘉兴4月14日电(黄彦君 徐玉霞)“家在这里，梦也在这里。”在浙江省平湖市广陈镇山塘村，“90后”山塘姑娘金梦依正忙着帮客人试穿汉服，“节假日一天能来好几批客人，虽然忙碌但心里踏实。” 山塘村位于浙沪交界处，村头一座百年石板桥串起了浙江与上海。这里没有名山大川的风景，却依托一座桥、一条街、一块田，开启一场探索乡村未来的“实验”。 每天临近中午，山塘老街便渐渐热闹起来。金梦
+以色列医疗企业Alpha Tau Medical Ltd．今日宣布，其评估新型放射疗法Alpha DaRT治疗复发性皮肤鳞状细胞癌（cSCC）的美国多中心关键临床试验（ReSTART）已完成全部88名患者招募。这标志着该疗法向获取美国食品和药物管理局（FDA）上市前审批（PMA）迈进重要阶段。 ReSTART试验是一项前瞻性、多中心、单臂的开放标签研究。入组者均为活检确诊的复发
 
 ## 正文
 
-中新网嘉兴4月14日电(黄彦君 徐玉霞)“家在这里，梦也在这里。
+以色列医疗企业Alpha Tau Medical Ltd．今日宣布，其评估新型放射疗法Alpha DaRT治疗复发性皮肤鳞状细胞癌（cSCC）的美国多中心关键临床试验（ReSTART）已完成全部88名患者招募。
 
-”在浙江省平湖市广陈镇山塘村，“90后”山塘姑娘金梦依正忙着帮客人试穿汉服，“节假日一天能来好几批客人，虽然忙碌但心里踏实。
+这标志着该疗法向获取美国食品和药物管理局（FDA）上市前审批（PMA）迈进重要阶段。
 
-” 山塘村位于浙沪交界处，村头一座百年石板桥串起了浙江与上海。
+ReSTART试验是一项前瞻性、多中心、单臂的开放标签研究。
 
-这里没有名山大川的风景，却依托一座桥、一条街、一块田，开启一场探索乡村未来的“实验”。
+入组者均为活检确诊的复发性cSCC患者，其既往一线标准治疗均告失败，且已不适用外科手术、常规放疗或根治性系统性治疗。
 
-每天临近中午，山塘老街便渐渐热闹起来。
+该研究共同主要终点设定为客观缓解率（ORR）以及自初次观察到缓解起持续六个月的缓解持续时间（DOR）。
 
-金梦依的小店里摆得满满当当，旗袍、饰品、怀旧玩具，每一件都独具特色。
+随着招募工作结束，该研究正式转入随访与数据采集期。
 
-作为土生土长山塘人，她对山塘村有两段截然不同的记忆。
+皮肤鳞状细胞癌是全球发病率第二的皮肤癌类型。
 
-小时候，老街冷清，青石板路上半天见不到一个外村人。
+针对传统手术和常规疗法无法控制的复发病例，临床存在显著的未满足需求。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:50 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 03:02 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 02:54 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 02:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 02:54 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 03:02 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 03:07 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 02:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 03:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 03:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 02:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 03:07 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 02:55 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 03:01 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:51 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 02:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:01 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 02:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 03:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 03:16 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 03:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 03:15 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 03:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 02:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/22526.shtml)
-- 2026-06-30 02:56 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/506593371496.shtml)
-- 2026-06-30 03:05 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/87750309100.shtml)
-- 2026-06-30 03:04 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/32225.shtml)
-- 2026-06-30 02:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/926726251.shtml)
-- 2026-06-30 03:09 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/141587912.shtml)
-- 2026-06-30 02:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/916713599.shtml)
-- 2026-06-30 03:02 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/70164666.shtml)
-- 2026-06-30 03:11 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/618032.shtml)
-- 2026-06-30 02:43 - [沙丘](http://www.blog.kurohicncr.top/Article/details/85036092242.shtml)
-- 2026-06-30 02:59 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/55059762.shtml)
-- 2026-06-30 02:55 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/72499.shtml)
-- 2026-06-30 03:07 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/512742.shtml)
-- 2026-06-30 02:42 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/11417.shtml)
-- 2026-06-30 02:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/02985282.shtml)
+- 2026-06-30 03:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/026299.shtml)
+- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/279573811618.shtml)
+- 2026-06-30 02:56 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/094911627722.shtml)
+- 2026-06-30 02:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/493015829557.shtml)
+- 2026-06-30 02:55 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/62679907.shtml)
+- 2026-06-30 02:54 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1536317532.shtml)
+- 2026-06-30 03:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/3110098580.shtml)
+- 2026-06-30 03:00 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/3273438637.shtml)
+- 2026-06-30 02:51 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/419717788161.shtml)
+- 2026-06-30 03:04 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/54422776.shtml)
+- 2026-06-30 03:11 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/402731180.shtml)
+- 2026-06-30 03:09 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/937115921044.shtml)
+- 2026-06-30 02:49 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/03837.shtml)
+- 2026-06-30 03:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/9006915.shtml)
+- 2026-06-30 02:55 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/51770977.shtml)

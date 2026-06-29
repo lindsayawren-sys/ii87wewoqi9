@@ -1,57 +1,56 @@
-# 成都国际数字文创创新应用大赛启动 面向全球招募创作者
+# 山西预测6月至8月平均气温较常年偏高1.3℃
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网成都4月15日电(单鹏)第十三届中国网络视听大会15日在成都启幕。借此次大会举办契机，成都国际数字文创创新应用大赛当天正式面向全球开启作品征集。 据悉，大赛立足成都建设全球数字文创创新高地、科幻之都、世界文化名城的战略定位，打造“AIGC+数字文创”产业新生态，推动优质创意在成都完成从作品到产品、从产品到产业的全链条转化，“IP 孵化在成都、作品转化在成都、产业扎根在成都
+中新网太原5月8日电 (记者 范丽芳)山西即将进入主汛期，今年气候趋势如何？记者8日从山西省政府新闻办举行的新闻发布会获悉，预计今年6月至8月，该省平均降水量与常年持平；平均气温23.9℃，较常年偏高1.3℃。山西省气候中心副主任张冬峰介绍，今年以来(1月1日-5月6日)，全省平均降水量65.4毫米，较常年偏多19.8%；平均气温4.7℃，为1961年以来第二高。 从汛期气候趋
 
 ## 正文
 
-中新网成都4月15日电(单鹏)第十三届中国网络视听大会15日在成都启幕。
+中新网太原5月8日电 (记者 范丽芳)山西即将进入主汛期，今年气候趋势如何？
 
-借此次大会举办契机，成都国际数字文创创新应用大赛当天正式面向全球开启作品征集。
+记者8日从山西省政府新闻办举行的新闻发布会获悉，预计今年6月至8月，该省平均降水量与常年持平；平均气温23.9℃，较常年偏高1.3℃。
 
-据悉，大赛立足成都建设全球数字文创创新高地、科幻之都、世界文化名城的战略定位，打造“AIGC+数字文创”产业新生态，推动优质创意在成都完成从作品到产品、从产品到产业的全链条转化，“IP 孵化在成都、作品转化在成都、产业扎根在成都、经济收益在成都”。
+山西省气候中心副主任张冬峰介绍，今年以来(1月1日-5月6日)，全省平均降水量65.4毫米，较常年偏多19.8%；平均气温4.7℃，为1961年以来第二高。
 
-大赛由阅文集团、哔哩哔哩、腾讯音乐娱乐集团、文化科技创新服务联盟、MANA全球新媒体艺术平台五大头部平台联合主办，开设网络文学、AIGC漫剧、AI数字音乐、空间型 VR体验、数字光影艺术五大专项赛道，覆盖数字文创核心领域。
+从汛期气候趋势来看，预计6月至8月，山西平均降水量273毫米，与常年同期持平，各地降水量在180毫米(临猗)到400毫米(平顺)之间，北部大部和中南部东部较常年偏多1成到2成，其余大部地区较常年偏少1成到2成。
 
-各赛道均配套专属资源与高额奖励，赛事总奖金池超200万元。
+汛期降水主要集中在7月到8月，东部降水偏多明显。
 
-其中，网络文学专项赛面向全球华语创作者征集以成都文化为核心的原创网络小说，该赛道围绕“烟火人间、古蜀奇珍、赛博天府”三大创作方向，鼓励创作者将成都美食、城市地标、历史文脉、科幻元素融入文学创作。
+张冬峰提醒，海河流域山西段强降水过程较多，可能出现较重汛情，要严防中小河流洪水及次生灾害；黄河流域中游山西段降水偏少，干旱发生发展风险较高；中南部盆地高温日数(日最高气温≥35℃)较常年明显偏多，可能出现阶段性高温热浪。
 
-AIGC漫剧创作专项赛面向全网创作者征集AI技术赋能的原创漫剧作品，该专项赛设置“蜀里有剧—成都文化在地叙事”“蓉创无界—成都IP全民共创”两大命题，开放“遮天”“蓉宝”“胖花”“科梦”等本土数字IP授权，主办方将推动获奖作品向系列漫剧、长视频内容延伸开发，助力优质内容打造全网爆款。
+未来大气环流演变的不确定性很大，山西省气候中心将密切监视影响气候预测的关键系统以及天气气候特征的变化，及时滚动订正汛期气候预测，服务保障全省防灾减灾与农业生产。
 
-AI数字音乐创作专项赛将征集 AI参与创作的原创音乐作品；空间型VR体验专项赛面向数字科技企业、创意团队征集VR文旅体验方案，优秀项目将优先落地成都核心商圈、景区及文博场馆，实现商业化运营；数字光影艺术专项赛征集数字光影、新媒体艺术佳作，获奖作品将落地成都城市公共艺术地标东郊记忆，向广大市民与游客展现城市数字文创魅力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 03:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 02:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 02:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 02:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 03:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 03:04 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 02:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 03:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 02:58 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 02:50 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 02:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 02:55 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 02:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 03:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 03:01 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 02:51 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 02:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 02:50 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/07975091.shtml)
-- 2026-06-30 03:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/32479452088.shtml)
-- 2026-06-30 03:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/1094216.shtml)
-- 2026-06-30 03:02 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/904247599296.shtml)
-- 2026-06-30 02:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/71795630466.shtml)
-- 2026-06-30 03:01 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/5727680854.shtml)
-- 2026-06-30 02:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/6462266015.shtml)
-- 2026-06-30 02:59 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/281979725.shtml)
-- 2026-06-30 02:47 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/9525218567.shtml)
-- 2026-06-30 03:02 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/05170674837.shtml)
-- 2026-06-30 03:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/1872890701.shtml)
-- 2026-06-30 02:42 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/67733089635.shtml)
-- 2026-06-30 03:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/9259460397.shtml)
-- 2026-06-30 03:01 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/76421283800.shtml)
-- 2026-06-30 02:50 - [扬名立万](https://www.share.kurohicncr.top/Article/details/20037364815.shtml)
+- 2026-06-30 03:09 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/666687.shtml)
+- 2026-06-30 02:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/35932619640.shtml)
+- 2026-06-30 02:53 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/368654925.shtml)
+- 2026-06-30 02:53 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/89485144.shtml)
+- 2026-06-30 03:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/549488005.shtml)
+- 2026-06-30 02:56 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0808176.shtml)
+- 2026-06-30 03:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/39764806.shtml)
+- 2026-06-30 03:12 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/14359.shtml)
+- 2026-06-30 03:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/11483247425.shtml)
+- 2026-06-30 03:01 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/7104979104.shtml)
+- 2026-06-30 02:48 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/5314716941.shtml)
+- 2026-06-30 02:48 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/80070844.shtml)
+- 2026-06-30 03:08 - [日本进球](http://www.share.kurohicncr.top/Article/details/2880930621.shtml)
+- 2026-06-30 03:16 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/70794096980.shtml)
+- 2026-06-30 03:05 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/995653.shtml)

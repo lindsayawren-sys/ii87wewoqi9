@@ -1,57 +1,54 @@
-# 聚焦“边贸+算力” 内蒙自贸试验区将打造向北开放新格局
+# 特朗普在贸易激增后否认需要限制石油出口
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电(记者 莫红娥)中国(内蒙古)自由贸易试验区4月11日正式揭牌，成为我国第23个自贸试验区。相关领域专家学者在接受中新网采访时表示，区别于沿海自贸区，内蒙古自贸区依托区位优势，重点聚焦沿边开放、绿色算力、农牧业与能源产业，为国内外投资者提供新的发展机遇。 国务院发展研究中心对外经济研究部综合研究室主任赵福军指出，内蒙古与蒙古、俄罗斯接壤，具有发展边民互市贸
+美国总统唐纳德·特朗普表示，不需要限制美国原油或航空燃油的出口，以应对伊朗冲突引发的全球短缺。 “我们不需要这样做，”他周四在华盛顿对记者说，“而且我们拥有大量的石油。” 霍尔木兹海峡这一关键航道的封锁已推动美国能源出口大幅飙升，使美国超越沙特阿拉伯，成为全球最大的原油出口国。 但专家们也一直警告称，美国的供应缓冲正被推至极限，目前尚不清楚在影响国内市场之前，出口还能维持在这一
 
 ## 正文
 
-中新网北京4月15日电(记者 莫红娥)中国(内蒙古)自由贸易试验区4月11日正式揭牌，成为我国第23个自贸试验区。
+美国总统唐纳德·特朗普表示，不需要限制美国原油或航空燃油的出口，以应对伊朗冲突引发的全球短缺。
 
-相关领域专家学者在接受中新网采访时表示，区别于沿海自贸区，内蒙古自贸区依托区位优势，重点聚焦沿边开放、绿色算力、农牧业与能源产业，为国内外投资者提供新的发展机遇。
+“我们不需要这样做，”他周四在华盛顿对记者说，“而且我们拥有大量的石油。
 
-国务院发展研究中心对外经济研究部综合研究室主任赵福军指出，内蒙古与蒙古、俄罗斯接壤，具有发展边民互市贸易的基础，因此，创新发展边民互市贸易是区域发展的重要内容。
+” 霍尔木兹海峡这一关键航道的封锁已推动美国能源出口大幅飙升，使美国超越沙特阿拉伯，成为全球最大的原油出口国。
 
-国务院近日公布的《中国(内蒙古)自由贸易试验区总体方案》将农牧业、能源等行业作为重点产业领域。
+但专家们也一直警告称，美国的供应缓冲正被推至极限，目前尚不清楚在影响国内市场之前，出口还能维持在这一水平多久。
 
-赵福军解读称，这与沿海自贸区形成差异化发展，体现了内蒙古依托自身区位和资源的优势特色。
+特朗普对这种担忧不以为然，并盛赞出口激增的态势。
 
-谈及《方案》中的政策亮点，赵福军还表示，多项举措将受国内外投资者关注。
+他说：“我们有数百艘船驶往德克萨斯州，驶往路易斯安那州，驶往阿拉斯加州，加满油，然后返回，赚了很多钱。
 
-例如：允许中国—蒙古国博览会办展人依法就展品向海关办理免担保手续；支持呼和浩特片区建设数字服务出口平台，探索跨境算力服务；大力引进优质畜牧品种资源等。
-
-他还特别提到，将推动赛马、摔跤等体育项目与跨境游深度融合，以拓展对蒙俄的多领域交流。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 03:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 02:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 02:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 03:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 02:42 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 02:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 02:53 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 02:43 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 03:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 03:11 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 03:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 02:57 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 03:02 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 03:16 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 03:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 02:56 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 02:52 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 02:50 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 03:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 03:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/469853.shtml)
-- 2026-06-30 02:45 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/037210020.shtml)
-- 2026-06-30 02:46 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/45969.shtml)
-- 2026-06-30 02:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/6790718.shtml)
-- 2026-06-30 02:44 - [周生如故](http://www.blog.kurohicncr.top/Article/details/8114368484.shtml)
-- 2026-06-30 02:50 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/88936322.shtml)
-- 2026-06-30 03:00 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/43599163.shtml)
-- 2026-06-30 02:43 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/3188525.shtml)
-- 2026-06-30 02:54 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/68146100737.shtml)
-- 2026-06-30 02:48 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/89379427519.shtml)
-- 2026-06-30 02:45 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/01174399013.shtml)
-- 2026-06-30 02:48 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/69124390130.shtml)
-- 2026-06-30 03:06 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/851881384767.shtml)
-- 2026-06-30 02:59 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/20916.shtml)
-- 2026-06-30 02:57 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/74822.shtml)
+- 2026-06-30 03:03 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/97040834983.shtml)
+- 2026-06-30 02:51 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/38617811.shtml)
+- 2026-06-30 02:50 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/82784011916.shtml)
+- 2026-06-30 03:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/834457887321.shtml)
+- 2026-06-30 03:14 - [85花告别古偶](http://www.share.minike.top/Article/details/45550395.shtml)
+- 2026-06-30 03:10 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/43961.shtml)
+- 2026-06-30 02:55 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/00408935025.shtml)
+- 2026-06-30 03:10 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/49823851171.shtml)
+- 2026-06-30 03:14 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/84668994054.shtml)
+- 2026-06-30 03:02 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/210404395.shtml)
+- 2026-06-30 03:13 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/06677151.shtml)
+- 2026-06-30 02:55 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/29215.shtml)
+- 2026-06-30 03:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/316907.shtml)
+- 2026-06-30 02:56 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/085609.shtml)
+- 2026-06-30 02:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/84678.shtml)

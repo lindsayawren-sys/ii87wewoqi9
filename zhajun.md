@@ -1,59 +1,59 @@
-# 邮储银行，一家“不慌”的银行
+# 唱响中国之声：中央音乐学院合唱团在俄演出
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-息差收窄让多数银行焦虑不已，邮储银行却以一种特有的从容，交出了一份稳中有进的答卷。2025年年报显示，截至2025年末，该行资产总额达18.68万亿元，较上年末增长9.35%。2025年实现营业收入3557.28亿元，同比增长1.99%；净利润876.23亿元，同比增长1.05%；净息差1.66%，继续保持国有大行最优水平；不良贷款率0.95%，主要风险指标保持国有大行领先。数
+中新网莫斯科5月8日电 (记者 田冰)中央音乐学院合唱团专场音乐会7日在莫斯科中国文化中心举行。中国驻俄罗斯大使馆公使衔参赞、莫斯科中国文化中心主任封立涛，使馆部分外交官、俄罗斯格涅辛音乐学院等机构嘉宾、当地民众等近200人出席。 本场音乐会由青年指挥家、中央音乐学院指挥系教授、合唱团总监陈冰执棒。演出精心遴选了中国合唱作品的代表性佳作。上半场以毛泽东诗词谱曲的《七律·长征》《
 
 ## 正文
 
-息差收窄让多数银行焦虑不已，邮储银行却以一种特有的从容，交出了一份稳中有进的答卷。
+中新网莫斯科5月8日电 (记者 田冰)中央音乐学院合唱团专场音乐会7日在莫斯科中国文化中心举行。
 
-2025年年报显示，截至2025年末，该行资产总额达18.68万亿元，较上年末增长9.35%。
+中国驻俄罗斯大使馆公使衔参赞、莫斯科中国文化中心主任封立涛，使馆部分外交官、俄罗斯格涅辛音乐学院等机构嘉宾、当地民众等近200人出席。
 
-2025年实现营业收入3557.28亿元，同比增长1.99%；净利润876.23亿元，同比增长1.05%；净息差1.66%，继续保持国有大行最优水平；不良贷款率0.95%，主要风险指标保持国有大行领先。
+本场音乐会由青年指挥家、中央音乐学院指挥系教授、合唱团总监陈冰执棒。
 
-数字背后，是一种难得的“不慌”定力。
+演出精心遴选了中国合唱作品的代表性佳作。
 
-这份定力，首先来自坚实的底盘，近4万个网点、6.8亿客群、超18万亿资产，以及穿越周期的风控能力；也来自多方驱动的曲线向上，零售守正、公司业务补短、同业争先，从“单腿走路”迈向均衡增长；更来自创新驱动的未来价值重构，从产品到生态、从规模到价值，邮储银行正在悄然改变人们对它的传统印象。
+上半场以毛泽东诗词谱曲的《七律·长征》《忆秦娥·娄山关》《沁园春·雪》震撼开场，气势恢宏，意蕴深远，生动诠释了革命浪漫主义精神与中国诗词音乐的雄浑力量。
 
-这份“不慌”，源于百年邮政积淀与十年上市历练形成的战略定力。
+随后，合唱团倾情演绎了多首中国歌曲改编作品，包括广为流传的《乌苏里船歌》《黄河颂》《保卫黄河》等，旋律优美，情感真挚，令在场观众为之动容。
 
-它来自独一无二的资源禀赋、清晰的转型路径，以及对长期主义的坚定信仰。
+音乐会的另一大亮点，是由俄罗斯外交部发言人扎哈罗娃作词的作品《爱之歌》。
 
-规模、客群与风控打造的坚实底盘邮储银行的“稳”，首先源于其深厚的家底。
+这首中俄合作诞生的作品，既体现了艺术共鸣，也彰显了两国人文交流的深度与温度，赢得全场观众的热烈掌声。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 02:48 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 02:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 03:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 02:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 03:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 02:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 02:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 02:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 03:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 02:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 02:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 03:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 03:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:09 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 02:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 03:16 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 02:51 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 02:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 03:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 02:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 03:11 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 03:01 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 03:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/378119877.shtml)
-- 2026-06-30 02:48 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/185275594.shtml)
-- 2026-06-30 02:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/6978520198.shtml)
-- 2026-06-30 02:50 - [我们的少年时代2](https://www.share.minike.top/Article/details/120954386.shtml)
-- 2026-06-30 03:00 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/27456021735.shtml)
-- 2026-06-30 02:50 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/46510153.shtml)
-- 2026-06-30 02:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/48895282.shtml)
-- 2026-06-30 03:10 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/86093.shtml)
-- 2026-06-30 03:00 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/86972470651.shtml)
-- 2026-06-30 03:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/73102.shtml)
-- 2026-06-30 02:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/687072487.shtml)
-- 2026-06-30 02:59 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/33589397485.shtml)
-- 2026-06-30 02:46 - [金刚川](https://www.blog.kurohicncr.top/Article/details/198390243606.shtml)
-- 2026-06-30 03:11 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/753289639473.shtml)
-- 2026-06-30 02:57 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/1021663.shtml)
+- 2026-06-30 03:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/70025792709.shtml)
+- 2026-06-30 02:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/8939079159.shtml)
+- 2026-06-30 03:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/6399783.shtml)
+- 2026-06-30 03:07 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/334760102406.shtml)
+- 2026-06-30 03:01 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/66787740.shtml)
+- 2026-06-30 03:02 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/4517842203.shtml)
+- 2026-06-30 03:02 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/97751.shtml)
+- 2026-06-30 03:10 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/47379495.shtml)
+- 2026-06-30 03:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/510675.shtml)
+- 2026-06-30 03:10 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/0941726.shtml)
+- 2026-06-30 02:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/89135180.shtml)
+- 2026-06-30 02:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/235309843.shtml)
+- 2026-06-30 03:04 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/6619434.shtml)
+- 2026-06-30 03:05 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/59822795.shtml)
+- 2026-06-30 02:53 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/224472605318.shtml)

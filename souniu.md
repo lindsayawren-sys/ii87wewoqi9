@@ -1,56 +1,57 @@
-# 外交部：中方坚决反对胁迫外交
+# Marqeta任命Lukasz Strozek为首席技术官
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-4月15日，外交部发言人郭嘉昆主持例行记者会。有记者问，近日，古巴国家主席迪亚斯-卡内尔在接受美国媒体采访时表示，古巴始终愿在尊重、平等和不设条件前提下同美开展对话，坚决拒绝美国要求其辞职等政治要价。古不对美国构成威胁，美国没有任何理由诉诸军事侵略。13日，美国再次对古发出威胁，称美可能在伊朗问题结束后处理古巴。中方对此有何评论？对此，郭嘉昆表示，中方坚决反对胁迫外交，将坚定支
+支付科技公司Marqeta宣布，任命Lukasz Strozek为首席技术官，即日起生效。Strozek将负责公司的工程、产品和基础设施战略，直接向首席执行官汇报。 新任高管背景 Strozek此前在Stripe担任工程副总裁，领导了Stripe的支付基础设施和可扩展性项目，任期内该平台处理量从每年1亿笔增长至超过10亿笔。他还在谷歌工作过七年，参与设计谷歌云的核心数据处理系统
 
 ## 正文
 
-4月15日，外交部发言人郭嘉昆主持例行记者会。
+支付科技公司Marqeta宣布，任命Lukasz Strozek为首席技术官，即日起生效。
 
-有记者问，近日，古巴国家主席迪亚斯-卡内尔在接受美国媒体采访时表示，古巴始终愿在尊重、平等和不设条件前提下同美开展对话，坚决拒绝美国要求其辞职等政治要价。
+Strozek将负责公司的工程、产品和基础设施战略，直接向首席执行官汇报。
 
-古不对美国构成威胁，美国没有任何理由诉诸军事侵略。
+新任高管背景 Strozek此前在Stripe担任工程副总裁，领导了Stripe的支付基础设施和可扩展性项目，任期内该平台处理量从每年1亿笔增长至超过10亿笔。
 
-13日，美国再次对古发出威胁，称美可能在伊朗问题结束后处理古巴。
+他还在谷歌工作过七年，参与设计谷歌云的核心数据处理系统。
 
-中方对此有何评论？
+Marqeta首席执行官在声明中表示，Strozek在构建高性能支付系统方面的丰富经验，将帮助公司加速产品创新和提升平台可靠性。
 
-对此，郭嘉昆表示，中方坚决反对胁迫外交，将坚定支持古巴维护国家主权、反对外来干涉。
+前任CTO去向 前任首席技术官Randy Guard于今年3月离职，加入一家未具名的金融科技初创公司担任首席产品官。
 
-(总台央视记者 黄惠馨）
+Guard在Marqeta任职近四年，任职期间公司完成了IPO并对发卡平台进行了现代化改造。
+
+公司背景 Marqeta提供发卡处理平台，支持DoorDash、Affirm和Square等公司的定制化支付解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 02:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 03:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 02:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 03:11 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 02:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 02:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 03:06 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 02:52 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 02:53 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 02:58 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 03:12 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 03:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 02:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 03:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 03:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 03:09 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 02:56 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 02:54 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 03:07 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 02:55 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/2310456965.shtml)
-- 2026-06-30 02:53 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/98480.shtml)
-- 2026-06-30 02:56 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/8796559.shtml)
-- 2026-06-30 03:10 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/765284061.shtml)
-- 2026-06-30 03:02 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/5661966641.shtml)
-- 2026-06-30 03:03 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/103652.shtml)
-- 2026-06-30 02:42 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/4234096225.shtml)
-- 2026-06-30 03:03 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/679045.shtml)
-- 2026-06-30 02:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/427940322.shtml)
-- 2026-06-30 03:04 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/146041582.shtml)
-- 2026-06-30 02:51 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/09212.shtml)
-- 2026-06-30 02:59 - [乔家的儿女](https://www.share.minike.top/Article/details/07891659945.shtml)
-- 2026-06-30 02:59 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/22745280.shtml)
-- 2026-06-30 03:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/824517.shtml)
-- 2026-06-30 02:42 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/257409852589.shtml)
+- 2026-06-30 03:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/61256814.shtml)
+- 2026-06-30 02:54 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/771338.shtml)
+- 2026-06-30 02:51 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/89636.shtml)
+- 2026-06-30 02:50 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/9776918750.shtml)
+- 2026-06-30 03:09 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/043883566288.shtml)
+- 2026-06-30 02:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/55868.shtml)
+- 2026-06-30 02:58 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/754733912514.shtml)
+- 2026-06-30 03:05 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/464272079.shtml)
+- 2026-06-30 02:54 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/7703643.shtml)
+- 2026-06-30 02:52 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/358625867538.shtml)
+- 2026-06-30 02:50 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/04699903.shtml)
+- 2026-06-30 02:58 - [房价什么时候能涨](https://www.share.minike.top/Article/details/20852716.shtml)
+- 2026-06-30 03:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/8276293.shtml)
+- 2026-06-30 02:57 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/14329.shtml)
+- 2026-06-30 02:50 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/69387.shtml)

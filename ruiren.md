@@ -1,61 +1,58 @@
-# “南京—德里”国际全货机航线开通
+# 一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社南京4月15日电 (记者 朱晓颖)15日，一架满载“中国制造”商品的全货机从南京禄口国际机场启程、飞往印度德里，标志着“南京—德里”国际全货机航线开通。该航线的开通，填补南京直达印度的全货机运力空白，打通了江苏至南亚地区的航空货运通道。 据介绍，该航线由A330全货机执飞，计划每周执飞2班，可满足跨境电商、国际贸易的时效需求。该航线出港货物以跨境电商货物、电子元器件、轻工
+中新网广州5月8日电(许青青 关悦)据广州海关8日消息，今年一季度，广州海关关区出口锂电池52.2亿元，同比增长超过2倍。 为持续优化锂电池出口智慧监管模式，广州海关近日正式上线新版“出口危险品包装智慧监管系统”(下称“新版智慧监管系统”)。该系统全面对接国际贸易“单一窗口”平台，可适配大、中、小型出口锂电生产企业的业务需求，实现从单一试点企业向行业全覆盖的转变，稳步扩大政策享
 
 ## 正文
 
-中新社南京4月15日电 (记者 朱晓颖)15日，一架满载“中国制造”商品的全货机从南京禄口国际机场启程、飞往印度德里，标志着“南京—德里”国际全货机航线开通。
+中新网广州5月8日电(许青青 关悦)据广州海关8日消息，今年一季度，广州海关关区出口锂电池52.2亿元，同比增长超过2倍。
 
-该航线的开通，填补南京直达印度的全货机运力空白，打通了江苏至南亚地区的航空货运通道。
+为持续优化锂电池出口智慧监管模式，广州海关近日正式上线新版“出口危险品包装智慧监管系统”(下称“新版智慧监管系统”)。
 
-据介绍，该航线由A330全货机执飞，计划每周执飞2班，可满足跨境电商、国际贸易的时效需求。
+该系统全面对接国际贸易“单一窗口”平台，可适配大、中、小型出口锂电生产企业的业务需求，实现从单一试点企业向行业全覆盖的转变，稳步扩大政策享惠企业范围，助力锂电行业健康有序发展。
 
-该航线出港货物以跨境电商货物、电子元器件、轻工制品等为主，进港货物以印度香料、特色农产品、医药中间体等产品为主，将逐步形成“中国制造”出海、印度商品进口的双向流通格局。
+据广州海关介绍，新版智慧监管系统创新建立了生产全过程数据同步采集、实时申报、后台自动比对核验机制。
 
-截至目前，南京禄口国际机场稳定运营南京至澳大利亚悉尼、墨尔本，南京至法国巴黎等航线，已恢复南京至意大利米兰航线。
+系统通过与产品合格技术档案数据库对接，对合规达标的锂电池产品实施“即报即审、即审即放”，将传统锂电池包装100%现场查验模式，转变为“首次出口现场核验+后续批次智能验放”的差异化分级监管模式。
 
-本月，南京陆续开通多条客运、货运航线。
+同时，系统精简了人工复核、批批检验等环节，依托数字化流转简化通关手续，有效降低了人工操作差错率。
 
-其中，南京直飞雅加达国际客运航线11日开通。
+广东瑞庆时代新能源科技有限公司相关负责人李德果表示：“新版智慧监管系统上线后，出口锂电池包装检验整体通关时长由原先的30分钟压缩至10分钟以内。
 
-(完)
+”据测算，新系统上线后，该公司每年可在人工申报、港口仓储、跨境物流等方面节省综合成本约250万元。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 03:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 02:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 02:53 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 02:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 02:42 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:44 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 02:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 02:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 03:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 02:52 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 03:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 02:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 02:56 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 02:50 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 02:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 03:02 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 03:16 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 03:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 02:50 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 03:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 03:02 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 03:08 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 02:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 02:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 02:54 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 03:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/7976638842.shtml)
-- 2026-06-30 02:59 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/404720519.shtml)
-- 2026-06-30 02:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/459195078098.shtml)
-- 2026-06-30 02:59 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/80488696.shtml)
-- 2026-06-30 02:59 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/13228193.shtml)
-- 2026-06-30 02:55 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/7620642.shtml)
-- 2026-06-30 02:43 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/49772475.shtml)
-- 2026-06-30 03:04 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/3137522123.shtml)
-- 2026-06-30 02:51 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/4080984.shtml)
-- 2026-06-30 02:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/23450.shtml)
-- 2026-06-30 02:44 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/475716369550.shtml)
-- 2026-06-30 02:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/327691410.shtml)
-- 2026-06-30 02:59 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/691265405.shtml)
-- 2026-06-30 03:02 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/189392583.shtml)
-- 2026-06-30 02:57 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/241319112.shtml)
+- 2026-06-30 03:06 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/5274272480.shtml)
+- 2026-06-30 03:01 - [流金岁月](http://www.share.kurohicncr.top/Article/details/31077.shtml)
+- 2026-06-30 03:01 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/852785974622.shtml)
+- 2026-06-30 02:56 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/909127349.shtml)
+- 2026-06-30 03:02 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/2544449437.shtml)
+- 2026-06-30 03:03 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/4421791235.shtml)
+- 2026-06-30 02:53 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/3267191474.shtml)
+- 2026-06-30 03:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/39093023.shtml)
+- 2026-06-30 03:02 - [新官上任三把火](https://www.share.minike.top/Article/details/63694399702.shtml)
+- 2026-06-30 02:58 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/23722945356.shtml)
+- 2026-06-30 03:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/37847514.shtml)
+- 2026-06-30 02:49 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/618145483515.shtml)
+- 2026-06-30 02:55 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/0644463.shtml)
+- 2026-06-30 02:52 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/69232.shtml)
+- 2026-06-30 03:12 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/013323585.shtml)

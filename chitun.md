@@ -1,60 +1,56 @@
-# 世界变乱交织，多国政要为何扎堆访华？
+# 青年赋能亚太未来 APEC首个青年学者论坛在深举办
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？ 中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。 在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。在外界看来，这波访华热潮至少释放出三重信号。 第一，
+中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。 论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参
 
 ## 正文
 
-中新社北京4月15日电 题：世界变乱交织，多国政要为何扎堆访华？
+中新网深圳5月8日电 (记者 索有为)“APEC研究中心联席会议青年学者论坛”5月7日在香港中文大学(深圳)举办。
 
-中新社记者 李京泽 进入4月，中国北京又一次成为令人瞩目的世界“会客厅”。
+这是亚太经合组织(APEC)大家庭历史上首次专为青年学者举办的学术论坛，列入了“APEC中国年”系列活动。
 
-在短短10余天里，泰国公主诗琳通，西班牙首相桑切斯，阿联酋阿布扎比王储哈立德，越共中央总书记、国家主席苏林，俄罗斯外长拉夫罗夫等外国政要陆续到访，莫桑比克总统查波即将访华的消息也已公布。
+论坛以“共塑发展新动能：青年、创新与可持续未来”为主题，澳大利亚、智利、中国等13个经济体的青年学者代表及APEC秘书处高级官员出席论坛，并特邀中国澳门学者参与，共话亚太发展新动能。
 
-在外界看来，这波访华热潮至少释放出三重信号。
+论坛由香港中文大学(深圳)与南开大学APEC研究中心联合主办，前海国际事务研究院协办。
 
-第一，动荡世界里，中国是值得信赖的伙伴。
+教育部副部长任友群通过视频致辞，勉励APEC成员经济体青年学者做前沿科技的探索者、绿色发展的践行者、文明互鉴的推动者，为构建开放包容、互利共赢的亚太命运共同体贡献源源不断的青春力量。
 
-当前国际形势复杂严峻、地区冲突争端频发。
+香港中文大学(深圳)校长徐扬生教授鼓励青年学者重视三种实践：一是国际实践，通过跨文化直接接触成为未来的桥梁建设者；二是与社会深度连接的实践，在人工智能时代，青年对人性、文化和社会动态的综合理解才是赋予AI驱动时代以灵魂的关键；三是亲身经历的实践，培养判断力、同理心，将知识与责任联系起来。
 
-各国愈发期待以稳定合作对冲外部风险，中国成为重要选择。
+APEC秘书处执行主任爱德华多·佩德罗萨在致辞中表示，青年学者代表着新一轮创新与研究浪潮，将为亚太合作和学术发展注入新的活力。
 
-苏林4月7日当选越南国家主席，9日便宣布将访华；桑切斯四年内第四次访问中国。
+当前世界正处于深刻变革之中，青年学者拥有独特视角与创新能力，将为建设更加开放、充满活力和韧性的APEC大家庭作出重要贡献。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 02:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 02:46 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 03:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 02:57 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 02:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 02:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 02:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 02:59 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 03:05 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 02:49 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 02:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 02:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 03:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 03:01 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 03:00 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 03:07 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 02:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 03:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 03:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 02:54 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/74145716.shtml)
-- 2026-06-30 03:00 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/422988311.shtml)
-- 2026-06-30 03:11 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/039865499.shtml)
-- 2026-06-30 02:52 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/067738438.shtml)
-- 2026-06-30 03:01 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/444163.shtml)
-- 2026-06-30 03:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/56112986825.shtml)
-- 2026-06-30 03:08 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/63823.shtml)
-- 2026-06-30 02:57 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/6783509847.shtml)
-- 2026-06-30 03:02 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/0560846.shtml)
-- 2026-06-30 03:02 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/643330.shtml)
-- 2026-06-30 03:08 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/798843416.shtml)
-- 2026-06-30 02:57 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/15774855.shtml)
-- 2026-06-30 02:44 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/52872937668.shtml)
-- 2026-06-30 02:53 - [日本反击率先破门](https://www.blog.minike.top/Article/details/07089.shtml)
-- 2026-06-30 02:51 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/191396408.shtml)
+- 2026-06-30 03:17 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/9647209.shtml)
+- 2026-06-30 03:12 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/7078364.shtml)
+- 2026-06-30 02:52 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/023566841.shtml)
+- 2026-06-30 02:54 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/48679964.shtml)
+- 2026-06-30 03:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/767810533818.shtml)
+- 2026-06-30 02:56 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/68861444.shtml)
+- 2026-06-30 03:01 - [日本反击率先破门](http://www.share.minike.top/Article/details/250608619770.shtml)
+- 2026-06-30 02:55 - [扬名立万](http://www.share.minike.top/Article/details/533436.shtml)
+- 2026-06-30 03:07 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/50198273.shtml)
+- 2026-06-30 03:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/46400689.shtml)
+- 2026-06-30 03:09 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/374383366540.shtml)
+- 2026-06-30 03:06 - [周生如故](https://www.blog.kurohicncr.top/Article/details/71275.shtml)
+- 2026-06-30 03:02 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/4471157577.shtml)
+- 2026-06-30 03:04 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/836192123562.shtml)
+- 2026-06-30 03:04 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/057878.shtml)

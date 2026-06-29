@@ -1,61 +1,57 @@
-# 我国累计发布国家标准外文版2613项 覆盖20余个重点领域
+# 首次来大陆的台湾居民可免门票游西藏A级景区
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据“市说新语”微信公众号消息，市场监管总局标准创新司司长魏宏4月14日表示，截至2026年3月底，我国已累计发布国家标准外文版2613项，覆盖装备制造、对外承包工程、大宗商品、信息技术、新能源等20余个重点领域，涉及英语、俄语、法语、德语、日语、老挝语、柬埔寨语、蒙古语、缅甸语、葡萄牙语、越南语共11个语种。4月14日，市场监管总局联合住房和城乡建设部、交通
+中新社拉萨5月8日电 (李林)据西藏自治区文化和旅游厅8日消息，首次来大陆的台湾居民，可享受西藏A级旅游景区门票全免费政策。 西藏自治区发展和改革委员会、文化和旅游厅、宗教事务局、文物局、市场监督管理局日前联合印发关于全面落实西藏景区门票价格优惠政策的通知，提及上述政策。 此次通知整合了国家法律法规和自治区现行政策，涵盖老年人、残疾人、儿童、现役军人及家属、消防救援人员、学生、
 
 ## 正文
 
-中新网4月14日电 据“市说新语”微信公众号消息，市场监管总局标准创新司司长魏宏4月14日表示，截至2026年3月底，我国已累计发布国家标准外文版2613项，覆盖装备制造、对外承包工程、大宗商品、信息技术、新能源等20余个重点领域，涉及英语、俄语、法语、德语、日语、老挝语、柬埔寨语、蒙古语、缅甸语、葡萄牙语、越南语共11个语种。
+中新社拉萨5月8日电 (李林)据西藏自治区文化和旅游厅8日消息，首次来大陆的台湾居民，可享受西藏A级旅游景区门票全免费政策。
 
-4月14日，市场监管总局联合住房和城乡建设部、交通运输部、商务部召开国家标准外文版免费公开专题新闻发布会。
+西藏自治区发展和改革委员会、文化和旅游厅、宗教事务局、文物局、市场监督管理局日前联合印发关于全面落实西藏景区门票价格优惠政策的通知，提及上述政策。
 
-魏宏介绍，近年来，中国国家标准外文版工作紧密围绕国家战略部署和市场需求，聚焦产业转型升级、绿色化发展和智能化应用等方向持续发力，成体系推进重点领域标准外文版编译。
+此次通知整合了国家法律法规和自治区现行政策，涵盖老年人、残疾人、儿童、现役军人及家属、消防救援人员、学生、退役军人、援藏抗疫人员、高层次人才、宗教人士、道德模范、教师等十五类人群，明确了各类优惠的适用对象、所需凭证和政策依据。
 
-在产业转型升级方面，围绕重型工程机械、高速列车、大型冶炼设备、高端数控机床、高端新材料等领域编译发布了一批关键国家标准外文版，为高端装备参与国际竞争提供了有力的技术支撑。
+为确保优惠政策落实到位，通知要求各景区严格执行明码标价制度，在官方网站、收费场所等醒目位置标明门票种类、价格、优惠政策和监督举报电话。
 
-例如，《土方机械 高原隧道用纯电动液压挖掘机》规范了高原工程机械的设计和制造要求，保障高原隧道工程中的施工安全，同时有效减少对高原生态的环境污染，外文版可为国际特殊生态敏感区的施工提供可复用的安全、低噪、低碳工程机械应用方案。
+对违反规定的行为，将由市场监管部门会同相关部门依法予以处罚。
 
-在绿色化发展方面，紧扣“双碳”战略目标和全球绿色发展需求，重点围绕光伏、风电、水电、核电、新型储能等领域编译发布国家标准外文版，为国际绿色合作提供可识别、可采信的技术依据。
-
-例如，《风能发电系统 风力发电机组通用技术条件和试验方法》在增加风电场发电量、提高风电机组的可靠性、提升风电场运维水平、降低机组故障率等方面带来显著成效，外文版可将中国风电的规模化发展经验转化为国际共享的技术财富。
-
-在智能化应用方面，顺应数字经济发展趋势，立足新一代信息技术、量子科技、人工智能、智能网联新能源汽车等新兴领域，加快国家标准外文版布局，以标准“软联通”赋能产业数字化、智能化发展。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 03:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 03:02 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 03:05 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 03:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 02:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 03:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:46 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 03:01 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 02:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 02:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 02:47 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 02:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 02:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 03:07 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 02:53 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 03:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 03:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 03:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 03:03 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 03:00 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:00 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 02:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 03:01 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 03:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 03:14 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 02:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 02:55 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 02:57 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/4770441792.shtml)
-- 2026-06-30 03:09 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/063130.shtml)
-- 2026-06-30 03:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/357751.shtml)
-- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/533185135.shtml)
-- 2026-06-30 02:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/4240979.shtml)
-- 2026-06-30 02:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/34242.shtml)
-- 2026-06-30 03:02 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/885697177549.shtml)
-- 2026-06-30 03:01 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/685612541.shtml)
-- 2026-06-30 02:42 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/8151235460.shtml)
-- 2026-06-30 03:06 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/1617830.shtml)
-- 2026-06-30 03:01 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/599977819646.shtml)
-- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/185444254891.shtml)
-- 2026-06-30 02:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/98382270591.shtml)
-- 2026-06-30 02:58 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/33971.shtml)
-- 2026-06-30 03:08 - [点菜也要教吗](https://www.blog.minike.top/Article/details/228385347804.shtml)
+- 2026-06-30 02:48 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/5522108.shtml)
+- 2026-06-30 03:11 - [明星大侦探第一季](http://www.share.minike.top/Article/details/1924016245.shtml)
+- 2026-06-30 03:09 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/2646374.shtml)
+- 2026-06-30 03:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/979192570.shtml)
+- 2026-06-30 02:50 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/248563135711.shtml)
+- 2026-06-30 03:00 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/51828.shtml)
+- 2026-06-30 03:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/960638801605.shtml)
+- 2026-06-30 03:02 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/68188.shtml)
+- 2026-06-30 03:11 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/50540.shtml)
+- 2026-06-30 03:08 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/3170283620.shtml)
+- 2026-06-30 03:15 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/544463654.shtml)
+- 2026-06-30 03:00 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/60586.shtml)
+- 2026-06-30 03:10 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/4036101833.shtml)
+- 2026-06-30 02:55 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/14792.shtml)
+- 2026-06-30 03:06 - [啊啊啊](https://www.share.minike.top/Article/details/1568074479.shtml)

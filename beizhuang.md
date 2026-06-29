@@ -1,61 +1,58 @@
-# 美国政府称关税退款可能延迟 因只有少量进口企业完成申请准备工作
+# 博茨瓦纳前总统费斯图斯·莫哈埃去世
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-特朗普政府表示，一项问题可能导致总额1660亿美元的关税延迟退款。 美国海关与边境保护局（CBP）在周二向国际贸易法院提交的文件中称，其用于向已缴纳相关关税的进口商发放退款的自动化流程已接近完成。但在约30万家符合条件的企业中，只有约20%完成了领取退款所需的关键步骤。 CBP是在向负责监督政府大规模退款工作的法官Richard Eaton提交的法院法院中提出这一问题的。Eat
+中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。政府同时宣布全国哀悼三天。 莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。 莫哈埃因积极应对艾滋病问题而广受赞誉。在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问
 
 ## 正文
 
-特朗普政府表示，一项问题可能导致总额1660亿美元的关税延迟退款。
+中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。
 
-美国海关与边境保护局（CBP）在周二向国际贸易法院提交的文件中称，其用于向已缴纳相关关税的进口商发放退款的自动化流程已接近完成。
+政府同时宣布全国哀悼三天。
 
-但在约30万家符合条件的企业中，只有约20%完成了领取退款所需的关键步骤。
+莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。
 
-CBP是在向负责监督政府大规模退款工作的法官Richard Eaton提交的法院法院中提出这一问题的。
+莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。
 
-Eaton周二就此举行了一场不对公众开放的听证会。
+莫哈埃因积极应对艾滋病问题而广受赞誉。
 
-CBP官员Brandon Lord在文件中表示，未注册电子支付的进口商将无法收到退款。
+在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问题，并推动实施了非洲大陆最全面的抗艾项目之一。
 
-该机构此前称，进口商必须通过一个新的门户网站提交退款申请，并在现有系统中选择加入接受电子支付的功能，目前仅有5.7万家企业完成了这一操作。
+莫哈埃于1939年8月21日出生于博茨瓦纳中部城镇塞罗韦(Serowe)。
 
-CBP执行主任Lord在曼哈顿提交的文件中表示：“CBP正在持续向贸易界发布相关通知以说明这一新要求，并提供如何完成流程以接收电子退款的信息。
+他曾赴英国求学，并在博茨瓦纳于1966年独立后不久进入公务员系统工作。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 02:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 03:08 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:48 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 02:56 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 02:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 02:58 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 02:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 02:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 02:56 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 02:44 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 02:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 02:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 03:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 03:15 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 03:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 03:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 03:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 03:17 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 03:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 03:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:54 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 03:08 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 02:57 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/128684.shtml)
-- 2026-06-30 03:00 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/45749874170.shtml)
-- 2026-06-30 02:42 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/1664126.shtml)
-- 2026-06-30 02:56 - [金牌调解](http://www.blog.minike.top/Article/details/446021.shtml)
-- 2026-06-30 02:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/278867687603.shtml)
-- 2026-06-30 03:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/66204.shtml)
-- 2026-06-30 02:58 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/897665332563.shtml)
-- 2026-06-30 02:43 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/801737015638.shtml)
-- 2026-06-30 03:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/0311808.shtml)
-- 2026-06-30 02:58 - [点菜也要教吗](http://www.share.minike.top/Article/details/567911.shtml)
-- 2026-06-30 02:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/487039407172.shtml)
-- 2026-06-30 03:02 - [时光音乐会](https://www.blog.minike.top/Article/details/2485491.shtml)
-- 2026-06-30 02:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/689833.shtml)
-- 2026-06-30 02:52 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/6339171634.shtml)
-- 2026-06-30 03:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/197949253626.shtml)
+- 2026-06-30 02:55 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/99104.shtml)
+- 2026-06-30 03:11 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/06857603660.shtml)
+- 2026-06-30 03:04 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/8990546.shtml)
+- 2026-06-30 03:05 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/505094.shtml)
+- 2026-06-30 02:58 - [逃狱兄弟](http://www.blog.minike.top/Article/details/581171085.shtml)
+- 2026-06-30 02:53 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/724076083.shtml)
+- 2026-06-30 03:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/26668074548.shtml)
+- 2026-06-30 03:16 - [千与千寻](https://www.share.minike.top/Article/details/875409.shtml)
+- 2026-06-30 02:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/94072999.shtml)
+- 2026-06-30 02:49 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/50255764.shtml)
+- 2026-06-30 02:52 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/937381.shtml)
+- 2026-06-30 03:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/26546.shtml)
+- 2026-06-30 03:04 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/63033460111.shtml)
+- 2026-06-30 03:10 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/628924193806.shtml)
+- 2026-06-30 03:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/823388001308.shtml)

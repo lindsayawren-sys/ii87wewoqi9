@@ -1,59 +1,58 @@
-# 算力紧缺之下，Anthropic调整定价模式：按企业AI使用量计费
+# 伊朗官员证实最高领袖穆杰塔巴此前受伤但已康复
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。 软件授权协议咨询公司 Redress Compliance 联合创始人弗
+中新社北京5月9日电 德黑兰消息：当地时间5月8日，据伊朗法尔斯通讯社报道，伊朗最高领袖办公室官员赛义德·马扎赫尔·侯赛尼证实，伊朗最高领袖穆杰塔巴在2月28日的美军袭击中受轻伤，但目前已经康复，且非常健康。报道称，侯赛尼是在一场集会上发表公开讲话时作出上述表述的。他透露，穆杰塔巴返回住所时遭爆炸波冲击后摔倒在地，膝盖、背部及耳后受轻伤，但经过治疗后现已基本痊愈，且身体非常健康
 
 ## 正文
 
-核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。
+中新社北京5月9日电 德黑兰消息：当地时间5月8日，据伊朗法尔斯通讯社报道，伊朗最高领袖办公室官员赛义德·马扎赫尔·侯赛尼证实，伊朗最高领袖穆杰塔巴在2月28日的美军袭击中受轻伤，但目前已经康复，且非常健康。
 
-Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。
+报道称，侯赛尼是在一场集会上发表公开讲话时作出上述表述的。
 
-软件授权协议咨询公司 Redress Compliance 联合创始人弗雷德里克・菲利普森表示，此前客户按每个授权用户每月最高 200 美元付费，订阅可获得固定额度的折扣代币使用量。
+他透露，穆杰塔巴返回住所时遭爆炸波冲击后摔倒在地，膝盖、背部及耳后受轻伤，但经过治疗后现已基本痊愈，且身体非常健康。
 
-他估算，对部分高频用户而言，此次 Claude 企业版定价调整将使其成本翻倍甚至增至三倍。
+侯赛尼还呼吁民众耐心等待，“敌人想获取他的音频、视频或其他文件，以便对他采取行动”，但穆杰塔巴“会在适当的时候公开发声”。
 
-多家为 Claude 付费企业的 IT 高管表示，他们已获悉近几周生效的定价调整，公司正在追踪此次变动是否会导致 Anthropic 账单大幅上涨。
+此前据伊朗媒体5月7日报道，伊朗总统佩泽希齐扬与伊朗最高领袖穆杰塔巴日前举行了会面。
 
-（部分 Claude 企业版用户需等到续约时才会看到新定价。
+佩泽希齐扬表示，会面气氛友好，双方交流了近两个半小时。
 
-） 发言人表示，此次定价调整不影响用户数少于 150 人的企业，例如面向小型公司的团队版订阅用户，该套餐费用为每位用户每月最高 100 美元。
+当地时间5月1日，伊朗最高领袖办公室发表声明说，在“五一”国际劳动节和5月2日伊朗教师节来临之际，最高领袖穆杰塔巴·哈梅内伊呼吁伊朗人民争取经济和文化斗争的胜利，以让敌人“失望”。
 
-今年以来，其 AI 代码智能体 Claude Code 以及可跨应用自动化办公任务的 AI 工具 Claude Cowork 使用量激增，Anthropic 随即推出了新定价政策。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 02:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 03:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 02:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 03:02 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 02:59 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 03:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 02:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 02:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 02:56 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 03:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 03:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 03:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 03:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 03:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 03:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 03:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 03:09 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 02:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 03:09 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 03:04 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 02:50 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 03:10 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/3301994.shtml)
-- 2026-06-30 02:52 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/0961055.shtml)
-- 2026-06-30 02:48 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/45785451210.shtml)
-- 2026-06-30 02:58 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/553009551.shtml)
-- 2026-06-30 02:52 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/1482640444.shtml)
-- 2026-06-30 02:57 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/166447215472.shtml)
-- 2026-06-30 02:45 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/8782965.shtml)
-- 2026-06-30 02:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/83202.shtml)
-- 2026-06-30 02:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/07445242.shtml)
-- 2026-06-30 03:05 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/713840494.shtml)
-- 2026-06-30 02:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/796294.shtml)
-- 2026-06-30 03:01 - [斗破苍穹](https://www.share.minike.top/Article/details/0714861854.shtml)
-- 2026-06-30 03:07 - [极限挑战第一季](https://www.share.minike.top/Article/details/65060.shtml)
-- 2026-06-30 03:04 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/02902287143.shtml)
-- 2026-06-30 03:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/51996408083.shtml)
+- 2026-06-30 03:11 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/524195882.shtml)
+- 2026-06-30 02:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/8158944821.shtml)
+- 2026-06-30 03:11 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/20574.shtml)
+- 2026-06-30 02:56 - [周生如故](https://www.share.kurohicncr.top/Article/details/914959731.shtml)
+- 2026-06-30 03:06 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/418317494888.shtml)
+- 2026-06-30 02:50 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/969799051331.shtml)
+- 2026-06-30 02:54 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/235973.shtml)
+- 2026-06-30 03:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/28470816157.shtml)
+- 2026-06-30 03:10 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/353882.shtml)
+- 2026-06-30 02:52 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/6364209.shtml)
+- 2026-06-30 03:06 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/232389027899.shtml)
+- 2026-06-30 03:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/1929791.shtml)
+- 2026-06-30 03:02 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/66937909.shtml)
+- 2026-06-30 02:56 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/24481463.shtml)
+- 2026-06-30 02:51 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/572598450776.shtml)

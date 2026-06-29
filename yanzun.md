@@ -1,46 +1,57 @@
-# 苏林：越中青年要携手续写两国友好新篇章
+# 公交车已然不用人开？智驾企业：L4级自动驾驶巴士已落地20余城
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 14:16 来源：中国新闻网 正在对中国进行国事访问的越共中央总书记、国家主席苏林4月14日在清华大学表示，越中青年要携手续写两国友好新篇章。 当日下午，苏林率团访问清华大学，出席中国-越南高等教育合作与科技创新论坛并发表主旨演讲。 (记者 李佳悦 制作 王雪尔） 责任编辑：【罗攀】
+发布时间：2026年05月09日 22:06 来源：中国新闻网 第二十八届北京科博会于5月8日至10日在国家会议中心举办。在本届科博会上，一款名叫MOGOBUS的L4级自动驾驶公交车亮相展台。据蘑菇车联副总裁赵仁杰介绍，该款自动驾驶巴士采取“前装量产+视觉感知与激光雷达融合”的技术路线，深度融合自动驾驶域、智能座舱域及整车底盘域，配备固态激光雷达、毫米波雷达、超声波雷达以及环视
 
 ## 正文
 
-发布时间：2026年04月15日 14:16 来源：中国新闻网 正在对中国进行国事访问的越共中央总书记、国家主席苏林4月14日在清华大学表示，越中青年要携手续写两国友好新篇章。
+发布时间：2026年05月09日 22:06 来源：中国新闻网 第二十八届北京科博会于5月8日至10日在国家会议中心举办。
 
-当日下午，苏林率团访问清华大学，出席中国-越南高等教育合作与科技创新论坛并发表主旨演讲。
+在本届科博会上，一款名叫MOGOBUS的L4级自动驾驶公交车亮相展台。
 
-(记者 李佳悦 制作 王雪尔） 责任编辑：【罗攀】
+据蘑菇车联副总裁赵仁杰介绍，该款自动驾驶巴士采取“前装量产+视觉感知与激光雷达融合”的技术路线，深度融合自动驾驶域、智能座舱域及整车底盘域，配备固态激光雷达、毫米波雷达、超声波雷达以及环视摄像头组成的多传感器融合感知方案，实现了360度无盲区环境感知，可对复杂路况、大客流场景进行精准预判与安全决策。
+
+目前，自动驾驶巴士MOGOBUS已在国内20余个城市落地，服务超20万人次，行驶里程突破500万公里。
+
+据介绍，L4级自动驾驶车辆可以在划定的园区、公交专线、特定城市道路等专属运行区域内，自主完成起步、行驶、避让障碍物、变道、刹车停靠等全部驾驶操作，全程无需人类驾驶员接管。
+
+(谢龙飞 卢晓娜 陈杭马倩倩 制作 王佳琪) 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 02:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 02:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 03:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 03:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 02:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 03:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 03:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 02:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 03:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:07 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 03:12 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 02:56 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 03:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 02:50 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 03:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 03:12 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:08 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 02:56 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 02:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 02:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:56 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 02:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 03:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/829589.shtml)
-- 2026-06-30 02:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/66921773789.shtml)
-- 2026-06-30 02:54 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/260110661.shtml)
-- 2026-06-30 03:05 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/193853082.shtml)
-- 2026-06-30 02:56 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/87958108.shtml)
-- 2026-06-30 03:05 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/89429306419.shtml)
-- 2026-06-30 03:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/949818999.shtml)
-- 2026-06-30 02:43 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/04612.shtml)
-- 2026-06-30 02:50 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/47276.shtml)
-- 2026-06-30 02:51 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/920327.shtml)
-- 2026-06-30 02:44 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/66452489.shtml)
-- 2026-06-30 02:54 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/7701460.shtml)
-- 2026-06-30 03:03 - [千香](https://www.blog.minike.top/Article/details/3774231.shtml)
-- 2026-06-30 03:03 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/499585.shtml)
-- 2026-06-30 03:04 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/6463580.shtml)
+- 2026-06-30 03:11 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/789163352.shtml)
+- 2026-06-30 02:56 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/10957.shtml)
+- 2026-06-30 02:58 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/662434122475.shtml)
+- 2026-06-30 02:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/039338.shtml)
+- 2026-06-30 02:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/429604097067.shtml)
+- 2026-06-30 03:00 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/30556801983.shtml)
+- 2026-06-30 03:04 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/5554772.shtml)
+- 2026-06-30 02:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/145627.shtml)
+- 2026-06-30 03:09 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/91217051615.shtml)
+- 2026-06-30 02:56 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/264506523199.shtml)
+- 2026-06-30 02:48 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/100734894426.shtml)
+- 2026-06-30 02:49 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/081494877833.shtml)
+- 2026-06-30 03:10 - [刘念回应](https://www.blog.minike.top/Article/details/53549704.shtml)
+- 2026-06-30 03:12 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/049935287354.shtml)
+- 2026-06-30 03:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/31879.shtml)

@@ -1,52 +1,58 @@
-# 国务院办公厅印发《关于健全药品价格形成机制的若干意见》
+# 检察机关对丁雄军、赵成武、白春明、俞志明提起公诉
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-新华社北京4月14日电 近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，强调充分发挥市场在资源配置中的决定性作用，更好发挥政府作用，有效服务药品领域全国统一大市场建设，健全以市场为主导的药品价格形成机制，支持医药产业高质量发展，保障人民群众获得质优价宜药品。根据药品上市后的不同阶段，《意见》提出优化创新药等新上市药品首发价格机制、发挥医保支付标
+中新网5月8日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对丁雄军、赵成武、白春明、俞志明提起公诉。 贵州检察机关依法对丁雄军涉嫌受贿、洗钱案提起公诉 日前，贵州省市场监督管理局原党组书记、局长丁雄军(正厅级)涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉
 
 ## 正文
 
-新华社北京4月14日电 近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》(以下简称《意见》)，强调充分发挥市场在资源配置中的决定性作用，更好发挥政府作用，有效服务药品领域全国统一大市场建设，健全以市场为主导的药品价格形成机制，支持医药产业高质量发展，保障人民群众获得质优价宜药品。
+中新网5月8日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对丁雄军、赵成武、白春明、俞志明提起公诉。
 
-根据药品上市后的不同阶段，《意见》提出优化创新药等新上市药品首发价格机制、发挥医保支付标准对药品价格形成的引导作用、健全药品集中带量采购价格形成机制、完善药品挂网价格管理等措施，完善重点环节药品价格政策。
+贵州检察机关依法对丁雄军涉嫌受贿、洗钱案提起公诉 日前，贵州省市场监督管理局原党组书记、局长丁雄军(正厅级)涉嫌受贿罪、洗钱罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。
 
-根据药品流通的不同渠道，《意见》明确发挥医疗机构专业作用、引导药店合理制定药品零售价格、用好网上药店价格发现功能等措施，鼓励各类主体参与价格形成。
+经贵州省人民检察院指定管辖，由黔东南州人民检察院依法向黔东南州中级人民法院提起公诉。
 
-根据药品的不同领域，《意见》强调促进创新药多元支付与价格合理形成、强化短缺药保供稳价、加强麻醉药品和精神药品价格管理、规范药品原辅料价格行为，引导关键领域药品价格保持合理水平。
+案件正在进一步办理中。
 
-《意见》要求加强药品价格治理，提出实行药品价格风险预警、健全药品价格风险处置制度、防范非理性竞价中标影响供应、严惩药品和原辅料生产经营领域以缺逼涨等违法违规行为、加强医药领域全链条穿透式审计监督、建立药品医保价值评估制度等针对性措施，引导药品价格运行在合理区间。
+检察机关在审查起诉阶段，依法告知了被告人丁雄军享有的诉讼权利，并依法讯问了被告人，听取了辩护人的意见。
+
+黔东南州人民检察院起诉指控：被告人丁雄军利用担任贵州省清镇市委常委、副市长，贵阳市两湖一库管理局党委书记、局长，贵阳国家高新技术产业开发区党工委书记、贵阳市白云区委书记，贵阳市人民政府秘书长，毕节市委常委、市人民政府副市长，贵州省能源局党组书记、局长，中国贵州茅台酒厂(集团)有限责任公司党委书记、董事长等职务上的便利，以及职权或地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；掩饰、隐瞒部分受贿所得的来源和性质，情节严重，依法应当以受贿罪、洗钱罪追究其刑事责任。
+
+云南检察机关依法对赵成武涉嫌受贿案提起公诉 日前，云南省昆明市人民检察院原党组书记、检察长赵成武(副厅级)涉嫌受贿罪一案，由云南省监察委员会调查终结，移送检察机关审查起诉。
+
+经云南省人民检察院指定管辖，由怒江州人民检察院依法向怒江州中级人民法院提起公诉。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 03:09 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 03:08 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 03:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 03:01 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 02:49 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 02:58 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 03:10 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 02:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 02:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 03:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 03:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 03:13 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 02:54 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 03:09 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 03:17 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 03:15 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 03:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 03:09 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 03:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 03:07 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 02:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 02:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 02:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/873620204.shtml)
-- 2026-06-30 02:51 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/5394737.shtml)
-- 2026-06-30 03:06 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/0467138.shtml)
-- 2026-06-30 02:44 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/062119.shtml)
-- 2026-06-30 03:08 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/351973348.shtml)
-- 2026-06-30 02:50 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/496852920805.shtml)
-- 2026-06-30 03:10 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/287798.shtml)
-- 2026-06-30 02:52 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/329478900.shtml)
-- 2026-06-30 02:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/453235070.shtml)
-- 2026-06-30 02:49 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/7995189078.shtml)
-- 2026-06-30 02:59 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/707875572.shtml)
-- 2026-06-30 03:10 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/325781609418.shtml)
-- 2026-06-30 03:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/74151312.shtml)
-- 2026-06-30 03:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/680256420477.shtml)
-- 2026-06-30 02:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/95379896.shtml)
+- 2026-06-30 03:07 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/34542160838.shtml)
+- 2026-06-30 02:48 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/32599487.shtml)
+- 2026-06-30 02:52 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/263965.shtml)
+- 2026-06-30 02:56 - [我们的少年时代2](https://www.blog.minike.top/Article/details/53726171133.shtml)
+- 2026-06-30 03:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/481761.shtml)
+- 2026-06-30 03:02 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/314953017.shtml)
+- 2026-06-30 02:57 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/0847391.shtml)
+- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/9958116.shtml)
+- 2026-06-30 02:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/9743223.shtml)
+- 2026-06-30 03:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/100423.shtml)
+- 2026-06-30 02:58 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/453275733.shtml)
+- 2026-06-30 02:49 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/502809849.shtml)
+- 2026-06-30 03:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/9717754907.shtml)
+- 2026-06-30 02:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/09449.shtml)
+- 2026-06-30 03:13 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/428530020.shtml)

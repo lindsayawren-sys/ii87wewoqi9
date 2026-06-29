@@ -1,56 +1,50 @@
-# 中东战争影响机场购物 奢侈品牌销售额下降
+# OPPO就母亲节文案致歉：已第一时间下架全部相关物料，全面审查内容审核机制
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-从 DFS 到 Avolta，面向大额消费群体销售高档香水和烈酒的免税店都感受到了压力，因为中东冲突导致机场关闭，前往该地区的旅行受阻，而随着战争的持续，这种挫折可能会变得更加严重。这场中断已进入第六周，暴露了奢侈品和美容集团的弱点，它们依赖机场购物和海湾地区的枢纽--它们利润率最高的渠道之一--来抵消欧洲等需求的疲软，这使得即使是短期的机场关闭也有可能拖累季度利润。 分析师称
+新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。 声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。我们已第一时间下架全部相关物料。我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。” 责任编辑：刘万里 SF0
 
 ## 正文
 
-从 DFS 到 Avolta，面向大额消费群体销售高档香水和烈酒的免税店都感受到了压力，因为中东冲突导致机场关闭，前往该地区的旅行受阻，而随着战争的持续，这种挫折可能会变得更加严重。
+新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
 
-这场中断已进入第六周，暴露了奢侈品和美容集团的弱点，它们依赖机场购物和海湾地区的枢纽--它们利润率最高的渠道之一--来抵消欧洲等需求的疲软，这使得即使是短期的机场关闭也有可能拖累季度利润。
+声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
 
-分析师称，中东航空交通的长期低迷可能会加重仍在从新冠疫情中恢复的旅游零售业的压力，挤压LVMHL旗下DFS等表现不佳的业务，并拖累雅诗兰黛、Puig和欧莱雅等知名美容和奢侈品公司。
+我们已第一时间下架全部相关物料。
 
-3 月上半月，往返中东的国际航班大幅减少。
+我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
 
-虽然阿拉伯联合酋长国的一些航空公司正在缓慢恢复航班，但航班量仍远低于正常水平。
-
-Cirium公司的数据显示，除土耳其外，中东地区的航班取消率从3月3日最高峰时的65%下降到3月27日的13%，但已安排航班的数量也有所下降。
-
-LVMH集团首席财务官塞西尔-卡巴尼斯（Cecile Cabanis）本周对分析师表示，DFS “使其选择性零售部门（包括美容品牌丝芙兰）的增长损失了两个（百分点） ”。
-
-LVMH 集团表示，由于海湾地区消费减少，冲突使最新季度的集团销售额减少了至少 1%。
+” 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 02:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 03:06 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:10 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 03:03 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 02:58 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 03:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 02:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 02:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 03:14 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 02:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 03:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 03:08 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 03:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 03:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 03:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 02:54 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 03:11 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/779152159678.shtml)
-- 2026-06-30 02:43 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/2397589.shtml)
-- 2026-06-30 02:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/563234.shtml)
-- 2026-06-30 02:56 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/00080066158.shtml)
-- 2026-06-30 03:11 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/764999162799.shtml)
-- 2026-06-30 03:01 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/71536434394.shtml)
-- 2026-06-30 02:55 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/66062289.shtml)
-- 2026-06-30 02:47 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/358057973816.shtml)
-- 2026-06-30 02:49 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/93402.shtml)
-- 2026-06-30 02:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/1414846.shtml)
-- 2026-06-30 02:55 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/033477979316.shtml)
-- 2026-06-30 03:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/53879.shtml)
-- 2026-06-30 03:03 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/8922785015.shtml)
-- 2026-06-30 03:08 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/3787466.shtml)
-- 2026-06-30 02:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6507138335.shtml)
+- 2026-06-30 02:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/96311.shtml)
+- 2026-06-30 02:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/6199342917.shtml)
+- 2026-06-30 02:59 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/080498932799.shtml)
+- 2026-06-30 03:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/6441592.shtml)
+- 2026-06-30 03:06 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/9682226.shtml)
+- 2026-06-30 02:57 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/76134.shtml)
+- 2026-06-30 02:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/54166.shtml)
+- 2026-06-30 03:03 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/015307621679.shtml)
+- 2026-06-30 03:03 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/16012613.shtml)
+- 2026-06-30 03:09 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/03405270.shtml)
+- 2026-06-30 03:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/40254164.shtml)
+- 2026-06-30 03:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/87121260596.shtml)
+- 2026-06-30 02:52 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/14733.shtml)
+- 2026-06-30 02:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/746881231.shtml)
+- 2026-06-30 03:17 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/457974767141.shtml)

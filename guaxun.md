@@ -1,56 +1,60 @@
-# “年度优秀书籍设计榜”入选图书展呈现当代阅读的审美变迁
+# 首家！法巴农银理财资产管理规模突破1000亿元
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月15日电 (记者 应妮)“春阅·艺境——第31个‘世界读书日’中国艺术研究院《中国艺术年鉴》系列活动”日前在京举行，“年度优秀书籍设计榜”入选图书展在现场开幕。 中国艺术研究院所属的《中国艺术年鉴》编辑部作为全国唯一的全门类艺术年鉴机构，编纂的《中国艺术年鉴》《中国艺术学年鉴》《中国艺术发展研究报告》是见证艺术繁荣和学科建设的重要窗口。为进一步客观记录当代阅读的审
+来源：中国农业银行 近日，法巴农银理财有限责任公司（以下称“法巴农银理财”）资产管理规模（AUM）突破1000亿元，成为首家AUM跨越千亿大关的合资理财公司。 法巴农银理财由中国农业银行全资子公司农银理财与法国巴黎银行旗下法国巴黎资产管理公司合资设立，是农业银行贯彻落实国家关于金融高水平开放决策部署，深化国际资管合作、完善集团大资管业务布局的重要举措。自2023年开业以来，公司
 
 ## 正文
 
-中新网北京4月15日电 (记者 应妮)“春阅·艺境——第31个‘世界读书日’中国艺术研究院《中国艺术年鉴》系列活动”日前在京举行，“年度优秀书籍设计榜”入选图书展在现场开幕。
+来源：中国农业银行 近日，法巴农银理财有限责任公司（以下称“法巴农银理财”）资产管理规模（AUM）突破1000亿元，成为首家AUM跨越千亿大关的合资理财公司。
 
-中国艺术研究院所属的《中国艺术年鉴》编辑部作为全国唯一的全门类艺术年鉴机构，编纂的《中国艺术年鉴》《中国艺术学年鉴》《中国艺术发展研究报告》是见证艺术繁荣和学科建设的重要窗口。
+法巴农银理财由中国农业银行全资子公司农银理财与法国巴黎银行旗下法国巴黎资产管理公司合资设立，是农业银行贯彻落实国家关于金融高水平开放决策部署，深化国际资管合作、完善集团大资管业务布局的重要举措。
 
-为进一步客观记录当代阅读的审美变迁，《中国艺术年鉴2025》“艺术设计”分卷设置了“年度优秀书籍设计榜”栏目。
+自2023年开业以来，公司深耕中国市场，充分整合中外股东资源禀赋与专业优势，秉持客户至上和稳健经营理念，走出了一条合资理财公司开放融合、行稳致远的新路子。
 
-此次展出的42部(套)图书，是从面向全国众多重点出版社与核心出版机构广泛征集的优秀图书作品中遴选出来的，涵盖整体设计、版式设计、插图设计、字体运用、封面设计五大类别。
+创新多元产品体系 满足客户需求 法巴农银理财始终将保障客户利益、提供稳健回报作为重要使命，创新推出“珐琅彩”产品体系，以珐琅青、蓝、金、紫、红五种色彩，对应不同风险收益等级的理财产品，打造梯度完整的多元产品矩阵，满足客户差异化投资需求。
 
-评选以艺术性、创新性、功能性、文化性为标准，兼顾传统工艺传承与现代设计探索，摒弃过度装帧，回归阅读与内容本身，让书籍既是知识载体，也是可赏可藏的艺术作品。
+法巴农银理财坚持稳健审慎的投资风格，遵循“合理预期、合格交付”理念，基于市场测算审慎确定产品业绩比较基准。
 
-该展将在中国园林博物馆持续展出至5月31日。
+截至目前，公司已到期的60余支封闭式理财产品兑付收益均达业绩比较基准，以稳健的投资风格和扎实的产品业绩赢得了客户信任和市场认可。
 
-在“深化全民阅读”主题沙龙环节，原国家新闻出版总署署长柳斌杰指出，2026年是全民阅读发展史上的重要节点：“全民阅读”发起满20年、连续13次写入政府工作报告、《全民阅读促进条例》正式施行，阅读事业全面进入法治轨道。
+发挥中法股东优势 提升服务体验 法巴农银理财的快速发展，离不开中法股东的资源禀赋和农业银行的渠道优势。
 
-从一份倡议到全民共识，从行业推动到国家立法，当年的“书香中国”愿景，如今已成为千万家庭的生活日常，阅读成为全社会最动人的文化风尚。
+中方股东农银理财作为国内首批成立的银行理财子公司，为合资公司带来深刻的本土市场洞察和理财产品管理经验；法方股东法巴资管提供了国际化资产管理经验和全面风险管理体系。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 02:49 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 02:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 02:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 02:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 03:02 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 03:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 03:06 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 03:11 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 02:55 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 03:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 03:08 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 02:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 03:17 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 02:50 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 03:05 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 02:55 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 03:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 02:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 03:06 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 03:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 03:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:01 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/8525801973.shtml)
-- 2026-06-30 03:05 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/536520379120.shtml)
-- 2026-06-30 03:02 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/121397.shtml)
-- 2026-06-30 03:10 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/110804.shtml)
-- 2026-06-30 02:59 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/112906950298.shtml)
-- 2026-06-30 02:49 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/48948623.shtml)
-- 2026-06-30 02:57 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/019555623.shtml)
-- 2026-06-30 03:03 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/12468511547.shtml)
-- 2026-06-30 02:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/305311141.shtml)
-- 2026-06-30 02:58 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/6563453765.shtml)
-- 2026-06-30 03:10 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/435216536713.shtml)
-- 2026-06-30 03:07 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/626670330357.shtml)
-- 2026-06-30 03:04 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/2113637285.shtml)
-- 2026-06-30 02:47 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/5925571139.shtml)
-- 2026-06-30 02:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/5199102.shtml)
+- 2026-06-30 03:00 - [一生一世](http://www.share.minike.top/Article/details/11191611.shtml)
+- 2026-06-30 03:14 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/004160.shtml)
+- 2026-06-30 03:05 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/80264.shtml)
+- 2026-06-30 03:01 - [绘画区你赢了](https://www.blog.minike.top/Article/details/0881024.shtml)
+- 2026-06-30 02:54 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/189325714790.shtml)
+- 2026-06-30 03:17 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/87946801.shtml)
+- 2026-06-30 03:02 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/548565497755.shtml)
+- 2026-06-30 02:59 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/045559096447.shtml)
+- 2026-06-30 03:00 - [流金岁月](http://www.share.kurohicncr.top/Article/details/1278993.shtml)
+- 2026-06-30 03:13 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/3004100.shtml)
+- 2026-06-30 02:51 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/073977661.shtml)
+- 2026-06-30 02:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/566162365.shtml)
+- 2026-06-30 03:02 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/40432759.shtml)
+- 2026-06-30 03:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/146873.shtml)
+- 2026-06-30 03:01 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/942296201.shtml)

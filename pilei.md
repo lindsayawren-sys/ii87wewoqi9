@@ -1,46 +1,56 @@
-# 二十届中央第七轮巡视已进驻31家单位 联系方式一览
+# 钱江摩托否认围剿张雪机车：未封锁张雪机车供应链
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视的15个巡视组开始陆续进驻被巡视单位，开展为期2个半月左右的常规巡视。目前，中央巡视组已进驻31家单位。 已进驻中央巡视组联络方式： (总台央视记者 李本扬 宋琎)
+中新网5月8日电(吴家驹)5月8日，浙江钱江摩托股份有限公司(简称“钱江摩托”)在其公众号发布声明称，近日，网络流传“国内摩托车大厂从供应链、经销商层面围剿张雪机车”等不实言论，引发行业与公众热议。公司从未以任何形式针对张雪机车及行业友商实施供应链封锁、经销商围剿等不正当竞争行为。张雪机车和钱江摩托都参加了2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛。截至目
 
 ## 正文
 
-根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视的15个巡视组开始陆续进驻被巡视单位，开展为期2个半月左右的常规巡视。
+中新网5月8日电(吴家驹)5月8日，浙江钱江摩托股份有限公司(简称“钱江摩托”)在其公众号发布声明称，近日，网络流传“国内摩托车大厂从供应链、经销商层面围剿张雪机车”等不实言论，引发行业与公众热议。
 
-目前，中央巡视组已进驻31家单位。
+公司从未以任何形式针对张雪机车及行业友商实施供应链封锁、经销商围剿等不正当竞争行为。
 
-已进驻中央巡视组联络方式： (总台央视记者 李本扬 宋琎)
+张雪机车和钱江摩托都参加了2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛。
+
+截至目前，2026赛季，张雪机车车手瓦伦丁·德比斯已收获三个分站冠军，钱江摩托车手德罗萨也曾在匈牙利站第一回合正赛中获得第16名的成绩。
+
+钱江摩托在声明中称，对于张雪机车在WSBK世界超级摩托车锦标赛中取得的优异成绩，由衷感到骄傲与自豪。
+
+张雪也曾呼吁：“不要因为我们夺冠了，然后去拉踩其他品牌，这样肯定是不对的。
+
+”(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 02:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 02:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 02:49 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 02:52 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 02:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 03:04 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 02:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 03:11 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 03:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 02:50 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 02:57 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:07 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 02:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 03:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 03:17 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 02:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 02:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 02:57 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 03:13 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 02:58 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/26789779783.shtml)
-- 2026-06-30 02:54 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/31763.shtml)
-- 2026-06-30 03:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/2234239.shtml)
-- 2026-06-30 02:56 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/65006251.shtml)
-- 2026-06-30 02:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/0106749049.shtml)
-- 2026-06-30 02:48 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/029721391552.shtml)
-- 2026-06-30 02:49 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/3241451.shtml)
-- 2026-06-30 03:11 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/884390555984.shtml)
-- 2026-06-30 02:49 - [美股](https://www.blog.kurohicncr.top/Article/details/52982429233.shtml)
-- 2026-06-30 02:55 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/29218398.shtml)
-- 2026-06-30 03:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/56277081.shtml)
-- 2026-06-30 03:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/576588854.shtml)
-- 2026-06-30 03:02 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/95706.shtml)
-- 2026-06-30 02:43 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/40297.shtml)
-- 2026-06-30 02:56 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/22857.shtml)
+- 2026-06-30 03:05 - [电影后室值得看吗](https://www.share.minike.top/Article/details/9002217148.shtml)
+- 2026-06-30 02:49 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/175418183013.shtml)
+- 2026-06-30 03:01 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/607209.shtml)
+- 2026-06-30 02:49 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/154950809.shtml)
+- 2026-06-30 03:16 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/1326923333.shtml)
+- 2026-06-30 03:06 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/64870.shtml)
+- 2026-06-30 02:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/439393.shtml)
+- 2026-06-30 02:51 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/23476269846.shtml)
+- 2026-06-30 03:14 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/61875175.shtml)
+- 2026-06-30 03:00 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/424405128083.shtml)
+- 2026-06-30 02:52 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/423069917.shtml)
+- 2026-06-30 02:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/2848780086.shtml)
+- 2026-06-30 02:52 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/3135029446.shtml)
+- 2026-06-30 02:50 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/13524280.shtml)
+- 2026-06-30 03:11 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9382252979.shtml)

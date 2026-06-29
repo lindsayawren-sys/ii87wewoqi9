@@ -1,59 +1,54 @@
-# 中亚首台套AEM电解水制氢设备成功投运
+# 优必选盘中涨近7% 近日重磅推出全新具身智能世界模型Thinker-WM
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-当地时间4月9日，中亚地区首台套AEM电解水制氢科研设备投运仪式在哈萨克斯坦首都阿斯塔纳举行，标志着中哈两国在绿色氢能关键技术联合研发与应用示范方面取得实质性突破。哈萨克斯坦能源部部长叶尔兰·阿肯热诺夫，科学和高等教育部部长萨亚萨特·努尔别克，上海市委副书记、市长龚正，上海交通大学副校长曾小勤，中国能建国际集团党委常委、副总经理，海投公司党委书记、董事长林晓丹出席活动并致辞。中
+优必选（09880）盘中逆市涨近7%，截至发稿，股价上涨4.10%，现报114.30港元，成交额8.91亿港元。 近日，据优必选官微消息，公司立足工业场景真实作业需求与具身智能技术演进方向，基于自研具身智能大模型Thinker，重磅推出全新具身智能世界模型Thinker-WM，打造物理AI基座，实现具身大脑架构与核心能力的全方位升级。凭借在空间泛化、长程任务和综合性能上的优势，
 
 ## 正文
 
-当地时间4月9日，中亚地区首台套AEM电解水制氢科研设备投运仪式在哈萨克斯坦首都阿斯塔纳举行，标志着中哈两国在绿色氢能关键技术联合研发与应用示范方面取得实质性突破。
+优必选（09880）盘中逆市涨近7%，截至发稿，股价上涨4.10%，现报114.30港元，成交额8.91亿港元。
 
-哈萨克斯坦能源部部长叶尔兰·阿肯热诺夫，科学和高等教育部部长萨亚萨特·努尔别克，上海市委副书记、市长龚正，上海交通大学副校长曾小勤，中国能建国际集团党委常委、副总经理，海投公司党委书记、董事长林晓丹出席活动并致辞。
+近日，据优必选官微消息，公司立足工业场景真实作业需求与具身智能技术演进方向，基于自研具身智能大模型Thinker，重磅推出全新具身智能世界模型Thinker-WM，打造物理AI基座，实现具身大脑架构与核心能力的全方位升级。
 
-中国驻哈萨克斯坦大使韩春霖参加上述活动。
+凭借在空间泛化、长程任务和综合性能上的优势，Thinker-WM在权威具身智能评测基准Libero中登顶榜首。
 
-该设备由海投公司与上海交通大学联合研发，并由海投公司统筹推进项目投入及应用场景建设，是校企协同推进氢能前沿技术攻关的重要成果。
+同时参与榜单排名的还有英伟达、Physical Intelligence、小米等知名公司的模型。
 
-项目依托先进AEM电解水制氢技术，在提升制氢效率、降低系统成本等方面具有良好应用前景，为中亚地区探索绿色制氢路径提供了示范样本。
+依托优必选在行业积累的数据及对模型架构的针对性优化，Thinker-WM构建了Diffusion Transformer统一多模态空间架构。
 
-叶尔兰·阿肯热诺夫在致辞中表示，氢能是哈萨克斯坦能源结构优化和实现低碳转型的重要方向。
+模型在Flow Matching迭代演化过程中，实现视频表征与机器人动作空间的协同优化；在对未来场景进行智能想象推演的同时，渐进式打磨动作生成的合理性与连贯性，使其在复杂长程任务规划与执行中具备显著优势。
 
-此次引进国际先进的AEM电解水制氢技术，对于培育绿色经济新动能、提升能源体系韧性具有重要意义。
-
-希望以此为契机，进一步深化与中国能建在新能源领域的务实合作，打造更多具有示范效应的绿色能源项目。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 03:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 03:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 02:42 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 03:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 03:04 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 02:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 02:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 02:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 02:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 02:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 02:57 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 03:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:01 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 03:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 02:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 03:18 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 02:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 02:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/6092409899.shtml)
-- 2026-06-30 02:59 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/13402459.shtml)
-- 2026-06-30 03:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/553392.shtml)
-- 2026-06-30 02:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/343412.shtml)
-- 2026-06-30 02:53 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/34615080.shtml)
-- 2026-06-30 02:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/76252341.shtml)
-- 2026-06-30 02:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/84226521.shtml)
-- 2026-06-30 03:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6008603.shtml)
-- 2026-06-30 03:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/46876.shtml)
-- 2026-06-30 03:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/11207884.shtml)
-- 2026-06-30 02:56 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/46653.shtml)
-- 2026-06-30 02:52 - [电影后室值得看吗](http://www.share.minike.top/Article/details/7711755.shtml)
-- 2026-06-30 02:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/48071.shtml)
-- 2026-06-30 02:58 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/12408256063.shtml)
-- 2026-06-30 02:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/4255252.shtml)
+- 2026-06-30 02:57 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/930716582.shtml)
+- 2026-06-30 02:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/18010949259.shtml)
+- 2026-06-30 02:58 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/3360398528.shtml)
+- 2026-06-30 03:15 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/787142302600.shtml)
+- 2026-06-30 03:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/799371916.shtml)
+- 2026-06-30 03:17 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/53551097381.shtml)
+- 2026-06-30 03:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/36997.shtml)
+- 2026-06-30 02:52 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/6274042.shtml)
+- 2026-06-30 02:53 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/524188.shtml)
+- 2026-06-30 02:59 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/524489829.shtml)
+- 2026-06-30 02:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/01300609812.shtml)
+- 2026-06-30 02:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/793001.shtml)
+- 2026-06-30 02:49 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/432981605.shtml)
+- 2026-06-30 03:04 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/824658848098.shtml)
+- 2026-06-30 02:49 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/5057934815.shtml)

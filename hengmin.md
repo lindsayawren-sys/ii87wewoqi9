@@ -1,59 +1,56 @@
-# 精准踩在特朗普伊朗政策转向前 可疑石油交易引发美国监管机构调查
+# 2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-据知情人士称，美国衍生品交易最高监管机构正调查一系列在特朗普近期伊朗战争政策转向前进行的、时机异常精准的石油期货交易。 知情人士表示，美国商品期货交易委员会（CFTC）正牵头调查在芝商所和洲际交易所平台上的石油期货交易。他们还表示，两家交易所都被要求提交数据。 知情人士称，CFTC正在调查约两周内至少两次交易量在重大政策宣布前突然激增的情况。监管机构要求交易所提供的数据包括“T
+仅用了一天时间，钟薛高食品（上海）有限公司名下的508件无形资产就以2110万元卖出。 5月7日下午，钟薛高食品公司的这笔资产在京东资产交易平台一拍成交。一天前，这些无形资产被打包拍卖，起拍价为207万元。 竞拍公告显示，此次被打包拍卖的无形资产包括492项注册商标、8项授权专利以及8项著作权。其中，被拍卖的商标包括“钟薛高”“钟薛低”“钟薛高的糕” “半巧主义”等；钟薛高食品
 
 ## 正文
 
-据知情人士称，美国衍生品交易最高监管机构正调查一系列在特朗普近期伊朗战争政策转向前进行的、时机异常精准的石油期货交易。
+仅用了一天时间，钟薛高食品（上海）有限公司名下的508件无形资产就以2110万元卖出。
 
-知情人士表示，美国商品期货交易委员会（CFTC）正牵头调查在芝商所和洲际交易所平台上的石油期货交易。
+5月7日下午，钟薛高食品公司的这笔资产在京东资产交易平台一拍成交。
 
-他们还表示，两家交易所都被要求提交数据。
+一天前，这些无形资产被打包拍卖，起拍价为207万元。
 
-知情人士称，CFTC正在调查约两周内至少两次交易量在重大政策宣布前突然激增的情况。
+竞拍公告显示，此次被打包拍卖的无形资产包括492项注册商标、8项授权专利以及8项著作权。
 
-监管机构要求交易所提供的数据包括“Tag 50”操作员识别码，即交易背后实体的身份信息。
+其中，被拍卖的商标包括“钟薛高”“钟薛低”“钟薛高的糕” “半巧主义”等；钟薛高食品（上海）公司管理人于2026年5月6日10时起至2026年5月7日10时止（延时除外）在京东拍卖平台进行公开拍卖活动。
 
-过去几周异常大的交易量令外界担忧可能存在对重大非公开信息的滥用。
+此次拍卖评估价与起拍价均为207万元，保证金20万元，加价幅度为1万元。
 
-冲突爆发之初，中东石油运输的历史性扰动导致油价飙升。
+因竞价持续延时，直至下午14：00才落槌。
 
-随后几周，随着市场猜测霍尔木兹海峡的油轮通行何时才能恢复，油价剧烈波动。
+界面新闻查询京东资产交易平台获悉，共有14人参与竞拍，出价631次，最终成交价2110万元，溢价率超900%。
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 02:55 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 02:49 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 03:05 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 03:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 03:08 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 02:45 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 03:09 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 03:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 02:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 02:47 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:59 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 03:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 02:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 03:13 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 02:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 02:50 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 02:57 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 03:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 03:07 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 03:09 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/696318212.shtml)
-- 2026-06-30 02:53 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/3718944512.shtml)
-- 2026-06-30 03:07 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/41531.shtml)
-- 2026-06-30 02:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/173693051.shtml)
-- 2026-06-30 03:08 - [小娘惹](https://www.blog.minike.top/Article/details/690411793799.shtml)
-- 2026-06-30 03:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/1516478375.shtml)
-- 2026-06-30 02:51 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/824050741.shtml)
-- 2026-06-30 02:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/496817.shtml)
-- 2026-06-30 03:07 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/938567568328.shtml)
-- 2026-06-30 03:04 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/92917357836.shtml)
-- 2026-06-30 03:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/66238867859.shtml)
-- 2026-06-30 02:46 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/215125495.shtml)
-- 2026-06-30 03:06 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/00381882754.shtml)
-- 2026-06-30 03:00 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/17684.shtml)
-- 2026-06-30 02:57 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/31562.shtml)
+- 2026-06-30 03:09 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/748612968.shtml)
+- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/71739370386.shtml)
+- 2026-06-30 03:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/347685035.shtml)
+- 2026-06-30 02:52 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9508856769.shtml)
+- 2026-06-30 03:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/584692038475.shtml)
+- 2026-06-30 02:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/0084128.shtml)
+- 2026-06-30 03:02 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/50729550281.shtml)
+- 2026-06-30 03:05 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/473560520903.shtml)
+- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/704605.shtml)
+- 2026-06-30 02:57 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/5586929.shtml)
+- 2026-06-30 03:01 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/697343.shtml)
+- 2026-06-30 02:57 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/68624.shtml)
+- 2026-06-30 03:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7853190.shtml)
+- 2026-06-30 02:53 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/93682128816.shtml)
+- 2026-06-30 02:56 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/82284.shtml)

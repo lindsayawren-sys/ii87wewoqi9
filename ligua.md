@@ -1,58 +1,56 @@
-# 沃飞长空冲刺A股 “低空经济第一股”
+# 可回收火箭首飞潮即将开启！商业航天再度活跃，华宝基金军工ETF（512810）逆市拉涨1%！
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。 在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。 低空经济作为新兴产业尚未普遍进入盈利期。去年6月，中国证监会发布意
+8日早盘，A股全面回调，军工板块盘中再发力，军工核心资产——军工ETF华宝（512810）震荡拉升逾1%，连续第5个交易日上涨！商业航天概念再度领涨，航天南湖涨超5%，连板股航锦科技续涨逾4%，航发控制涨超3%。 消息面上，机构表示，国内国家队及民营火箭公司齐发力，二季度有望开启可回收火箭首飞潮。国内卫星批量招标在即，海内外多型号火箭即将迎来首飞，手机直连等功能落地将带动卫星性
 
 ## 正文
 
-近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。
+8日早盘，A股全面回调，军工板块盘中再发力，军工核心资产——军工ETF华宝（512810）震荡拉升逾1%，连续第5个交易日上涨！
 
-若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。
+商业航天概念再度领涨，航天南湖涨超5%，连板股航锦科技续涨逾4%，航发控制涨超3%。
 
-在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。
+消息面上，机构表示，国内国家队及民营火箭公司齐发力，二季度有望开启可回收火箭首飞潮。
 
-低空经济作为新兴产业尚未普遍进入盈利期。
+国内卫星批量招标在即，海内外多型号火箭即将迎来首飞，手机直连等功能落地将带动卫星性能进一步迭代，卫星后续将迎来量价齐升阶段。
 
-去年6月，中国证监会发布意见，重启并扩容未盈利企业第五套上市标准至低空经济领域。
+海外方面，SpaceX的IPO注册文件显示，SpaceX星舰项目累计投入突破150亿美元，公司即将推出升级版原型机。
 
-这为低空经济公司在国内上市留下了政策窗口。
+SpaceX计划在2026年下半年发射首批新的、更强大的“星链 V3”卫星。
 
-然而，入场券从来不是免费的午餐。
+据iFinD数据，截至今年一季度末，军工ETF华宝（512810）跟踪的中证军工指数所覆盖的商业航天概念股权重占比近77%。
 
-尽管政策窗口已开，但针对低空经济的具体上市指引尚未完全落地。
+【投军工，选“八一”】代码有“八一”的军工ETF华宝（512810）（原国防军工ETF）汇聚“海陆空天”尖端军工科技，全面覆盖“商业航天、大飞机、低空经济、军工AI”等热门主题，同时是融资融券+互联互通标的，是一键投资军工核心资产的高效工具。
 
 ## 相关推荐
 
-- 2026-06-30 03:11 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 03:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 02:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 03:11 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 02:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 02:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 02:57 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 02:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 03:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 02:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 02:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 03:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 03:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 02:53 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 03:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 03:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 02:56 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 02:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 03:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 03:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/325891.shtml)
-- 2026-06-30 03:00 - [田曦薇没招了](http://www.blog.minike.top/Article/details/66398.shtml)
-- 2026-06-30 03:08 - [内马尔替补](https://www.blog.minike.top/Article/details/868492817.shtml)
-- 2026-06-30 03:08 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/02308.shtml)
-- 2026-06-30 03:11 - [日本反击率先破门](http://www.blog.minike.top/Article/details/3504495.shtml)
-- 2026-06-30 02:57 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/010249.shtml)
-- 2026-06-30 02:54 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/290491.shtml)
-- 2026-06-30 02:45 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/7653874418.shtml)
-- 2026-06-30 02:43 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/02466474802.shtml)
-- 2026-06-30 02:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/691314.shtml)
-- 2026-06-30 02:54 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/029079762.shtml)
-- 2026-06-30 02:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/447748462.shtml)
-- 2026-06-30 02:55 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/88402.shtml)
-- 2026-06-30 02:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/3645409.shtml)
-- 2026-06-30 02:58 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/15968038594.shtml)
+- 2026-06-30 02:55 - [勇敢的心第二部](https://www.share.minike.top/Article/details/90364.shtml)
+- 2026-06-30 03:05 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/70152701.shtml)
+- 2026-06-30 02:57 - [第一炉香](https://www.blog.minike.top/Article/details/760811113.shtml)
+- 2026-06-30 03:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/5556487773.shtml)
+- 2026-06-30 03:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/0653984656.shtml)
+- 2026-06-30 02:59 - [TOP Prada](http://www.share.minike.top/Article/details/976598615.shtml)
+- 2026-06-30 03:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/156670.shtml)
+- 2026-06-30 03:10 - [流金岁月](https://www.share.minike.top/Article/details/28054053359.shtml)
+- 2026-06-30 03:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/778490.shtml)
+- 2026-06-30 03:16 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/082989221.shtml)
+- 2026-06-30 02:54 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/55694236.shtml)
+- 2026-06-30 02:55 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/71594.shtml)
+- 2026-06-30 03:07 - [《贺子珍》](https://www.blog.minike.top/Article/details/50376.shtml)
+- 2026-06-30 02:49 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/08878067.shtml)
+- 2026-06-30 03:14 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/8038286964.shtml)

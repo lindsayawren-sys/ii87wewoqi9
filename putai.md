@@ -1,56 +1,57 @@
-# 3000亿元的大时代，公募如何构建FOF的护城河？
+# 个人办事，不只“能办”还要“好办、易办”
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-来源：界面新闻 作者：微澜 3000亿时代公募FOF的机遇与挑战：构建护城河，拥抱多资产时代 今年以来，受中东局势的影响，全球股市呈现高位震荡，以黄金、白银等贵金属为代表的避险资产也先冲高后回落。截至4月2日，今年以来上证指数跌幅为0.51%，沪深300指数跌幅为2.24%。 在市场的剧烈波动中，以公募FOF为代表的稳健类资产成为投资者的首选。公募FOF产品数量稳定上升，规模也
+各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？各地又有哪些
 
 ## 正文
 
-来源：界面新闻 作者：微澜 3000亿时代公募FOF的机遇与挑战：构建护城河，拥抱多资产时代 今年以来，受中东局势的影响，全球股市呈现高位震荡，以黄金、白银等贵金属为代表的避险资产也先冲高后回落。
+各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。
 
-截至4月2日，今年以来上证指数跌幅为0.51%，沪深300指数跌幅为2.24%。
+又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？
 
-在市场的剧烈波动中，以公募FOF为代表的稳健类资产成为投资者的首选。
+各地又有哪些改革机制、创新举措？
 
-公募FOF产品数量稳定上升，规模也创下2022年以来的新高。
+近期，本报记者探访内蒙古、山东、云南等地，看各地如何优化政务服务，推动落实“高效办成一件事”，不断增强群众获得感、幸福感。
 
-今年以来，公募FOF基金发行热度持续升温，目前已完成募集的49只FOF合计募集规模为674亿元，FOF总规模突破3000亿元。
+老龄补贴申领—— 一张表单，实现一次申请、一网通办 “您好，请问老龄补贴申领在哪办理？
 
-在公募FOF发展的新阶段，从选基金到选资产，多资产策略FOF正成为市场新的主流方向。
+”内蒙古自治区乌海市海勃湾区政务服务中心办事大厅内，61岁的居民刘桂兰向办事大厅工作人员询问。
 
-FOF规模创历史新高 2025年，伴随着权益市场的回暖，公募FOF基金市场呈现显著复苏，产品数量稳步增长。
+“阿姨，咱们现在直接在手机上就能办。
 
-截至2025年末，全市场共有549只公募FOF基金（不同份额合并计算），合计规模2441.88亿元。
+”办事大厅负责人李倩向刘桂兰耐心解释，并帮助她在手机上搜索“海区e家”微信小程序，找到“补贴申请”板块里的“老龄补贴”，再指导她输入姓名、身份证号和住址进行登录。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 03:06 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 03:01 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 03:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 02:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 03:02 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:58 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 03:11 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 02:43 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 03:05 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 02:56 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 03:03 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 03:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 03:09 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 02:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 03:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 03:07 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:04 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 02:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 03:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:52 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/14473.shtml)
-- 2026-06-30 02:56 - [明星大侦探第一季](http://www.share.minike.top/Article/details/6251359815.shtml)
-- 2026-06-30 02:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/5509796.shtml)
-- 2026-06-30 02:53 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/4130137274.shtml)
-- 2026-06-30 02:45 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/93051.shtml)
-- 2026-06-30 02:56 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/05758.shtml)
-- 2026-06-30 03:00 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/946057.shtml)
-- 2026-06-30 03:00 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/217630336.shtml)
-- 2026-06-30 03:09 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/770938.shtml)
-- 2026-06-30 02:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/95167860611.shtml)
-- 2026-06-30 03:04 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/865021.shtml)
-- 2026-06-30 02:54 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/622151.shtml)
-- 2026-06-30 02:57 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/537153.shtml)
-- 2026-06-30 03:09 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/99565593938.shtml)
-- 2026-06-30 02:52 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/15196723525.shtml)
+- 2026-06-30 02:51 - [千香](https://www.share.minike.top/Article/details/69306556.shtml)
+- 2026-06-30 02:54 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/7495992395.shtml)
+- 2026-06-30 02:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/808367927.shtml)
+- 2026-06-30 03:14 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/25372729.shtml)
+- 2026-06-30 03:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/15418668529.shtml)
+- 2026-06-30 02:59 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/456555938.shtml)
+- 2026-06-30 02:54 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/58933.shtml)
+- 2026-06-30 03:01 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/225567128000.shtml)
+- 2026-06-30 02:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/4304649.shtml)
+- 2026-06-30 02:52 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/97366.shtml)
+- 2026-06-30 02:52 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/108777.shtml)
+- 2026-06-30 03:04 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/072501.shtml)
+- 2026-06-30 03:04 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/636477132365.shtml)
+- 2026-06-30 03:11 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/9067776698.shtml)
+- 2026-06-30 02:58 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/81547251.shtml)

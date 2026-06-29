@@ -1,49 +1,56 @@
-# 蓝黛科技：公司完成了从燃油乘用车领域向新能源汽车、商用车领域、非道路机械等领域的扩展
+# 糖果公司阿麦斯赴港IPO：超七成收入来自海外，上市前突击十倍分红
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-证券日报网4月14日讯，蓝黛科技在接受调研者提问时表示，公司贯彻“深挖内功、外拓市场”策略，凭借在动力传动领域多年积累的技术经验，并借助客户、区位、质量、积极的市场策略等优势，持续拓展产品品类和市场。从产品分类方面，公司产品实现了从汽车变速器总成及零部件系列向新能源减速器及新能源传动系统零部件、汽车发动机平衡轴总成及零部件、工程机械产品类拓展；从产品应用方面，公司完成了从燃油乘
+近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。自
 
 ## 正文
 
-证券日报网4月14日讯，蓝黛科技在接受调研者提问时表示，公司贯彻“深挖内功、外拓市场”策略，凭借在动力传动领域多年积累的技术经验，并借助客户、区位、质量、积极的市场策略等优势，持续拓展产品品类和市场。
+近日，糖果公司阿麦斯食品（集团）股份有限公司（下称“阿麦斯”）向港交所正式递交上市申请书。
 
-从产品分类方面，公司产品实现了从汽车变速器总成及零部件系列向新能源减速器及新能源传动系统零部件、汽车发动机平衡轴总成及零部件、工程机械产品类拓展；从产品应用方面，公司完成了从燃油乘用车领域向新能源汽车、商用车领域、非道路机械等领域的扩展。
+美银证券（BofA Securities）、招商证券国际及摩根大通担任联席保荐人。
 
-2025年度具体经营管理情况请参见公司于2026年3月30日披露的2025年年度报告。
+这家起步于深圳的糖果企业，是一家主打创意糖果与营养软糖的中国食品企业，旗下拥有“阿麦斯”“贝欧宝”两大自有品牌。
+
+按2025年零售额计，弗若斯特沙利文数据显示，阿麦斯为最大的中国糖果公司、全球第五大软糖公司。
+
+自有品牌收入占比超七成这家公司的前身是2004年9月在深圳注册成立的深圳市金多多食品有限公司，2026年3月改制为股份有限公司，并正式更名为阿麦斯食品（集团）股份有限公司。
+
+从阿麦斯的发展来看，其最初是依托广交会等平台做糖果外贸代工，后来为与国内同行进行差异化竞争开启自主品牌并进军欧美中高端市场。
+
+阿麦斯联合创始人、董事长马恩多曾在受访时回忆，公司创业之初发展重心集中于亚洲与非洲市场，主打中低端糖果贸易。
+
+彼时的金多多尚未建立生产设施，而是采用OEM（原始设备制造商）模式，通过广交会等交易平台获取订单，随后将产品的制造任务外包给第三方生产厂家。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 03:01 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 02:57 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 02:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 02:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 02:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 02:57 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 03:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 02:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 02:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 02:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 03:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 03:08 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 03:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 02:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 03:11 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 03:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 03:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 02:50 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 03:00 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/4452453.shtml)
-- 2026-06-30 03:03 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/4884846.shtml)
-- 2026-06-30 02:59 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/7127155956.shtml)
-- 2026-06-30 02:54 - [沙丘](https://www.blog.minike.top/Article/details/99518312.shtml)
-- 2026-06-30 02:44 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/03162.shtml)
-- 2026-06-30 02:53 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/79357801949.shtml)
-- 2026-06-30 03:04 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/8962200890.shtml)
-- 2026-06-30 03:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/135218592.shtml)
-- 2026-06-30 02:45 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/18501604966.shtml)
-- 2026-06-30 03:05 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/328477262.shtml)
-- 2026-06-30 02:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/94220636315.shtml)
-- 2026-06-30 02:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/742378.shtml)
-- 2026-06-30 02:56 - [日本反击率先破门](https://www.blog.minike.top/Article/details/6530390.shtml)
-- 2026-06-30 03:02 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/44965229.shtml)
-- 2026-06-30 02:54 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/918153.shtml)
+- 2026-06-30 02:49 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/96976909.shtml)
+- 2026-06-30 03:08 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/5376432.shtml)
+- 2026-06-30 02:53 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/009829.shtml)
+- 2026-06-30 02:49 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/0129680691.shtml)
+- 2026-06-30 03:09 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/528155117.shtml)
+- 2026-06-30 02:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/5984040008.shtml)
+- 2026-06-30 03:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/621275785521.shtml)
+- 2026-06-30 02:53 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/30931384.shtml)
+- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/0092251675.shtml)
+- 2026-06-30 02:57 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/55619694597.shtml)
+- 2026-06-30 03:02 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/15214.shtml)
+- 2026-06-30 03:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/7969605.shtml)
+- 2026-06-30 02:58 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/727556.shtml)
+- 2026-06-30 03:04 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/267523.shtml)
+- 2026-06-30 02:59 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/8353941.shtml)

@@ -1,50 +1,59 @@
-# 我国将健全药品价格形成机制
+# 光大期货：5月8日软商品日报
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-新华社权威快报｜我国将健全药品价格形成机制 国务院办公厅4月14日发布《关于健全药品价格形成机制的若干意见》，提出14条举措，包括优化创新药等新上市药品首发价格机制、发挥医保支付标准对药品价格形成的引导作用、引导药店合理制定药品零售价格、强化短缺药保供稳价等。 意见要求加强药品价格治理，提出实行药品价格风险预警、健全药品价格风险处置制度、防范非理性竞价中标影响供应、严惩药品和原
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨
 
 ## 正文
 
-新华社权威快报｜我国将健全药品价格形成机制 国务院办公厅4月14日发布《关于健全药品价格形成机制的若干意见》，提出14条举措，包括优化创新药等新上市药品首发价格机制、发挥医保支付标准对药品价格形成的引导作用、引导药店合理制定药品零售价格、强化短缺药保供稳价等。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，据印度糖厂协会（ISMA）数据，截至4月30日，印度2025/26榨季剩余开榨糖厂5家，同比减少14家；累计产糖2752.8万吨，同比增加187.9万吨。
 
-意见要求加强药品价格治理，提出实行药品价格风险预警、健全药品价格风险处置制度、防范非理性竞价中标影响供应、严惩药品和原辅料生产经营领域以缺逼涨等违法违规行为、加强医药领域全链条穿透式审计监督、建立药品医保价值评估制度等针对性措施，引导药品价格运行在合理区间。
+现货报价方面，广西制糖集团报价区间为5340~5420元/吨，部分调整10元/吨，涨跌不一；云南制糖集团报价5150~5220元/吨，下调10元/吨；加工糖厂主流报价区间为5620~5880元/吨，少数上调30~50元/吨。
 
-记者：彭韵佳、徐鹏航 海报制作：彭韵佳 新华社国内部出品
+近几日原糖紧跟原油走势波动，宽幅震荡，国内现货销售进度一般，多空分歧加剧，两者都有诸多理由，预计震荡延续短期略偏强，关注4月产销数据。
+
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉下跌1.61%，报收82.7美分/磅，郑棉主力合约环比下降1.04%，报收16640元/吨，主力合约持仓环比增加15297手至84.61万手，棉花3128B现货价格指数17760元/吨，较前一日下降60元/吨。
+
+国际市场方面，近期原油价格波动较大，价格环比下降，对美棉价格支撑减弱。
+
+天气方面，干旱仍然偏高，但我们认为美棉价格已经体现，警惕后续干旱程度下降出现的预期差。
+
+国内市场方面，近期郑棉期价小幅回调，持仓环比增加。
+
+预期本年度末期末库存偏低以及下一年度减产是近期主要驱动，但是近期棉花价格涨幅大于棉纱，挤压纺企生产利润，后续需求可持续性将被考验。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 03:01 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 02:42 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 02:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 03:05 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 02:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 02:57 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:42 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 02:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 02:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 02:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 02:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 03:00 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 03:13 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 02:56 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 03:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 03:07 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:04 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 03:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 03:07 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 03:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 03:01 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 02:50 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 02:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 03:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/46604755.shtml)
-- 2026-06-30 02:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/14729604.shtml)
-- 2026-06-30 02:47 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/0483191.shtml)
-- 2026-06-30 02:51 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/919306753398.shtml)
-- 2026-06-30 02:51 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/40794895291.shtml)
-- 2026-06-30 03:11 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/485650334.shtml)
-- 2026-06-30 02:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/76453.shtml)
-- 2026-06-30 03:11 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/649269.shtml)
-- 2026-06-30 02:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/47397621517.shtml)
-- 2026-06-30 02:57 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/562367054353.shtml)
-- 2026-06-30 02:49 - [扬名立万](http://www.share.kurohicncr.top/Article/details/523024371767.shtml)
-- 2026-06-30 02:49 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/019715199.shtml)
-- 2026-06-30 02:57 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5213160.shtml)
-- 2026-06-30 03:03 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/467365.shtml)
-- 2026-06-30 02:48 - [85花告别古偶](https://www.share.minike.top/Article/details/70974.shtml)
+- 2026-06-30 03:04 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/51996.shtml)
+- 2026-06-30 02:59 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/94254.shtml)
+- 2026-06-30 03:07 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/239187.shtml)
+- 2026-06-30 02:53 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/71207370662.shtml)
+- 2026-06-30 03:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/809133068863.shtml)
+- 2026-06-30 03:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/2087753687.shtml)
+- 2026-06-30 02:55 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/78971850419.shtml)
+- 2026-06-30 03:06 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/164842.shtml)
+- 2026-06-30 03:11 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/717630309.shtml)
+- 2026-06-30 02:59 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/93050.shtml)
+- 2026-06-30 03:14 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/618717.shtml)
+- 2026-06-30 02:55 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/46780485.shtml)
+- 2026-06-30 02:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/5315076.shtml)
+- 2026-06-30 02:55 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/147982844612.shtml)
+- 2026-06-30 03:04 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/4002939.shtml)

@@ -1,60 +1,52 @@
-# 中国人民银行缩量续做 6个月期买断式逆回购
+# 中国汽车工业协会：网传“新能源车企因锁电问题被约谈、立案”为不实信息
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 刘 琪 4月14日，中国人民银行发布公开市场买断式逆回购招标公告。公告显示，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天）。 本月6个月期买断式逆回购到期规模为6000亿元，开展上述操作
+记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。 中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。 同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。
 
-本报记者 刘 琪 4月14日，中国人民银行发布公开市场买断式逆回购招标公告。
+中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。
 
-公告显示，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天）。
+同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知情权与选择权，并建立畅通高效的售后沟通渠道，积极处理锁电相关的投诉争议，用诚信经营守护品牌口碑。
 
-本月6个月期买断式逆回购到期规模为6000亿元，开展上述操作后，6个月期买断式逆回购实现净回笼1000亿元。
-
-此外，中国人民银行在4月7日已开展了8000亿元3个月期买断式逆回购操作，对冲到期的11000亿元3个月期买断式逆回购后实现净回笼3000亿元。
-
-招联首席经济学家董希淼在接受《证券日报》记者采访时表示，本月买断式逆回购缩量续做，主要是由于市场流动性充裕。
-
-近期DR001（银行间市场隔夜质押式回购加权平均利率）持续在1.2%至1.25%低位运行，远低于政策利率，反映出当前市场流动性处于充裕状态。
-
-“缩量操作的核心目的是引导主要市场利率从过度偏低水平逐步回归政策利率附近，避免市场形成过度宽松的单边预期。
+(总台央视记者 王世玉 罗宏进)
 
 ## 相关推荐
 
-- 2026-06-30 02:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 03:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:58 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 02:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 03:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 02:51 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 02:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 03:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 03:11 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 03:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 02:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 03:06 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 03:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 03:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 03:14 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 03:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 02:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 03:12 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 03:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 03:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 03:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 03:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 03:11 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 03:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 02:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:51 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/185476.shtml)
-- 2026-06-30 02:47 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/446223019.shtml)
-- 2026-06-30 02:46 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/664478463.shtml)
-- 2026-06-30 02:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/048015596404.shtml)
-- 2026-06-30 02:47 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/46852422976.shtml)
-- 2026-06-30 03:03 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/5157103.shtml)
-- 2026-06-30 02:55 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/90903476.shtml)
-- 2026-06-30 02:49 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/60924.shtml)
-- 2026-06-30 03:06 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/6144460540.shtml)
-- 2026-06-30 03:06 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/5755141.shtml)
-- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/683228.shtml)
-- 2026-06-30 02:43 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/7736165108.shtml)
-- 2026-06-30 02:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/8689593.shtml)
-- 2026-06-30 03:03 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/84862405.shtml)
-- 2026-06-30 03:00 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/050466.shtml)
+- 2026-06-30 03:03 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/63134.shtml)
+- 2026-06-30 03:06 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/7134302.shtml)
+- 2026-06-30 02:56 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/41070.shtml)
+- 2026-06-30 03:11 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/5879302.shtml)
+- 2026-06-30 02:51 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/6048862635.shtml)
+- 2026-06-30 03:02 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/48053.shtml)
+- 2026-06-30 03:16 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/7944129.shtml)
+- 2026-06-30 03:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/091360632257.shtml)
+- 2026-06-30 02:54 - [斗破苍穹](https://www.share.minike.top/Article/details/208903659135.shtml)
+- 2026-06-30 03:13 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/121522802552.shtml)
+- 2026-06-30 02:51 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/686423614.shtml)
+- 2026-06-30 02:55 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/569950508.shtml)
+- 2026-06-30 03:08 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/050226.shtml)
+- 2026-06-30 03:04 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/22006.shtml)
+- 2026-06-30 02:52 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/7734668440.shtml)

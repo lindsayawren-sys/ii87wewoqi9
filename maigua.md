@@ -1,53 +1,58 @@
-# 英国宣布向乌克兰提供大规模无人机援助
+# 中国首家电影音乐专题展馆在厦门正式对外开放
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社伦敦4月15日电(记者 欧阳开宇)英国政府15日发布消息称，2026年将向乌克兰交付至少12万架各型无人机，相关装备已于本月启动交付。 英国政府称，这批无人机覆盖远程打击、情报侦察、后勤运输及海上作战等多类经战场验证的系统，将显著提升乌军在相关冲突中的防御与反击能力。 英国国防大臣希利表示，无人机已成为俄乌战场核心装备，近期俄方针对乌方的无人机攻击行动频次有所上升，此次大
+中新网厦门5月8日电 (吴冠标)中国首家电影音乐专题展馆——鼓浪屿·中国电影音乐馆8日在厦门正式对外开放。 该馆位于厦门鼓浪屿美国领事馆旧址，由鼓浪屿管委会与中国电影资料馆联合共建。这座建筑于1929年建成，是鼓浪屿世界文化遗产构成要素之一，这也是该建筑修缮活化后首次正式对外开放。 中国电影资料馆多媒体部典藏科负责人杜丽华介绍，鼓浪屿·中国电影音乐馆是一座“可观看、可聆听、可感
 
 ## 正文
 
-中新社伦敦4月15日电(记者 欧阳开宇)英国政府15日发布消息称，2026年将向乌克兰交付至少12万架各型无人机，相关装备已于本月启动交付。
+中新网厦门5月8日电 (吴冠标)中国首家电影音乐专题展馆——鼓浪屿·中国电影音乐馆8日在厦门正式对外开放。
 
-英国政府称，这批无人机覆盖远程打击、情报侦察、后勤运输及海上作战等多类经战场验证的系统，将显著提升乌军在相关冲突中的防御与反击能力。
+该馆位于厦门鼓浪屿美国领事馆旧址，由鼓浪屿管委会与中国电影资料馆联合共建。
 
-英国国防大臣希利表示，无人机已成为俄乌战场核心装备，近期俄方针对乌方的无人机攻击行动频次有所上升，此次大规模援助将助力乌方“有效反制”。
+这座建筑于1929年建成，是鼓浪屿世界文化遗产构成要素之一，这也是该建筑修缮活化后首次正式对外开放。
 
-英国政府表示，此次无人机援助纳入本年度对乌军事支持框架，同步配套的还有大批各类弹药及防空导弹。
+中国电影资料馆多媒体部典藏科负责人杜丽华介绍，鼓浪屿·中国电影音乐馆是一座“可观看、可聆听、可感受”的特色展馆，把中国电影的经典旋律汇聚到“音乐之岛”鼓浪屿。
 
-英方透露，此次援助订单多数投向本国无人机企业，将在推动对乌援助的同时，带动英国本土军工产业就业与技术创新。
+据悉，展馆共设16个展厅，铺展出中国电影音乐百年发展长卷，包含初试啼声的旋律、从无声到有声、民族风格的交响、走向世界的乐章等专题空间，荟萃百余部经典电影音乐作品，从怀旧老片到港台佳作、华语国际大片，各类电影金曲满载几代人的回忆与情怀。
 
-(完)
+展馆的展品中珍品云集，包括中国最早的电影音乐刊物《艺声：电影与音乐》1935年创刊号、中国首部斩获国际荣誉的电影《渔光曲》同名主题曲红色片芯黑胶试听片等。
+
+在互动方面，展馆则设置了唱片造型的圆盘互动点歌装置及复古造型影音听筒，按下按钮或拿起听筒，《橄榄树》《男儿当自强》《一生所爱》《牧羊曲》等经典电影音乐便萦绕耳畔。
+
+更有AI生成歌曲互动体验——融合经典电影片段，不到10秒即可解锁专属影音创作乐趣。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 03:06 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 03:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 03:08 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 02:53 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 03:10 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 02:56 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 02:55 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 02:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 02:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 03:06 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 02:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 02:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 03:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 02:59 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 02:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 02:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 02:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 02:54 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 03:06 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 03:07 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/95003.shtml)
-- 2026-06-30 03:11 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/4095004826.shtml)
-- 2026-06-30 02:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/395517492919.shtml)
-- 2026-06-30 03:05 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/021684370.shtml)
-- 2026-06-30 02:55 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/4675452187.shtml)
-- 2026-06-30 03:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/371443812161.shtml)
-- 2026-06-30 03:02 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/73386892.shtml)
-- 2026-06-30 02:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/35510707.shtml)
-- 2026-06-30 02:57 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/271435297.shtml)
-- 2026-06-30 02:43 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/9591684.shtml)
-- 2026-06-30 02:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/321231327622.shtml)
-- 2026-06-30 02:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/75981511073.shtml)
-- 2026-06-30 02:53 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/730237747.shtml)
-- 2026-06-30 02:43 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/686612870.shtml)
-- 2026-06-30 02:52 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/6512353.shtml)
+- 2026-06-30 03:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/09223973.shtml)
+- 2026-06-30 03:05 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/47466453.shtml)
+- 2026-06-30 03:06 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/91180972.shtml)
+- 2026-06-30 03:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/4132592.shtml)
+- 2026-06-30 03:05 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/99069875412.shtml)
+- 2026-06-30 03:05 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/28255199.shtml)
+- 2026-06-30 03:02 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/85052708032.shtml)
+- 2026-06-30 03:11 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/25082722259.shtml)
+- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/650193563378.shtml)
+- 2026-06-30 03:01 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/10751178211.shtml)
+- 2026-06-30 03:03 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/409922672722.shtml)
+- 2026-06-30 02:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/50081965535.shtml)
+- 2026-06-30 03:11 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/4345399.shtml)
+- 2026-06-30 02:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/851781.shtml)
+- 2026-06-30 03:02 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/035198.shtml)

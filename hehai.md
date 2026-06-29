@@ -1,60 +1,57 @@
-# 李强同西班牙首相桑切斯会谈
+# （近观中国）政绩观｜习近平：政策好不好，要看乡亲们是哭还是笑
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 4月14日下午，中国国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。 李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。越是形势变乱交织，中西两国越要加强务
+中新社北京5月9日电 题：习近平：政策好不好，要看乡亲们是哭还是笑 中新社记者 国璇 “党中央制定的政策好不好，要看乡亲们是哭还是笑。要是笑，就说明政策好。要是有人哭，我们就要注意，需要改正的就要改正，需要完善的就要完善。” 2015年，中共中央总书记、国家主席、中央军委主席习近平在贵州调研时强调，“群众拥护不拥护是我们检验工作的重要标准”，道出了为民造福是最大政绩的根本遵循。
 
 ## 正文
 
-中新社北京4月14日电 4月14日下午，中国国务院总理李强在北京人民大会堂同来华进行正式访问的西班牙首相桑切斯举行会谈。
+中新社北京5月9日电 题：习近平：政策好不好，要看乡亲们是哭还是笑 中新社记者 国璇 “党中央制定的政策好不好，要看乡亲们是哭还是笑。
 
-李强表示，当前，国际形势的“变”和“乱”更加突出，单边主义、保护主义上升，但同时求合作、促发展的力量也在不断壮大。
+要是笑，就说明政策好。
 
-中国和西班牙作为世界主要经济体，共同维护多边主义和自由贸易，坚定推动开放合作，为两国乃至全球发展增添了动能。
+要是有人哭，我们就要注意，需要改正的就要改正，需要完善的就要完善。
 
-越是形势变乱交织，中西两国越要加强务实合作，相互赋能、相互成就。
+” 2015年，中共中央总书记、国家主席、中央军委主席习近平在贵州调研时强调，“群众拥护不拥护是我们检验工作的重要标准”，道出了为民造福是最大政绩的根本遵循。
 
-今天上午，习近平主席同首相先生举行会晤，就深化两国关系擘画了蓝图。
+为什么人的问题，是政绩观的首要问题，检验着一个政党的执政宗旨。
 
-中方愿同西班牙进一步对接发展战略，推动双方全方位合作不断走深走实，实现更高水平的互利共赢。
+现实中，一些干部脱离群众、脱离实际，盲目决策、急功近利，“为人民服务”只停留在口号上，搞华而不实、劳民伤财的“形象工程”“政绩工程”。
 
-李强指出，中方愿同西班牙更好发挥经济互补优势，深挖合作潜力，推动两国贸易扩容提质、平衡发展。
+这里面有短期利益与长期利益、局部利益与全局利益等关系问题，但归根结底是政绩观发生扭曲和偏差。
 
-中方愿进口西班牙更多优质产品，鼓励更多有实力的中资企业赴西班牙投资。
+习近平曾指出，“以百姓心为心，与人民同呼吸、共命运、心连心，是党的初心，也是党的恒心”。
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 02:58 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 03:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 03:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 02:52 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 02:45 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 02:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:50 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 02:49 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 02:53 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 02:42 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 03:11 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 02:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 03:03 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 02:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 03:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 03:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:04 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 03:16 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 02:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/2342993.shtml)
-- 2026-06-30 03:07 - [美人鱼](https://www.share.minike.top/Article/details/6012441955.shtml)
-- 2026-06-30 03:11 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/638533750.shtml)
-- 2026-06-30 03:02 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/477955769353.shtml)
-- 2026-06-30 03:03 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/73595418940.shtml)
-- 2026-06-30 02:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/9553693.shtml)
-- 2026-06-30 02:57 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/868829389086.shtml)
-- 2026-06-30 02:45 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/25681158458.shtml)
-- 2026-06-30 03:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/937200138859.shtml)
-- 2026-06-30 03:04 - [周生如故](http://www.blog.kurohicncr.top/Article/details/630281977133.shtml)
-- 2026-06-30 02:47 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/698492792176.shtml)
-- 2026-06-30 02:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/3249851556.shtml)
-- 2026-06-30 03:09 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/56126.shtml)
-- 2026-06-30 02:42 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/90424.shtml)
-- 2026-06-30 02:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/35722.shtml)
+- 2026-06-30 03:14 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/930944.shtml)
+- 2026-06-30 03:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/73935.shtml)
+- 2026-06-30 03:09 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/550921572.shtml)
+- 2026-06-30 02:56 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/08624046.shtml)
+- 2026-06-30 03:10 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/01253.shtml)
+- 2026-06-30 02:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/942453277334.shtml)
+- 2026-06-30 02:50 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/12274.shtml)
+- 2026-06-30 03:17 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/5446410.shtml)
+- 2026-06-30 03:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/087843556976.shtml)
+- 2026-06-30 03:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/2474320.shtml)
+- 2026-06-30 03:04 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/77039.shtml)
+- 2026-06-30 03:09 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/375791.shtml)
+- 2026-06-30 03:15 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/76352116.shtml)
+- 2026-06-30 02:53 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/523017963181.shtml)
+- 2026-06-30 03:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/529310000870.shtml)

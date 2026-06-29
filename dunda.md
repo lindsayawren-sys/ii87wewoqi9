@@ -1,59 +1,58 @@
-# 觅瑞上市首份年报“难产”市值已腰斩 多个新项目在半年内集中取消 1480万美元预付款逾六成被退回
+# 树立和践行正确政绩观 招商引资由拼政策转向拼服务
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-2026年4月1日上午9时，上市尚不满一年的肿瘤早筛明星公司觅瑞集团（02629.HK）因未能如期刊发2025年度经审核年报，被港交所正式停牌。停牌前一日，公司总市值约37亿港元，较上市初期逾80亿港元缩水过半，已跌破港股通准入门槛。 次日，觅瑞披露了停牌背后更令市场忧心的细节——核数师毕马威在年报审核中发现14笔、总额约1480万美元的预付款事项，其中高达约950万美元已被相
+焦点访谈｜树立和践行正确政绩观 招商引资由拼政策转向拼服务 央视网消息(焦点访谈)：招商引资，一直以来是地方政府发展经济的关键抓手。但一段时间以来，一些地方片面追求本地局部利益，违规比拼税费、用地等各类政策优惠，使招商引资陷入盲目无序竞争的“内卷”。近年来，中央明确提出“规范地方政府经济促进行为，严禁违法违规给予政策优惠”。地方政府招商引资不能再比拼优惠政策，那还能比拼什么？
 
 ## 正文
 
-2026年4月1日上午9时，上市尚不满一年的肿瘤早筛明星公司觅瑞集团（02629.HK）因未能如期刊发2025年度经审核年报，被港交所正式停牌。
+焦点访谈｜树立和践行正确政绩观 招商引资由拼政策转向拼服务 央视网消息(焦点访谈)：招商引资，一直以来是地方政府发展经济的关键抓手。
 
-停牌前一日，公司总市值约37亿港元，较上市初期逾80亿港元缩水过半，已跌破港股通准入门槛。
+但一段时间以来，一些地方片面追求本地局部利益，违规比拼税费、用地等各类政策优惠，使招商引资陷入盲目无序竞争的“内卷”。
 
-次日，觅瑞披露了停牌背后更令市场忧心的细节——核数师毕马威在年报审核中发现14笔、总额约1480万美元的预付款事项，其中高达约950万美元已被相关服务方退还，占比超过64%。
+近年来，中央明确提出“规范地方政府经济促进行为，严禁违法违规给予政策优惠”。
 
-这一金额几乎相当于公司近四年预付款项总和的两倍（2022年至2024年，觅瑞预付款项及按金分别为396.86万、378.55万、349.49万美元），上市后预付款规模出现急剧膨胀。
+地方政府招商引资不能再比拼优惠政策，那还能比拼什么？
 
-事件经过：1480万美元预付款“快进快出”引审计关注 2026年3月31日是港股上市公司刊发年报的法定截止日。
+一大早，株洲高新区党工委的负责人来到位于湖南省株洲高新区的一家龙头企业的三期项目建设现场，现场协调解决项目建设中遇到的具体问题。
 
-当天，觅瑞公告称核数师毕马威需要更多时间评估公司向服务提供商及供应商支付的部分预付款，无法按期完成2025年度业绩审核。
+通过现场了解，原来是相邻企业地块地势比较高，他们已经建成的市政雨污管道需要从这家龙头企业三期地块穿过，接入附近的道路公用排水管网，这对企业三期项目的道路规划造成影响。
 
-根据港交所上市规则，未按期刊发经审核年报即强制停牌，若停牌持续超过18个月，将面临摘牌风险。
+通过协调，最后决定改变市政雨污管道埋设走向，这家龙头企业在地块边界让出2米绿化带用于政府新建市政雨污管道，两家企业共用排水。
 
-次日披露的细节令市场哗然：14笔预付款大多发生于2025年下半年，即觅瑞上市后不久，总价值约1480万美元。
+记者：“书记到现场来办公，雨污管道的问题解决了没有？
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 03:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 03:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 02:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 02:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 02:48 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 02:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 02:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 03:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 03:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 03:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 03:00 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 02:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 02:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 03:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 03:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 02:48 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 03:14 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:17 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:50 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:59 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 02:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/265066789.shtml)
-- 2026-06-30 03:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/18441248.shtml)
-- 2026-06-30 03:04 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/73011094671.shtml)
-- 2026-06-30 02:49 - [世界杯](http://www.share.kurohicncr.top/Article/details/99831360.shtml)
-- 2026-06-30 02:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/7608935332.shtml)
-- 2026-06-30 03:00 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/04348409578.shtml)
-- 2026-06-30 02:50 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/6819069.shtml)
-- 2026-06-30 02:45 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/581071.shtml)
-- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/30225.shtml)
-- 2026-06-30 03:02 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/39983995.shtml)
-- 2026-06-30 02:42 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/802480969445.shtml)
-- 2026-06-30 02:45 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/84949177.shtml)
-- 2026-06-30 02:50 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/568274912.shtml)
-- 2026-06-30 02:50 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/35241712.shtml)
-- 2026-06-30 02:54 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/4450013.shtml)
+- 2026-06-30 02:50 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/288484630.shtml)
+- 2026-06-30 03:04 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/604039230449.shtml)
+- 2026-06-30 03:08 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/14086.shtml)
+- 2026-06-30 03:11 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/580492378.shtml)
+- 2026-06-30 03:17 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/3698066.shtml)
+- 2026-06-30 02:55 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/148986638.shtml)
+- 2026-06-30 02:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/473795691756.shtml)
+- 2026-06-30 03:16 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/91731622.shtml)
+- 2026-06-30 03:00 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/844019299668.shtml)
+- 2026-06-30 03:00 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/478543387.shtml)
+- 2026-06-30 03:16 - [月亮](https://www.share.minike.top/Article/details/707168.shtml)
+- 2026-06-30 02:54 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/16762683314.shtml)
+- 2026-06-30 03:01 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/07507512.shtml)
+- 2026-06-30 02:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/9643284492.shtml)
+- 2026-06-30 02:50 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/229499588796.shtml)

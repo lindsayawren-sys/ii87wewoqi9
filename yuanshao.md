@@ -1,60 +1,60 @@
-# 马斯克的SpaceX新数据：星链成绝对核心
+# 视频 | 菲方滋扰中国科考船画面公开
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-一组全新的财务数据清晰地揭示，埃隆・马斯克（Elon Musk）旗下的 SpaceX 若想成功启动首次公开募股（IPO），其成败将完全取决于投资者是否认可其星链（Starlink）卫星互联网业务的增长潜力。 据《The Information》获取的此前未公开的财务数据显示，SpaceX 内部另外两大业务 —— 火箭发射与人工智能（AI）—— 目前均处于 “烧钱” 状态，其增长
+【环球时报-环球网报道 记者 樊巍】中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。其间，菲海岸警卫队1架岛人型机蓄意抵近滋扰。《环球时报》记者获取的视频显示，在向阳红33号船开展正常生态环境调查期间，一架菲律宾C-208公务机以低空盘旋的方式，试图干扰中方船只活动。 据《环球时报》记者了解，鲎藤礁位于中国南沙群岛礼乐滩盆地，
 
 ## 正文
 
-一组全新的财务数据清晰地揭示，埃隆・马斯克（Elon Musk）旗下的 SpaceX 若想成功启动首次公开募股（IPO），其成败将完全取决于投资者是否认可其星链（Starlink）卫星互联网业务的增长潜力。
+【环球时报-环球网报道 记者 樊巍】中国海警局新闻发言人姜略表示，5月6日，中方向阳红33号船位中国鲎藤礁附近海域开展正常生态环境调查。
 
-据《The Information》获取的此前未公开的财务数据显示，SpaceX 内部另外两大业务 —— 火箭发射与人工智能（AI）—— 目前均处于 “烧钱” 状态，其增长规模尚不足以支撑投资者为马斯克所期望的惊人估值买单。
+其间，菲海岸警卫队1架岛人型机蓄意抵近滋扰。
 
-数据显示，SpaceX 的星链互联网连接业务去年营收达 114 亿美元，同比增长 50%，占公司总销售额的 61%。
+《环球时报》记者获取的视频显示，在向阳红33号船开展正常生态环境调查期间，一架菲律宾C-208公务机以低空盘旋的方式，试图干扰中方船只活动。
 
-该业务线也是公司唯一实现现金盈利的板块。
+据《环球时报》记者了解，鲎藤礁位于中国南沙群岛礼乐滩盆地，该地区被认为具有丰富的油气资源。
 
-星链去年的息税折旧摊销前利润（含股权激励调整）为 72 亿美元，意味着其营收调整后 EBITDA 利润率高达 63%，这一数字较 2023 年的 41% 和 2024 年的 50% 实现了持续攀升。
+此前菲方曾多次组织船只非法位中国南沙群岛鲎藤礁邻近海域活动，试图侵权挑衅。
 
-与此同时，SpaceX 在新一代火箭研发及数据中心建设上的巨额投入，导致其航天与 AI 业务板块利润率持续下滑，且处于 “烧钱” 状态。
+此外，菲方还多次组织所谓的“渔民”在鲎藤礁邻近海域非法聚集。
 
-此前估值达1.25 万亿美元的 SpaceX 计划于今年 6 月上市，这有望成为史上规模最大的 IPO。
+对于菲方船只的非法行为，中国海警均依法依规采取必要管控措施，并查获了菲方布设的，危害当地生态以及海上航行安全的集鱼装置。
 
-今年 2 月，SpaceX 以 2500 亿美元的估值收购了马斯克拥有的 AI 公司 xAI。
+而此番向阳红33号船开展的生态环境调查则是保护鲎藤礁海域生态的常态措施，是按照国际法开展“正常活动”。
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 02:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:48 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 03:01 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 02:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 02:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 02:42 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 02:49 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 03:05 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 02:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 02:57 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:08 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 03:01 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 02:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 03:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 03:01 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 02:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 03:08 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:03 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 03:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 02:49 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 03:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 03:15 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 03:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 03:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 02:49 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 03:03 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 03:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/798509399.shtml)
-- 2026-06-30 03:10 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/623332.shtml)
-- 2026-06-30 03:08 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/62681283.shtml)
-- 2026-06-30 03:08 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/60399.shtml)
-- 2026-06-30 03:03 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/839750859.shtml)
-- 2026-06-30 02:58 - [TOP Prada](http://www.share.minike.top/Article/details/72215406876.shtml)
-- 2026-06-30 02:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/740353158844.shtml)
-- 2026-06-30 03:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/32883878389.shtml)
-- 2026-06-30 02:55 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/098347.shtml)
-- 2026-06-30 03:10 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/87079.shtml)
-- 2026-06-30 02:58 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/4880185332.shtml)
-- 2026-06-30 03:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/5102437777.shtml)
-- 2026-06-30 02:54 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/938808711718.shtml)
-- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/801200791.shtml)
-- 2026-06-30 02:44 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/294040595003.shtml)
+- 2026-06-30 03:15 - [斛珠夫人](http://www.share.minike.top/Article/details/43229810556.shtml)
+- 2026-06-30 02:59 - [内马尔替补](http://www.blog.minike.top/Article/details/887057185131.shtml)
+- 2026-06-30 02:53 - [送你一朵小红花](https://www.blog.minike.top/Article/details/8536407874.shtml)
+- 2026-06-30 02:53 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/86430157118.shtml)
+- 2026-06-30 03:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/878315060.shtml)
+- 2026-06-30 02:58 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/437746365128.shtml)
+- 2026-06-30 02:51 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/31726653273.shtml)
+- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/209191847922.shtml)
+- 2026-06-30 03:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/497127419178.shtml)
+- 2026-06-30 03:09 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/5039137.shtml)
+- 2026-06-30 03:14 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/4028364.shtml)
+- 2026-06-30 03:05 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/672749.shtml)
+- 2026-06-30 02:59 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/626028834.shtml)
+- 2026-06-30 02:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/64241756.shtml)
+- 2026-06-30 03:01 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/98434016483.shtml)

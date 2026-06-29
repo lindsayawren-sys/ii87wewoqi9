@@ -1,56 +1,61 @@
-# “真铜实料”四个字只能格力用？海信高管回怼格力
+# 猪周期拐点将至？华宝基金农牧渔ETF（159275）逆市飘红！券商高呼：产能加速去化，新一轮周期上行可期
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-格力和海信围绕“真铜实料”又起口水战。 4月14日，格力电器CMO朱磊在社交媒体上发文称，“在上海家博会上发现，海信空调在传播中开始直接使用‘真铜实料’这四个字，这四个字来自格力电器的原创。” 朱磊还称，“真铜实料格力造”不仅仅是一句广告语，不仅仅是概念，而是一个完整的标准。他进一步表示，产品仍然有电机绕组在使用铝线时，这样的品牌没有资格自称“真铜实料”。格力产品蒸发器铜管、冷
+农牧渔板块今日（5月8日）震荡盘整，全市场首只农牧渔ETF（159275）开盘后迅速拉升，而后略有回落，截至发稿，场内价格逆市涨0.21%。 成份股方面，农产品加工、动保、种植等板块部分个股涨幅居前。截至发稿，宏辉果蔬、星湖科技、众兴菌业等涨超2%，亚盛集团、海南橡胶、中水渔业等多股涨超1%。 国金证券指出，短期来看，生猪价格的低迷叠加政策驱动，行业产能去化有望进一步加速，新一
 
 ## 正文
 
-格力和海信围绕“真铜实料”又起口水战。
+农牧渔板块今日（5月8日）震荡盘整，全市场首只农牧渔ETF（159275）开盘后迅速拉升，而后略有回落，截至发稿，场内价格逆市涨0.21%。
 
-4月14日，格力电器CMO朱磊在社交媒体上发文称，“在上海家博会上发现，海信空调在传播中开始直接使用‘真铜实料’这四个字，这四个字来自格力电器的原创。
+成份股方面，农产品加工、动保、种植等板块部分个股涨幅居前。
 
-” 朱磊还称，“真铜实料格力造”不仅仅是一句广告语，不仅仅是概念，而是一个完整的标准。
+截至发稿，宏辉果蔬、星湖科技、众兴菌业等涨超2%，亚盛集团、海南橡胶、中水渔业等多股涨超1%。
 
-他进一步表示，产品仍然有电机绕组在使用铝线时，这样的品牌没有资格自称“真铜实料”。
+国金证券指出，短期来看，生猪价格的低迷叠加政策驱动，行业产能去化有望进一步加速，新一轮周期上行可期。
 
-格力产品蒸发器铜管、冷凝器铜管、风机电机绕组、压缩机电机绕组四大核心部件坚持真铜实料。
+中长期来看，生猪养殖行业依旧有较为优秀的中枢利润，且非洲猪瘟之后行业的快速扩张中，仍有大量企业是低质量扩充产能，行业成本方差依旧巨大，头部企业有充足的超额利润释放，建议优选低成本优质企业。
 
-澎湃新闻记者翻看朱磊此前的发言，他也曾贴出“真铜实料创维造”的宣传截图，称“抄得挺像的，下次别抄了”。
+天风证券认为，行业深度亏损、过冬压力突出，供给过剩下产能去化及加速逻辑持续兑现；反内卷使出栏弹性系统性收窄，建议关注资金充足、经营稳定、成本优秀的高质量“好”公司。
 
-4月15日，针对朱磊的言论，海信空气事业部品牌总监杨祥玺则发布视频回怼称“竟然狂到把一个形容词据为己有的程度”，并且说十年前包括海信、长虹在内的多家空调企业就已经强调要“真铜实料”。
+从估值方面来看，当前农牧渔板块估值水平仍处相对低位，当前或为板块较好配置时机。
 
-针对网络上热炒的多家企业参与的“铝代铜”自律公约，杨祥玺表示，真相是中国制冷学会以及各个企业的研发工程师们，在推进“十五五”国家重点研发计划中的“全铝换热器高耐腐技术及加工装备研发”过程中，担心成员企业之间口径不统一，阻碍研发人员对铝应用的研究进程，所以才在内部发起了行业自律倡议活动。
+数据显示，截至昨日（5月7日）收盘，全市场首只农牧渔ETF（159275）标的指数中证全指农牧渔指数市净率为2.5倍，位于近5年来25.2%分位点的低位，中长期配置性价比凸显。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 03:10 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 02:51 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 02:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 02:55 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 02:51 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 03:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 03:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 03:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 02:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 03:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 02:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 03:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:06 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 03:15 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 03:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 02:56 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 03:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 02:53 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 02:54 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 03:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 02:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 03:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 03:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/82487.shtml)
-- 2026-06-30 02:46 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/685004478.shtml)
-- 2026-06-30 02:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/82174.shtml)
-- 2026-06-30 02:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/14803530978.shtml)
-- 2026-06-30 03:07 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/6051275699.shtml)
-- 2026-06-30 03:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/05506212316.shtml)
-- 2026-06-30 02:56 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/1851090120.shtml)
-- 2026-06-30 03:03 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/32872.shtml)
-- 2026-06-30 02:57 - [刘念回应](http://www.blog.minike.top/Article/details/51117.shtml)
-- 2026-06-30 02:57 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/734633357749.shtml)
-- 2026-06-30 02:56 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/819719489079.shtml)
-- 2026-06-30 02:53 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/08774802.shtml)
-- 2026-06-30 02:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/696708.shtml)
-- 2026-06-30 03:05 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/9291294592.shtml)
-- 2026-06-30 02:49 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/6648118064.shtml)
+- 2026-06-30 03:05 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/31710469.shtml)
+- 2026-06-30 03:12 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/252782415.shtml)
+- 2026-06-30 02:52 - [勇敢的心第二部](http://www.share.minike.top/Article/details/50009012.shtml)
+- 2026-06-30 03:08 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/08906598756.shtml)
+- 2026-06-30 02:53 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/004995419182.shtml)
+- 2026-06-30 02:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/00056.shtml)
+- 2026-06-30 02:51 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/42763995963.shtml)
+- 2026-06-30 03:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/5796724.shtml)
+- 2026-06-30 03:14 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/419068812521.shtml)
+- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/28975526337.shtml)
+- 2026-06-30 03:11 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/1353794.shtml)
+- 2026-06-30 02:54 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1957178.shtml)
+- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/6713670.shtml)
+- 2026-06-30 03:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/19229144935.shtml)
+- 2026-06-30 02:53 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/04681365.shtml)

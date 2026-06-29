@@ -1,51 +1,51 @@
-# 中外记者齐聚 他们为什么选择上海？
+# 检察机关对东航原董事长刘绍勇涉嫌受贿案提起公诉
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 20:50 来源：中国新闻网 4月13日至14日，来自美国、俄罗斯、英国、法国、德国、瑞典、澳大利亚、巴西、日本、韩国、新加坡等多个国家和地区的近70名记者齐聚上海，他们走进这座开放、创新、包容的城市，近距离观察制度型开放、外资集聚、产业创新与全球联通的真实图景。 来自巴西UOL媒体集团记者潘内森分享，他很好奇为什么巴西企业会选择上海。 特斯拉
+中新网5月8日电 据最高人民检察院微博消息，中国东方航空集团有限公司原党组书记、董事长刘绍勇涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对刘绍勇作出逮捕决定，并指定由辽宁省沈阳市人民检察院审查起诉。近日，沈阳市人民检察院已向沈阳市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人刘绍勇享有的诉讼权利，并讯问了被告人，
 
 ## 正文
 
-发布时间：2026年04月14日 20:50 来源：中国新闻网 4月13日至14日，来自美国、俄罗斯、英国、法国、德国、瑞典、澳大利亚、巴西、日本、韩国、新加坡等多个国家和地区的近70名记者齐聚上海，他们走进这座开放、创新、包容的城市，近距离观察制度型开放、外资集聚、产业创新与全球联通的真实图景。
+中新网5月8日电 据最高人民检察院微博消息，中国东方航空集团有限公司原党组书记、董事长刘绍勇涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
 
-来自巴西UOL媒体集团记者潘内森分享，他很好奇为什么巴西企业会选择上海。
+最高人民检察院依法以涉嫌受贿罪对刘绍勇作出逮捕决定，并指定由辽宁省沈阳市人民检察院审查起诉。
 
-特斯拉公司副总裁、中国区总裁王昊也分享了特斯拉超级工厂为何选址上海。
+近日，沈阳市人民检察院已向沈阳市中级人民法院提起公诉。
 
-(李姝徵 娄瀚锟） 责任编辑：【罗攀】
+检察机关在审查起诉阶段，依法告知了被告人刘绍勇享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+
+检察机关起诉指控：被告人刘绍勇利用担任中国东方航空股份有限公司总经理，中国南方航空集团公司总经理兼中国南方航空股份有限公司董事长，中国东方航空集团公司(后更名为中国东方航空集团有限公司)总经理、董事长兼中国东方航空股份有限公司董事长等职务上的便利以及职权或者地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 03:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 03:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 02:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 02:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 02:56 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 02:56 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 02:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 02:58 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 02:48 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 02:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 02:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 03:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 03:02 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 03:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 03:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 02:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 03:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 02:57 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/07581.shtml)
-- 2026-06-30 02:52 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/382888.shtml)
-- 2026-06-30 02:57 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/5117980.shtml)
-- 2026-06-30 02:56 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/665290645598.shtml)
-- 2026-06-30 02:52 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/792376024035.shtml)
-- 2026-06-30 03:00 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1528046718.shtml)
-- 2026-06-30 02:48 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/16966.shtml)
-- 2026-06-30 02:52 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/208072.shtml)
-- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/96026338.shtml)
-- 2026-06-30 03:07 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/93600.shtml)
-- 2026-06-30 03:06 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/352005886506.shtml)
-- 2026-06-30 02:49 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/867916845.shtml)
-- 2026-06-30 02:58 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/5439006113.shtml)
-- 2026-06-30 02:51 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/411519051827.shtml)
-- 2026-06-30 02:58 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/00592607.shtml)
+- 2026-06-30 03:03 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/4669048.shtml)
+- 2026-06-30 03:15 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/44309990.shtml)
+- 2026-06-30 03:05 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/036440135.shtml)
+- 2026-06-30 03:11 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4987206.shtml)
+- 2026-06-30 03:05 - [美人鱼](https://www.blog.minike.top/Article/details/02246140.shtml)
+- 2026-06-30 03:05 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/69463252631.shtml)
+- 2026-06-30 03:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/627609879515.shtml)
+- 2026-06-30 03:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/62763101920.shtml)
+- 2026-06-30 02:53 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/1902655.shtml)
+- 2026-06-30 03:01 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/6587993.shtml)
+- 2026-06-30 03:11 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/101163176532.shtml)
+- 2026-06-30 03:04 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/55568.shtml)
+- 2026-06-30 03:00 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/25360017.shtml)
+- 2026-06-30 03:17 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/6785383.shtml)
+- 2026-06-30 02:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/57656930407.shtml)

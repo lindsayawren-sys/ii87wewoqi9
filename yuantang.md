@@ -1,56 +1,57 @@
-# 良品铺子三重危机叠加：股东减持、业绩预亏与控股股东债务困局
+# 突发，美军空袭多艘伊朗油轮！霍尔木兹海峡连续两日无大型商船通过！俄乌同意延长停火！A股震荡上行
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-4 月 13 日晚间，良品铺子发布股东减持股份计划公告，持股 18.16% 的第二大股东达永有限公司宣布，拟在公告披露15个交易日后的三个月内，通过集中竞价或大宗交易方式减持不超过公司总股本 3% 的股份。在公司基本面承压、控股股东债务风险凸显的关键节点，重要股东的减持计划，让昔日高端零食龙头的处境愈发艰难。 达永有限并非首次减持良品铺子股份。2019 年底，达永有限持股比例达
+来源：期货日报 截至5月8日收盘，纽约现货黄金涨0.63%，报4715.23美元/盎司，本周累计上涨2.19%。COMEX黄金期货涨0.35%，报4727.40美元/盎司，本周累计上涨1.78%。 纽约商品交易所6月交货的轻质原油期货价格收于95.42美元/桶，涨幅为0.64%；7月交货的伦敦布伦特原油期货价格收于101.29美元/桶，涨幅为1.23%。 道琼斯指数涨0.02%
 
 ## 正文
 
-4 月 13 日晚间，良品铺子发布股东减持股份计划公告，持股 18.16% 的第二大股东达永有限公司宣布，拟在公告披露15个交易日后的三个月内，通过集中竞价或大宗交易方式减持不超过公司总股本 3% 的股份。
+来源：期货日报 截至5月8日收盘，纽约现货黄金涨0.63%，报4715.23美元/盎司，本周累计上涨2.19%。
 
-在公司基本面承压、控股股东债务风险凸显的关键节点，重要股东的减持计划，让昔日高端零食龙头的处境愈发艰难。
+COMEX黄金期货涨0.35%，报4727.40美元/盎司，本周累计上涨1.78%。
 
-达永有限并非首次减持良品铺子股份。
+纽约商品交易所6月交货的轻质原油期货价格收于95.42美元/桶，涨幅为0.64%；7月交货的伦敦布伦特原油期货价格收于101.29美元/桶，涨幅为1.23%。
 
-2019 年底，达永有限持股比例达33.75%，为公司第二大股东；经过多年连续减持，截至 2025年9月底，其持股比例已降至 18.16%，期间累计套现金额过亿。
+道琼斯指数涨0.02%，标普500指数涨0.84%，纳斯达克指数涨1.68%。
 
-此次减持落地后，其持股规模将进一步收缩。
+标普500指数与纳斯达克指数录得连续第六周上涨，创2024年10月以来最长连涨周期，并创历史新高。
 
-业绩层面，良品铺子在 2025 年陷入持续亏损，且亏损幅度进一步扩大。
+个股方面，美光涨15.46%，英特尔涨13.86%，特斯拉涨4.02%，苹果涨1.99%，英伟达涨1.69%。
 
-根据公司发布的 2025 年年度业绩预告，预计全年归母净利润亏损 1.2 亿元至 1.6 亿元，扣非后净利润亏损1.5亿元至1.9亿元，亏损规模较上年同期有所扩大。
+消息面上，美国密歇根大学8日发布的初步调查数据显示，由于伊朗战事导致汽油价格飙升，通胀担忧上升，5月份美国消费者信心连续第三个月下滑。
 
-亏损主要来自经营调整与收益下滑的双重压力。
+调查显示，美国2026年5月份消费者信心指数初值为48.2，低于4月份的终值49.8，低于2025年5月份的终值52.2。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 02:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 02:43 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 02:45 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 03:08 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 02:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 02:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 03:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 03:08 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 02:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 03:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 02:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 03:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 03:06 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 03:15 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 03:07 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:03 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 03:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 02:54 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/49469463221.shtml)
-- 2026-06-30 02:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/107775619280.shtml)
-- 2026-06-30 03:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/405430.shtml)
-- 2026-06-30 03:01 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/247282152.shtml)
-- 2026-06-30 03:11 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/110989994.shtml)
-- 2026-06-30 03:06 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/938378242.shtml)
-- 2026-06-30 02:56 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/870543998695.shtml)
-- 2026-06-30 03:01 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/1605582.shtml)
-- 2026-06-30 02:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/4035806.shtml)
-- 2026-06-30 03:10 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/443495234082.shtml)
-- 2026-06-30 03:09 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/067667721.shtml)
-- 2026-06-30 02:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/82514531400.shtml)
-- 2026-06-30 02:52 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/4670867608.shtml)
-- 2026-06-30 02:47 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/683140417.shtml)
-- 2026-06-30 02:54 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/602488.shtml)
+- 2026-06-30 03:15 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/89299933.shtml)
+- 2026-06-30 03:05 - [女心理师](http://www.blog.minike.top/Article/details/500668086660.shtml)
+- 2026-06-30 03:01 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/85333311.shtml)
+- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/2422400.shtml)
+- 2026-06-30 03:06 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/5677536563.shtml)
+- 2026-06-30 02:50 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/87977328.shtml)
+- 2026-06-30 03:06 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/1402058.shtml)
+- 2026-06-30 03:01 - [美股](https://www.blog.kurohicncr.top/Article/details/428590.shtml)
+- 2026-06-30 03:15 - [美人鱼](http://www.blog.minike.top/Article/details/544743896284.shtml)
+- 2026-06-30 02:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/100785845808.shtml)
+- 2026-06-30 02:49 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/69006178.shtml)
+- 2026-06-30 03:12 - [千香](http://www.blog.minike.top/Article/details/224104.shtml)
+- 2026-06-30 02:55 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/3800681.shtml)
+- 2026-06-30 02:56 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/08885341.shtml)
+- 2026-06-30 03:16 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/94543903.shtml)

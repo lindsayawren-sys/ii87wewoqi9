@@ -1,52 +1,54 @@
-# 国际安徒生奖插画家奖获奖者蔡皋：荣誉属于我们那一代人
+# 福耀玻璃午前涨超3% 首季度毛利率表现超预期
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月15日 08:38 来源：中国新闻网 4月14日，湖南长沙。 2026年国际安徒生奖插画家奖获奖者蔡皋接受记者采访时坦言心情复杂，认为此奖并非个人专属，而是献给一代人。她感恩那个百废俱兴、全民阅读热情高涨的时代，当时业界积极投身书籍编撰，这段经历对其影响深远，给予她深远的创作支持。13日，2026年国际安徒生奖插画家奖在意大利博洛尼亚揭晓，中国绘本艺术
+福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。 长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借
 
 ## 正文
 
-发布时间：2026年04月15日 08:38 来源：中国新闻网 4月14日，湖南长沙。
+福耀玻璃（03606）午前涨超3%，截至发稿，股价上涨3.11%，现报64.75港元，成交额1.15亿港元。
 
-2026年国际安徒生奖插画家奖获奖者蔡皋接受记者采访时坦言心情复杂，认为此奖并非个人专属，而是献给一代人。
+长江证券研报指出，在26Q1全球汽车产销承压背景下，福耀玻璃Q1期间凭借高附加值玻璃占比提升及市占率持续提升，实现营业收入104.1亿元，同比增长5.1%，环比下降16.6%，收入增速表现持续超全球下游市场表现。
 
-她感恩那个百废俱兴、全民阅读热情高涨的时代，当时业界积极投身书籍编撰，这段经历对其影响深远，给予她深远的创作支持。
+26Q1海外天然气、电价、海运费等成本均有所上涨，公司凭借优秀的成本控制能力，加之国内纯碱、天然气成本下降，公司2026Q1毛利率达37.4%，同比提升2.0pct，环比增长0.3pct。
 
-13日，2026年国际安徒生奖插画家奖在意大利博洛尼亚揭晓，中国绘本艺术家蔡皋获奖，成为首位获此殊荣的中国艺术家。
+该行续指，公司汽玻盈利能力远超竞争对手，后者因玻璃业务盈利较差发展重心已经转移，通过深耕汽玻业务，公司全球份额有望持续提升。
 
-该奖被誉为 “儿童文学的诺贝尔奖”，每两年评选一次。
+公司拓展“一片玻璃”的边界，加强对玻璃智能、集成趋势的研究，持续推进铝饰件业务，铝饰件业务与汽车玻璃业务具有协同效应，长期发展空间巨大，将带来全新增量。
 
-(记者 杨华峰 制作 李盈） 责任编辑：【苏亦瑜】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 02:43 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 03:04 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 02:55 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 02:51 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 02:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:56 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 02:42 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 02:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 02:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 02:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 02:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 03:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:56 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 03:15 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 03:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:13 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 03:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 03:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 03:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 02:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 02:53 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/7274567.shtml)
-- 2026-06-30 03:05 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/242470465876.shtml)
-- 2026-06-30 03:06 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/336228391.shtml)
-- 2026-06-30 02:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/9782967.shtml)
-- 2026-06-30 03:07 - [刘念回应](http://www.blog.minike.top/Article/details/3297671.shtml)
-- 2026-06-30 02:53 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/88758053.shtml)
-- 2026-06-30 02:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/79969055.shtml)
-- 2026-06-30 02:50 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/441345362409.shtml)
-- 2026-06-30 03:03 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/588994.shtml)
-- 2026-06-30 03:08 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/81852.shtml)
-- 2026-06-30 02:48 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/968612.shtml)
-- 2026-06-30 03:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/98089351.shtml)
-- 2026-06-30 03:02 - [女心理师](http://www.blog.kurohicncr.top/Article/details/3657208.shtml)
-- 2026-06-30 03:06 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/1424547641.shtml)
-- 2026-06-30 03:01 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/3851033.shtml)
+- 2026-06-30 02:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/0701984347.shtml)
+- 2026-06-30 02:57 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/73105.shtml)
+- 2026-06-30 03:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/371806982166.shtml)
+- 2026-06-30 03:07 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/659737100.shtml)
+- 2026-06-30 02:57 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/6789426674.shtml)
+- 2026-06-30 02:54 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/3614097736.shtml)
+- 2026-06-30 03:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/94320618.shtml)
+- 2026-06-30 02:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/1274638736.shtml)
+- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/14059907549.shtml)
+- 2026-06-30 02:54 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/45102.shtml)
+- 2026-06-30 02:59 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/0247553.shtml)
+- 2026-06-30 03:07 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/126063894.shtml)
+- 2026-06-30 03:15 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/021478.shtml)
+- 2026-06-30 03:17 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/34170.shtml)
+- 2026-06-30 03:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/217134.shtml)

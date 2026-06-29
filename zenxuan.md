@@ -1,60 +1,61 @@
-# 包装成“高水平运动员”就能上名校？上海警方捣毁一升学诈骗团伙
+# 中国援尼泊尔医生在尼传授中医正骨手法
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网上海4月15日电 (记者 李姝徵)高考失利也能上“985”“211”大学，只要花钱包装成足球、篮球等群体体育项目高水平运动员，就能低分录取圆名校梦。这样的谎言竟然吸引了22名来自全国各地的家长投入共计900多万元。记者15日从上海警方获悉，近日，上海市公安局嘉定分局捣毁一个以“高水平运动队”规划入名校为幌子、实施招生诈骗的犯罪团伙，抓获黄某、杨某、蔡某、韩某等4名犯罪嫌疑
+还想用“双标定价”收割中国市场？国际足联该看看这些前车之鉴北方热力加码！今年首轮高温过程来袭，之后要一直热下去了吗？一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？为啥越来越多的人开始追求“活人感”？为什么有些人更容易上当？与学
 
 ## 正文
 
-中新网上海4月15日电 (记者 李姝徵)高考失利也能上“985”“211”大学，只要花钱包装成足球、篮球等群体体育项目高水平运动员，就能低分录取圆名校梦。
+还想用“双标定价”收割中国市场？
 
-这样的谎言竟然吸引了22名来自全国各地的家长投入共计900多万元。
+国际足联该看看这些前车之鉴北方热力加码！
 
-记者15日从上海警方获悉，近日，上海市公安局嘉定分局捣毁一个以“高水平运动队”规划入名校为幌子、实施招生诈骗的犯罪团伙，抓获黄某、杨某、蔡某、韩某等4名犯罪嫌疑人。
+今年首轮高温过程来袭，之后要一直热下去了吗？
 
-2025年3月，学生家长郭先生报案称，自己因想让孩子上名牌大学遇到骗子，被骗金额高达40万元。
+一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
 
-原来在2024年7月，郭先生因自己儿子高考成绩不理想，经由网络渠道获悉一条通过某教育咨询机构根据国家“高水平运动队”升学政策进行升学规划，就能进入上海某著名高校全日制本科就读的信息。
+一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？
 
-郭先生信以为真，与对方取得联系。
+有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？
 
-对方表示，孩子只需在某款APP平台进行运动员注册，通过完成所谓“训练学时”，不必参加赛事获取成绩，亦可将孩子包装成“国家一级运动员”，获得直接上名校的资格。
+为啥越来越多的人开始追求“活人感”？
 
-为孩子升学忧心忡忡的郭先生，在对方游说下签订了合同，并先期支付了一半费用，共计40万元。
+为什么有些人更容易上当？
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 02:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 03:08 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 03:11 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 02:56 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 03:10 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 03:01 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 03:05 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 02:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 03:10 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 03:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 03:05 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 03:01 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 03:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 03:12 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 03:02 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 03:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 03:13 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 02:50 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 03:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 02:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 03:09 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 03:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:52 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 03:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:03 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 02:52 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 03:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/38480070.shtml)
-- 2026-06-30 03:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/0994575581.shtml)
-- 2026-06-30 03:04 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/67932.shtml)
-- 2026-06-30 02:49 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/2180657.shtml)
-- 2026-06-30 03:00 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/977756378.shtml)
-- 2026-06-30 02:48 - [毒液2](https://www.blog.minike.top/Article/details/6564015.shtml)
-- 2026-06-30 03:04 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/0892236465.shtml)
-- 2026-06-30 03:10 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/92363782.shtml)
-- 2026-06-30 03:10 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/700397758.shtml)
-- 2026-06-30 02:54 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/52209244517.shtml)
-- 2026-06-30 02:52 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/76941.shtml)
-- 2026-06-30 02:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/245559569913.shtml)
-- 2026-06-30 02:49 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/68686152586.shtml)
-- 2026-06-30 02:47 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/873843828.shtml)
-- 2026-06-30 02:44 - [沙丘](http://www.share.kurohicncr.top/Article/details/06332332465.shtml)
+- 2026-06-30 03:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/228045.shtml)
+- 2026-06-30 02:50 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/5264735.shtml)
+- 2026-06-30 02:49 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/13255892.shtml)
+- 2026-06-30 02:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/233192054.shtml)
+- 2026-06-30 03:13 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/714301.shtml)
+- 2026-06-30 03:07 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/978472.shtml)
+- 2026-06-30 03:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/487383900.shtml)
+- 2026-06-30 03:12 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/595635.shtml)
+- 2026-06-30 03:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/29294.shtml)
+- 2026-06-30 03:16 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/93814980813.shtml)
+- 2026-06-30 03:07 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/65834058.shtml)
+- 2026-06-30 02:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/1738085801.shtml)
+- 2026-06-30 03:00 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/499045942505.shtml)
+- 2026-06-30 03:10 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/10159329632.shtml)
+- 2026-06-30 03:09 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/655722.shtml)

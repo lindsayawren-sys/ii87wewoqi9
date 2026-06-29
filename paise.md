@@ -1,60 +1,59 @@
-# 程野谈喜剧创新：向生活取经，用科技“上菜”
+# 普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。 从传统二人转舞台走向更广
+俄罗斯总统普京当地时间5月9日晚召开记者会，回答相关提问。 普京表示，此次红场阅兵未展示军事装备，并不完全是出于安全原因，而是因为军人应集中精力彻底击溃敌人。他强调，这些决定早在乌方发出威胁之前就已作出。 普京：俄方尚未收到乌方任何换俘提议 普京表示，在美国总统特朗普提出相关倡议之前，俄罗斯方面就已经向乌克兰提出了交换500名在押人员的提议，但是乌方几经拖延，俄方至今未收到乌方
 
 ## 正文
 
-中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。
+俄罗斯总统普京当地时间5月9日晚召开记者会，回答相关提问。
 
-”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。
+普京表示，此次红场阅兵未展示军事装备，并不完全是出于安全原因，而是因为军人应集中精力彻底击溃敌人。
 
-这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。
+他强调，这些决定早在乌方发出威胁之前就已作出。
 
-从传统二人转舞台走向更广阔的影视与网络空间，程野对喜剧艺术的“守正”与“创新”体会深刻。
+普京：俄方尚未收到乌方任何换俘提议 普京表示，在美国总统特朗普提出相关倡议之前，俄罗斯方面就已经向乌克兰提出了交换500名在押人员的提议，但是乌方几经拖延，俄方至今未收到乌方关于交换在押人员的提议。
 
-“时代在发展，喜剧必须要有新变化，核心就是走进人心。
+普京提到，斯洛伐克总理菲佐转达了乌克兰总统泽连斯基希望会晤的口信。
 
-”他表示，作品唯有多关注民众日常喜闻乐见的事，才能拥有广泛而持久的生命力。
+普京称，俄方不反对会晤，如果有意愿可以来莫斯科，俄方也不反对在第三国会谈，会谈应该是为了最终签订协议。
 
-谈及传统技艺与当代喜剧形式的关系，程野以二人转为例，消解了“传统即陈旧”的刻板印象。
+普京表示，美国确实希望推动冲突得到解决，但首先这仍然是俄罗斯和乌克兰之间的事情。
 
-“现在流行的脱口秀，其核心技巧就类似于二人转表演中的‘说口’。
+普京：希望美伊冲突能够尽快平息 就美伊冲突，普京表示，俄罗斯与伊朗和美国都在保持沟通，希望这场冲突能够尽快平息。
 
 ## 相关推荐
 
-- 2026-06-30 03:00 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 02:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 03:00 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 03:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 02:49 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 02:44 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 02:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 02:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 02:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 03:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 02:58 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 02:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 02:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 02:54 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 03:14 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 02:59 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 02:51 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 02:57 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 03:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 03:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 03:12 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 03:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 02:59 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 02:55 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/40234.shtml)
-- 2026-06-30 03:02 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/25169727320.shtml)
-- 2026-06-30 02:48 - [啊啊啊](https://www.share.minike.top/Article/details/2087100820.shtml)
-- 2026-06-30 02:55 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/27144.shtml)
-- 2026-06-30 03:03 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/29538281208.shtml)
-- 2026-06-30 02:51 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/095436786.shtml)
-- 2026-06-30 02:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/0034714060.shtml)
-- 2026-06-30 03:11 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/7291922.shtml)
-- 2026-06-30 03:09 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/28230784.shtml)
-- 2026-06-30 03:03 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/54511038953.shtml)
-- 2026-06-30 02:59 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/95254951878.shtml)
-- 2026-06-30 03:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/485956963174.shtml)
-- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/882817.shtml)
-- 2026-06-30 02:56 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/116815023.shtml)
-- 2026-06-30 02:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/54260.shtml)
+- 2026-06-30 03:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/767734289.shtml)
+- 2026-06-30 03:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/57643720.shtml)
+- 2026-06-30 03:15 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/60416299.shtml)
+- 2026-06-30 03:02 - [送你一朵小红花](http://www.share.minike.top/Article/details/250416225.shtml)
+- 2026-06-30 03:14 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/7406136963.shtml)
+- 2026-06-30 03:16 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/34759.shtml)
+- 2026-06-30 03:14 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/7338076.shtml)
+- 2026-06-30 02:59 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/59233115.shtml)
+- 2026-06-30 03:12 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/434666.shtml)
+- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/7604433992.shtml)
+- 2026-06-30 02:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/058174.shtml)
+- 2026-06-30 03:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/5051185.shtml)
+- 2026-06-30 03:00 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/09330.shtml)
+- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/387146.shtml)
+- 2026-06-30 03:05 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/38053926.shtml)

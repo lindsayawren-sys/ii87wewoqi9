@@ -1,46 +1,49 @@
-# 04月15日丙二醇11466.67元/吨 10天上涨8.86%
+# 第13万列中欧班列今天将从郑州发车
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
+今天(5月9日)上午，第13万列中欧班列X8037次将由郑州圃田站发车开往德国汉堡，预计全程运行时间16天左右。 目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。 今年前四个月，中欧班列通道网络持续拓宽、运输效率不断提高、物流服务提质升级，已累计开行中欧班列219列，同比增长55%。 (总
 
 ## 正文
 
-丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。
+今天(5月9日)上午，第13万列中欧班列X8037次将由郑州圃田站发车开往德国汉堡，预计全程运行时间16天左右。
 
-相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
+目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
+
+今年前四个月，中欧班列通道网络持续拓宽、运输效率不断提高、物流服务提质升级，已累计开行中欧班列219列，同比增长55%。
+
+(总台央视记者 郑连凯)
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 02:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 03:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 03:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 02:52 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 02:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 03:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 02:46 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 02:56 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 02:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 03:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:02 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 02:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 03:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 02:56 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 03:14 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:07 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 03:12 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 03:05 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/357100469734.shtml)
-- 2026-06-30 02:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/8844267.shtml)
-- 2026-06-30 03:09 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/88991875.shtml)
-- 2026-06-30 03:05 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/13525497.shtml)
-- 2026-06-30 03:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/533126477914.shtml)
-- 2026-06-30 02:44 - [日本领先巴西](https://www.share.minike.top/Article/details/49492145627.shtml)
-- 2026-06-30 03:09 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/41853541914.shtml)
-- 2026-06-30 02:55 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/06431827.shtml)
-- 2026-06-30 02:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/67987.shtml)
-- 2026-06-30 02:42 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/396793784.shtml)
-- 2026-06-30 03:04 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/99668932.shtml)
-- 2026-06-30 03:02 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/327481.shtml)
-- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/63346267.shtml)
-- 2026-06-30 02:47 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/8132594555.shtml)
-- 2026-06-30 02:52 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/2934402.shtml)
+- 2026-06-30 03:10 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/969107.shtml)
+- 2026-06-30 02:54 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/236377759.shtml)
+- 2026-06-30 02:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/624038506.shtml)
+- 2026-06-30 03:02 - [沉睡花园](http://www.blog.minike.top/Article/details/3079685.shtml)
+- 2026-06-30 03:04 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/8031665016.shtml)
+- 2026-06-30 03:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/0583489622.shtml)
+- 2026-06-30 03:16 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/353194340374.shtml)
+- 2026-06-30 03:02 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/95620451409.shtml)
+- 2026-06-30 02:58 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/862307209.shtml)
+- 2026-06-30 03:07 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/50394.shtml)
+- 2026-06-30 02:56 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/2987411049.shtml)
+- 2026-06-30 03:04 - [85花告别古偶](http://www.blog.minike.top/Article/details/90878450405.shtml)
+- 2026-06-30 02:56 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/77808.shtml)
+- 2026-06-30 02:59 - [千香](https://www.blog.kurohicncr.top/Article/details/49520681.shtml)
+- 2026-06-30 03:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/11507921.shtml)

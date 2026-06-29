@@ -1,55 +1,61 @@
-# 维珍大西洋航空高管：航空燃油高价将长期持续
+# 五家机构被剔除，微众银行入围，公开市场一级交易商名单再调整
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-维珍大西洋航空高管称，航空燃油高价格局或将长期持续。 维珍大西洋航空高管警示，航空燃油价格高涨已成常态，且中东战事若长期化，将冲击全球出行需求。 今年1月新任首席执行官表示，即便该英国航空公司已在机票中加收燃油附加费，试图抵消部分上涨成本，今年仍难以实现盈利。 他向表示，尽管美伊停火带来利好消息，但综合航空燃油价格仍较战前水平高出一倍以上。责任编辑：何云
+来源：华夏时报 日前，央行发布2026年公开市场业务一级交易商名单。对比2025年，2026年度一级交易商名单看似维持51家机构总数不变，实则完成了一次深刻的结构调整——中资银行席位从43家微调至41家，券商阵营从2家扩容至4家，民营银行实现零突破，外资机构实现轮换。 对此，方正证券固收首席分析师李清荷在接受《华夏时报》记者采访时表示，这是2025年考评新规落地后的首次完整名单
 
 ## 正文
 
-维珍大西洋航空高管称，航空燃油高价格局或将长期持续。
+来源：华夏时报 日前，央行发布2026年公开市场业务一级交易商名单。
 
-维珍大西洋航空高管警示，航空燃油价格高涨已成常态，且中东战事若长期化，将冲击全球出行需求。
+对比2025年，2026年度一级交易商名单看似维持51家机构总数不变，实则完成了一次深刻的结构调整——中资银行席位从43家微调至41家，券商阵营从2家扩容至4家，民营银行实现零突破，外资机构实现轮换。
 
-今年1月新任首席执行官表示，即便该英国航空公司已在机票中加收燃油附加费，试图抵消部分上涨成本，今年仍难以实现盈利。
+对此，方正证券固收首席分析师李清荷在接受《华夏时报》记者采访时表示，这是2025年考评新规落地后的首次完整名单调整，核心释放两大信号。
 
-他向表示，尽管美伊停火带来利好消息，但综合航空燃油价格仍较战前水平高出一倍以上。
+一是央行流动性管理告别单纯总量投放，转向精准分层、多元直达；二是货币政策框架加速向价格型转型，弱化规模导向，通过丰富交易商主体，搭建银行、券商、民营银行并行的网状传导体系，弱化单一银行渠道依赖，完善利率走廊与政策传导机制。
 
-责任编辑：何云
+一级交易商名单结构重构 公开市场操作是央行实施货币政策的核心工具之一，而一级交易商则是央行在公开市场上进行流动性调节的“第一站”。
+
+只有被纳入一级交易商名单的机构，才有资格直接与央行开展回购、现券买卖等公开市场操作。
+
+这一制度设计，既保证了央行流动性投放的效率和精准度，也要求一级交易商承担起做市、传导信息、稳定市场的重要责任。
+
+不过，自1996年央行首次组建一级交易商以来，我国公开市场业务一级交易商阵营长期由商业银行主导。
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 02:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:52 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 03:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 02:47 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 02:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 02:48 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 02:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 03:09 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 02:44 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 03:09 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 02:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 03:07 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 02:48 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 03:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 02:48 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 02:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 03:13 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 03:13 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 03:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 02:50 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 02:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 02:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 03:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 02:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 03:08 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:11 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 03:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 03:03 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/2211843060.shtml)
-- 2026-06-30 03:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/71767703.shtml)
-- 2026-06-30 02:43 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/5166955.shtml)
-- 2026-06-30 02:45 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/972653478746.shtml)
-- 2026-06-30 03:07 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/26205399.shtml)
-- 2026-06-30 02:42 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/873945436165.shtml)
-- 2026-06-30 02:55 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/096439666.shtml)
-- 2026-06-30 03:09 - [天道](http://www.blog.minike.top/Article/details/919010.shtml)
-- 2026-06-30 02:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/6892522.shtml)
-- 2026-06-30 03:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/937968286637.shtml)
-- 2026-06-30 02:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/44649397.shtml)
-- 2026-06-30 02:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/200891071685.shtml)
-- 2026-06-30 03:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/220961546907.shtml)
-- 2026-06-30 02:43 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/1840420.shtml)
-- 2026-06-30 02:44 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/469262888.shtml)
+- 2026-06-30 03:17 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/391670321.shtml)
+- 2026-06-30 03:01 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/64645.shtml)
+- 2026-06-30 02:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/4948719053.shtml)
+- 2026-06-30 03:07 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/395444.shtml)
+- 2026-06-30 03:07 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/47733731.shtml)
+- 2026-06-30 03:12 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/5197912747.shtml)
+- 2026-06-30 03:17 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/98478402.shtml)
+- 2026-06-30 03:16 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/027095450292.shtml)
+- 2026-06-30 02:50 - [日本16强魔咒](http://www.blog.minike.top/Article/details/81495.shtml)
+- 2026-06-30 02:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/13063.shtml)
+- 2026-06-30 03:00 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/9905724340.shtml)
+- 2026-06-30 03:14 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/537213971.shtml)
+- 2026-06-30 02:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/743768597.shtml)
+- 2026-06-30 03:02 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/36004694327.shtml)
+- 2026-06-30 03:16 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/58974282.shtml)

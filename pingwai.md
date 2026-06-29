@@ -1,61 +1,58 @@
-# IMF因中东战事下调今年全球增长预期至3.1%
+# Molina预计2029年调整后每股收益最高达30美元
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿4月14日电 (记者 沙晗汀)国际货币基金组织当地时间14日发布最新一期《世界经济展望报告》，将2026年全球经济增长预期下调至3.1%，较今年1月预测值下调0.2个百分点。IMF预计，2027年全球经济将增长3.2%，与1月预测值持平。报告说，中东战事干扰了全球经济原本平稳的增长轨迹。如果战争没有发生，IMF原本将上调全球经济增速。中东战事持续时间长短将对世界经济
+医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。 财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。公司重申2026年调整后每股收益指引为2
 
 ## 正文
 
-中新社华盛顿4月14日电 (记者 沙晗汀)国际货币基金组织当地时间14日发布最新一期《世界经济展望报告》，将2026年全球经济增长预期下调至3.1%，较今年1月预测值下调0.2个百分点。
+医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。
 
-IMF预计，2027年全球经济将增长3.2%，与1月预测值持平。
+财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。
 
-报告说，中东战事干扰了全球经济原本平稳的增长轨迹。
+调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。
 
-如果战争没有发生，IMF原本将上调全球经济增速。
+公司重申2026年调整后每股收益指引为22至23美元，2027年为24至26美元。
 
-中东战事持续时间长短将对世界经济造成不同影响。
+增长战略 管理层阐述了实现上述目标的三支柱战略：通过现有市场的渗透和新市场的扩张增加会员基数，目标新增会员约100万人；通过Carelon等医疗服务和药房福利管理业务提升会员人均收入；通过自动化和管理式医疗技术降低运营费用率。
 
-假设冲突持续时间和范围有限，今年全球经济增速预计将放缓至3.1%。
+财务基础与资本配置 Molina预计2026年至2029年间，调整后EBITDA复合年增长率约为8%至10%。
 
-如果战争及高油价持续更长时间，今年世界经济增速将降至2.5%。
+公司目前持有现金约45亿美元，无重大债务到期压力。
 
-在极端情况下，今年世界经济增速恐降至2%。
+并购方面，公司计划每年投入5亿至10亿美元用于中小型收购，重点关注居家健康管理和数字医疗领域。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 02:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 02:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 03:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 02:58 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 03:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 02:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 02:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 02:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 02:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 02:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 02:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 02:51 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 02:53 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 02:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 03:02 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 03:03 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 03:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:08 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 02:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 02:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 02:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [我和我的家乡](http://www.share.minike.top/Article/details/6758900.shtml)
-- 2026-06-30 02:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/217555.shtml)
-- 2026-06-30 03:04 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/70410167153.shtml)
-- 2026-06-30 02:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/04074351726.shtml)
-- 2026-06-30 02:58 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/750801902085.shtml)
-- 2026-06-30 03:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/25011004099.shtml)
-- 2026-06-30 02:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/2824518481.shtml)
-- 2026-06-30 03:10 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/079687431.shtml)
-- 2026-06-30 02:48 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/666747389.shtml)
-- 2026-06-30 03:01 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/3575306.shtml)
-- 2026-06-30 02:51 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/41273.shtml)
-- 2026-06-30 02:44 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/16594275.shtml)
-- 2026-06-30 02:56 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/52297755849.shtml)
-- 2026-06-30 02:58 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/63623.shtml)
-- 2026-06-30 02:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/197468174.shtml)
+- 2026-06-30 03:16 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/44817602858.shtml)
+- 2026-06-30 02:48 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/629555.shtml)
+- 2026-06-30 02:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/06277.shtml)
+- 2026-06-30 03:00 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/73428868.shtml)
+- 2026-06-30 03:05 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/41724869552.shtml)
+- 2026-06-30 03:09 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/829672.shtml)
+- 2026-06-30 02:54 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/91842351.shtml)
+- 2026-06-30 02:56 - [斗破苍穹](http://www.share.minike.top/Article/details/127970445.shtml)
+- 2026-06-30 03:14 - [勇敢的心第二部](https://www.share.minike.top/Article/details/7299398892.shtml)
+- 2026-06-30 03:03 - [巴西vs日本](http://www.blog.minike.top/Article/details/497665742392.shtml)
+- 2026-06-30 02:49 - [金牌调解](http://www.share.minike.top/Article/details/970906713.shtml)
+- 2026-06-30 03:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/91577510359.shtml)
+- 2026-06-30 03:06 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/240902395956.shtml)
+- 2026-06-30 03:17 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/2677331.shtml)
+- 2026-06-30 03:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7251083577.shtml)

@@ -1,49 +1,57 @@
-# 知情人士：美伊“原则同意”谈判 时间地点未确定
+# 中国银行协助伊斯兰开发银行发行10亿美元伊斯兰债券
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月15日电据美国《华尔街日报》15日援引知情人士的话报道说，美国与伊朗已“原则上同意”谈判，但尚未确定谈判日期和地点。（完）责任编辑：宋雅芳
+来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。该笔债券发行期限5年，票面利率4.227%。 伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。此次发行在全球市场获得
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。
 
-新华社华盛顿4月15日电据美国《华尔街日报》15日援引知情人士的话报道说，美国与伊朗已“原则上同意”谈判，但尚未确定谈判日期和地点。
+该笔债券发行期限5年，票面利率4.227%。
 
-（完）责任编辑：宋雅芳
+伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。
+
+此次发行在全球市场获得广泛关注，中国银行依托全球化优势，通过境内外协同的强大合力，助力该订单峰值突破28亿美元，充分体现了国际投资者对中国银行债券承销能力的高度认可。
+
+长期以来，中国银行凭借全球布局优势及在跨境债券市场的领先优势与专业能力，服务多边开发机构债务融资需求，协助亚洲基础设施投资银行、新开发银行等多家国际开发机构发行债券。
+
+同时，依托广泛的境内外债券承分销网络，积极参与各类主体多币种债券发行，债务资本市场业务品牌影响力不断增强。
+
+中国银行将继续发挥全球化优势、综合化特色，深耕跨境债务资本市场业务，助力高质量共建“一带一路”，持续促进金融市场双向开放，为国际金融合作与可持续发展注入源源不断强劲动力。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 03:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 02:44 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 02:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 02:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:51 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 02:55 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 02:58 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 03:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 03:08 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 03:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 03:07 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 03:11 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 03:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 02:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 02:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 03:03 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 02:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 03:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 03:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:57 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:17 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 03:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/5533733.shtml)
-- 2026-06-30 02:42 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/7543845.shtml)
-- 2026-06-30 02:58 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/460742731059.shtml)
-- 2026-06-30 03:04 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/664103697285.shtml)
-- 2026-06-30 03:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/08990114.shtml)
-- 2026-06-30 02:46 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/2269713.shtml)
-- 2026-06-30 02:42 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/66592747.shtml)
-- 2026-06-30 03:06 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/372185510718.shtml)
-- 2026-06-30 03:00 - [一生一世](https://www.blog.minike.top/Article/details/43790108.shtml)
-- 2026-06-30 02:51 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/250842092.shtml)
-- 2026-06-30 02:51 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/94866.shtml)
-- 2026-06-30 03:02 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/9232296.shtml)
-- 2026-06-30 03:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/19089775038.shtml)
-- 2026-06-30 03:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/368426341.shtml)
-- 2026-06-30 02:59 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/20915919.shtml)
+- 2026-06-30 03:06 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/8969974.shtml)
+- 2026-06-30 02:59 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/44147369813.shtml)
+- 2026-06-30 02:56 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/74220.shtml)
+- 2026-06-30 03:00 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/8069593220.shtml)
+- 2026-06-30 03:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/858773104857.shtml)
+- 2026-06-30 02:52 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/885847.shtml)
+- 2026-06-30 03:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/81855050.shtml)
+- 2026-06-30 02:58 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/5601957905.shtml)
+- 2026-06-30 02:50 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/8306000.shtml)
+- 2026-06-30 02:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/096146.shtml)
+- 2026-06-30 03:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/53646.shtml)
+- 2026-06-30 03:04 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/9997364107.shtml)
+- 2026-06-30 03:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/695289460.shtml)
+- 2026-06-30 03:07 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/527076609.shtml)
+- 2026-06-30 02:59 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/88517744.shtml)

@@ -1,54 +1,51 @@
-# 埃克森美孚、Energean与希腊石油公司即将签署希腊近海勘探钻井合同
+# 母亲节将至 致敬中国烟台SOS儿童村“专职妈妈”
 
-> 更新时间：2026-06-30 03:12:02 UTC+8
+> 更新时间：2026-06-30 03:18:02 UTC+8
 
 ## 摘要
 
-希腊能源部周二表示，美国石油巨头埃克森美孚、Energean和希腊石油公司将于周三与Stena Drilling签署合同，在希腊西部一个近海区块启动勘探钻井。 埃克森美孚、Energean和希腊最大炼油商希腊石油公司去年宣布达成协议，将在爱奥尼亚海的2号区块勘探天然气。 一位不愿具名的希腊能源部官员表示，该财团将于2027年2月进行勘探钻井。这将是希腊40年来首次进行近海勘探钻
+发布时间：2026年05月08日 19:18 来源：中国新闻网 5月7日，山东烟台。母亲节将至，中国烟台SOS儿童村的“专职妈妈”们，为孤困儿童提供家庭式养育，用陪伴为孩子们撑起温暖的家，致敬这份平凡伟大的母爱。(刘昊 曲正扬 制作 王佳琪) 责任编辑：【卢岩】
 
 ## 正文
 
-希腊能源部周二表示，美国石油巨头埃克森美孚、Energean和希腊石油公司将于周三与Stena Drilling签署合同，在希腊西部一个近海区块启动勘探钻井。
+发布时间：2026年05月08日 19:18 来源：中国新闻网 5月7日，山东烟台。
 
-埃克森美孚、Energean和希腊最大炼油商希腊石油公司去年宣布达成协议，将在爱奥尼亚海的2号区块勘探天然气。
+母亲节将至，中国烟台SOS儿童村的“专职妈妈”们，为孤困儿童提供家庭式养育，用陪伴为孩子们撑起温暖的家，致敬这份平凡伟大的母爱。
 
-一位不愿具名的希腊能源部官员表示，该财团将于2027年2月进行勘探钻井。
-
-这将是希腊40年来首次进行近海勘探钻井。
-
-该官员称，Stena将使用一艘高性能船只，能够在深海作业，并在高达35，000英尺的深度进行钻井，以寻找曾经被认为难以获取的油气藏。
-
-在俄罗斯入侵乌克兰后，欧洲正试图实现能源来源多元化，以寻求替代俄罗斯天然气。
-
-责任编辑：张俊 SF065
+(刘昊 曲正扬 制作 王佳琪) 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 03:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 03:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 02:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 02:52 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 02:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 02:51 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 02:43 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 03:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 02:44 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 02:49 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 02:55 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 03:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 02:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 03:13 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 02:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 03:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 02:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 03:07 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:00 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 02:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 02:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/090078.shtml)
-- 2026-06-30 03:07 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/19870.shtml)
-- 2026-06-30 03:02 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/97784.shtml)
-- 2026-06-30 02:42 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/23140650.shtml)
-- 2026-06-30 02:58 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/259685668.shtml)
-- 2026-06-30 02:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/84138.shtml)
-- 2026-06-30 02:44 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/33590.shtml)
-- 2026-06-30 03:06 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/0956393.shtml)
-- 2026-06-30 02:58 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/5492887761.shtml)
-- 2026-06-30 02:50 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/5515659852.shtml)
-- 2026-06-30 02:55 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/9710088064.shtml)
-- 2026-06-30 02:46 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/41277.shtml)
-- 2026-06-30 03:03 - [爱很美味](http://www.blog.minike.top/Article/details/674778020624.shtml)
-- 2026-06-30 02:56 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/9579903.shtml)
-- 2026-06-30 03:08 - [恋与深空 日服](http://www.blog.minike.top/Article/details/094940549112.shtml)
+- 2026-06-30 03:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/5670211989.shtml)
+- 2026-06-30 03:08 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/16837601.shtml)
+- 2026-06-30 03:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/152764518291.shtml)
+- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/946740.shtml)
+- 2026-06-30 03:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/043962.shtml)
+- 2026-06-30 03:07 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/668607521355.shtml)
+- 2026-06-30 03:12 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/9777153595.shtml)
+- 2026-06-30 02:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/340508.shtml)
+- 2026-06-30 03:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/0999371208.shtml)
+- 2026-06-30 02:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/919104058131.shtml)
+- 2026-06-30 02:59 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0329095343.shtml)
+- 2026-06-30 03:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/409239088027.shtml)
+- 2026-06-30 03:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9664292333.shtml)
+- 2026-06-30 03:14 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/949289875322.shtml)
+- 2026-06-30 03:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/0748310962.shtml)
