@@ -1,60 +1,57 @@
-# 广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你
+# 沪粤文脉双向奔赴 展示海丝千年风华
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。 在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。 对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。他指出，虽然首
+原标题：“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕 沪粤文脉双向奔赴 展示海丝千年风华 羊城晚报讯 记者何文涛、何晶报道：5月9日，“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕。该展览由上海大学主办，上海大学博物馆、广东省文物考古研究院、广州市文物考古研究院、南越王博物院(西汉南越国史研究中心)、广东民间工艺博物馆联合承办。展期持续至7月31日。
 
 ## 正文
 
-专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
+原标题：“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕 沪粤文脉双向奔赴 展示海丝千年风华 羊城晚报讯 记者何文涛、何晶报道：5月9日，“百川汇海：海丝帆影下的文明互鉴”特展在上海大学博物馆开幕。
 
-在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。
+该展览由上海大学主办，上海大学博物馆、广东省文物考古研究院、广州市文物考古研究院、南越王博物院(西汉南越国史研究中心)、广东民间工艺博物馆联合承办。
 
-对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。
+展期持续至7月31日。
 
-他指出，虽然首任车主换车周期变短，但淘汰下来的车辆并不会报废，而是会进入二手车市场，由下一任车主继续使用八年到十年。
+谈到这次展览的初衷，执行策展人梅海涛表示：“希望通过这次展览，让上海观众清晰认知广州作为海上丝绸之路核心始发港之一不可替代的历史地理地位，厘清海丝沿线城市间的互动逻辑。
 
-“对下一任车主来说，在未来八年到十年的使用过程中，这辆车的品质问题，对其用车体验和价值会产生直接影响。
+”“广州与上海，一依南海、一临东海，两座因海兴盛的港口城市，皆具备向海而生、兼容并蓄的文化传统。
 
-” 冯兴亚强调，品质直接决定了二手车的残值。
+”上海大学博物馆馆长李明斌说，广东外贸一千年的海风，吹过珠江，也吹过黄浦江。
 
-“如果一辆车品质好，它在二手车处理时的价值就高。
+文物从广州来到上海，是重逢，也是延续。
 
-这就像把钱存到银行一样，你买的时候可能贵了一点点，比如一万块钱，但等到两年后、三年后、五年后卖车时，这一万块钱甚至更多的价值就能收回来。
+广东民间工艺博物馆馆长黄海妍在展览现场向记者介绍，本次特展汇聚广东四大文博机构，各家纷纷甄选最具广东特色的馆藏珍品、首度亮相的库房文物以及最新考古发掘成果赴沪参展。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:43 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:49 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:49 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:39 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:43 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:34 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:38 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:25 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:24 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:43 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:30 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:52 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:49 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:50 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:59 - [我国成功发射千帆极轨09组卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:48 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:52 - [焦煤短期承压的核心逻辑是？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:59 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:32 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:37 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:47 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:50 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:34 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:39 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.share.minike.top/Article/details/47292168.shtml)
-- 2026-06-29 12:45 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.blog.kurohicncr.top/Article/details/88841311.shtml)
-- 2026-06-29 12:53 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.blog.kurohicncr.top/Article/details/387280.shtml)
-- 2026-06-29 12:35 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/9557659510.shtml)
-- 2026-06-29 12:41 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](http://www.share.kurohicncr.top/Article/details/44440578.shtml)
-- 2026-06-29 12:46 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.blog.minike.top/Article/details/642242.shtml)
-- 2026-06-29 12:34 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.share.kurohicncr.top/Article/details/81621.shtml)
-- 2026-06-29 12:48 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.share.minike.top/Article/details/81512.shtml)
-- 2026-06-29 12:51 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/28267303.shtml)
-- 2026-06-29 12:29 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.blog.minike.top/Article/details/717495443.shtml)
-- 2026-06-29 12:39 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.blog.kurohicncr.top/Article/details/5740078178.shtml)
+- 2026-06-29 12:46 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](http://www.share.kurohicncr.top/Article/details/89185153000.shtml)
+- 2026-06-29 12:38 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](http://www.blog.minike.top/Article/details/993306707631.shtml)
+- 2026-06-29 12:37 - [受中东局势影响 德钢铁巨头下调销售预期](http://www.share.kurohicncr.top/Article/details/90581.shtml)
+- 2026-06-29 12:51 - [ATFX:美国CPI数据发布 美元何去何从](http://www.blog.kurohicncr.top/Article/details/64702107.shtml)
+- 2026-06-29 12:47 - [一家外资家电巨头在中国卖场的“最后时刻”](http://www.share.minike.top/Article/details/6988279.shtml)
+- 2026-06-29 12:48 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.blog.minike.top/Article/details/7537221568.shtml)
+- 2026-06-29 12:52 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](http://www.share.kurohicncr.top/Article/details/89135.shtml)
+- 2026-06-29 12:46 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.share.minike.top/Article/details/425770540707.shtml)
+- 2026-06-29 12:43 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](http://www.blog.minike.top/Article/details/28971813486.shtml)
+- 2026-06-29 12:34 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.share.kurohicncr.top/Article/details/96192877159.shtml)
+- 2026-06-29 12:34 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.share.kurohicncr.top/Article/details/5229813.shtml)
+- 2026-06-29 12:33 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](http://www.share.minike.top/Article/details/385942165.shtml)
+- 2026-06-29 12:54 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.blog.kurohicncr.top/Article/details/592767898.shtml)

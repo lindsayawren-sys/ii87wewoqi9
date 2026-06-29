@@ -1,59 +1,59 @@
-# 4月中国商品零售增速放缓 服务零售增长加快
+# 俄“萨尔马特”战略导弹将于年底前进入战斗值班
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 王恩博)中国国家统计局新闻发言人付凌晖18日在北京表示，受上年同期基数较高等因素影响，4月中国商品零售增速有所放缓，但综合商品和服务零售情况看，消费平稳增长态势没有改变，服务零售增长加快。付凌晖在当天的国新办新闻发布会上介绍，1至4月，中国社会消费品零售总额同比增长1.9%，服务零售额同比增长5.6%。初步测算，同期社会消费商品和服务零售总额同比
+俄罗斯总统普京周二宣布，俄最新型“萨尔马特”（Sarmat）洲际战略核导弹将于今年年底前正式投入部署。普京强调，该武器是目前世界上“最强大”的导弹，具备穿透现役及未来所有反导防御系统的能力。 同日，俄战略火箭军司令谢尔盖·卡拉卡耶夫向普京报告了“萨尔马特”系统试射成功的消息。普京在电视讲话中指出，该导弹射程超过3.5万公里，其搭载弹头的威力是西方同类产品的四倍以上，能够对数千英
 
 ## 正文
 
-中新社北京5月18日电 (记者 王恩博)中国国家统计局新闻发言人付凌晖18日在北京表示，受上年同期基数较高等因素影响，4月中国商品零售增速有所放缓，但综合商品和服务零售情况看，消费平稳增长态势没有改变，服务零售增长加快。
+俄罗斯总统普京周二宣布，俄最新型“萨尔马特”（Sarmat）洲际战略核导弹将于今年年底前正式投入部署。
 
-付凌晖在当天的国新办新闻发布会上介绍，1至4月，中国社会消费品零售总额同比增长1.9%，服务零售额同比增长5.6%。
+普京强调，该武器是目前世界上“最强大”的导弹，具备穿透现役及未来所有反导防御系统的能力。
 
-初步测算，同期社会消费商品和服务零售总额同比增长3.2%，与一季度相比保持总体稳定。
+同日，俄战略火箭军司令谢尔盖·卡拉卡耶夫向普京报告了“萨尔马特”系统试射成功的消息。
 
-他强调，在观察消费的过程中，不仅要关注商品消费，也要关注服务消费，后者已日益成为中国消费的重要内容。
+普京在电视讲话中指出，该导弹射程超过3.5万公里，其搭载弹头的威力是西方同类产品的四倍以上，能够对数千英里外的目标实施精确打击。
 
-例如，“文旅热”“赛事热”等成为服务消费发展新亮点。
+卡拉卡耶夫强调，装备“萨尔马特”导弹系统将显著提升俄地面战略核力量的作战水平，在保障摧毁预定目标及解决战略威慑任务方面发挥关键作用。
 
-1至4月，旅游咨询租赁服务、交通出行服务、文体休闲服务类零售额均保持两位数增长，明显快于服务零售额增速。
+作为俄罗斯武器现代化计划的核心组成部分，“萨尔马特”系统的部署被视为俄方维护国家安全、提升战略核威慑水平的重要举措。
 
-同期，网上商品和服务零售额同比增长6.6%。
+近年来，俄罗斯持续加强战略核力量建设，旨在确保全球战略平衡与稳定。
 
-其中网上服务零售额增长8.3%，继续快于商品零售，保持较快增长。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:28 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:28 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:41 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:36 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:25 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:29 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:50 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:24 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:24 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:33 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:33 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:46 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:32 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:50 - [上海加快开发适老化智能产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:40 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:37 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:35 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:40 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:46 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:54 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:48 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:58 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:53 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:54 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:37 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [2025年全国博物馆接待观众15.6亿人次](http://www.blog.kurohicncr.top/Article/details/1160964.shtml)
-- 2026-06-29 12:34 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.blog.minike.top/Article/details/669226443.shtml)
-- 2026-06-29 12:24 - [去年全国核发绿证超过29亿个](http://www.share.kurohicncr.top/Article/details/230676.shtml)
-- 2026-06-29 12:52 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.blog.kurohicncr.top/Article/details/52928.shtml)
-- 2026-06-29 12:50 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](http://www.share.minike.top/Article/details/643289.shtml)
-- 2026-06-29 12:33 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](http://www.share.minike.top/Article/details/4047377.shtml)
-- 2026-06-29 12:41 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [三大运营商即将免月租？官方回应](http://www.share.kurohicncr.top/Article/details/6450715892.shtml)
-- 2026-06-29 12:26 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [防病控“三高”别错过这些果蔬](http://www.share.kurohicncr.top/Article/details/03559.shtml)
-- 2026-06-29 12:28 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.share.kurohicncr.top/Article/details/89433.shtml)
-- 2026-06-29 12:33 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](http://www.blog.kurohicncr.top/Article/details/9153207752.shtml)
-- 2026-06-29 12:27 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.share.kurohicncr.top/Article/details/50500415.shtml)
-- 2026-06-29 12:31 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.blog.minike.top/Article/details/65603985.shtml)
+- 2026-06-29 12:53 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.blog.minike.top/Article/details/247214.shtml)
+- 2026-06-29 12:31 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [中国官方附条件批准腾讯收购喜马拉雅股权案](http://www.blog.minike.top/Article/details/7534947.shtml)
+- 2026-06-29 12:40 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [海航6.6万元“顺心卡”背后的金融游戏](http://www.blog.kurohicncr.top/Article/details/60225025.shtml)
+- 2026-06-29 12:42 - [中信建投期货：5月13日黑色系早报](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](http://www.share.kurohicncr.top/Article/details/6603112.shtml)
+- 2026-06-29 12:53 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](http://www.share.minike.top/Article/details/65987127.shtml)
+- 2026-06-29 12:32 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.blog.minike.top/Article/details/265913227477.shtml)
+- 2026-06-29 12:45 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.kurohicncr.top/Article/details/2252960166.shtml)
+- 2026-06-29 12:48 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](http://www.blog.kurohicncr.top/Article/details/36229.shtml)
+- 2026-06-29 12:32 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.blog.minike.top/Article/details/623443373857.shtml)
+- 2026-06-29 12:55 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.minike.top/Article/details/57327.shtml)

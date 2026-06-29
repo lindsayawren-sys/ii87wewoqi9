@@ -1,57 +1,59 @@
-# 《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬
+# eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新网长春5月17日电 (李钊 金乔)17日，《以笔为枪：蒋锡金的文艺抗战生涯》新书发布会在长春举行。 该书是东北师范大学出版社推出的红色主题精品力作，是一部厚重深情的非虚构抗战文艺史。作品以著名作家、文艺理论家蒋锡金的个人经历为线索，以个体命运映照时代洪流，生动再现了抗战时期进步知识分子以笔为枪、救亡图存的峥嵘岁月，既是对抗战文化基因的鲜活传承，也是弘扬爱国主义精神的优秀读本
+电商平台eBay拒绝了GameStop提出的555 亿美元收购邀约，令这家游戏零售商打造亚马逊竞争对手的雄心遭遇重创。 eBay董事会主席保罗・普雷斯勒周二在致GameStop首席执行官瑞安・科恩的信函中表示，董事会经评估收购方案后认为，该提议既缺乏可信度，也不具备吸引力。这封信件已交由美国有线电视新闻网披露。普雷斯勒称，董事会综合考量多项因素后作出该决定，包括eBay独立发展
 
 ## 正文
 
-中新网长春5月17日电 (李钊 金乔)17日，《以笔为枪：蒋锡金的文艺抗战生涯》新书发布会在长春举行。
+电商平台eBay拒绝了GameStop提出的555 亿美元收购邀约，令这家游戏零售商打造亚马逊竞争对手的雄心遭遇重创。
 
-该书是东北师范大学出版社推出的红色主题精品力作，是一部厚重深情的非虚构抗战文艺史。
+eBay董事会主席保罗・普雷斯勒周二在致GameStop首席执行官瑞安・科恩的信函中表示，董事会经评估收购方案后认为，该提议既缺乏可信度，也不具备吸引力。
 
-作品以著名作家、文艺理论家蒋锡金的个人经历为线索，以个体命运映照时代洪流，生动再现了抗战时期进步知识分子以笔为枪、救亡图存的峥嵘岁月，既是对抗战文化基因的鲜活传承，也是弘扬爱国主义精神的优秀读本。
+这封信件已交由美国有线电视新闻网披露。
 
-东北师范大学文学院教授、本书作者吴景明表示，创作本书不仅是为了记录一段不应被遗忘的历史，更重要的是“以史照今”。
+普雷斯勒称，董事会综合考量多项因素后作出该决定，包括eBay独立发展前景、这笔收购资金来源存在不确定性，以及GameStop的公司治理与高管激励机制等问题。
 
-“当下很多年轻人面临迷茫、内卷与焦虑，甚至产生‘躺平’心态。
+该股盘前交易下跌 4.5%。
 
-”他说，80多年前，二十岁出头的蒋锡金在炮火中办刊物、在防空洞里编稿子、在流亡路上写街头剧，从未抱怨退缩，而是用文字唤醒民众、用行动抗争到底。
+GameStop此番大胆收购，目标企业体量接近自身的四倍，此举早已引发市场多方质疑。
 
-在吴景明看来，“以笔为枪”对蒋锡金而言绝非文学比喻，而是山河破碎之际最坚定的生存选择。
+尤其是科恩始终未明确说明收购资金筹措方案，在接受美国消费者新闻与商业频道采访时也刻意回避了这一问题。
 
-他将手中的笔化作唤醒民众的冲锋号和刺向侵略者的投枪，与无数进步知识分子一道，在文化战线上筑起了坚不可摧的精神长城。
+剧情出现离奇转折：随后有消息曝出，科恩竟在eBay平台上售卖商品，以此筹集收购eBay的资金。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:42 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:45 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:41 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:48 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:45 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:36 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:50 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:52 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:27 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:35 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:40 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:42 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:52 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:56 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:55 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:54 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:32 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:35 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:49 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:50 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:57 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:43 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:56 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/363553554.shtml)
-- 2026-06-29 12:36 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](http://www.share.minike.top/Article/details/740111538447.shtml)
-- 2026-06-29 12:41 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.share.kurohicncr.top/Article/details/267377712729.shtml)
-- 2026-06-29 12:48 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.share.minike.top/Article/details/558288252014.shtml)
-- 2026-06-29 12:31 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.blog.kurohicncr.top/Article/details/94407837.shtml)
-- 2026-06-29 12:35 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](http://www.blog.kurohicncr.top/Article/details/338751941083.shtml)
-- 2026-06-29 12:28 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/94493143.shtml)
-- 2026-06-29 12:28 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.blog.kurohicncr.top/Article/details/936299.shtml)
-- 2026-06-29 12:34 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.share.minike.top/Article/details/12169.shtml)
-- 2026-06-29 12:50 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.blog.minike.top/Article/details/89977847.shtml)
-- 2026-06-29 12:26 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.blog.kurohicncr.top/Article/details/985666802.shtml)
-- 2026-06-29 12:50 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.blog.kurohicncr.top/Article/details/83075.shtml)
-- 2026-06-29 12:32 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.kurohicncr.top/Article/details/91017866.shtml)
-- 2026-06-29 12:26 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.blog.minike.top/Article/details/713140107.shtml)
+- 2026-06-29 12:35 - [一家外资家电巨头在中国卖场的“最后时刻”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.share.kurohicncr.top/Article/details/667893984212.shtml)
+- 2026-06-29 12:51 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](http://www.share.minike.top/Article/details/2582461996.shtml)
+- 2026-06-29 12:46 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.share.minike.top/Article/details/137994.shtml)
+- 2026-06-29 12:54 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](http://www.blog.kurohicncr.top/Article/details/62145812534.shtml)
+- 2026-06-29 12:45 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.share.minike.top/Article/details/47565875.shtml)
+- 2026-06-29 12:40 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.blog.kurohicncr.top/Article/details/85135.shtml)
+- 2026-06-29 12:39 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](http://www.share.kurohicncr.top/Article/details/887472922.shtml)
+- 2026-06-29 12:32 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.share.kurohicncr.top/Article/details/029423146.shtml)
+- 2026-06-29 12:50 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.share.kurohicncr.top/Article/details/134974.shtml)
+- 2026-06-29 12:33 - [德乌计划联合研发生产各型无人机](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [一季度西藏社会消费品零售总额255.83亿元](http://www.share.kurohicncr.top/Article/details/803978350008.shtml)

@@ -1,60 +1,56 @@
-# “看见计划”公益项目在川启动 搭建中外儿童艺术交流平台
+# Optum Rx推出透明定价新模式，重塑药房福利管理
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网成都5月18日电 (记者 何浠)“看见计划”艺术美育公益项目18日在四川安仁古镇正式启动。该项目由中国电影基金会指导，中国电影基金会女性电影专项基金与四川电影电视学院联合发起，并携手联合国粮农组织驻华代表处，以艺术美育打破城乡壁垒，为乡村儿童搭建兼具国际视野与本土温度的美育平台。 本次活动汇聚来自20余个国家的100幅儿童画作，依托联合国粮农组织驻华代表处“世界那么大·美
+联合健康集团旗下Optum Rx宣布推出一项全新的药房护理模式，从根本上改变药房福利的定价和交付方式。新模式以透明的费用为基础，面向所有Optum Rx的药房福利管理客户开放。 彻底告别传统定价模式 新模式下，Optum Rx将采用每月按会员人数计算的固定费用结构，该费用与制造商标价或处方量完全脱钩，从而消除了“价差定价”等传统做法。每位客户都可以完全透明地了解Optum Rx
 
 ## 正文
 
-中新网成都5月18日电 (记者 何浠)“看见计划”艺术美育公益项目18日在四川安仁古镇正式启动。
+联合健康集团旗下Optum Rx宣布推出一项全新的药房护理模式，从根本上改变药房福利的定价和交付方式。
 
-该项目由中国电影基金会指导，中国电影基金会女性电影专项基金与四川电影电视学院联合发起，并携手联合国粮农组织驻华代表处，以艺术美育打破城乡壁垒，为乡村儿童搭建兼具国际视野与本土温度的美育平台。
+新模式以透明的费用为基础，面向所有Optum Rx的药房福利管理客户开放。
 
-本次活动汇聚来自20余个国家的100幅儿童画作，依托联合国粮农组织驻华代表处“世界那么大·美丽我的家”儿童画国际巡展落地四川。
+彻底告别传统定价模式 新模式下，Optum Rx将采用每月按会员人数计算的固定费用结构，该费用与制造商标价或处方量完全脱钩，从而消除了“价差定价”等传统做法。
 
-活动得到联合国粮农组织驻华代表处、中国儿童画国际巡展组委会支持，蔚来汽车、青岛出版集团参与公益助力，共同推动优质艺术教育资源下沉乡村。
+每位客户都可以完全透明地了解Optum Rx的各项费用，包括其集团采购组织相关的费用，药企支付的所有款项也将明确披露。
 
-中国电影基金会女性电影专项基金长期深耕女性题材影视创作，此次将人文关怀延伸至少年儿童美育领域。
+到2027年底，集团采购将全面过渡为固定服务费模式。
 
-四川电影电视学院凭借33年艺术教育积淀，为项目提供专业课程、影视工业体验及国际化教学支持。
+同步推出消费者数字比价工具 与此同时，Optum还推出了两款帮助消费者在购药前比价的数字工具：“Shop MyScript”可在处方开具后即时通知患者，提供药品定价、药房选择和配送方式的实时信息；“Price Wise”则显示完整的费用明细——包括药品价格和明确定义的服务费，消费者可以不使用医保福利直接支付全价，无需担心结账时出现意外费用。
 
-活动期间开设国际视野、影视工业、艺术创作三类课程，乡村儿童近距离观摩多国画作、体验影视前沿技术、参与戏剧与手工创作，由专业教师一对一指导，激发艺术潜能。
+行业压力推动改革 近年来，药房福利管理行业长期因定价不透明、回扣机制复杂而饱受批评。
 
-联合国粮农组织驻华代表处、北京老舍文艺基金会、中国晚报摄影学会共同主办的“世界那么大·美丽我的家”儿童画国际巡展已深耕全球儿童美育十年，累计征集五大洲近五万幅儿童画作，举办百场巡展，用童真视角诠释可持续发展理念。
+此次Optum Rx的改革被视为对行业痼疾的正面回应。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:25 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:29 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:48 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:49 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:43 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:50 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:29 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:47 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:49 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:37 - [河南省举办高校残疾大学生就业双选会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:50 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:46 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:53 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:56 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:33 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:46 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:53 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:38 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:44 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:42 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:56 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:46 - [租充电宝1小时扣149元还被要求自证？专家教你维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:51 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.blog.minike.top/Article/details/380862494332.shtml)
-- 2026-06-29 12:40 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.blog.minike.top/Article/details/96954803.shtml)
-- 2026-06-29 12:44 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.minike.top/Article/details/92974561208.shtml)
-- 2026-06-29 12:45 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/580091379.shtml)
-- 2026-06-29 12:38 - [外交部发言人就美国总统特朗普涉台表态答记者问](http://www.blog.minike.top/Article/details/71182647.shtml)
-- 2026-06-29 12:32 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](http://www.share.kurohicncr.top/Article/details/3889006.shtml)
-- 2026-06-29 12:31 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.blog.minike.top/Article/details/55705.shtml)
-- 2026-06-29 12:43 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.share.kurohicncr.top/Article/details/007766870221.shtml)
-- 2026-06-29 12:33 - [2025年全国博物馆接待观众15.6亿人次](http://www.share.kurohicncr.top/Article/details/124946465.shtml)
-- 2026-06-29 12:44 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.share.minike.top/Article/details/869230432.shtml)
-- 2026-06-29 12:26 - [去年全国核发绿证超过29亿个](http://www.share.kurohicncr.top/Article/details/082893.shtml)
-- 2026-06-29 12:48 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.share.minike.top/Article/details/06892559.shtml)
+- 2026-06-29 12:30 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.minike.top/Article/details/64089756050.shtml)
+- 2026-06-29 12:45 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.kurohicncr.top/Article/details/633634068.shtml)
+- 2026-06-29 12:37 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/547644801.shtml)
+- 2026-06-29 12:32 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.minike.top/Article/details/4005672.shtml)
+- 2026-06-29 12:52 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.share.kurohicncr.top/Article/details/68487.shtml)
+- 2026-06-29 12:35 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.minike.top/Article/details/999000211073.shtml)
+- 2026-06-29 12:57 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [戎装缔良缘 相守赴山河](http://www.share.minike.top/Article/details/671844172.shtml)
+- 2026-06-29 12:55 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.share.minike.top/Article/details/3792327703.shtml)
+- 2026-06-29 12:43 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](http://www.share.minike.top/Article/details/018019009538.shtml)
+- 2026-06-29 12:43 - [GTC泽汇资本:原油溢价回落供需博弈](http://www.blog.kurohicncr.top/Article/details/508668234404.shtml)
+- 2026-06-29 12:50 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.blog.minike.top/Article/details/396527067.shtml)
+- 2026-06-29 12:36 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.minike.top/Article/details/70969350.shtml)
+- 2026-06-29 12:52 - [中国官方附条件批准腾讯收购喜马拉雅股权案](http://www.blog.kurohicncr.top/Article/details/59132096.shtml)
+- 2026-06-29 12:40 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](http://www.blog.kurohicncr.top/Article/details/604126088.shtml)

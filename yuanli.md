@@ -1,59 +1,61 @@
-# 香港赛马会2026年广州市“飞人杯”田径接力赛收官
+# 第二十二届文博会将开幕 聚焦文化产业数智化赋能
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网广州5月18日电 (记者 张璐)香港赛马会2026年广州市“飞人杯”田径接力赛(简称“赛事”)17日在广州天河体育中心体育场收官。 据悉，赛事为期两天，设4×100米、4×400米两大经典组别，覆盖小学、初中、高中、青年、中年组等共33个小项，吸引广州市内中小学、体校、田径俱乐部及社会人士等报名，共214支队伍、766名运动员参赛，是广州本土知名田径IP重启后的全新亮相。
+中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。 本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全
 
 ## 正文
 
-中新网广州5月18日电 (记者 张璐)香港赛马会2026年广州市“飞人杯”田径接力赛(简称“赛事”)17日在广州天河体育中心体育场收官。
+中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。
 
-据悉，赛事为期两天，设4×100米、4×400米两大经典组别，覆盖小学、初中、高中、青年、中年组等共33个小项，吸引广州市内中小学、体校、田径俱乐部及社会人士等报名，共214支队伍、766名运动员参赛，是广州本土知名田径IP重启后的全新亮相。
+本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全球资源聚合、消费体验升级”为核心，实现从“产业展示”到“价值共创”的能级跃升，致力于打造一届更具前沿时尚、数智赋能、交易实效的文化产业盛会。
 
-赛事创新采用复活赛机制，符合条件的队伍均获二次竞技机会，提升群众参赛体验。
+据深圳市委宣传部常务副部长曾相莱介绍，本届展会共组织6312家政府组团、文化机构和企业线上线下参展。
 
-赛事严格执行世界田联及中国田径协会竞赛规则，由国际级裁判团队全程执裁，沿用世界田联接力赛标准场地，专业度对标省级高水平赛事。
+全球65个国家和地区、310家海外展商线上线下参展，其中42个国家和地区的148家企业线下参展。
 
-同时，赛事正式设立赛会纪录与城市飞人挑战纪录，各项目最佳成绩纳入城市纪录库，推动赛事品牌长效传承。
+深圳市文化广电旅游体育局局长刘蕾表示，本届文博会整体呈现“参会阵容更强、国际朋友圈更广、科技含量更浓、文化交易更实”的鲜明特质。
 
-赛场上，各年龄组别选手奋勇争先、默契配合，充分展现速度与协作之美。
+据介绍，本届展会市场化组展质量和数量取得新突破，预计397家国内外头部及品牌企业同台亮相，同比增长31%；预计将有来自110个国家和地区、3.5万名海外专业观众参会；首次设立APEC经济体展区，并在展期内举办“鲲鹏会·春华”国际经贸交流活动，呈现多元文化交融的精彩成果。
 
-经过两天激烈角逐，各组别奖项悉数决出。
+本届文博会重点设置人工智能展区、AI未来科技展区等。
 
-据介绍，赛事的举办，进一步夯实了广州田径后备人才根基，丰富了全民健身赛事供给，推动粤港澳大湾区体育文化交流走深走实，助力广州体育强市建设。
+在北京亦庄马拉松超越人类半马世界纪录而火爆出圈的荣耀“闪电”机器人，以及众擎、乐聚、元气仔、数字华夏等机器人将亮相，全方位增强展会科技感、沉浸感与体验感。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:36 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:50 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:28 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:52 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:31 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:36 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:33 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:30 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:47 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:51 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:38 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:25 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:37 - [“三不明”中成药或从医保目录“清退” 专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:57 - [利好！3800亿巨头，午后直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:56 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:51 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:44 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:42 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:41 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:50 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:58 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:37 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:34 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:59 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:36 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:57 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:54 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](http://www.share.kurohicncr.top/Article/details/07287420336.shtml)
-- 2026-06-29 12:34 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/25770883.shtml)
-- 2026-06-29 12:46 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.minike.top/Article/details/13295.shtml)
-- 2026-06-29 12:49 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.minike.top/Article/details/176342.shtml)
-- 2026-06-29 12:48 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.blog.minike.top/Article/details/85194538.shtml)
-- 2026-06-29 12:29 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.share.kurohicncr.top/Article/details/95909.shtml)
-- 2026-06-29 12:47 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [缅甸发生5.2级地震 震源深度10千米](http://www.share.minike.top/Article/details/26121364.shtml)
-- 2026-06-29 12:40 - [娄山观|谁说山地不能刚？贵州农业硬核登场](http://www.blog.minike.top/Article/details/67037459786.shtml)
-- 2026-06-29 12:40 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.share.kurohicncr.top/Article/details/3443404.shtml)
-- 2026-06-29 12:29 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](http://www.blog.minike.top/Article/details/963424.shtml)
-- 2026-06-29 12:26 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.kurohicncr.top/Article/details/2185867819.shtml)
-- 2026-06-29 12:50 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.share.kurohicncr.top/Article/details/69501606.shtml)
+- 2026-06-29 12:56 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](http://www.share.kurohicncr.top/Article/details/36147253611.shtml)
+- 2026-06-29 12:57 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.share.kurohicncr.top/Article/details/49886.shtml)
+- 2026-06-29 12:41 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](http://www.blog.kurohicncr.top/Article/details/452990166003.shtml)
+- 2026-06-29 12:47 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.share.kurohicncr.top/Article/details/28416.shtml)
+- 2026-06-29 12:56 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.blog.minike.top/Article/details/695116373.shtml)
+- 2026-06-29 12:41 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [5月12日龙虎榜，机构青睐这10股](http://www.share.kurohicncr.top/Article/details/8689380902.shtml)
+- 2026-06-29 12:49 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.share.minike.top/Article/details/42149.shtml)
+- 2026-06-29 12:39 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.minike.top/Article/details/71555000.shtml)
+- 2026-06-29 12:50 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.kurohicncr.top/Article/details/961578493.shtml)
+- 2026-06-29 12:45 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.kurohicncr.top/Article/details/4891105456.shtml)
+- 2026-06-29 12:53 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)

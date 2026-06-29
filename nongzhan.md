@@ -1,56 +1,54 @@
-# 十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在
+# 赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周三大指数涨跌不一，上证指数跌1.07%，深证成指跌0.02%，创业板指涨3.50%，后市将如何发展？看看机构怎么说。 中信证券：调整何解？重建杠铃结构 此轮结构性行情的资金驱动力主要来源于存量调仓和融资盘流入，TMT成交占比阶段性见顶后，我们估计全A换手率会逐步回落至1.8%以下。特朗普访华确立了中美关
+2026年5月12日，江西赣锋锂业集团股份有限公司(002460.SZ)发布公告称，公司对2022年股票期权激励计划第四个行权期因公司层面业绩未达标、当期不得行权的55.125万份股票期权予以注销。经中国证券登记结算有限责任公司深圳分公司审核确认，注销事宜已办理完成，本次注销不影响公司股本，股本结构未发生变化。公告显示，根据公司《2022年股票期权激励计划(草案)》，行权考核年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年5月12日，江西赣锋锂业集团股份有限公司(002460.SZ)发布公告称，公司对2022年股票期权激励计划第四个行权期因公司层面业绩未达标、当期不得行权的55.125万份股票期权予以注销。
 
-本周三大指数涨跌不一，上证指数跌1.07%，深证成指跌0.02%，创业板指涨3.50%，后市将如何发展？
+经中国证券登记结算有限责任公司深圳分公司审核确认，注销事宜已办理完成，本次注销不影响公司股本，股本结构未发生变化。
 
-看看机构怎么说。
+公告显示，根据公司《2022年股票期权激励计划(草案)》，行权考核年度为2022至2025年四个会计年度，每个会计年度考核一次。
 
-中信证券：调整何解？
+如公司未达到业绩考核目标，所有激励对象对应考核当年可行权的股票期权不得行权，由公司注销。
 
-重建杠铃结构 此轮结构性行情的资金驱动力主要来源于存量调仓和融资盘流入，TMT成交占比阶段性见顶后，我们估计全A换手率会逐步回落至1.8%以下。
+本次注销系第四个行权期公司业绩未达标所致。
 
-特朗普访华确立了中美关系回到“竞争但不冲突”的框架，不过市场情绪可能是阶段性高位，一旦情绪回落，全球流动性收紧预期在投资者决策中的影响权重会开始上升。
-
-降温后，市场结构的多元化特征料将会有所回归，重返杠铃结构的必要性在增加，预计AI+能化是今年更合适的结构。
-
-广发证券：这是一场EPS上调速度和利率上行速度的较量 没有历史经验表明利率上行、流动性收缩不利于科技股、导致成长股杀估值，这些逻辑关系更像是经不起推敲和实证检验的错误常识。
+此前，公司已于2026年4月29日召开第六届董事会第十五次会议审议通过相关议案，并于4月30日披露了注销公告。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:52 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:50 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:31 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:45 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:49 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:49 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:28 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:36 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:26 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:44 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:54 - [抓住重点 务求实效（人民论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:34 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:36 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:47 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:39 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:40 - [我国成功发射千帆极轨09组卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:49 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:53 - [焦煤短期承压的核心逻辑是？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:39 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:44 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:53 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.share.kurohicncr.top/Article/details/84403795.shtml)
-- 2026-06-29 12:35 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.blog.kurohicncr.top/Article/details/45094.shtml)
-- 2026-06-29 12:48 - [让2026年成为中美关系继往开来的历史性、标志性年份](http://www.blog.minike.top/Article/details/9654710495.shtml)
-- 2026-06-29 12:38 - [川投新能源公司总经理刘亮被遣返回国](http://www.blog.kurohicncr.top/Article/details/957335993.shtml)
-- 2026-06-29 12:46 - [美伊谈判，又有新消息](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.share.minike.top/Article/details/501496285.shtml)
-- 2026-06-29 12:47 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](http://www.blog.minike.top/Article/details/4681783.shtml)
-- 2026-06-29 12:30 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.blog.minike.top/Article/details/587757.shtml)
-- 2026-06-29 12:41 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.share.minike.top/Article/details/3241765.shtml)
-- 2026-06-29 12:47 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.share.kurohicncr.top/Article/details/2497515.shtml)
-- 2026-06-29 12:26 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/148726217907.shtml)
-- 2026-06-29 12:28 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](http://www.share.kurohicncr.top/Article/details/30790.shtml)
-- 2026-06-29 12:25 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.share.minike.top/Article/details/712834904961.shtml)
-- 2026-06-29 12:43 - [30年期美债收益率重返5% 见顶还是新开始？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.blog.kurohicncr.top/Article/details/06299936355.shtml)
+- 2026-06-29 12:53 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](http://www.share.kurohicncr.top/Article/details/16007397.shtml)
+- 2026-06-29 12:39 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](http://www.share.minike.top/Article/details/82761.shtml)
+- 2026-06-29 12:37 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](http://www.share.kurohicncr.top/Article/details/0415634.shtml)
+- 2026-06-29 12:47 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](http://www.blog.kurohicncr.top/Article/details/41952368225.shtml)
+- 2026-06-29 12:59 - [哈萨克斯坦前4个月GDP同比增长3.6%](http://www.blog.kurohicncr.top/Article/details/417689190.shtml)
+- 2026-06-29 12:56 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](http://www.blog.kurohicncr.top/Article/details/88924510842.shtml)
+- 2026-06-29 12:56 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [受中东局势影响 德钢铁巨头下调销售预期](http://www.blog.minike.top/Article/details/91406853359.shtml)
+- 2026-06-29 12:55 - [ATFX:美国CPI数据发布 美元何去何从](http://www.blog.minike.top/Article/details/860723.shtml)
+- 2026-06-29 12:47 - [一家外资家电巨头在中国卖场的“最后时刻”](http://www.share.minike.top/Article/details/75387626152.shtml)
+- 2026-06-29 12:32 - [多家海外华文媒体聚焦广西南宁 记录南宁发展变化](http://www.share.minike.top/Article/details/23143969396.shtml)
+- 2026-06-29 12:41 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](http://www.blog.minike.top/Article/details/5069239630.shtml)
+- 2026-06-29 12:39 - [日本：民众集会反对“国家情报会议”设置法案](http://www.blog.kurohicncr.top/Article/details/0924016.shtml)
+- 2026-06-29 12:37 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.blog.minike.top/Article/details/296992142.shtml)

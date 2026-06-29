@@ -1,57 +1,57 @@
-# 最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例
+# 罕见！保险公司中支总经理任职资格被否，这些“硬门槛”不可碰
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网5月17日电 据最高人民法院网站消息，在5月17日第三十六个全国助残日来临之际，最高人民法院会同中国残联发布残疾人诉讼服务和多元解纷典型案例(第二批)。本批案例聚焦新就业形态残疾人交通事故、劳务报酬、直播打赏、消费维权、人身损害等与残疾人生活息息相关的重点领域，充分展现人民法院携手残联依托“总对总”机制，为残疾人提供无障碍诉讼服务、心理疏导等多种助残司法服务，通过联合调解
+界面新闻记者 | 曾令俊 去年以来金融机构负责人任职资格被否案例继续增加。 5月12日，国家金融监督管理总局大庆监管分局发布批复，不予核准王洪波担任和谐健康保险股份有限公司大庆中心支公司总经理的任职资格。一纸批复，在外界看来或许只是寻常公文，但在金融业内却引发了不少关注：保险机构中心支公司总经理任职资格被否，并不常见。 而这并非个例。去年以来，已有数位银行、保险机构的拟任负责人
 
 ## 正文
 
-中新网5月17日电 据最高人民法院网站消息，在5月17日第三十六个全国助残日来临之际，最高人民法院会同中国残联发布残疾人诉讼服务和多元解纷典型案例(第二批)。
+界面新闻记者 | 曾令俊 去年以来金融机构负责人任职资格被否案例继续增加。
 
-本批案例聚焦新就业形态残疾人交通事故、劳务报酬、直播打赏、消费维权、人身损害等与残疾人生活息息相关的重点领域，充分展现人民法院携手残联依托“总对总”机制，为残疾人提供无障碍诉讼服务、心理疏导等多种助残司法服务，通过联合调解高效化解涉残纠纷，切实打通服务残疾人“最后一公里”，把“以人民为中心”的发展思想落到实处的生动实践。
+5月12日，国家金融监督管理总局大庆监管分局发布批复，不予核准王洪波担任和谐健康保险股份有限公司大庆中心支公司总经理的任职资格。
 
-本批典型案例呈现出以下特点：一是加强涉残司法服务供给，促推残疾人无障碍解纷。
+一纸批复，在外界看来或许只是寻常公文，但在金融业内却引发了不少关注：保险机构中心支公司总经理任职资格被否，并不常见。
 
-人民法院会同残联全面落实《十条意见》，将无障碍诉讼服务贯穿纠纷化解全过程，通过手语翻译、语音在线转换软件等搭建温暖高效的沟通桥梁，确保残疾人充分、精准表达诉求。
+而这并非个例。
 
-案例一中，北京东城法院建立“适残诉讼服务机制”，通过开辟无障碍绿色通道、引入残联专业辅助，为听力残疾人提供全流程细致高效的无障碍服务，让残疾人仅用时七日就收到交通事故赔偿款，充分保障新就业形态残疾人群体合法权益，让“无声”诉求得到“有声”回应。
+去年以来，已有数位银行、保险机构的拟任负责人在“临门一脚”时被监管拦下。
 
-案例二中，内蒙古呼和浩特托克托县法院为肢体残疾人提供专人陪同代办、优先快速立案等服务，有效破解残疾人表达难、立案不便的现实困境，以精准、专业、高效的解纷服务筑牢残疾人劳动者权益保障防线，彰显司法服务的温度、精度与速度。
+被否的原因有什么？
 
-二是“法院+残联”协同联动，赋能多元解纷提质增效。
+南开大学金融发展研究院院长田利辉对界面新闻记者分析说，这是监管从“准入合规”向“准入净化”的跃升，释放出“金融监管长牙齿、严准入”的清晰信号。
 
-依托“总对总”多元解纷机制，切实发挥“法院指导+残联参与”的叠加效应，人民法院发挥专业指导优势和司法保障作用，残联发挥“娘家人”的桥梁纽带优势，促推涉残疾人纠纷高效实质化解，充分凸显多元解纷合力。
+今年被否案例增多，直接触发因素是2025年6月新修订的《银行业金融机构高管任职资格办法》，首次将警告、通报批评未满一年等明确列为否决硬指标，高管历史违规包袱成为一票否决项。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:28 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:39 - [古巴国家主席说美对古军事威胁已构成国际犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:46 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:43 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:26 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:52 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:43 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:39 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:31 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:42 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:30 - [花旗：调整商品偏好次序首选铜 新首选股包括宁德时代等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:47 - [第二十二届文博会将开幕 聚焦文化产业数智化赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:56 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [知名基金经理，最新调仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:48 - [俞浩发女装照回应刘靖康](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:41 - [均胜电子将于6月16日派发末期股息每10股2.057467港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:32 - [美国财长贝森特承诺美日将在外汇领域保持持续且强有力的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:57 - [AI超级行情引爆散户热情，投机热度创疫情以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:52 - [“三不明”中成药或从医保目录“清退” 专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:54 - [利好！3800亿巨头，午后直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:53 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.share.minike.top/Article/details/471832158246.shtml)
-- 2026-06-29 12:29 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.share.minike.top/Article/details/737217818789.shtml)
-- 2026-06-29 12:46 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.share.kurohicncr.top/Article/details/842123966732.shtml)
-- 2026-06-29 12:40 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [西藏居然有三家公募基金](http://www.blog.kurohicncr.top/Article/details/6253287.shtml)
-- 2026-06-29 12:37 - [M4Markets:金价剧震下蓄力新方向](http://www.share.minike.top/Article/details/09115906809.shtml)
-- 2026-06-29 12:48 - [5月11日—5月17日国家铁路运输货物8198.9万吨](http://www.share.kurohicncr.top/Article/details/437056236833.shtml)
-- 2026-06-29 12:45 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.share.kurohicncr.top/Article/details/023158089.shtml)
-- 2026-06-29 12:26 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.minike.top/Article/details/39340.shtml)
-- 2026-06-29 12:40 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.minike.top/Article/details/080650053.shtml)
-- 2026-06-29 12:35 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.blog.kurohicncr.top/Article/details/295352969860.shtml)
-- 2026-06-29 12:28 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](http://www.blog.kurohicncr.top/Article/details/392172322.shtml)
+- 2026-06-29 12:54 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [“广西三月三”系列活动走进香港](http://www.share.kurohicncr.top/Article/details/56551595.shtml)
+- 2026-06-29 12:54 - [M4Markets:白银突破八十美元关口](http://www.blog.minike.top/Article/details/649645750890.shtml)
+- 2026-06-29 12:37 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](http://www.blog.kurohicncr.top/Article/details/39067728.shtml)
+- 2026-06-29 12:32 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.minike.top/Article/details/463229807132.shtml)
+- 2026-06-29 12:46 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](http://www.share.kurohicncr.top/Article/details/570046615.shtml)
+- 2026-06-29 12:57 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](http://www.share.kurohicncr.top/Article/details/41624623.shtml)
+- 2026-06-29 12:59 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](http://www.share.kurohicncr.top/Article/details/21638558.shtml)
+- 2026-06-29 12:30 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.blog.minike.top/Article/details/8333915.shtml)
+- 2026-06-29 12:50 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.share.kurohicncr.top/Article/details/33024305375.shtml)
+- 2026-06-29 12:48 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.blog.minike.top/Article/details/519759289249.shtml)

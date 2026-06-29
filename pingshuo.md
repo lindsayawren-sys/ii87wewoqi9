@@ -1,57 +1,61 @@
-# 深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声
+# 知名基金经理，最新调仓
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-美伊谈判传来一系列新消息！ 据新华社援引伊朗媒体18日报道，美国在回应伊朗的新谈判文本中，同意在谈判期间豁免对伊朗的石油制裁。 Axios援引美国官员和知情人士报道称，伊朗已经针对一份潜在停火协议给出一份更新版方案。然而，美国白宫认为，伊朗的最新建议没有实质性意义。美国拒绝伊朗最新和平提议。 资本市场方面，北京时间18日晚间，欧洲股市大幅拉升。截至发稿，德国DAX30指数涨幅扩
+近日，力源信息、乖宝宠物、小熊电器、新宝股份等多家A股上市公司，因回购等事项披露了最新的前十大股东情况。任桀、周云、张璐等多位知名基金经理的调仓操作，随之浮出水面。 基金经理最新调仓浮现 力源信息5月11日发布公告，截至5月8日，基金经理任桀管理的永赢科技智选混合现身力源信息前十大流通股股东之列，持股量932.49万股，期末参考市值超1.3亿元。而记者在永赢科技智选混合的202
 
 ## 正文
 
-美伊谈判传来一系列新消息！
+近日，力源信息、乖宝宠物、小熊电器、新宝股份等多家A股上市公司，因回购等事项披露了最新的前十大股东情况。
 
-据新华社援引伊朗媒体18日报道，美国在回应伊朗的新谈判文本中，同意在谈判期间豁免对伊朗的石油制裁。
+任桀、周云、张璐等多位知名基金经理的调仓操作，随之浮出水面。
 
-Axios援引美国官员和知情人士报道称，伊朗已经针对一份潜在停火协议给出一份更新版方案。
+基金经理最新调仓浮现 力源信息5月11日发布公告，截至5月8日，基金经理任桀管理的永赢科技智选混合现身力源信息前十大流通股股东之列，持股量932.49万股，期末参考市值超1.3亿元。
 
-然而，美国白宫认为，伊朗的最新建议没有实质性意义。
+而记者在永赢科技智选混合的2025年年报和2026年一季报中未找到力源信息的重仓信息，力源信息一季度末披露的前十大流通股股东中也未出现永赢科技智选混合的名字。
 
-美国拒绝伊朗最新和平提议。
+这意味着，任桀或许在一季度结束后逐步加仓。
 
-资本市场方面，北京时间18日晚间，欧洲股市大幅拉升。
+4月以来，力源信息迎来了一波上涨行情。
 
-截至发稿，德国DAX30指数涨幅扩大至1.93%，英国富时100指数涨1.28%；欧洲斯托克50指数涨0.58%，法国CAC40指数上涨0.49%，此前跌幅均超过1%。
+4月1日，力源信息收报11.06元/股；5月12日，力源信息收报14.62元/股，股价区间涨幅超35%。
 
-美股三大指数走势分化。
+值得一提的是，永赢科技智选混合在2025年以233%的年度回报率成为当年的主动权益基金冠军。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:26 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:25 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:39 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:39 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:40 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:30 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:35 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:45 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:27 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:29 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:53 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:38 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:42 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:39 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:30 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:49 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:33 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:31 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:47 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:49 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:57 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:42 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:31 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:36 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:52 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.minike.top/Article/details/5272802.shtml)
-- 2026-06-29 12:52 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.minike.top/Article/details/140867026.shtml)
-- 2026-06-29 12:53 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.blog.kurohicncr.top/Article/details/3797619.shtml)
-- 2026-06-29 12:38 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.share.minike.top/Article/details/8846338.shtml)
-- 2026-06-29 12:47 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.blog.kurohicncr.top/Article/details/38072.shtml)
-- 2026-06-29 12:30 - [缅甸发生5.2级地震 震源深度10千米](http://www.share.kurohicncr.top/Article/details/75681386321.shtml)
-- 2026-06-29 12:40 - [娄山观|谁说山地不能刚？贵州农业硬核登场](http://www.blog.minike.top/Article/details/0113429.shtml)
-- 2026-06-29 12:37 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.blog.kurohicncr.top/Article/details/390262.shtml)
-- 2026-06-29 12:29 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.blog.kurohicncr.top/Article/details/10229399705.shtml)
-- 2026-06-29 12:53 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.kurohicncr.top/Article/details/308790898354.shtml)
-- 2026-06-29 12:33 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.blog.kurohicncr.top/Article/details/94422666.shtml)
-- 2026-06-29 12:38 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.kurohicncr.top/Article/details/01387.shtml)
-- 2026-06-29 12:52 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.blog.kurohicncr.top/Article/details/79496.shtml)
+- 2026-06-29 12:56 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.blog.minike.top/Article/details/184012158522.shtml)
+- 2026-06-29 12:46 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.blog.kurohicncr.top/Article/details/062118568.shtml)
+- 2026-06-29 12:48 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.blog.kurohicncr.top/Article/details/204068714814.shtml)
+- 2026-06-29 12:57 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.share.kurohicncr.top/Article/details/5548172609.shtml)
+- 2026-06-29 12:56 - [我国牵头制定发布14项天然气领域国际标准](http://www.share.kurohicncr.top/Article/details/02205675.shtml)
+- 2026-06-29 12:31 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.blog.kurohicncr.top/Article/details/1856931362.shtml)
+- 2026-06-29 12:55 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.kurohicncr.top/Article/details/709501249520.shtml)
+- 2026-06-29 12:43 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.blog.kurohicncr.top/Article/details/58251.shtml)
+- 2026-06-29 12:42 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.kurohicncr.top/Article/details/78362.shtml)
+- 2026-06-29 12:31 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.blog.minike.top/Article/details/00372.shtml)
+- 2026-06-29 12:35 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.blog.minike.top/Article/details/748702142.shtml)
+- 2026-06-29 12:36 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.blog.minike.top/Article/details/1382830470.shtml)

@@ -1,60 +1,59 @@
-# A股，重磅新规！千家公司面临调整
+# 欧洲股市下跌，英镑及英国银行股因政治动荡走低
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！证监会发布的《上市公司董事会秘书监管规则》（本文中简称“董秘新规”或“董秘规则”），即将于2026年5月24日起施行，其中提到“董事会秘书不得兼任经理、分管经营业务的副经理、财务负责人”。 上述董秘新规虽暂未正式落地，但不少A股上市公司已在摩拳擦掌，积极物色
+欧洲股市早盘普跌，美伊战争快速化解的前景愈发渺茫，而英国首相基尔・斯塔默的执政地位岌岌可危。 泛欧斯托克 600 指数下跌 0.8%，所有板块及主要交易所股指均全线飘绿。 表格 投资者密切关注英国不断升级的政治危机：继执政党工党上周地方议会选举惨败后，逾 70 名工党议员联合政府大臣，一同呼吁斯塔默辞职或明确下台时间表。 但斯塔默在周二的例行内阁会议上明确表示，无意辞职，将继续
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+欧洲股市早盘普跌，美伊战争快速化解的前景愈发渺茫，而英国首相基尔・斯塔默的执政地位岌岌可危。
 
-证监会发布的《上市公司董事会秘书监管规则》（本文中简称“董秘新规”或“董秘规则”），即将于2026年5月24日起施行，其中提到“董事会秘书不得兼任经理、分管经营业务的副经理、财务负责人”。
+泛欧斯托克 600 指数下跌 0.8%，所有板块及主要交易所股指均全线飘绿。
 
-上述董秘新规虽暂未正式落地，但不少A股上市公司已在摩拳擦掌，积极物色董秘人选，应对新变化。
+表格 投资者密切关注英国不断升级的政治危机：继执政党工党上周地方议会选举惨败后，逾 70 名工党议员联合政府大臣，一同呼吁斯塔默辞职或明确下台时间表。
 
-另外，对于董秘新规将带来的影响，各方普遍给予肯定。
+但斯塔默在周二的例行内阁会议上明确表示，无意辞职，将继续 “专注施政”。
 
-有法律界人士在接受证券时报记者采访时认为，新规禁止董秘兼任关键经营与财务职务，能有效防止角色混淆与利益干扰，使其更专注于保障信息披露的真实准确完整、监督公司治理架构与程序的合规性，从而守住上市公司治理的关键防线。
+他提醒同僚，工党有党内领袖罢免程序，目前尚未触发。
 
-董秘新规落地在即 企业开始“抢人”纳才 “熟悉资本市场运作规则，了解证券法、公司法等相关法律法规”“有上市公司董事会秘书工作经验者优先”，一家已转型“游戏+云服务”的A股上市公司近期在招聘董秘的任职条件中提到。
+首相已为选举失利担责，并于周一承认党内存在 “质疑者”，承诺将 “直面国家面临的重大挑战”，但此番讲话未能安抚党内核心人士，多名政务助理周一晚间相继辞职。
 
-另一家生物技术行业A股上市企业近期也在招揽董秘人才，在其提出的招聘任职条件中，该企业要求应聘者需具备“8年以上工作经验，其中至少3年上市公司董秘或相关高管经验”，在教育背景方面，要求“本科及以上学历，金融、法律、财务、经济、管理等相关专业”。
+英国国债（gilts）收益率周二早盘延续涨势，基准 10 年期国债收益率上涨近 12 个基点，报 5.126%。
 
-上述案例，是近期A股上市公司密集招揽董秘人才的一个缩影。
+与此同时，英镑兑美元下跌 0.6%，兑欧元下跌 0.3%。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:46 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:38 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:25 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:25 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:43 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:46 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:48 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:47 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:28 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:35 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:31 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:31 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:44 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:44 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:53 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:40 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:51 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:45 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:41 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:53 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:55 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:31 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:50 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:43 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:43 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:46 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/19438451894.shtml)
-- 2026-06-29 12:46 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.share.minike.top/Article/details/929624.shtml)
-- 2026-06-29 12:41 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.share.minike.top/Article/details/844797243393.shtml)
-- 2026-06-29 12:29 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.blog.minike.top/Article/details/5874779412.shtml)
-- 2026-06-29 12:51 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.minike.top/Article/details/18428308.shtml)
-- 2026-06-29 12:35 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.share.kurohicncr.top/Article/details/12752709359.shtml)
-- 2026-06-29 12:29 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.share.kurohicncr.top/Article/details/943255676461.shtml)
-- 2026-06-29 12:39 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.blog.kurohicncr.top/Article/details/303149446403.shtml)
-- 2026-06-29 12:31 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.blog.minike.top/Article/details/75838613125.shtml)
-- 2026-06-29 12:32 - [中俄林业教育科技产业创新联盟成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.share.minike.top/Article/details/701849.shtml)
-- 2026-06-29 12:49 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.blog.minike.top/Article/details/83838.shtml)
+- 2026-06-29 12:58 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.blog.kurohicncr.top/Article/details/83290107.shtml)
+- 2026-06-29 12:54 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.blog.minike.top/Article/details/96407.shtml)
+- 2026-06-29 12:49 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](http://www.share.minike.top/Article/details/248584.shtml)
+- 2026-06-29 12:58 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.share.minike.top/Article/details/6202271.shtml)
+- 2026-06-29 12:41 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.blog.minike.top/Article/details/8403856772.shtml)
+- 2026-06-29 12:30 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.share.kurohicncr.top/Article/details/0274990.shtml)
+- 2026-06-29 12:37 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.blog.minike.top/Article/details/6255272262.shtml)
+- 2026-06-29 12:48 - [德乌计划联合研发生产各型无人机](http://www.blog.kurohicncr.top/Article/details/6558637889.shtml)
+- 2026-06-29 12:51 - [一季度西藏社会消费品零售总额255.83亿元](http://www.blog.kurohicncr.top/Article/details/5644665932.shtml)
+- 2026-06-29 12:42 - [习近平会见文莱王储比拉](http://www.blog.kurohicncr.top/Article/details/44340507831.shtml)
+- 2026-06-29 12:55 - [韩国交易所开始在资本市场监测工作中采用AI技术](http://www.share.kurohicncr.top/Article/details/6598177386.shtml)
+- 2026-06-29 12:51 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.share.minike.top/Article/details/32846009.shtml)
+- 2026-06-29 12:54 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.share.minike.top/Article/details/6280756.shtml)
+- 2026-06-29 12:57 - [三峡库区水位加快消落 调整航标保畅通](http://www.blog.minike.top/Article/details/605180657345.shtml)
+- 2026-06-29 12:30 - [AI盈利兑现+油价回落，美股延续反弹](http://www.blog.kurohicncr.top/Article/details/69447.shtml)

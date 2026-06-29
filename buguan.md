@@ -1,58 +1,56 @@
-# “AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端
+# 人工智能概念股涨势消退，中东停火协议“命悬一线”
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 AI内存芯片的繁荣能持续多久？ 华尔街日报专栏作家James Mackintosh于5月16日撰文指出，当前AI存储芯片的繁荣正在孕育自我毁灭的种子。文章以美光科技为核心案例，系统梳理了这一轮AI芯片热潮背后的风险。 美光科技三年前刚刚录得史上最大亏损，如今却被预测将成为美国第六大盈利公司
+周二，油价小幅上涨、美元走强，市场对霍尔木兹海峡航运通航协议的希望破灭；与此同时，芯片股的火热涨势降温，交易员静待美国通胀数据出炉。 美国总统唐纳德・特朗普表示，与伊朗为期一个月的停火协议已 “命悬一线”。此前，伊朗方面对美国提出的结束战争方案作出回应，明确显示双方分歧巨大。 布伦特原油期货上涨 2%，至每桶约 106.4 美元。 欧洲方面，斯托克 600 指数（STOXX 6
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+周二，油价小幅上涨、美元走强，市场对霍尔木兹海峡航运通航协议的希望破灭；与此同时，芯片股的火热涨势降温，交易员静待美国通胀数据出炉。
 
-来源：华尔街见闻 AI内存芯片的繁荣能持续多久？
+美国总统唐纳德・特朗普表示，与伊朗为期一个月的停火协议已 “命悬一线”。
 
-华尔街日报专栏作家James Mackintosh于5月16日撰文指出，当前AI存储芯片的繁荣正在孕育自我毁灭的种子。
+此前，伊朗方面对美国提出的结束战争方案作出回应，明确显示双方分歧巨大。
 
-文章以美光科技为核心案例，系统梳理了这一轮AI芯片热潮背后的风险。
+布伦特原油期货上涨 2%，至每桶约 106.4 美元。
 
-美光科技三年前刚刚录得史上最大亏损，如今却被预测将成为美国第六大盈利公司，未来12个月净利润接近1000亿美元，超过Meta和伯克希尔·哈撒韦。
+欧洲方面，斯托克 600 指数（STOXX 600）较 2 月底创下的历史高点仅低 4%，早盘下跌 1.2%；美国标普 500 指数和纳斯达克指数期货分别下跌 0.4% 和 0.7%。
 
-与此同时，韩国的三星电子和SK海力士同样受益于高带宽内存（HBM）需求爆发，韩国股市今年成为全球表现最好的市场之一。
+摩根士丹利资本国际（MSCI）除日本外亚洲股指下跌 0.6%。
 
-但越繁荣，却越危险。
+就连首尔近乎势不可挡的韩国综合股价指数（KOSPI）也涨势遇阻，在逼近 8000 点时回落，下跌约 3.5%，拖累区域其他市场走低。
 
-低估值不等于便宜，历史一再打脸 美光科技目前的市盈率不到10倍，在标普500中属于最便宜的一批股票。
+德意志银行策略师吉姆・里德表示，美伊双方谈判僵局未见缓解，布伦特原油价格延续前一日涨势。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:46 - [中俄共绘教育合作新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:49 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:51 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:38 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:42 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:25 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:47 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:27 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:24 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:37 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:41 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:58 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:45 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:55 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:30 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:41 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:50 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:50 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:44 - [日本北海道发生4.8级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:38 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:45 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](http://www.share.minike.top/Article/details/984468565116.shtml)
-- 2026-06-29 12:54 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [近镜头｜中美元首会晤速览](http://www.blog.kurohicncr.top/Article/details/46179.shtml)
-- 2026-06-29 12:45 - [我们为什么需要博物馆？](http://www.share.minike.top/Article/details/490757732946.shtml)
-- 2026-06-29 12:46 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.blog.minike.top/Article/details/761524.shtml)
-- 2026-06-29 12:26 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.blog.minike.top/Article/details/88477239.shtml)
-- 2026-06-29 12:43 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.share.kurohicncr.top/Article/details/624061695330.shtml)
-- 2026-06-29 12:40 - [高阶产能落地美国 阿特斯加速转型“北美制造”](http://www.blog.minike.top/Article/details/425946008.shtml)
-- 2026-06-29 12:37 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.blog.minike.top/Article/details/824113.shtml)
-- 2026-06-29 12:39 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](http://www.share.minike.top/Article/details/6100203.shtml)
-- 2026-06-29 12:34 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.blog.kurohicncr.top/Article/details/31050879687.shtml)
-- 2026-06-29 12:35 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.blog.kurohicncr.top/Article/details/34361073.shtml)
-- 2026-06-29 12:41 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [川投新能源公司总经理刘亮被遣返回国](http://www.blog.kurohicncr.top/Article/details/1512445306.shtml)
-- 2026-06-29 12:52 - [美伊谈判，又有新消息](http://www.share.kurohicncr.top/Article/details/466511171287.shtml)
+- 2026-06-29 12:35 - [欧佩克下调2026年全球石油需求增长预期](http://www.blog.kurohicncr.top/Article/details/5778632.shtml)
+- 2026-06-29 12:58 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](http://www.share.kurohicncr.top/Article/details/304221.shtml)
+- 2026-06-29 12:55 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](http://www.blog.minike.top/Article/details/525859.shtml)
+- 2026-06-29 12:31 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [油价上涨拖累全球股市](http://www.blog.minike.top/Article/details/06222123944.shtml)
+- 2026-06-29 12:36 - [五月生猪行情横向震荡，中期修复窗口逐步临近](http://www.share.minike.top/Article/details/936566427.shtml)
+- 2026-06-29 12:50 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](http://www.blog.minike.top/Article/details/53270234848.shtml)
+- 2026-06-29 12:57 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](http://www.share.minike.top/Article/details/93986449.shtml)
+- 2026-06-29 12:54 - [联合航空将恢复飞往委内瑞拉航线](http://www.blog.minike.top/Article/details/463083471.shtml)
+- 2026-06-29 12:45 - [尼日利亚军方称打死至少70名疑似恐怖分子](http://www.share.kurohicncr.top/Article/details/11276.shtml)
+- 2026-06-29 12:34 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](http://www.share.kurohicncr.top/Article/details/37869363.shtml)
+- 2026-06-29 12:40 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](http://www.blog.minike.top/Article/details/05364.shtml)
+- 2026-06-29 12:36 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](http://www.share.minike.top/Article/details/7379405625.shtml)
+- 2026-06-29 12:58 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](http://www.blog.kurohicncr.top/Article/details/58585.shtml)
+- 2026-06-29 12:36 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lisacumin64-arch)

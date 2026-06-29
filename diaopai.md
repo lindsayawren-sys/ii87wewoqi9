@@ -1,44 +1,49 @@
-# 西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先
+# 特朗普将访华 北京机场高速公路附近挂起中美两国国旗
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-西南证券发布研报称，劲方医药（02595）以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖1L及各线治疗，产品进度全球领先；预计2026-2028年收入分别为0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。责任编辑：卢昱君
+发布时间：2026年05月13日 18:19 来源：中国新闻网 5月13日，北京。美国总统特朗普将于5月13日至15日访华，北京首都国际机场高速公路附近挂起中美两国国旗。(记者 贾楠 卢晓娜 制作 王雪尔) 责任编辑：【刘湃】
 
 ## 正文
 
-西南证券发布研报称，劲方医药（02595）以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖1L及各线治疗，产品进度全球领先；预计2026-2028年收入分别为0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。
+发布时间：2026年05月13日 18:19 来源：中国新闻网 5月13日，北京。
 
-责任编辑：卢昱君
+美国总统特朗普将于5月13日至15日访华，北京首都国际机场高速公路附近挂起中美两国国旗。
+
+(记者 贾楠 卢晓娜 制作 王雪尔) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:44 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:42 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:41 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:46 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:33 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:25 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:27 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:49 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:39 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:52 - [一季度西藏社会消费品零售总额255.83亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:59 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:39 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:34 - [机构预测2026年泰国平均通货膨胀率为3.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:42 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:40 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:34 - [AI盈利兑现+油价回落，美股延续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:39 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:38 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:55 - [世界期待中美携手多办大事实事好事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:35 - [500亿市值巨头突然直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:52 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:40 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.share.kurohicncr.top/Article/details/861380.shtml)
-- 2026-06-29 12:29 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](http://www.blog.minike.top/Article/details/676850.shtml)
-- 2026-06-29 12:46 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.share.kurohicncr.top/Article/details/5478022521.shtml)
-- 2026-06-29 12:31 - [业绩炸裂！存储芯片龙头净利预增2244%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.share.kurohicncr.top/Article/details/536412550006.shtml)
-- 2026-06-29 12:40 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [中企承建的阿斯塔纳轻轨投入运营](http://www.share.minike.top/Article/details/2458551.shtml)
-- 2026-06-29 12:37 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/659967707690.shtml)
-- 2026-06-29 12:24 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.share.minike.top/Article/details/334584.shtml)
-- 2026-06-29 12:50 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/944006.shtml)
-- 2026-06-29 12:30 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.share.kurohicncr.top/Article/details/891651.shtml)
-- 2026-06-29 12:50 - [安徽休宁：初夏育秧忙](http://www.blog.kurohicncr.top/Article/details/86220235418.shtml)
-- 2026-06-29 12:51 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.kurohicncr.top/Article/details/435228209707.shtml)
-- 2026-06-29 12:45 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.share.kurohicncr.top/Article/details/845568653042.shtml)
-- 2026-06-29 12:32 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.blog.minike.top/Article/details/84012266.shtml)
+- 2026-06-29 12:41 - [第六届“投资辽宁”大会推出优质招商项目185个、需求投资超1100亿元](http://www.share.kurohicncr.top/Article/details/529690.shtml)
+- 2026-06-29 12:52 - [佳通轮胎（600182，S佳通）索赔案启动，鹏都农牧（002505）索赔案再获得法院立案](http://www.share.minike.top/Article/details/787460401379.shtml)
+- 2026-06-29 12:52 - [（近观中国）信短情长，习近平与美国友人的交往故事](http://www.share.minike.top/Article/details/747755112.shtml)
+- 2026-06-29 12:43 - [摩根大通CEO戴蒙称要获得更好增长 需解决美欧之间“愚蠢”的贸易问题](http://www.share.minike.top/Article/details/943498081582.shtml)
+- 2026-06-29 12:58 - [作家梁鸿分享阅读初心 希望阅读让生命充满光亮](http://www.share.kurohicncr.top/Article/details/23521658792.shtml)
+- 2026-06-29 12:59 - [美称一直在监控伊朗埋在废墟下的浓缩铀](http://www.blog.minike.top/Article/details/688194.shtml)
+- 2026-06-29 12:48 - [金观平：千方百计稳住就业基本盘](http://www.share.minike.top/Article/details/54780.shtml)
+- 2026-06-29 12:53 - [4月新能源汽车产销量及出口量均稳定增长](http://www.share.kurohicncr.top/Article/details/78137.shtml)
+- 2026-06-29 12:50 - [MH迈汇:黄金年末望挑战五千关口](http://www.blog.minike.top/Article/details/9602542804.shtml)
+- 2026-06-29 12:40 - [000056，董事会突现新面孔！背靠四川文创企业，相关方回应](http://www.share.minike.top/Article/details/7154660.shtml)
+- 2026-06-29 12:51 - [欧盟就《关键药物法案》达成初步协议 ，旨在强化供应安全与本土制造能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [巴西 3 月零售销售额超预期，创下历史新高](http://www.blog.minike.top/Article/details/792428608.shtml)
+- 2026-06-29 12:36 - [中国U17男足获得2026年世少赛参赛资格](http://www.blog.minike.top/Article/details/8212973408.shtml)
+- 2026-06-29 12:46 - [DNV预测：到2060年清洁氢能将增长100倍](http://www.share.kurohicncr.top/Article/details/65527183394.shtml)
+- 2026-06-29 12:46 - [“我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声](http://www.share.kurohicncr.top/Article/details/8702000.shtml)

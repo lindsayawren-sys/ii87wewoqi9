@@ -1,46 +1,58 @@
-# 国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导
+# 国家市场监管总局附条件批准腾讯收购喜马拉雅股权案
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据应急管理部官方微博消息，5月18日，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情发展态势，部署进一步压紧压实防汛责任，加强涉水路段和漫水桥安全度汛管理，全力做好中小河流洪水、山洪地质灾害、中小水库度汛、城市内涝等防范应对工作，提前果断组织人员转移避险，切实保障人民群众生命财产安全。 国家防总5月18日11时针对
+5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。 经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效
 
 ## 正文
 
-中新网5月18日电 据应急管理部官方微博消息，5月18日，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情发展态势，部署进一步压紧压实防汛责任，加强涉水路段和漫水桥安全度汛管理，全力做好中小河流洪水、山洪地质灾害、中小水库度汛、城市内涝等防范应对工作，提前果断组织人员转移避险，切实保障人民群众生命财产安全。
+5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。
 
-国家防总5月18日11时针对湖南、广西启动防汛四级应急响应，继续维持针对湖北、重庆、贵州的防汛四级应急响应。
+该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
 
-国家防总办公室、国家防灾减灾救灾委员会办公室18日加派2个工作组分赴湖北、湖南协助指导防汛救灾工作，前期派出的工作组继续在广西一线协助指导河池环江县车辆坠河人员搜救工作。
+经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
+
+为有效减少此项经营者集中可能产生的不利影响，市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
+
+经评估，市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
+
+市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护我国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，保障经营主体、消费者合法权益，防范平台“内卷式”竞争，推动平台企业和平台内经营者、劳动者共赢发展‌。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:53 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:49 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:28 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:25 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:41 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:46 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:52 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:34 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:27 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:41 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:45 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:42 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:55 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:58 - [德乌计划联合研发生产各型无人机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:40 - [一季度西藏社会消费品零售总额255.83亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:53 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:58 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:48 - [机构预测2026年泰国平均通货膨胀率为3.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:31 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:45 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:43 - [AI盈利兑现+油价回落，美股延续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:30 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:33 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.kurohicncr.top/Article/details/420977.shtml)
-- 2026-06-29 12:37 - [军工板块三连跌，中国船舶重挫6%！华宝基金军工ETF（512810）下探半年线，场内频现溢价！](http://www.share.kurohicncr.top/Article/details/575071.shtml)
-- 2026-06-29 12:52 - [从史前器物到族群记忆：台湾少数民族同胞探寻两岸共同源流](http://www.blog.kurohicncr.top/Article/details/3480144050.shtml)
-- 2026-06-29 12:38 - [消息称G6上市近两年后 小鹏X9也已获准在澳大利亚销售](http://www.blog.minike.top/Article/details/80358962231.shtml)
-- 2026-06-29 12:32 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.share.kurohicncr.top/Article/details/71470119.shtml)
-- 2026-06-29 12:36 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.blog.kurohicncr.top/Article/details/46056.shtml)
-- 2026-06-29 12:25 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.blog.minike.top/Article/details/77684370009.shtml)
-- 2026-06-29 12:38 - [业绩炸裂！存储芯片龙头净利预增2244%](http://www.blog.minike.top/Article/details/517644.shtml)
-- 2026-06-29 12:52 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.blog.minike.top/Article/details/24416735753.shtml)
-- 2026-06-29 12:39 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [中企承建的阿斯塔纳轻轨投入运营](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/38905160.shtml)
-- 2026-06-29 12:39 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.blog.kurohicncr.top/Article/details/678400001.shtml)
-- 2026-06-29 12:33 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.blog.kurohicncr.top/Article/details/859260413446.shtml)
+- 2026-06-29 12:56 - [湖北当阳：金黄麦浪迎丰收](http://www.share.kurohicncr.top/Article/details/66620646976.shtml)
+- 2026-06-29 12:48 - [最新！伊朗提谈判先决条件！特朗普称“不着急”！英国将强化霍尔木兹海峡军事！国际油价大涨](http://www.blog.kurohicncr.top/Article/details/536273799089.shtml)
+- 2026-06-29 12:41 - [把舵中美关系大方向，习近平主席这样阐述](http://www.blog.kurohicncr.top/Article/details/6330034790.shtml)
+- 2026-06-29 12:54 - [券商再度走强，长城证券冲击涨停，顶流券商ETF华宝（512000）低位连续修复，近4日大举吸金8.42亿元](http://www.share.kurohicncr.top/Article/details/0221366718.shtml)
+- 2026-06-29 12:46 - [南非极端天气已造成至少10人死亡](http://www.share.minike.top/Article/details/100399.shtml)
+- 2026-06-29 12:56 - [第六届“投资辽宁”大会推出优质招商项目185个、需求投资超1100亿元](http://www.share.kurohicncr.top/Article/details/602369.shtml)
+- 2026-06-29 12:38 - [佳通轮胎（600182，S佳通）索赔案启动，鹏都农牧（002505）索赔案再获得法院立案](http://www.share.minike.top/Article/details/19557908505.shtml)
+- 2026-06-29 12:50 - [（近观中国）信短情长，习近平与美国友人的交往故事](http://www.blog.minike.top/Article/details/15460097.shtml)
+- 2026-06-29 12:30 - [摩根大通CEO戴蒙称要获得更好增长 需解决美欧之间“愚蠢”的贸易问题](http://www.share.minike.top/Article/details/20423057.shtml)
+- 2026-06-29 12:55 - [作家梁鸿分享阅读初心 希望阅读让生命充满光亮](http://www.share.minike.top/Article/details/81181.shtml)
+- 2026-06-29 12:56 - [美称一直在监控伊朗埋在废墟下的浓缩铀](http://www.share.minike.top/Article/details/798855.shtml)
+- 2026-06-29 12:45 - [金观平：千方百计稳住就业基本盘](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [4月新能源汽车产销量及出口量均稳定增长](http://www.blog.kurohicncr.top/Article/details/76509191414.shtml)
+- 2026-06-29 12:58 - [MH迈汇:黄金年末望挑战五千关口](http://www.blog.minike.top/Article/details/13246825515.shtml)
+- 2026-06-29 12:42 - [000056，董事会突现新面孔！背靠四川文创企业，相关方回应](http://www.share.kurohicncr.top/Article/details/194014335.shtml)

@@ -1,53 +1,56 @@
-# 美国长债收益率创2023年以来新高 受通胀疑虑影响
+# 2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-美国国债期限最长债券的收益率升至近三年来的最高水准，投资人对通胀加速的疑虑引发全球债务抛售。 美国总统唐纳德·特朗普对伊朗新的施压以达成一项协议、结束持续数周的战争，受此影响，油价延续涨势，30年期美国国债收益率上升3个基点至5.15%。除2023年10月一段短暂的上涨外，长债收益率自2007年以来未曾升至这种水准。 日本30年期国债收益率急升20个基点，这是该国债自1999年
+5月12日，由国家防灾减灾救灾委员会办公室、应急管理部、中央广播电视总台、江西省人民政府联合主办的全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行。国家防灾减灾救灾委员会副主任、应急管理部部长张成中出席并讲话，江西省委副书记、省长叶建春，中央广播电视总台副台长余俊生致辞。应急管理部副部长陈敏主持，江西省委常委、常务副省长任珠峰出席。张成中表示，开展全国防灾减灾日暨防灾减灾宣
 
 ## 正文
 
-美国国债期限最长债券的收益率升至近三年来的最高水准，投资人对通胀加速的疑虑引发全球债务抛售。
+5月12日，由国家防灾减灾救灾委员会办公室、应急管理部、中央广播电视总台、江西省人民政府联合主办的全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行。
 
-美国总统唐纳德·特朗普对伊朗新的施压以达成一项协议、结束持续数周的战争，受此影响，油价延续涨势，30年期美国国债收益率上升3个基点至5.15%。
+国家防灾减灾救灾委员会副主任、应急管理部部长张成中出席并讲话，江西省委副书记、省长叶建春，中央广播电视总台副台长余俊生致辞。
 
-除2023年10月一段短暂的上涨外，长债收益率自2007年以来未曾升至这种水准。
+应急管理部副部长陈敏主持，江西省委常委、常务副省长任珠峰出席。
 
-日本30年期国债收益率急升20个基点，这是该国债自1999年推出以来的最高。
+张成中表示，开展全国防灾减灾日暨防灾减灾宣传周活动，要深入学习宣传贯彻习近平总书记关于防灾减灾救灾的重要讲话精神，深刻领悟人民至上、生命至上的根本价值遵循，牢固树立“两个坚持、三个转变”的重要理念，科学运用党的十八大以来党带领人民在防灾减灾救灾实践中形成的“七个坚持”宝贵经验，通过多种形式推动习近平总书记重要讲话精神和党中央决策部署落实落地、深入人心，不断凝聚全社会共同抵御自然灾害的精神力量。
 
-责任编辑：陈钰嘉
+要突出抓基层、强基础，把防灾减灾救灾知识普及到群众，把防灾减灾救灾工作组织到群众，深入推动安全宣传“五进”，广泛宣传防灾避险知识和技能，普遍开放安全体验馆、科普教育基地，组织逃生避险、应急疏散演练，不断提高全民防灾避险意识和能力。
+
+叶建春表示，防灾减灾救灾工作，关系着千家万户的平安幸福，也关系着社会大局的和谐稳定，是守底线、保民生、护发展的关键大事。
+
+江西将以此次活动举办为契机，持续深入学习贯彻习近平总书记关于防灾减灾救灾的重要讲话精神，深刻把握“七个坚持”的规律性认识，坚持以防为主、防抗救相结合的方针，进一步抓好事前预防、系统施治，持续开展“有课本”的安全培训和“无脚本”的应急演练，着力提高防范应对自然灾害能力，筑牢防灾减灾救灾的人民防线。
+
+余俊生表示，习近平总书记高度重视防灾减灾救灾工作，多次作出重要指示。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:43 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:42 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:26 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:38 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:52 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:25 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:26 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:34 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:52 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:38 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:48 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:26 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:42 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:31 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:58 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:38 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:40 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:39 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:32 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:44 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:52 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:31 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [中信证券：调整何解？重建杠铃结构](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [A股，重磅新规！千家公司面临调整](http://www.blog.minike.top/Article/details/556542311.shtml)
-- 2026-06-29 12:24 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/07986550125.shtml)
-- 2026-06-29 12:45 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.blog.minike.top/Article/details/75438861.shtml)
-- 2026-06-29 12:39 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.kurohicncr.top/Article/details/433103747373.shtml)
-- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/1511699.shtml)
-- 2026-06-29 12:39 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/0706592.shtml)
-- 2026-06-29 12:53 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.kurohicncr.top/Article/details/50790020.shtml)
-- 2026-06-29 12:27 - [从过去探寻未来](http://www.share.minike.top/Article/details/82276554984.shtml)
-- 2026-06-29 12:25 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.blog.minike.top/Article/details/88252999.shtml)
-- 2026-06-29 12:36 - [金价回落 后市怎么走？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [焦煤短期承压的核心逻辑是？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.blog.kurohicncr.top/Article/details/745509916.shtml)
+- 2026-06-29 12:52 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.share.kurohicncr.top/Article/details/02693458466.shtml)
+- 2026-06-29 12:38 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.share.minike.top/Article/details/574590.shtml)
+- 2026-06-29 12:33 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [创新的力量：视听传播如何实现“从点到链”的变革？](http://www.blog.minike.top/Article/details/1275499890.shtml)
+- 2026-06-29 12:37 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.blog.kurohicncr.top/Article/details/6958512150.shtml)
+- 2026-06-29 12:59 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.share.kurohicncr.top/Article/details/786529383062.shtml)
+- 2026-06-29 12:45 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.minike.top/Article/details/739992299345.shtml)
+- 2026-06-29 12:56 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.blog.minike.top/Article/details/11818.shtml)
+- 2026-06-29 12:49 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.minike.top/Article/details/621619829730.shtml)
+- 2026-06-29 12:37 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.kurohicncr.top/Article/details/3669911181.shtml)
+- 2026-06-29 12:59 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.share.kurohicncr.top/Article/details/449173795832.shtml)

@@ -1,56 +1,59 @@
-# 诺泰生物索赔递交立案，曾因财务造假被处罚
+# 好评中国丨“防灾减灾救灾”为人民更靠人民
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！上海沪紫律师事务所刘鹏律师代理的投资者诉诺泰生物证券虚假陈述案已递交立案，目前仍在诉讼时效内。 2025年12月18日，诺泰生物公告收到证监会下发的《行政处罚决定书》。上市公司信息披露违法违规行为不仅严重扰乱证券市场秩序，更是对股民合法权益的严重侵害。根据相
+2026年5月12日，是第18个全国防灾减灾日。今年的主题为“人人讲安全、个个会应急——提高防灾减灾救灾能力”，5月11日至17日同步开展防灾减灾宣传周，正式拉开今年全民防灾减灾的宣传序幕。这场全民参与的行动深刻印证着，防灾减灾救灾，初心是为人民，底气更靠人民，唯有锚定人民需求、凝聚全民力量，才能筑牢守护生命安全的坚实屏障。“民惟邦本，本固邦宁”，保障人民群众生命财产安全，始终
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年5月12日，是第18个全国防灾减灾日。
 
-上海沪紫律师事务所刘鹏律师代理的投资者诉诺泰生物证券虚假陈述案已递交立案，目前仍在诉讼时效内。
+今年的主题为“人人讲安全、个个会应急——提高防灾减灾救灾能力”，5月11日至17日同步开展防灾减灾宣传周，正式拉开今年全民防灾减灾的宣传序幕。
 
-2025年12月18日，诺泰生物公告收到证监会下发的《行政处罚决定书》。
+这场全民参与的行动深刻印证着，防灾减灾救灾，初心是为人民，底气更靠人民，唯有锚定人民需求、凝聚全民力量，才能筑牢守护生命安全的坚实屏障。
 
-上市公司信息披露违法违规行为不仅严重扰乱证券市场秩序，更是对股民合法权益的严重侵害。
+“民惟邦本，本固邦宁”，保障人民群众生命财产安全，始终是防灾减灾救灾工作的根本遵循。
 
-根据相关法律法规，受损投资者可提起诉讼，要求上市公司赔付损失。
+自然灾害不分时节，风险隐患无处不在，从洪涝干旱到地质灾害，从火灾险情到地震避险，每一次灾害应对，每一次隐患防范，最终都是为了守护百姓安稳、守护万家灯火。
 
-上海沪紫律师事务所刘鹏律师表示索赔条件为于2022年4月28日-2024年10月23日（含当日）期间买入，并在2024年10月24日之后卖出或仍持有而亏损的即可登记。
+“人民至上、生命至上”不是空洞的口号，而是应急预案制定时优先考虑老弱病残的周全，是灾情发生时第一时间转移群众的果断，是灾后重建时帮受灾群众重启生活的担当，一切工作的出发点和落脚点，始终围着人民转、为了人民安。
 
-据处罚，该公司2021年年报存在虚假记载，虚增营业收入3000万元，虚增利润总额2595.16万元。
+防灾减灾救灾不是“独角戏”，而是需要全社会同心的“大合唱”。
 
-另外，2022年可转换公司债券募集说明书编造重大虚假内容。
+离开人民群众，再完善的制度机制也难以落地，再专业的应急救援力量也独木难支。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:36 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:25 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:36 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:48 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:25 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:49 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:27 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:52 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:42 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:53 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:40 - [纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:38 - [会计差错更正！ST龙韵更正定期报告，符合条件股民可登记索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:30 - [美国众议院议员就华纳兄弟收购案质询派拉蒙CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:59 - [哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:58 - [时政新闻眼丨一天三场会晤，习近平同外方领导人谈了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:34 - [AI算力点燃“芯”火，信创指数近一月涨超两成！华宝基金信创ETF（562030）近3日连续吸金！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:44 - [长江有色：供紧叠加科技需求大爆发助振 13日铜价或大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:50 - [最新，章建平建仓股曝光！牛散天团押注“AI+商业航天”（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:47 - [罕见！保险公司中支总经理任职资格被否，这些“硬门槛”不可碰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:57 - [长江有色：12日氧化铝期价跌1.17% 下游接货情绪一般](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:51 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:40 - [（台海观澜）福建赴金门自由行持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.kurohicncr.top/Article/details/72489718546.shtml)
-- 2026-06-29 12:38 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.blog.kurohicncr.top/Article/details/039088431.shtml)
-- 2026-06-29 12:46 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.share.minike.top/Article/details/5591214.shtml)
-- 2026-06-29 12:26 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.share.minike.top/Article/details/690357241.shtml)
-- 2026-06-29 12:26 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](http://www.blog.kurohicncr.top/Article/details/93165183727.shtml)
-- 2026-06-29 12:33 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.blog.minike.top/Article/details/197344545517.shtml)
-- 2026-06-29 12:27 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.minike.top/Article/details/02422220.shtml)
-- 2026-06-29 12:52 - [河南省举办高校残疾大学生就业双选会](http://www.share.minike.top/Article/details/29373.shtml)
-- 2026-06-29 12:28 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.kurohicncr.top/Article/details/1434567222.shtml)
-- 2026-06-29 12:41 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.blog.minike.top/Article/details/6108508884.shtml)
-- 2026-06-29 12:32 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](http://www.share.kurohicncr.top/Article/details/9549292310.shtml)
-- 2026-06-29 12:37 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.share.minike.top/Article/details/761614679.shtml)
-- 2026-06-29 12:28 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](http://www.blog.minike.top/Article/details/344121229.shtml)
-- 2026-06-29 12:34 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](http://www.share.kurohicncr.top/Article/details/40504122.shtml)
+- 2026-06-29 12:32 - [新型“职业闭店人”骗局调查](http://www.blog.minike.top/Article/details/161059.shtml)
+- 2026-06-29 12:39 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.blog.kurohicncr.top/Article/details/3595174560.shtml)
+- 2026-06-29 12:44 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.blog.kurohicncr.top/Article/details/79451970720.shtml)
+- 2026-06-29 12:54 - [直击！直升机水上绞车救援专项训练现场](http://www.blog.kurohicncr.top/Article/details/541869251360.shtml)
+- 2026-06-29 12:46 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.share.minike.top/Article/details/7863616895.shtml)
+- 2026-06-29 12:47 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](http://www.share.kurohicncr.top/Article/details/87279570813.shtml)
+- 2026-06-29 12:59 - [上海启动滚动式灭蚊 严防蚊媒传染病](http://www.blog.minike.top/Article/details/41098081.shtml)
+- 2026-06-29 12:56 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](http://www.share.kurohicncr.top/Article/details/84936009876.shtml)
+- 2026-06-29 12:39 - [上海加快开发适老化智能产品](http://www.blog.minike.top/Article/details/68950740423.shtml)
+- 2026-06-29 12:59 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](http://www.share.minike.top/Article/details/838022321.shtml)
+- 2026-06-29 12:56 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](http://www.share.kurohicncr.top/Article/details/4784563354.shtml)

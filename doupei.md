@@ -1,59 +1,54 @@
-# 第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理
+# 英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下
+5月13日，英国政府在公布的新一届议会立法优先事项文件中明确提出，将通过制定《加强金融服务法案》（Enhancing Financial Services Bill），对现行的银行“零售业务隔离”（Ring-fencing）制度进行关键性改革。此举旨在优化金融监管环境，释放更多资金支持英国企业发展，特别是改善中小企业的融资准入。 英国财政部在文件中指出，通过对隔离制度的针对性修
 
 ## 正文
 
-新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。
+5月13日，英国政府在公布的新一届议会立法优先事项文件中明确提出，将通过制定《加强金融服务法案》（Enhancing Financial Services Bill），对现行的银行“零售业务隔离”（Ring-fencing）制度进行关键性改革。
 
-中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。
+此举旨在优化金融监管环境，释放更多资金支持英国企业发展，特别是改善中小企业的融资准入。
 
-作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。
+英国财政部在文件中指出，通过对隔离制度的针对性修订，将有效提升中小企业贷款市场的竞争性，帮助其更便捷地获得融资支持。
 
-他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下几个方面的积极变化，包括贯彻预防为主的理念，公共卫生体系持续提升，能力水平大幅改善；医疗服务体系的能力不断增强，在服务可及性、城乡公平性、均等化与覆盖面，以及居民就医便利性等方面均有显著提升；传统医药的传承与发展也取得了新的进步。
+英国财政大臣蕾切尔·里夫斯（Rachel Reeves）此前曾多次承诺，将对该制度实施“实质性”改革，作为政府削减行政束缚、推动经济增长的核心举措之一。
 
-同时，在健康中国建设过程中，全社会和全民的广泛参与得到了高度重视。
-
-雷海潮同时表示，中国愿将卫生治理的经验与技术同世界各国分享，积极推动“一带一路”卫生合作，并持续向广大发展中国家派遣常驻医疗队。
-
-目前仍有60多支中国医疗队在海外服务，在非洲、拉美等国家发挥重要作用——不仅提供医疗服务，还传授中国医务人员掌握的先进技术与管理经验，为当地培养大量适宜人才。
-
-这是中国在解决自身健康问题的同时，为国际社会作出的重要贡献。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:46 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:44 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:48 - [法国“戴高乐”号航母抵达阿拉伯海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:36 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:52 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:39 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:38 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:51 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:26 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:32 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:50 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:24 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:34 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:57 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:44 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:34 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:47 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:49 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:53 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:34 - [我国牵头制定发布14项天然气领域国际标准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:43 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:53 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:38 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:34 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:45 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:47 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.blog.minike.top/Article/details/780884976.shtml)
-- 2026-06-29 12:32 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [中俄共绘教育合作新图景](http://www.share.minike.top/Article/details/68571152.shtml)
-- 2026-06-29 12:33 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.share.kurohicncr.top/Article/details/15143944.shtml)
-- 2026-06-29 12:44 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](http://www.blog.minike.top/Article/details/142847.shtml)
-- 2026-06-29 12:31 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](http://www.share.minike.top/Article/details/001423468300.shtml)
-- 2026-06-29 12:44 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](http://www.blog.minike.top/Article/details/499700.shtml)
-- 2026-06-29 12:34 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.share.minike.top/Article/details/4949486.shtml)
-- 2026-06-29 12:28 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.kurohicncr.top/Article/details/79463392575.shtml)
-- 2026-06-29 12:47 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](http://www.blog.minike.top/Article/details/056396239758.shtml)
-- 2026-06-29 12:40 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [文脉华章|我们为什么需要博物馆](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [北仑河广西东兴城区河段超警戒水位1.05米](http://www.blog.kurohicncr.top/Article/details/78315.shtml)
+- 2026-06-29 12:51 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.blog.minike.top/Article/details/967622.shtml)
+- 2026-06-29 12:55 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.blog.minike.top/Article/details/83660539274.shtml)
+- 2026-06-29 12:43 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.share.minike.top/Article/details/18428873.shtml)
+- 2026-06-29 12:37 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.share.minike.top/Article/details/83652098161.shtml)
+- 2026-06-29 12:37 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.blog.kurohicncr.top/Article/details/2839175.shtml)
+- 2026-06-29 12:56 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.blog.minike.top/Article/details/4046006104.shtml)
+- 2026-06-29 12:30 - [电动化替代速度超预期，中国新能源汽车创新纪录](http://www.share.minike.top/Article/details/110348908.shtml)
+- 2026-06-29 12:51 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/118772336180.shtml)
+- 2026-06-29 12:44 - [日本北海道发生4.8级地震](http://www.share.minike.top/Article/details/40565336715.shtml)
+- 2026-06-29 12:41 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.share.kurohicncr.top/Article/details/6544513339.shtml)
+- 2026-06-29 12:51 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.blog.kurohicncr.top/Article/details/0790402.shtml)
+- 2026-06-29 12:56 - [抓住重点 务求实效（人民论坛）](http://www.share.minike.top/Article/details/025586376.shtml)
+- 2026-06-29 12:31 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lisacumin64-arch)

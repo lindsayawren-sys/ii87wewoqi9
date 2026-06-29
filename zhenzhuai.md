@@ -1,49 +1,61 @@
-# 外交部发言人就美国总统特朗普涉台表态答记者问
+# 稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
+在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。 政策方面，2026年5月9日国务院常务会议审议通过
 
 ## 正文
 
-新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。
+在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。
 
-台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
+不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。
 
-“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
+政策方面，2026年5月9日国务院常务会议审议通过《中华人民共和国矿产资源法实施条例 （草案）》，正式将稀土等矿产列入国家级战略性矿产目录。
+
+该《条例》通过审批上收、总量严控、全链条监管、出口收紧、生态硬约束等多重举措，从顶层法规层面强化稀土国家战略管控，推动稀土行业进一步集中化、规范化、价值重估，重塑行业供给与竞争格局。
+
+消息方面，5月11日某稀土龙头召开业绩说明会，对稀土行业的长期发展持积极态度。
+
+该稀土龙头表示，今年来伴随下游终端需求的稳步增加，部分稀土产品价格呈现出上涨趋势。
+
+中长期来看，随着稀土在新兴领域的应用范围不断扩大，叠加行业技术进步，稀土应用场景逐步拓展，稀土供需格局有望持续改善。
+
+政策端与消息面的利好，显著提升了稀土ETF华泰柏瑞（516780）等产品的市场关注度。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:47 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:49 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:30 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:25 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:41 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:47 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:27 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:48 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:45 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:27 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:30 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:37 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:43 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:57 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:43 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:34 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:46 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:39 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:43 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:34 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:48 - [多元融合焕新消费 “电影+”让大银幕有大引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:43 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:56 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:54 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:46 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:44 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:50 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/715737.shtml)
-- 2026-06-29 12:27 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/552528520.shtml)
-- 2026-06-29 12:47 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.kurohicncr.top/Article/details/77726016.shtml)
-- 2026-06-29 12:27 - [从过去探寻未来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.blog.minike.top/Article/details/35719964548.shtml)
-- 2026-06-29 12:30 - [金价回落 后市怎么走？](http://www.share.minike.top/Article/details/9770541257.shtml)
-- 2026-06-29 12:50 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.kurohicncr.top/Article/details/89512.shtml)
-- 2026-06-29 12:40 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.blog.minike.top/Article/details/709874235.shtml)
-- 2026-06-29 12:39 - [EMCOR高管团队将出席三场投资者会议](http://www.share.minike.top/Article/details/7406896287.shtml)
-- 2026-06-29 12:31 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.blog.kurohicncr.top/Article/details/83654019.shtml)
+- 2026-06-29 12:31 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.share.minike.top/Article/details/73912819.shtml)
+- 2026-06-29 12:58 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [创新的力量：视听传播如何实现“从点到链”的变革？](http://www.share.kurohicncr.top/Article/details/2779327.shtml)
+- 2026-06-29 12:41 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.kurohicncr.top/Article/details/27357112913.shtml)
+- 2026-06-29 12:44 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.share.kurohicncr.top/Article/details/60774.shtml)
+- 2026-06-29 12:53 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.blog.minike.top/Article/details/561550971.shtml)
+- 2026-06-29 12:58 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.kurohicncr.top/Article/details/539524730.shtml)
+- 2026-06-29 12:34 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.blog.minike.top/Article/details/174677716.shtml)
+- 2026-06-29 12:56 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](http://www.share.minike.top/Article/details/595008475343.shtml)
+- 2026-06-29 12:56 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [300965，重大资产重组，明日复牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](http://www.share.kurohicncr.top/Article/details/26122322765.shtml)

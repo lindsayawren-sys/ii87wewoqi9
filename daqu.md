@@ -1,56 +1,61 @@
-# 应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明
+# 国元国际：首钢资源给予“买入”评级 目标价3.18港元
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-应英国央行行长兼金融稳定理事会（FSB）主席安德鲁·贝利18日要求，Anthropic即将向金融稳定理事会通报其最新人工智能模型“Mythos”在全球金融系统中探测到的网络安全漏洞。 金融稳定理事会是负责协调二十国集团（G20）经济体金融监管规则的全球性机构。据悉，在此次通报中，Anthropic公司将向来自该理事会的主要财政部门及中央银行负责人，详细说明及展示“Mythos”
+国元国际发布研报称，首钢资源（00639）现金储备充足，长期坚持高分红政策（2025年97%）。该行更新公司目标价3.18港元/股，分别对应2026年和2027年16.5倍和15倍PE，目标价较现价有22%的涨幅空间，给予“买入”评级。 国元国际主要观点如下： 2025年吨煤成本同比下降13%，精细管控成效显著 2025年原焦煤单位生产成本373元人民币/吨，同比下降13%。其
 
 ## 正文
 
-应英国央行行长兼金融稳定理事会（FSB）主席安德鲁·贝利18日要求，Anthropic即将向金融稳定理事会通报其最新人工智能模型“Mythos”在全球金融系统中探测到的网络安全漏洞。
+国元国际发布研报称，首钢资源（00639）现金储备充足，长期坚持高分红政策（2025年97%）。
 
-金融稳定理事会是负责协调二十国集团（G20）经济体金融监管规则的全球性机构。
+该行更新公司目标价3.18港元/股，分别对应2026年和2027年16.5倍和15倍PE，目标价较现价有22%的涨幅空间，给予“买入”评级。
 
-据悉，在此次通报中，Anthropic公司将向来自该理事会的主要财政部门及中央银行负责人，详细说明及展示“Mythos”预览版模型的相关能力与探测结果。
+国元国际主要观点如下： 2025年吨煤成本同比下降13%，精细管控成效显著 2025年原焦煤单位生产成本373元人民币/吨，同比下降13%。
 
-英国央行行长贝利此前已就该技术的潜在威胁表达高度关切。
+其中：可控现金生产成本（不含资源税等从价税费及折旧摊销）229元/吨，同比下降9%；资源税等从价计征税费随煤价下行大幅减少。
 
-今年4月，贝利在出席公开活动时明确警告，“Mythos”模型可能对全球网络世界构成重大安全风险。
+成本下降主要受益于：（i）原煤产量增长6%带来规模效应；（ii）煤价下跌导致资源税等从价税费减少约30元/吨；（iii）材料消耗管控措施见效；（iv）利润下降带动效益工资相应减少，期间费率维持在6%左右。
 
-他强调，当前监管方面临的核心问题在于，该项新产品在多大程度上能够精准识别出其他系统中的脆弱环节，以及这些漏洞转化为实际网络攻击工具的真实风险。
+2026年公司目标成本再降3.5%-10%，措施包括：加大减员力度、材料招标透明化、提升洗出率等。
 
-责任编辑：龙运翔
+2026年焦煤有望供需边际改善，近期焦炭三轮提涨落地支撑焦煤价格 预期2026年焦煤市场供需格局有望边际改善。
+
+供给端，国内反内卷政策叠加安全生产管控趋严，部分21-22年保供核增产能因未获产能置换指标面临退出，国内焦煤供应预计平稳甚至下行。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:28 - [30年期美债收益率重返5% 见顶还是新开始？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:52 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:31 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:48 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:31 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:32 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:52 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:45 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:48 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:48 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:31 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:50 - [国家市场监管总局附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:45 - [日本：民众集会反对“国家情报会议”设置法案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:53 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:50 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:46 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:41 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:47 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:39 - [胖东来：从未在任何网络平台开展直播带货业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:41 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:35 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:59 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:45 - [德乌计划联合研发生产各型无人机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:57 - [一季度西藏社会消费品零售总额255.83亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:42 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:46 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [BOSS直聘-W于5月14日斥资249.65万美元回购34.66万股](http://www.share.minike.top/Article/details/803409296.shtml)
-- 2026-06-29 12:26 - [探访龙虎山大上清宫遗址博物馆：千年道教祖庭的地下瑰宝](http://www.blog.minike.top/Article/details/764293829.shtml)
-- 2026-06-29 12:28 - [十四届全国政协常委、农业和农村委员会副主任王晓东被查](http://www.share.minike.top/Article/details/26891482553.shtml)
-- 2026-06-29 12:31 - [上海涉外婚姻登记量显著增长](http://www.share.minike.top/Article/details/68271342861.shtml)
-- 2026-06-29 12:41 - [国家应急通信融合接入平台启动全国应用](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [长城基金汪立：流动性冲击或为短期扰动](http://www.blog.minike.top/Article/details/194699820663.shtml)
-- 2026-06-29 12:49 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](http://www.share.kurohicncr.top/Article/details/87259.shtml)
-- 2026-06-29 12:34 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.minike.top/Article/details/937511453179.shtml)
-- 2026-06-29 12:40 - [军工板块三连跌，中国船舶重挫6%！华宝基金军工ETF（512810）下探半年线，场内频现溢价！](http://www.blog.kurohicncr.top/Article/details/988550.shtml)
-- 2026-06-29 12:40 - [从史前器物到族群记忆：台湾少数民族同胞探寻两岸共同源流](http://www.blog.kurohicncr.top/Article/details/7105771.shtml)
-- 2026-06-29 12:34 - [消息称G6上市近两年后 小鹏X9也已获准在澳大利亚销售](http://www.share.kurohicncr.top/Article/details/63080550.shtml)
-- 2026-06-29 12:33 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.blog.minike.top/Article/details/794060.shtml)
-- 2026-06-29 12:47 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](http://www.blog.minike.top/Article/details/77041.shtml)
-- 2026-06-29 12:53 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.blog.kurohicncr.top/Article/details/5654514287.shtml)
+- 2026-06-29 12:57 - [美元受通胀数据影响不大，不太可能改变美联储叙事](http://www.blog.kurohicncr.top/Article/details/41490872.shtml)
+- 2026-06-29 12:39 - [欧盟拟与阿富汗塔利班举行技术会议，磋商遣返移民事宜](http://www.blog.kurohicncr.top/Article/details/18785.shtml)
+- 2026-06-29 12:48 - [习近平同塔吉克斯坦总统拉赫蒙会谈](http://www.share.minike.top/Article/details/604176.shtml)
+- 2026-06-29 12:48 - [争分夺秒！就医途中突发炸胎 多方接力暖心护送](http://www.share.minike.top/Article/details/071632.shtml)
+- 2026-06-29 12:42 - [云冈石窟部分洞窟昨起临时封闭](http://www.share.kurohicncr.top/Article/details/74306658.shtml)
+- 2026-06-29 12:39 - [为中美关系发展打下更稳固基础](http://www.blog.kurohicncr.top/Article/details/36270.shtml)
+- 2026-06-29 12:47 - [探访新疆高昌回鹘佛寺遗址](http://www.share.minike.top/Article/details/8883822.shtml)
+- 2026-06-29 12:50 - [湖北当阳：金黄麦浪迎丰收](http://www.share.kurohicncr.top/Article/details/5106068.shtml)
+- 2026-06-29 13:00 - [最新！伊朗提谈判先决条件！特朗普称“不着急”！英国将强化霍尔木兹海峡军事！国际油价大涨](http://www.share.minike.top/Article/details/49174.shtml)
+- 2026-06-29 12:59 - [把舵中美关系大方向，习近平主席这样阐述](http://www.blog.kurohicncr.top/Article/details/08718.shtml)
+- 2026-06-29 12:58 - [券商再度走强，长城证券冲击涨停，顶流券商ETF华宝（512000）低位连续修复，近4日大举吸金8.42亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [南非极端天气已造成至少10人死亡](http://www.blog.minike.top/Article/details/92641974.shtml)
+- 2026-06-29 12:44 - [第六届“投资辽宁”大会推出优质招商项目185个、需求投资超1100亿元](http://www.share.kurohicncr.top/Article/details/3324671.shtml)
+- 2026-06-29 12:39 - [佳通轮胎（600182，S佳通）索赔案启动，鹏都农牧（002505）索赔案再获得法院立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [（近观中国）信短情长，习近平与美国友人的交往故事](https://github.com/lisacumin64-arch)

@@ -1,50 +1,56 @@
-# 湖北荆州遭遇特大暴雨 中心城区实施“五停”措施
+# 汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。 今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
+来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。 美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价
 
 ## 正文
 
-昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。
+来源：华尔街见闻 美国能源部周一宣布本轮拍卖共授出5330万桶，买家包括Trafigura、Marathon Petroleum及埃克森美孚，将于6至8月分批入市。
 
-昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。
+本次拍卖规模创SPR历史第二高，是IEA牵头开展的降低全球油价行动的一部分。
 
-今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
+目前美国汽油均价已突破每加仑4.50美元，创2022年7月以来最高水平。
+
+美国正以近乎创纪录的速度动用战略石油储备，以应对伊朗战争引发的油价飙升及随之而来的汽油价格压力。
+
+5月11日周一，美国能源部宣布，本轮战略石油储备（SPR）拍卖共授出5330万桶原油，买家涵盖石油交易商Trafigura Group、美国炼油商Marathon Petroleum Corp及埃克森美孚等企业。
+
+本轮释放将于6月至8月间分批入市，恰逢美国夏季驾车出行旺季、汽油需求攀升之际。
+
+目前美国普通汽油均价已突破每加仑4.50美元，为2022年7月以来首次触及这一水平。
+
+与此同时，特朗普周一表示将寻求暂停每加仑18.4美分的联邦汽油税，“直至时机合适为止”。
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:41 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:53 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:26 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:45 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:37 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:47 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:37 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:53 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:24 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:51 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:29 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:47 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:36 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:31 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:50 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:51 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:00 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:40 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:56 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:57 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:49 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:45 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:32 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](http://www.blog.minike.top/Article/details/302852.shtml)
-- 2026-06-29 12:34 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](http://www.share.kurohicncr.top/Article/details/37097965.shtml)
-- 2026-06-29 12:25 - [中信证券：调整何解？重建杠铃结构](http://www.share.kurohicncr.top/Article/details/821919719690.shtml)
-- 2026-06-29 12:37 - [A股，重磅新规！千家公司面临调整](http://www.share.kurohicncr.top/Article/details/266425853.shtml)
-- 2026-06-29 12:40 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/84058558.shtml)
-- 2026-06-29 12:42 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.blog.kurohicncr.top/Article/details/865810739598.shtml)
-- 2026-06-29 12:42 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.kurohicncr.top/Article/details/6377475314.shtml)
-- 2026-06-29 12:29 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.minike.top/Article/details/89877052.shtml)
-- 2026-06-29 12:43 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.share.minike.top/Article/details/1069220.shtml)
-- 2026-06-29 12:28 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.minike.top/Article/details/9257410.shtml)
-- 2026-06-29 12:41 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.kurohicncr.top/Article/details/02772.shtml)
-- 2026-06-29 12:44 - [从过去探寻未来](http://www.blog.minike.top/Article/details/362014010.shtml)
-- 2026-06-29 12:34 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [我国成功发射千帆极轨09组卫星](http://www.blog.minike.top/Article/details/28512528.shtml)
+- 2026-06-29 12:46 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [焦煤短期承压的核心逻辑是？](http://www.share.kurohicncr.top/Article/details/45453.shtml)
+- 2026-06-29 12:48 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.blog.minike.top/Article/details/070997838300.shtml)
+- 2026-06-29 12:41 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.blog.minike.top/Article/details/2979137165.shtml)
+- 2026-06-29 12:41 - [沙特3月下旬曾对伊朗实施报复性打击](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.blog.minike.top/Article/details/57426119.shtml)
+- 2026-06-29 12:52 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.minike.top/Article/details/73675797500.shtml)
+- 2026-06-29 12:50 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [美防长赫格塞思就国防预算出席国会听证会](http://www.blog.kurohicncr.top/Article/details/70170643.shtml)
+- 2026-06-29 12:45 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.share.kurohicncr.top/Article/details/01347.shtml)
+- 2026-06-29 12:32 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.kurohicncr.top/Article/details/245120937.shtml)
+- 2026-06-29 12:51 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lisacumin64-arch)

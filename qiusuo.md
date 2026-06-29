@@ -1,61 +1,51 @@
-# 澳大利亚联邦银行聘任玛丽-安妮-威廉姆斯担任首席人工智能科学家
+# 乙德投资控股遭Liu Chuang减持约1.11亿股 每股均价0.2438港元
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-澳大利亚联邦银行于周一正式任命玛丽 - 安妮・威廉姆斯为首席人工智能科学家，该行称，这一职位为澳大利亚银行业首创。 威廉姆斯此前任职于新南威尔士大学，身兼该校人工智能研究所副所长等多项职务。 澳洲联邦银行暂未公布其正式入职时间。 这家澳洲规模最大的银行在声明中表示，威廉姆斯专业领域覆盖面极广，涵盖前沿学术研究、全球产业合作、机器人技术、初创企业咨询，以及人工智能在商业、政务与社
+香港联交所最新资料显示，5月7日，Liu Chuang减持乙德投资控股（06182）1.11316亿股，每股均价0.2438港元，总金额约为2713.88万港元。减持后最新持股数目为5.1亿股，最新持股比例为63.75%。责任编辑：卢昱君
 
 ## 正文
 
-澳大利亚联邦银行于周一正式任命玛丽 - 安妮・威廉姆斯为首席人工智能科学家，该行称，这一职位为澳大利亚银行业首创。
+香港联交所最新资料显示，5月7日，Liu Chuang减持乙德投资控股（06182）1.11316亿股，每股均价0.2438港元，总金额约为2713.88万港元。
 
-威廉姆斯此前任职于新南威尔士大学，身兼该校人工智能研究所副所长等多项职务。
+减持后最新持股数目为5.1亿股，最新持股比例为63.75%。
 
-澳洲联邦银行暂未公布其正式入职时间。
-
-这家澳洲规模最大的银行在声明中表示，威廉姆斯专业领域覆盖面极广，涵盖前沿学术研究、全球产业合作、机器人技术、初创企业咨询，以及人工智能在商业、政务与社会场景中的落地应用。
-
-威廉姆斯将带队统领银行人工智能科研团队，她表示，未来将重点深挖人工智能带来的社会层面影响，推动全行持续开展合规可控、负责任的人工智能创新研发。
-
-此次高管聘任，也是该行加码人工智能领域整体布局的重要举措。
-
-目前澳联邦银行已与安索帕科技、亚马逊云科技、微软、开放人工智能研究中心达成多项合作。
-
-当下全球科技巨头与金融机构愈发重视前沿科研能力，力求合规规模化落地人工智能技术，纷纷从学术界招揽顶尖人工智能高端人才出任核心管理岗位。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:39 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:43 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:43 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:53 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:45 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:40 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:39 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:37 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:36 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:29 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:24 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:25 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:47 - [北京三里屯UR玻璃会看到裙底？最新回应：已经做处理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:27 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:51 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:32 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:42 - [涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:51 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:48 - [纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:40 - [会计差错更正！ST龙韵更正定期报告，符合条件股民可登记索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:53 - [美国众议院议员就华纳兄弟收购案质询派拉蒙CEO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:42 - [哈尔滨电气早盘涨超4% 国内首台16兆瓦燃气轮机天然气燃气发生器满负荷试车成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:39 - [时政新闻眼丨一天三场会晤，习近平同外方领导人谈了什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:43 - [AI算力点燃“芯”火，信创指数近一月涨超两成！华宝基金信创ETF（562030）近3日连续吸金！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:47 - [长江有色：供紧叠加科技需求大爆发助振 13日铜价或大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:51 - [最新，章建平建仓股曝光！牛散天团押注“AI+商业航天”（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:34 - [罕见！保险公司中支总经理任职资格被否，这些“硬门槛”不可碰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:53 - [长江有色：12日氧化铝期价跌1.17% 下游接货情绪一般](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:38 - [“洪迪厄斯”号邮轮出现汉坦病毒疫情 法国确诊首例汉坦病毒感染病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.blog.kurohicncr.top/Article/details/062671036.shtml)
-- 2026-06-29 12:28 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [我国成功发射千帆星座第9批组网卫星](http://www.share.kurohicncr.top/Article/details/294653674.shtml)
-- 2026-06-29 12:45 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.minike.top/Article/details/9588037151.shtml)
-- 2026-06-29 12:33 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.minike.top/Article/details/51050903554.shtml)
-- 2026-06-29 12:44 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/924911965599.shtml)
-- 2026-06-29 12:27 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](http://www.share.kurohicncr.top/Article/details/409916146.shtml)
-- 2026-06-29 12:43 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.minike.top/Article/details/379739415.shtml)
-- 2026-06-29 12:46 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.blog.minike.top/Article/details/58794592077.shtml)
-- 2026-06-29 12:28 - [河南省举办高校残疾大学生就业双选会](http://www.blog.kurohicncr.top/Article/details/56410.shtml)
-- 2026-06-29 12:49 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.kurohicncr.top/Article/details/916971586.shtml)
-- 2026-06-29 12:39 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.blog.minike.top/Article/details/033848.shtml)
-- 2026-06-29 12:46 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](http://www.share.kurohicncr.top/Article/details/5059787.shtml)
-- 2026-06-29 12:41 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.blog.kurohicncr.top/Article/details/690870.shtml)
+- 2026-06-29 12:34 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.minike.top/Article/details/63483738.shtml)
+- 2026-06-29 12:36 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.blog.minike.top/Article/details/09677656.shtml)
+- 2026-06-29 12:34 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.blog.minike.top/Article/details/22260748629.shtml)
+- 2026-06-29 12:33 - [新型“职业闭店人”骗局调查](http://www.share.kurohicncr.top/Article/details/137411.shtml)
+- 2026-06-29 12:48 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.blog.kurohicncr.top/Article/details/36108492.shtml)
+- 2026-06-29 12:55 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.share.kurohicncr.top/Article/details/77333.shtml)
+- 2026-06-29 12:50 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.blog.kurohicncr.top/Article/details/737556.shtml)
+- 2026-06-29 12:54 - [直击！直升机水上绞车救援专项训练现场](http://www.share.minike.top/Article/details/456592.shtml)
+- 2026-06-29 12:57 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.blog.kurohicncr.top/Article/details/01605679411.shtml)
+- 2026-06-29 12:55 - [斯沃琪集团股东大会否决激进投资者董事席位提案,创始家族维持控股权](http://www.share.kurohicncr.top/Article/details/084976661.shtml)
+- 2026-06-29 12:55 - [上海启动滚动式灭蚊 严防蚊媒传染病](http://www.share.minike.top/Article/details/12053502.shtml)
+- 2026-06-29 12:36 - [亚马逊“极速达”再拓版图，30分钟送达席卷美国数十城](http://www.blog.minike.top/Article/details/128962264251.shtml)
+- 2026-06-29 12:58 - [上海加快开发适老化智能产品](http://www.blog.minike.top/Article/details/562751163.shtml)
+- 2026-06-29 12:48 - [伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署](http://www.blog.kurohicncr.top/Article/details/048428.shtml)
+- 2026-06-29 12:41 - [老将、新秀齐上阵 中国具身智能机器人加速实景应用](http://www.blog.kurohicncr.top/Article/details/5375246.shtml)

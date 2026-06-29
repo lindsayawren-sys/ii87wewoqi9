@@ -1,57 +1,55 @@
-# “豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应
+# 欧佩克下调2026年全球石油需求增长预期
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-近日，一位网友反映，自己的手机号被陌生人频繁拨打，对方询问是否卖猪。起初他以为是恶作剧，后来得知对方从豆包获取到联系方式，且号码被标注为养殖场电话，至今仍能被搜索到。他表示自己受到了一定困扰。 视频发布后，不少网友称自己也遭遇过类似情况。如今网友使用AI工具愈发频繁，此类现象对手机号实际拥有者的影响也更大。5月17日，网友刘先生称自己遇到与视频发布者类似情况，"很多人打电话给我
+5月13日，石油输出国组织（欧佩克）发布最新月度原油市场报告，下调了2026年全球石油需求增长预期。报告指出，由于中东地区局势持续紧张导致关键航道受阻，全球能源市场不确定性显著增加。 根据最新月报，欧佩克预计今年第二季度全球石油平均需求量为1.0457亿桶/日，较上月预测值减少50万桶/日，这也是该组织连续第二个月下调该季度需求数据。报告强调，地缘冲突已导致全球原油运输咽喉霍尔
 
 ## 正文
 
-近日，一位网友反映，自己的手机号被陌生人频繁拨打，对方询问是否卖猪。
+5月13日，石油输出国组织（欧佩克）发布最新月度原油市场报告，下调了2026年全球石油需求增长预期。
 
-起初他以为是恶作剧，后来得知对方从豆包获取到联系方式，且号码被标注为养殖场电话，至今仍能被搜索到。
+报告指出，由于中东地区局势持续紧张导致关键航道受阻，全球能源市场不确定性显著增加。
 
-他表示自己受到了一定困扰。
+根据最新月报，欧佩克预计今年第二季度全球石油平均需求量为1.0457亿桶/日，较上月预测值减少50万桶/日，这也是该组织连续第二个月下调该季度需求数据。
 
-视频发布后，不少网友称自己也遭遇过类似情况。
+报告强调，地缘冲突已导致全球原油运输咽喉霍尔木兹海峡实际上处于关闭状态，这不仅阻断了中东地区每日数百万桶的原油产出，更引发全球燃料价格大幅飙升，严重冲击各国消费者及企业，迫使多国政府采取紧急措施保障能源安全。
 
-如今网友使用AI工具愈发频繁，此类现象对手机号实际拥有者的影响也更大。
+在供应端，由欧佩克成员国与俄罗斯等盟友组成的“欧佩克+”此前曾达成自4月起逐步恢复增产的协议，但受霍尔木兹海峡关闭影响，相关增产计划目前已无法履行。
 
-5月17日，网友刘先生称自己遇到与视频发布者类似情况，"很多人打电话给我询问租房，实际上我早就不租了。
-
-" 同日，潇湘晨报·晨视频记者通过“豆包”软件检索该养殖场，确实出现一家名为"莒南县xx中心"的养殖场，并留有手机号，信源来自网络帖子。
-
-视频发布者称，这个手机号就是由自己使用，但他确实不卖猪。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:35 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:24 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:35 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:42 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:46 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:35 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:53 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:40 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:28 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:42 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:55 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:47 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:36 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:31 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:33 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:53 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:55 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:30 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:39 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:30 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:53 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:40 - [受中东局势影响 德钢铁巨头下调销售预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:38 - [ATFX:美国CPI数据发布 美元何去何从](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.share.kurohicncr.top/Article/details/85048480209.shtml)
-- 2026-06-29 12:44 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.blog.minike.top/Article/details/09798.shtml)
-- 2026-06-29 12:27 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.minike.top/Article/details/5756895.shtml)
-- 2026-06-29 12:46 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.blog.kurohicncr.top/Article/details/87107865.shtml)
-- 2026-06-29 12:25 - [高盛：央行要“加码”买黄金了，金价年底看5400](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.kurohicncr.top/Article/details/43425.shtml)
-- 2026-06-29 12:43 - [Anthropic将向监管机构通报网络风险](http://www.blog.kurohicncr.top/Article/details/07396633011.shtml)
-- 2026-06-29 12:41 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [A股“股王”激战！近1个月来频繁易主](http://www.blog.kurohicncr.top/Article/details/5505869857.shtml)
-- 2026-06-29 12:30 - [四大证券报头版头条内容精华摘要_2026年5月18日_财经新闻](http://www.share.minike.top/Article/details/78088.shtml)
-- 2026-06-29 12:41 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](http://www.blog.minike.top/Article/details/77268660.shtml)
-- 2026-06-29 12:50 - [探访“人工智能+教育”：你的AI科研“搭子”靠谱吗](http://www.blog.kurohicncr.top/Article/details/54955.shtml)
-- 2026-06-29 12:27 - [中俄博览会展风采 河北南皮五金“智造”闯海外](http://www.blog.minike.top/Article/details/3555902077.shtml)
+- 2026-06-29 12:38 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.blog.minike.top/Article/details/39298123698.shtml)
+- 2026-06-29 12:31 - [英国首相斯塔默周三将与一位主要对手会面](http://www.blog.minike.top/Article/details/632257207105.shtml)
+- 2026-06-29 12:56 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.minike.top/Article/details/176630.shtml)
+- 2026-06-29 12:43 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](http://www.blog.kurohicncr.top/Article/details/114398.shtml)
+- 2026-06-29 12:48 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.share.minike.top/Article/details/782523322.shtml)
+- 2026-06-29 12:54 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.share.minike.top/Article/details/8853791588.shtml)
+- 2026-06-29 12:54 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.blog.kurohicncr.top/Article/details/49947190.shtml)
+- 2026-06-29 12:46 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](http://www.share.minike.top/Article/details/94352045.shtml)
+- 2026-06-29 12:47 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.share.kurohicncr.top/Article/details/645631.shtml)
+- 2026-06-29 12:57 - [国产算力爆发，新手怎么布局？一次讲清芯片产业链四只指数](http://www.share.kurohicncr.top/Article/details/4806870378.shtml)
+- 2026-06-29 12:45 - [海外台胞在云南看见中医药的“古方新生”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [云南巧家：万亩野生高山杜鹃迎来最佳观赏期](http://www.share.kurohicncr.top/Article/details/019901.shtml)
+- 2026-06-29 12:36 - [日民众集会反对“国家情报会议”设置法案 在野党现场声援](http://www.share.minike.top/Article/details/745606395.shtml)

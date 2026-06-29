@@ -1,44 +1,60 @@
-# 河南省举办高校残疾大学生就业双选会
+# 上海启动滚动式灭蚊 严防蚊媒传染病
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
+中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。 上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。全上海第一轮集中控
 
 ## 正文
 
-发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
+中新网上海5月13日电 (记者 陈静)上海市爱卫办方面13日披露，上海夏秋季爱国卫生运动正式全面启动，从今年5月中旬起至11月结束。
+
+上海将每隔10天-14天滚动开展一轮全市范围蚊虫集中控制行动，每轮行动不少于3天，通过“环境整治常态化、防制能力进阶版、主体责任再加强、市民热线可监督”四大举措，有效降低因登革热、基孔肯雅热等蚊媒传染病输入导致上海传播流行风险。
+
+全上海第一轮集中控制时间定于今年5月18日开始。
+
+近年来，全球范围内蚊媒传染病传播和流行强度显著上升。
+
+去年基孔肯雅热全球多点爆发，今年登革热、基孔肯雅热境外输入引发本地传播扩散风险较往年上升。
+
+据气象部门报告，今年上海入春提前，4月以来平均气温较常年同期偏高，预计5月平均气温高于常年、降水量接近常年至偏多，为蚊虫特别是白纹伊蚊繁殖创造有利条件。
+
+在当日举行的沟通会上，记者了解到，上海将结合《上海市媒介白纹伊蚊预防控制指南(2026年版)》推广应用，常态化开展环境整治与蚊虫集中控制。
+
+同时，将进一步增强社会防制能力与防灭蚊意识，组织动员全社会综合采取环境治理、物理防制、药物消杀、健康科普等多种措施开展蚊虫防制。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:38 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:29 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:31 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:39 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:28 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:34 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:49 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:37 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:25 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:47 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:28 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:40 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:40 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:46 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:57 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:39 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:44 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:55 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:52 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:59 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:49 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:40 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:54 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:34 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:40 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](http://www.blog.kurohicncr.top/Article/details/598446422859.shtml)
-- 2026-06-29 12:24 - [2026“粤超”联赛继续 广州赛场氛围浓](http://www.share.minike.top/Article/details/094716762101.shtml)
-- 2026-06-29 12:44 - [三大运营商即将免月租？官方回应](http://www.blog.minike.top/Article/details/1317208.shtml)
-- 2026-06-29 12:53 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](http://www.share.kurohicncr.top/Article/details/39920.shtml)
-- 2026-06-29 12:41 - [防病控“三高”别错过这些果蔬](http://www.share.minike.top/Article/details/32533980190.shtml)
-- 2026-06-29 12:26 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.share.kurohicncr.top/Article/details/8565544.shtml)
-- 2026-06-29 12:47 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.blog.kurohicncr.top/Article/details/850542.shtml)
-- 2026-06-29 12:36 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.blog.kurohicncr.top/Article/details/2315580.shtml)
-- 2026-06-29 12:32 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.minike.top/Article/details/193194.shtml)
-- 2026-06-29 12:52 - [中东部有大范围强降水 黄海海域有大雾](http://www.share.minike.top/Article/details/691282.shtml)
-- 2026-06-29 12:31 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.blog.minike.top/Article/details/818874875618.shtml)
-- 2026-06-29 12:36 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](http://www.share.kurohicncr.top/Article/details/798844706.shtml)
-- 2026-06-29 12:53 - [中俄共绘教育合作新图景](http://www.blog.minike.top/Article/details/86036219507.shtml)
-- 2026-06-29 12:36 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](http://www.blog.minike.top/Article/details/391991.shtml)
+- 2026-06-29 12:34 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.share.minike.top/Article/details/6272900304.shtml)
+- 2026-06-29 12:57 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.kurohicncr.top/Article/details/49645949.shtml)
+- 2026-06-29 12:52 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.share.minike.top/Article/details/8125349.shtml)
+- 2026-06-29 12:47 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [敲诈900多家网店 买家恶意下单2700多次被判刑](http://www.share.kurohicncr.top/Article/details/69759.shtml)
+- 2026-06-29 12:35 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.blog.minike.top/Article/details/40021668265.shtml)
+- 2026-06-29 12:41 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.kurohicncr.top/Article/details/4067761.shtml)
+- 2026-06-29 12:53 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [新疆哈密：光热发电项目年发2亿度清洁电](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.kurohicncr.top/Article/details/939784.shtml)

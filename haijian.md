@@ -1,54 +1,59 @@
-# 雅加达发现3例汉坦病毒病例 另有6例疑似病例
+# 打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。 雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。 据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。同
+原标题：在城市街头巷尾寻找同一颜色景物 “色彩漫步”成为年轻人新型散步方式 打卡同色系风景 带火城市微旅行 如今，不少年轻人告别了网红景点扎堆打卡的休闲方式，转而以“Color Walk”(色彩漫步，社交媒体上流行的新型散步方式)开启松弛的城市漫游——大家在出发前，心里选定一种颜色，带着这个目标走进街头巷尾，寻找带有这种颜色的事物并随手记录。这一新潮的散步方式成为情侣氛围感约会
 
 ## 正文
 
-中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。
+原标题：在城市街头巷尾寻找同一颜色景物 “色彩漫步”成为年轻人新型散步方式 打卡同色系风景 带火城市微旅行 如今，不少年轻人告别了网红景点扎堆打卡的休闲方式，转而以“Color Walk”(色彩漫步，社交媒体上流行的新型散步方式)开启松弛的城市漫游——大家在出发前，心里选定一种颜色，带着这个目标走进街头巷尾，寻找带有这种颜色的事物并随手记录。
 
-雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。
+这一新潮的散步方式成为情侣氛围感约会、好友相聚的新选择，还带火了城市微旅行、街巷漫游等轻休闲业态，更悄然激活了同城生活与城市文旅消费新市场。
 
-据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。
+每一张“找颜色”照片 都带着鲜活的生活气息“不久前，我从国贸出发，沿着庆丰公园、明城墙遗址公园一路走到三里河，全程定的主题色是绿色。
 
-同时，卫生部门还部署快速反应小组，一旦病例明显增加，将启动早期预警机制。
+”小记告诉北京青年报记者，选择绿色，是因为春天一到，眼里心里都是新芽的模样。
 
-此外，印尼卫生部门还加强雅加达苏加诺—哈达国际机场的汉坦病毒筛查，通过健康申报、体温检测及入境旅客观察等方式，防范输入风险。
+在这场耗时五六个小时的漫游里，他没有直奔网红地标，也没有赶景点的仓促节奏，只是带着“找绿色”的目标，把脚步慢下来。
 
-阿妮表示，目前汉坦病毒传入印尼的风险总体较低，但仍呼吁民众保持警惕，注意个人卫生防护。
+路过通惠河时，他第一次认真端详水底漾开的绿意；街边不起眼的绿植、书店里的绿色书签，甚至小店门口的装饰，都成了他镜头里的惊喜。
 
-(完)
+某生活类社交平台数据显示，截至发稿，“Color Walk”话题曝光量超7亿次，417万余人参与讨论。
+
+和常规随性打卡不同，网友栀子白的这场经历，更像是一场即兴的城市偶遇。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:44 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:38 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:33 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:42 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:47 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:49 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:53 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:52 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:41 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:30 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:48 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:54 - [AI盈利兑现+油价回落，美股延续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:51 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:33 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:40 - [世界期待中美携手多办大事实事好事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:48 - [500亿市值巨头突然直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:47 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:47 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:39 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:47 - [英国首相斯塔默周三将与一位主要对手会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:36 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:00 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.blog.kurohicncr.top/Article/details/7263207.shtml)
-- 2026-06-29 12:33 - [中企承建的阿斯塔纳轻轨投入运营](http://www.share.minike.top/Article/details/85109827.shtml)
-- 2026-06-29 12:53 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.share.kurohicncr.top/Article/details/9613676.shtml)
-- 2026-06-29 12:41 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.share.minike.top/Article/details/292304543028.shtml)
-- 2026-06-29 12:26 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [安徽休宁：初夏育秧忙](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.minike.top/Article/details/44178078.shtml)
-- 2026-06-29 12:43 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.share.minike.top/Article/details/1520541296.shtml)
-- 2026-06-29 12:53 - [百度高管解读Q1财报：将继续坚定投入文心大模型](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.share.kurohicncr.top/Article/details/3574559882.shtml)
-- 2026-06-29 12:36 - [雅各布·弗兰克尔：各国应着力提升经济与金融体系韧性](http://www.blog.minike.top/Article/details/266897.shtml)
-- 2026-06-29 12:34 - [i茅台调整每日开售时间](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [“红色昌都·红色文旅名家讲坛”网络直播活动在西藏昌都举行](http://www.share.kurohicncr.top/Article/details/287656100.shtml)
+- 2026-06-29 12:50 - [作家梁鸿分享阅读初心 希望阅读让生命充满光亮](http://www.blog.kurohicncr.top/Article/details/035748.shtml)
+- 2026-06-29 12:54 - [美称一直在监控伊朗埋在废墟下的浓缩铀](http://www.share.minike.top/Article/details/114829027816.shtml)
+- 2026-06-29 12:33 - [金观平：千方百计稳住就业基本盘](http://www.share.kurohicncr.top/Article/details/90420169676.shtml)
+- 2026-06-29 12:49 - [4月新能源汽车产销量及出口量均稳定增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [MH迈汇:黄金年末望挑战五千关口](http://www.blog.kurohicncr.top/Article/details/16191.shtml)
+- 2026-06-29 12:30 - [000056，董事会突现新面孔！背靠四川文创企业，相关方回应](http://www.blog.minike.top/Article/details/49004.shtml)
+- 2026-06-29 12:35 - [欧盟就《关键药物法案》达成初步协议 ，旨在强化供应安全与本土制造能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [巴西 3 月零售销售额超预期，创下历史新高](http://www.share.kurohicncr.top/Article/details/91494907754.shtml)
+- 2026-06-29 12:35 - [中国U17男足获得2026年世少赛参赛资格](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [DNV预测：到2060年清洁氢能将增长100倍](http://www.share.minike.top/Article/details/68072743.shtml)
+- 2026-06-29 12:57 - [“我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [国家统计局：4月居民消费价格指数同比上涨1.2%](http://www.share.minike.top/Article/details/48934881085.shtml)
+- 2026-06-29 12:44 - [拜耳一季度经营利润增长9%超预期，农业业务表现强劲](http://www.share.minike.top/Article/details/6893894.shtml)
+- 2026-06-29 12:57 - [中华美食在巴西：一炉烧饼出 全是“浙”里情](http://www.blog.kurohicncr.top/Article/details/0929263556.shtml)
+- 2026-06-29 12:49 - [全球大豆市场参与者对本周中美会晤抱有不同期待](http://www.share.kurohicncr.top/Article/details/5686348.shtml)

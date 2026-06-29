@@ -1,61 +1,57 @@
-# 阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局
+# 甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-此次收购价较 LiveRamp 上周五收盘价溢价 30% 内容速览 法国阳狮集团达成协议，以 25.5 亿美元收购美国数据平台 LiveRamp 控股公司，借此扩充自身人工智能业务版图。 阳狮集团宣布，已敲定收购美国数据平台 LiveRamp 控股公司的交易，交易金额达 25.5 亿美元，此举意在助力这家法国广告巨头拓展人工智能相关业务。 阳狮集团董事长兼首席执行官亚瑟・萨敦在
+中新网兰州5月12日电 (田鹏鹤 石娇艳)12日，甘肃省第二届职业技能大赛新闻发布会举行。据甘肃省人社厅副厅长何永强介绍，本届大赛是该省规格最高、项目最多、规模最大、影响力最广的综合性职业技能赛事，将通过75个竞赛项目广泛选拔高素质技能人才，聚力锻造“陇原工匠”队伍。 技能人才是推动产业升级、实现高质量就业的核心支撑。何永强说，甘肃省委、省政府始终高度重视技能人才工作，不断完善
 
 ## 正文
 
-此次收购价较 LiveRamp 上周五收盘价溢价 30% 内容速览 法国阳狮集团达成协议，以 25.5 亿美元收购美国数据平台 LiveRamp 控股公司，借此扩充自身人工智能业务版图。
+中新网兰州5月12日电 (田鹏鹤 石娇艳)12日，甘肃省第二届职业技能大赛新闻发布会举行。
 
-阳狮集团宣布，已敲定收购美国数据平台 LiveRamp 控股公司的交易，交易金额达 25.5 亿美元，此举意在助力这家法国广告巨头拓展人工智能相关业务。
+据甘肃省人社厅副厅长何永强介绍，本届大赛是该省规格最高、项目最多、规模最大、影响力最广的综合性职业技能赛事，将通过75个竞赛项目广泛选拔高素质技能人才，聚力锻造“陇原工匠”队伍。
 
-阳狮集团董事长兼首席执行官亚瑟・萨敦在采访中表示，总部位于旧金山的 LiveRamp 能够为阳狮注入全新技术，助力客户搭建智能 AI 代理程序，为集团开辟全新业务市场。
+技能人才是推动产业升级、实现高质量就业的核心支撑。
 
-当下各大大型广告集团均面临投资者施压，要求其证明自身能在人工智能主导的营销赛道持续站稳脚跟，阳狮也顺势推动业务重心向人工智能领域倾斜。
+何永强说，甘肃省委、省政府始终高度重视技能人才工作，不断完善“招、育、留、用”全链条培养体系，推动“技能甘肃”建设取得显著成效。
 
-这笔交易是阳狮自 2019 年斥资 44 亿美元从联合数据系统公司收购数据企业伊普西龙之后，规模最大的一笔收购，也打破了其此后数年只收购中小型企业的投资策略。
+此前，甘肃省首届职业技能大赛选拔的选手在第三届全国职业技能大赛中斩获3枚铜牌、20个优胜奖，实现奖牌“零的突破”，8人入选世赛国家集训队。
 
-两家企业周日联合公告称，阳狮将以每股 38.50 美元的现金价格收购 LiveRamp 股份，该价格较收购消息发布前最后一个交易日 —— 上周五的收盘价溢价 30%。
+何永强说，这份亮眼成绩，为第二届大赛的举办奠定坚实基础。
 
-LiveRamp 账面持有 3.79 亿美元净现金，本次交易对应的企业估值为 21.7 亿美元。
+据悉，甘肃省第二届职业技能大赛以“技能照亮前程”为主题，将于今年6月2日至10日举办，采用“集中+分散”办赛模式，设1个集中办赛点和9个分散办赛点。
 
-周一欧洲早盘交易时段，阳狮集团股价最高上涨 5.8%；美股盘前交易中，LiveRamp 股价大涨 27%。
+其中，开幕式将于今年6月2日在甘肃国际会展中心举行。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:53 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:52 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:28 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:49 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:49 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:32 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:26 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:50 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:26 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:32 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:38 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:39 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:46 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:40 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:47 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:56 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:53 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:46 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:43 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:50 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:33 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:33 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:53 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:38 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:37 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [A股，重磅新规！千家公司面临调整](http://www.share.minike.top/Article/details/432561.shtml)
-- 2026-06-29 12:30 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/18996140502.shtml)
-- 2026-06-29 12:34 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.share.kurohicncr.top/Article/details/1155069.shtml)
-- 2026-06-29 12:24 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.share.minike.top/Article/details/789544009.shtml)
-- 2026-06-29 12:39 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.minike.top/Article/details/5395756558.shtml)
-- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/202871986478.shtml)
-- 2026-06-29 12:34 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/209790.shtml)
-- 2026-06-29 12:50 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.blog.minike.top/Article/details/194751.shtml)
-- 2026-06-29 12:26 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.minike.top/Article/details/697450581.shtml)
-- 2026-06-29 12:48 - [从过去探寻未来](http://www.blog.kurohicncr.top/Article/details/89427.shtml)
-- 2026-06-29 12:41 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.minike.top/Article/details/020495331355.shtml)
-- 2026-06-29 12:38 - [金价回落 后市怎么走？](http://www.share.kurohicncr.top/Article/details/19756844665.shtml)
-- 2026-06-29 12:30 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.share.minike.top/Article/details/3846281086.shtml)
-- 2026-06-29 12:36 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.kurohicncr.top/Article/details/3376827.shtml)
+- 2026-06-29 12:37 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.share.kurohicncr.top/Article/details/35770620.shtml)
+- 2026-06-29 12:47 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.blog.kurohicncr.top/Article/details/59128.shtml)
+- 2026-06-29 12:52 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.blog.minike.top/Article/details/216652273.shtml)
+- 2026-06-29 12:36 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.share.kurohicncr.top/Article/details/61892774226.shtml)
+- 2026-06-29 12:53 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](http://www.share.kurohicncr.top/Article/details/034024995.shtml)
+- 2026-06-29 12:30 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.share.kurohicncr.top/Article/details/24565.shtml)
+- 2026-06-29 12:55 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.blog.minike.top/Article/details/5424211759.shtml)
+- 2026-06-29 12:48 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.kurohicncr.top/Article/details/7449307.shtml)
+- 2026-06-29 12:44 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.share.minike.top/Article/details/26289.shtml)
+- 2026-06-29 12:47 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.blog.kurohicncr.top/Article/details/10236.shtml)
+- 2026-06-29 12:55 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.minike.top/Article/details/81642307632.shtml)
+- 2026-06-29 12:38 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.share.minike.top/Article/details/5971769111.shtml)
+- 2026-06-29 12:54 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](http://www.share.kurohicncr.top/Article/details/81416.shtml)
+- 2026-06-29 12:52 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lisacumin64-arch)

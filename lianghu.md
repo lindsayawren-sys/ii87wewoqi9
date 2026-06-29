@@ -1,58 +1,61 @@
-# 寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”
+# 韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-来源：北京商报 作者： 李秀梅 寄希望于“外脑”破局，成为当下许多险企应对转型压力、谋求发展突破的重要路径。5月18日，北京商报记者注意到，中华联合保险集团股份有限公司（以下简称“中华保险集团”）发布了副总经理招聘信息，根据招聘需求，该集团社会招聘副总经理1名，分管集团公司投资板块相关工作。 当前，中华保险集团旗下财险、寿险两大子公司业绩双双承压，合规风险、偿付能力等压力并存，
+近来，以三星电子和SK海力士为中心的半导体大型股持续上涨，推动韩国综合股价指数KOSPI屡创新高。人工智能（AI）需求爆发催生的芯片热潮，使三星和SK海力士的Q1营收利润分别剧增756%和405%。在此背景下，韩国总统府政策室长金容范5月11日公开提出所谓“国民分红”构想，主张应将AI产业扩张所产生的“超额利润”返还社会。 当地时间2026年5月12日，韩国首尔，三星电子会长李
 
 ## 正文
 
-来源：北京商报 作者： 李秀梅 寄希望于“外脑”破局，成为当下许多险企应对转型压力、谋求发展突破的重要路径。
+近来，以三星电子和SK海力士为中心的半导体大型股持续上涨，推动韩国综合股价指数KOSPI屡创新高。
 
-5月18日，北京商报记者注意到，中华联合保险集团股份有限公司（以下简称“中华保险集团”）发布了副总经理招聘信息，根据招聘需求，该集团社会招聘副总经理1名，分管集团公司投资板块相关工作。
+人工智能（AI）需求爆发催生的芯片热潮，使三星和SK海力士的Q1营收利润分别剧增756%和405%。
 
-当前，中华保险集团旗下财险、寿险两大子公司业绩双双承压，合规风险、偿付能力等压力并存，对于管理层而言，面临着不小的考验。
+在此背景下，韩国总统府政策室长金容范5月11日公开提出所谓“国民分红”构想，主张应将AI产业扩张所产生的“超额利润”返还社会。
 
-社招副总经理 一季度董事长刘元章正式就位后，二季度中华保险集团开启了高管市场化选聘工作。
+当地时间2026年5月12日，韩国首尔，三星电子会长李在镕位于首尔龙山区汉南洞的私宅前，全国三星电子劳动组合搭建了帐篷。
 
-5月18日，中华保险集团官网显示，该集团招聘副总经理一名，履行集团公司副总经理职责，分管集团公司投资板块相关工作，理顺投资管理及决策机制，加强投资能力建设；执行公司投资策略，优化资产配置组合，主导公司重大投资决策。
+视觉中国 图 金容范在Facebook上发文指出，韩国经济可能发生结构性变化，或将“转向一种基于结构性稀缺与持续超额利润、接近‘技术垄断经济’的结构。
 
-主导一家保险集团的投资事宜，对应聘者能力要求显然不低。
+”他认为，如果这种变化成真，财政与分配方式也必须随之改变，应将部分“超额利润”（excess profit）以结构化方式返还给全体国民。
 
-应聘资格条件提到，具备10年以上的保险、证券、基金、银行等金融资管工作经验，熟悉金融资管公司的运营模式和业务流程，具备丰富的固定收益类、权益类等领域的投资管理经验；具备丰富的领导岗位工作经验，有较强的管理能力、组织能力、沟通协调能力和风险管理能力等。
+所谓“超额利润”，是相对于完全竞争市场中的“正常利润”（normal profit）而言，指企业因结构性垄断或寡头地位而获得超出正常范围的利润。
 
-中华保险集团的高管招聘并非孤例，北京商报记者注意到，近两年越来越多保险公司将最核心管理岗位的选拔渠道面向市场，掀起了一场持续升温的“海选”潮。
+韩联社认为，这反映出金容范的观点：当前三星和SK海力士获得的利润，并不属于普通意义上的“正常利润”。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:51 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:35 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:37 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:27 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:45 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:24 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:48 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:33 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:36 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:45 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:52 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:30 - [习近平会见文莱王储比拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:46 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:45 - [机构预测2026年泰国平均通货膨胀率为3.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:52 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:40 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:57 - [AI盈利兑现+油价回落，美股延续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:49 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:33 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:53 - [世界期待中美携手多办大事实事好事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:56 - [500亿市值巨头突然直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:45 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:45 - [“二号位”或套现4737万，百亿京北方频遭高管减持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:42 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:30 - [英国首相斯塔默周三将与一位主要对手会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:48 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.share.kurohicncr.top/Article/details/04762835.shtml)
-- 2026-06-29 12:33 - [业绩炸裂！存储芯片龙头净利预增2244%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.blog.minike.top/Article/details/660873585.shtml)
-- 2026-06-29 12:36 - [中企承建的阿斯塔纳轻轨投入运营](http://www.blog.kurohicncr.top/Article/details/72796155.shtml)
-- 2026-06-29 12:37 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/69555291.shtml)
-- 2026-06-29 12:49 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.share.minike.top/Article/details/57044.shtml)
-- 2026-06-29 12:53 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/63027.shtml)
-- 2026-06-29 12:46 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.blog.kurohicncr.top/Article/details/735774095.shtml)
-- 2026-06-29 12:26 - [安徽休宁：初夏育秧忙](http://www.share.kurohicncr.top/Article/details/800431771.shtml)
-- 2026-06-29 12:35 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.minike.top/Article/details/052544975165.shtml)
-- 2026-06-29 12:31 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.blog.kurohicncr.top/Article/details/54230496.shtml)
-- 2026-06-29 12:44 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.share.kurohicncr.top/Article/details/2745665.shtml)
-- 2026-06-29 12:53 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.blog.kurohicncr.top/Article/details/4811573.shtml)
+- 2026-06-29 12:45 - [佳通轮胎（600182，S佳通）索赔案启动，鹏都农牧（002505）索赔案再获得法院立案](http://www.share.kurohicncr.top/Article/details/95579278588.shtml)
+- 2026-06-29 12:47 - [（近观中国）信短情长，习近平与美国友人的交往故事](http://www.blog.kurohicncr.top/Article/details/81221007.shtml)
+- 2026-06-29 12:43 - [摩根大通CEO戴蒙称要获得更好增长 需解决美欧之间“愚蠢”的贸易问题](http://www.share.minike.top/Article/details/396482398.shtml)
+- 2026-06-29 12:46 - [作家梁鸿分享阅读初心 希望阅读让生命充满光亮](http://www.share.minike.top/Article/details/61588751.shtml)
+- 2026-06-29 12:43 - [美称一直在监控伊朗埋在废墟下的浓缩铀](http://www.share.kurohicncr.top/Article/details/71955628547.shtml)
+- 2026-06-29 12:45 - [金观平：千方百计稳住就业基本盘](http://www.share.kurohicncr.top/Article/details/155930.shtml)
+- 2026-06-29 12:38 - [4月新能源汽车产销量及出口量均稳定增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [MH迈汇:黄金年末望挑战五千关口](http://www.blog.minike.top/Article/details/903274850.shtml)
+- 2026-06-29 12:48 - [000056，董事会突现新面孔！背靠四川文创企业，相关方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [欧盟就《关键药物法案》达成初步协议 ，旨在强化供应安全与本土制造能力](http://www.blog.kurohicncr.top/Article/details/44690.shtml)
+- 2026-06-29 12:40 - [巴西 3 月零售销售额超预期，创下历史新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [中国U17男足获得2026年世少赛参赛资格](http://www.blog.kurohicncr.top/Article/details/33901312687.shtml)
+- 2026-06-29 12:35 - [DNV预测：到2060年清洁氢能将增长100倍](http://www.share.kurohicncr.top/Article/details/829029197695.shtml)
+- 2026-06-29 12:53 - [“我本来就是中国人” 周锡玮：台湾人都是中国人 多次表态引发全场掌声](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [国家统计局：4月居民消费价格指数同比上涨1.2%](https://github.com/lisacumin64-arch)

@@ -1,60 +1,58 @@
-# 福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会
+# 大理大学在洱海蓝藻水华防控研究中取得重要进展
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。 当天的座谈气氛温馨而热烈。台湾义勇队及抗日志士家
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。 “高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的
 
 ## 正文
 
-中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。
 
-活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。
+“高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。
 
-当天的座谈气氛温馨而热烈。
+近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的水环境危机，特别是在洱海等生态敏感的高原湖泊流域，此类生态灾害对区域水质安全构成严峻挑战。
 
-台湾义勇队及抗日志士家属代表深情追忆先辈投身抗日、守望家国的峥嵘事迹，表达传承先辈精神、守护共同历史记忆、维系漳台血脉亲情的真挚心愿。
+其中，蓝藻水华优势种铜绿微囊藻不仅能快速增殖，还会合成具有肝毒性的微囊藻毒素(如MC-LR)，成为对水生生物多样性和生态健康威胁最大的因素之一。
 
-各县区台联负责人纷纷表态，将充分发挥台联桥梁纽带优势，广泛联络发动广大台胞台属，助力“迁台记忆”档案征集工作走深走实。
+传统的化学除藻方法极易导致细胞破裂及胞内毒素大量释放，从而引发严重的二次污染。
 
-两岸同根同源，文脉薪火相传。
+针对这一治理困境，大理大学农学与生物科学学院特聘教授吴明灿团队与药学院教授戚克振团队合作开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行。
 
-今年以来，众多台湾义勇队、台湾少年团后代家属心系家国、情牵文脉，踊跃无偿捐赠家族珍藏史料。
+日前，该成果发表于生物工程与环境科学领域国际顶级期刊《Bioresource Technology》。
 
-在漳州市台联积极协助对接下，台湾义勇队队员王正西女儿王阳红；台湾少年团成员蔡东南女儿蔡丽丽及陈金泽儿子陈仲凯、许静飞孙子陈鸣等家属代表，先后将珍藏的往来书信、照片、视频、研究资料等珍贵台湾义勇队和台湾少年团档案资料100余件无偿捐赠给漳州市档案馆。
+研究团队通过乙醇辅助界面工程策略，成功构建了一种新型的p-p型S型异质结光催化剂。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:36 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:26 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:39 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:50 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:34 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:27 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:32 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:34 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:43 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:52 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:47 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:24 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:39 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:52 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:35 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:53 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:56 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:39 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:53 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:48 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:42 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:49 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:44 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:52 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:37 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/35088365.shtml)
-- 2026-06-29 12:49 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.share.kurohicncr.top/Article/details/65106.shtml)
-- 2026-06-29 12:43 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.blog.kurohicncr.top/Article/details/929255.shtml)
-- 2026-06-29 12:50 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.kurohicncr.top/Article/details/034086357.shtml)
-- 2026-06-29 12:44 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.minike.top/Article/details/11670100.shtml)
-- 2026-06-29 12:25 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.kurohicncr.top/Article/details/077694.shtml)
-- 2026-06-29 12:51 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.blog.minike.top/Article/details/0354231.shtml)
-- 2026-06-29 12:43 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.blog.kurohicncr.top/Article/details/470839119.shtml)
-- 2026-06-29 12:28 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.share.minike.top/Article/details/399071945296.shtml)
-- 2026-06-29 12:42 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.share.kurohicncr.top/Article/details/7096134.shtml)
-- 2026-06-29 12:31 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.kurohicncr.top/Article/details/7518955.shtml)
-- 2026-06-29 12:51 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.blog.minike.top/Article/details/535554788.shtml)
-- 2026-06-29 12:46 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.minike.top/Article/details/50857.shtml)
-- 2026-06-29 12:47 - [Anthropic将向监管机构通报网络风险](http://www.blog.kurohicncr.top/Article/details/390397927086.shtml)
+- 2026-06-29 12:30 - [AI盈利兑现+油价回落，美股延续反弹](http://www.share.minike.top/Article/details/71124164.shtml)
+- 2026-06-29 12:33 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.minike.top/Article/details/00225.shtml)
+- 2026-06-29 12:34 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [世界期待中美携手多办大事实事好事](http://www.blog.kurohicncr.top/Article/details/33336.shtml)
+- 2026-06-29 12:44 - [500亿市值巨头突然直线拉升](http://www.blog.minike.top/Article/details/75775350.shtml)
+- 2026-06-29 12:46 - [获刑十三年！荐股“杀猪盘”被查](http://www.share.minike.top/Article/details/3915632.shtml)
+- 2026-06-29 12:37 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.blog.minike.top/Article/details/788554.shtml)
+- 2026-06-29 12:50 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.blog.kurohicncr.top/Article/details/2183156.shtml)
+- 2026-06-29 12:46 - [英国首相斯塔默周三将与一位主要对手会面](http://www.blog.minike.top/Article/details/707303.shtml)
+- 2026-06-29 12:30 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.kurohicncr.top/Article/details/231674.shtml)
+- 2026-06-29 12:50 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](http://www.share.minike.top/Article/details/910904170.shtml)
+- 2026-06-29 12:41 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.share.kurohicncr.top/Article/details/56412.shtml)
+- 2026-06-29 12:52 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.blog.kurohicncr.top/Article/details/8515146.shtml)
+- 2026-06-29 12:39 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.share.kurohicncr.top/Article/details/68789.shtml)
+- 2026-06-29 12:57 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](https://github.com/lisacumin64-arch)

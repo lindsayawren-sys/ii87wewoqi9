@@ -1,59 +1,44 @@
-# 陈茂波：香港经济基调良好、前景正面
+# 广发证券完成发行60亿元短期公司债券
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】香港特区政府财政司司长陈茂波：香港经济基调良好、前景正面，有助吸引更多国际长期资金投资 中国基金报记者 储是 5月17日，香港特区政府财政司司长陈茂波发表网志表示，香港经济基调良好、前景正面，有助吸引国际长期资金。数据显示，今年首季香港GDP按年增长5.9%，创近五年最强季度增速，消费、投资、外贸同步发力。 陈茂波将出访法、比、瑞三国，面向欧洲金融机构
+广发证券（01776）发布公告，广发证券股份有限公司2026年面向专业投资者公开发行短期公司债券（第四期）发行时间自2026年5月11日至2026年5月12日，最终发行规模为60亿元，最终票面利率为1.49%，认购倍数为3.99倍。责任编辑：卢昱君
 
 ## 正文
 
-来源：中国基金报 【导读】香港特区政府财政司司长陈茂波：香港经济基调良好、前景正面，有助吸引更多国际长期资金投资 中国基金报记者 储是 5月17日，香港特区政府财政司司长陈茂波发表网志表示，香港经济基调良好、前景正面，有助吸引国际长期资金。
+广发证券（01776）发布公告，广发证券股份有限公司2026年面向专业投资者公开发行短期公司债券（第四期）发行时间自2026年5月11日至2026年5月12日，最终发行规模为60亿元，最终票面利率为1.49%，认购倍数为3.99倍。
 
-数据显示，今年首季香港GDP按年增长5.9%，创近五年最强季度增速，消费、投资、外贸同步发力。
-
-陈茂波将出访法、比、瑞三国，面向欧洲金融机构、家族办公室及私募基金推介香港新机遇，持续扩大引资与国际合作。
-
-香港经济基调良好、前景正面 5月17日，香港特区政府财政司司长陈茂波发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。
-
-这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。
-
-陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创科与高增值服务，支持经济增长与经济结构转型。
-
-国际评级机构穆迪与惠誉亦确认香港的信贷评级和“稳定”展望。
-
-他强调，这些认可不仅反映了香港经济基调良好、前景正面、公共财政稳健，更说明持续沟通讲解，能让国际机构更充分地了解香港的现状、发展方向和机遇。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [2026中德企业乒乓球邀请赛在慕尼黑举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:47 - [北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:30 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:35 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:41 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:53 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:28 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:49 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:50 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:32 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:26 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:53 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:46 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:36 - [“中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:54 - [今年被罚没已逾2200万元！交通银行为何合规问题不断？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:31 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:44 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:41 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:35 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:43 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:32 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:32 - [涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:38 - [午盘：美股走低科技股领跌 纳指下跌1.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](http://www.share.minike.top/Article/details/840949505.shtml)
-- 2026-06-29 12:51 - [渣打集团任命科斯特洛为首席财务官](http://www.blog.kurohicncr.top/Article/details/25831198.shtml)
-- 2026-06-29 12:31 - [湖南省文化馆数字文旅体验空间开馆](http://www.share.kurohicncr.top/Article/details/417444.shtml)
-- 2026-06-29 12:28 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.blog.kurohicncr.top/Article/details/7392724.shtml)
-- 2026-06-29 12:39 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.minike.top/Article/details/37912630640.shtml)
-- 2026-06-29 12:49 - [债券市场异动预示利率或将大幅走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.share.minike.top/Article/details/24978980679.shtml)
-- 2026-06-29 12:45 - [我国成功发射千帆星座第9批组网卫星](http://www.blog.kurohicncr.top/Article/details/584189151885.shtml)
-- 2026-06-29 12:42 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/34957331304.shtml)
-- 2026-06-29 12:45 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.minike.top/Article/details/17557.shtml)
-- 2026-06-29 12:25 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/941829278825.shtml)
-- 2026-06-29 12:52 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.minike.top/Article/details/23880.shtml)
+- 2026-06-29 12:43 - [法国农办调增2025/26年度谷物出口预期](http://www.share.minike.top/Article/details/440111.shtml)
+- 2026-06-29 12:58 - [习近平会见联合国教科文组织总干事阿纳尼](http://www.blog.kurohicncr.top/Article/details/04702.shtml)
+- 2026-06-29 12:48 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.blog.kurohicncr.top/Article/details/1624203.shtml)
+- 2026-06-29 12:52 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](http://www.share.minike.top/Article/details/6309691452.shtml)
+- 2026-06-29 12:45 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.share.kurohicncr.top/Article/details/245560223.shtml)
+- 2026-06-29 12:33 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.blog.minike.top/Article/details/44358223248.shtml)
+- 2026-06-29 12:39 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.share.kurohicncr.top/Article/details/6967192.shtml)
+- 2026-06-29 12:58 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.kurohicncr.top/Article/details/3890967.shtml)
+- 2026-06-29 12:33 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.blog.kurohicncr.top/Article/details/68451548.shtml)
+- 2026-06-29 12:40 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/63320921842.shtml)
+- 2026-06-29 12:50 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.share.minike.top/Article/details/047042860.shtml)
+- 2026-06-29 12:53 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.share.kurohicncr.top/Article/details/743833.shtml)
+- 2026-06-29 12:55 - [东航7月1日开通成都直航台中航线，国台办回应](http://www.blog.minike.top/Article/details/99819212665.shtml)
+- 2026-06-29 12:39 - [直击！直升机水上绞车救援专项训练现场](http://www.blog.kurohicncr.top/Article/details/83546446.shtml)
+- 2026-06-29 12:40 - [租充电宝1小时扣149元还被要求自证？专家教你维权](http://www.share.kurohicncr.top/Article/details/32622968144.shtml)

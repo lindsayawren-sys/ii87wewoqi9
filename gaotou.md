@@ -1,59 +1,51 @@
-# 从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海
+# 5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新社景德镇5月17日电 (记者 姜涛)一只未能进入皇宫的中国明代“瓷鸭”，如何成为连接中外文化的“使者”？在国际博物馆日前夕，千年瓷都景德镇发布全新IP形象“爆棚鸭”，并通过一场全英文跨国直播，将一件尘封地下数百年的“素三彩鸭形香薰”推向全球视野。 2026年景德镇市文化旅游活动月启动仪式17日举行，“岁岁鸭”家族新成员——“爆棚鸭”正式亮相。其造型灵感源于陶瓷烧制中的“炸窑
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月13日盘后，泉阳泉披露增持情况，包括展鹏科技、天智航、德福科技、泰嘉股份、铭利达、通源石油、北纬科技、信隆健康、汇嘉时代、三达膜在内的10家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
 
 ## 正文
 
-中新社景德镇5月17日电 (记者 姜涛)一只未能进入皇宫的中国明代“瓷鸭”，如何成为连接中外文化的“使者”？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在国际博物馆日前夕，千年瓷都景德镇发布全新IP形象“爆棚鸭”，并通过一场全英文跨国直播，将一件尘封地下数百年的“素三彩鸭形香薰”推向全球视野。
+据统计，5月13日盘后，泉阳泉披露增持情况，包括展鹏科技、天智航、德福科技、泰嘉股份、铭利达、通源石油、北纬科技、信隆健康、汇嘉时代、三达膜在内的10家A股上市公司披露拟减持情况。
 
-2026年景德镇市文化旅游活动月启动仪式17日举行，“岁岁鸭”家族新成员——“爆棚鸭”正式亮相。
-
-其造型灵感源于陶瓷烧制中的“炸窑”现象：蓬松的爆炸头、乌黑毛绒质感搭配怒目神态，既具潮流感，又蕴含“千窑难得、精益求精”的工匠精神。
-
-现场直播中，景德镇御窑博物院院长翁彦俊与北京师范大学留学生何诗怡全程英文导览，带领海外网友“云逛”博物馆，深度解读瓷器背后的文化密码。
-
-其间，明成化年间的素三彩鸭形香薰是最具人气的文物之一。
-
-翁彦俊介绍，这件鸭形香薰为明代御窑专为宫廷烧制的祭祀用具，因当时御窑筛选制度极为严苛，稍有瑕疵即被砸碎掩埋。
-
-“这批鸭形香薰虽工艺精湛，却从未真正进入皇宫使用，长期埋藏于珠山之下。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:44 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:34 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:36 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:35 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:34 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:45 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:32 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:32 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:39 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:47 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:34 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:44 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:33 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:57 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:48 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:42 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:51 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:44 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:47 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:56 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:39 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:32 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:58 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:49 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:37 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:56 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:53 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.share.minike.top/Article/details/171732124.shtml)
-- 2026-06-29 12:26 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.blog.minike.top/Article/details/5613165645.shtml)
-- 2026-06-29 12:50 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.blog.kurohicncr.top/Article/details/6314822.shtml)
-- 2026-06-29 12:28 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.share.minike.top/Article/details/348407.shtml)
-- 2026-06-29 12:51 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.blog.kurohicncr.top/Article/details/6746346.shtml)
-- 2026-06-29 12:40 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.minike.top/Article/details/818481118483.shtml)
-- 2026-06-29 12:40 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.minike.top/Article/details/5983108.shtml)
-- 2026-06-29 12:48 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.blog.minike.top/Article/details/85196923075.shtml)
-- 2026-06-29 12:30 - [中俄林业教育科技产业创新联盟成立](http://www.share.minike.top/Article/details/26854054.shtml)
-- 2026-06-29 12:47 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.blog.minike.top/Article/details/832237821720.shtml)
-- 2026-06-29 12:45 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/2939867.shtml)
-- 2026-06-29 12:31 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.share.minike.top/Article/details/18747754.shtml)
+- 2026-06-29 12:30 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](http://www.blog.minike.top/Article/details/070694.shtml)
+- 2026-06-29 12:58 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.blog.kurohicncr.top/Article/details/81127323.shtml)
+- 2026-06-29 12:46 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.blog.kurohicncr.top/Article/details/89436775.shtml)
+- 2026-06-29 12:33 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.share.minike.top/Article/details/2495875.shtml)
+- 2026-06-29 12:34 - [德乌计划联合研发生产各型无人机](http://www.blog.kurohicncr.top/Article/details/87559187.shtml)
+- 2026-06-29 12:50 - [一季度西藏社会消费品零售总额255.83亿元](http://www.share.minike.top/Article/details/720079.shtml)
+- 2026-06-29 12:39 - [习近平会见文莱王储比拉](http://www.share.minike.top/Article/details/6191899843.shtml)
+- 2026-06-29 12:54 - [韩国交易所开始在资本市场监测工作中采用AI技术](http://www.blog.kurohicncr.top/Article/details/262175.shtml)
+- 2026-06-29 12:57 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.share.kurohicncr.top/Article/details/19957624.shtml)
+- 2026-06-29 12:43 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.share.kurohicncr.top/Article/details/184951.shtml)
+- 2026-06-29 12:52 - [三峡库区水位加快消落 调整航标保畅通](http://www.share.minike.top/Article/details/88910030.shtml)
+- 2026-06-29 12:36 - [AI盈利兑现+油价回落，美股延续反弹](http://www.share.minike.top/Article/details/264342.shtml)
+- 2026-06-29 12:57 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.kurohicncr.top/Article/details/73407276.shtml)

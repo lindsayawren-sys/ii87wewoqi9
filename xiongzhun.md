@@ -1,47 +1,46 @@
-# 廊坊银行股权变更获批 厦门国际银行持股比例达6.4%
+# 均胜电子将于6月16日派发末期股息每10股2.057467港元
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-5月18日金融一线消息，河北金融监管局发布批复，同意厦门国际银行股份有限公司受让华夏幸福基业控股股份公司持有的廊坊银行8627万股股份。受让后，厦门国际银行股份有限公司合计持有廊坊银行36900万股股份，持股比例为6.4%。 责任编辑：秦艺
+均胜电子（00699）发布公告，将于2026年6月16日派发截至2025年12月31日止年度的末期股息每10股2.057467港元。责任编辑：卢昱君
 
 ## 正文
 
-5月18日金融一线消息，河北金融监管局发布批复，同意厦门国际银行股份有限公司受让华夏幸福基业控股股份公司持有的廊坊银行8627万股股份。
+均胜电子（00699）发布公告，将于2026年6月16日派发截至2025年12月31日止年度的末期股息每10股2.057467港元。
 
-受让后，厦门国际银行股份有限公司合计持有廊坊银行36900万股股份，持股比例为6.4%。
-
-责任编辑：秦艺
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:39 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:28 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:45 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:24 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:44 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:35 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:44 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:24 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:45 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:29 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:43 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:51 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:48 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:39 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:35 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:35 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:49 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:49 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:57 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:55 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:41 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:55 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [缅甸发生5.2级地震 震源深度10千米](http://www.share.minike.top/Article/details/6307422676.shtml)
-- 2026-06-29 12:40 - [娄山观|谁说山地不能刚？贵州农业硬核登场](http://www.share.minike.top/Article/details/92534.shtml)
-- 2026-06-29 12:42 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.blog.kurohicncr.top/Article/details/8832905348.shtml)
-- 2026-06-29 12:29 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.share.kurohicncr.top/Article/details/7560934512.shtml)
-- 2026-06-29 12:35 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](http://www.blog.kurohicncr.top/Article/details/34867.shtml)
-- 2026-06-29 12:43 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.share.minike.top/Article/details/142019820.shtml)
-- 2026-06-29 12:37 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.blog.minike.top/Article/details/01917.shtml)
-- 2026-06-29 12:42 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.kurohicncr.top/Article/details/5239233736.shtml)
-- 2026-06-29 12:37 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/65982251.shtml)
-- 2026-06-29 12:49 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.share.minike.top/Article/details/31561343816.shtml)
+- 2026-06-29 12:50 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.share.kurohicncr.top/Article/details/9823959371.shtml)
+- 2026-06-29 12:30 - [劳动者杯中国职工篮球系列赛鸣哨](http://www.blog.minike.top/Article/details/78526336.shtml)
+- 2026-06-29 12:53 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [我国牵头制定发布14项天然气领域国际标准](http://www.blog.minike.top/Article/details/44030114120.shtml)
+- 2026-06-29 12:55 - [5月12日龙虎榜，机构青睐这10股](http://www.blog.minike.top/Article/details/0550487.shtml)
+- 2026-06-29 12:33 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.blog.minike.top/Article/details/00953.shtml)
+- 2026-06-29 12:31 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/59674561380.shtml)
+- 2026-06-29 12:48 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.kurohicncr.top/Article/details/99060147822.shtml)
+- 2026-06-29 12:46 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.kurohicncr.top/Article/details/7942522434.shtml)
+- 2026-06-29 12:53 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.blog.minike.top/Article/details/658439.shtml)
+- 2026-06-29 12:32 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.kurohicncr.top/Article/details/19865458.shtml)
+- 2026-06-29 12:52 - [防汛关键期！感受直升机索滑降训练现场](http://www.blog.kurohicncr.top/Article/details/663099937.shtml)

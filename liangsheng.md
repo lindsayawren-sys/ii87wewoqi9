@@ -1,61 +1,56 @@
-# EMCOR高管团队将出席三场投资者会议
+# 太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-会议行程安排 EMCOR Group， Inc．宣布，其董事长、总裁兼首席执行官Tony Guzzi与高级副总裁兼首席财务官Jason Nalbandian将参与三场投资者会议。具体安排如下：5月28日出席在波士顿举行的KeyBanc资本市场工业与基础材料大会；6月2日出席在芝加哥举行的William Blair第46届年度成长股大会，并于当日中午12：20进行网络直播；6月3
+中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。 据报道，该更名提案最初由总统阿迪昂于1月提出。瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。 新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更
 
 ## 正文
 
-会议行程安排 EMCOR Group， Inc．宣布，其董事长、总裁兼首席执行官Tony Guzzi与高级副总裁兼首席财务官Jason Nalbandian将参与三场投资者会议。
+中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。
 
-具体安排如下：5月28日出席在波士顿举行的KeyBanc资本市场工业与基础材料大会；6月2日出席在芝加哥举行的William Blair第46届年度成长股大会，并于当日中午12：20进行网络直播；6月3日出席在波士顿举行的Stifel 2026年波士顿跨行业一对一会议。
+据报道，该更名提案最初由总统阿迪昂于1月提出。
 
-参会目的与背景 EMCOR是一家专业的机械与电气施工服务、工业与能源基础设施及楼宇服务提供商，为财富500强及标普500指数成分股公司。
+瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。
 
-此次行程正值公司年度股东大会前夕，旨在向投资者阐述其业务战略与增长前景。
+新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更忠实地尊重”瑙鲁的文化遗产、语言和身份认同。
 
-公司管理层近期表示，在数据中心、芯片制造及能源转型领域项目需求持续增长的驱动下，公司对未来业务发展态势保持乐观。
+瑙鲁政府表示，下一步将举行全民公投。
 
-交流与展示渠道 对于William Blair会议，公司网站将提供同步音频网络直播，并在会后存档回放至7月2日。
+若更名获公投通过，新国名将用于国家官方记录和标志，以及区域和国际官方身份标识中，包括在联合国的官方称谓。
 
-有意参加一对一会议的投资者需直接联系各投行代表预约。
-
-所有会议前，公司最新的投资者演示文稿将在其官网“投资者关系”板块公布。
+公开资料显示，瑙鲁位于中太平洋，由一个独立的珊瑚礁岛及周边海域构成， 陆地面积21.1平方公里，人口约1.3万人。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:37 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:39 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:29 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:42 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:41 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:31 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:25 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:36 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:41 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:49 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:49 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:51 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:25 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:41 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:47 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:32 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:58 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:40 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:47 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:41 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:37 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:52 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:52 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:48 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:48 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:49 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.blog.minike.top/Article/details/2829384940.shtml)
-- 2026-06-29 12:25 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.kurohicncr.top/Article/details/574598019467.shtml)
-- 2026-06-29 12:45 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.blog.minike.top/Article/details/267370.shtml)
-- 2026-06-29 12:44 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.kurohicncr.top/Article/details/20486740.shtml)
-- 2026-06-29 12:43 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.share.kurohicncr.top/Article/details/43327085056.shtml)
-- 2026-06-29 12:47 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.share.minike.top/Article/details/4202969.shtml)
-- 2026-06-29 12:30 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.blog.minike.top/Article/details/362101.shtml)
-- 2026-06-29 12:44 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [北京稻香村涉事门店回应“反向抹零”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.blog.kurohicncr.top/Article/details/7532608320.shtml)
-- 2026-06-29 12:50 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.share.kurohicncr.top/Article/details/42382866773.shtml)
-- 2026-06-29 12:44 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.kurohicncr.top/Article/details/9113646.shtml)
-- 2026-06-29 12:35 - [Anthropic将向监管机构通报网络风险](http://www.blog.minike.top/Article/details/09361.shtml)
-- 2026-06-29 12:50 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](http://www.share.minike.top/Article/details/6076772586.shtml)
+- 2026-06-29 12:36 - [股海导航_2026年5月13日_沪深股市公告与交易提示](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [世界期待中美携手多办大事实事好事](http://www.share.kurohicncr.top/Article/details/4264252689.shtml)
+- 2026-06-29 12:47 - [500亿市值巨头突然直线拉升](http://www.blog.kurohicncr.top/Article/details/26809249564.shtml)
+- 2026-06-29 12:53 - [获刑十三年！荐股“杀猪盘”被查](http://www.blog.kurohicncr.top/Article/details/34432766555.shtml)
+- 2026-06-29 12:32 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.blog.kurohicncr.top/Article/details/359853.shtml)
+- 2026-06-29 12:49 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [英国首相斯塔默周三将与一位主要对手会面](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.kurohicncr.top/Article/details/564895211304.shtml)
+- 2026-06-29 12:41 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](http://www.blog.minike.top/Article/details/76092924.shtml)
+- 2026-06-29 12:42 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.blog.minike.top/Article/details/5415268645.shtml)
+- 2026-06-29 12:57 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.blog.kurohicncr.top/Article/details/54981.shtml)
+- 2026-06-29 12:46 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.share.kurohicncr.top/Article/details/40460332801.shtml)
+- 2026-06-29 12:41 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](http://www.share.minike.top/Article/details/96366097263.shtml)

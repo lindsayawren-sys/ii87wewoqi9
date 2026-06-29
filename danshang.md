@@ -1,56 +1,58 @@
-# 香港与韩国多机构相互签署备忘录 共推氢能生态系统发展
+# 劳动者杯中国职工篮球系列赛鸣哨
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新社香港5月18日电 (记者 魏华都)18日，在香港会议展览中心揭幕的国际氢能发展论坛上，香港特区政府机电工程署(简称“机电工程署”)分别与韩国国土交通部、韩国燃气公社签署谅解备忘录，推动氢能生态系统发展，并加强气体安全领域技术合作。 香港特区政府署理环境及生态局局长黄淑娴表示，氢能发展有助推动清洁能源转型，对实现碳中和具有关键作用，也带来不同机遇，香港将继续担当氢能技术示范
+中新网威海5月12日电 中华全国体育基金会-香港赛马会助力劳动者杯中国职工篮球系列赛11日晚在山东省威海市威海体育馆拉开帷幕。来自全国各地的30支球队、220余名运动员，将在为期五天的赛程中，展开五人制和三人制两个竞赛项目的激烈角逐。 作为全国性体育公益组织，中华全国体育基金会以开展慈善活动为宗旨，弘扬中华体育精神，致力于中国竞技体育水平和全民素质的提高，助力体育强国建设。香港
 
 ## 正文
 
-中新社香港5月18日电 (记者 魏华都)18日，在香港会议展览中心揭幕的国际氢能发展论坛上，香港特区政府机电工程署(简称“机电工程署”)分别与韩国国土交通部、韩国燃气公社签署谅解备忘录，推动氢能生态系统发展，并加强气体安全领域技术合作。
+中新网威海5月12日电 中华全国体育基金会-香港赛马会助力劳动者杯中国职工篮球系列赛11日晚在山东省威海市威海体育馆拉开帷幕。
 
-香港特区政府署理环境及生态局局长黄淑娴表示，氢能发展有助推动清洁能源转型，对实现碳中和具有关键作用，也带来不同机遇，香港将继续担当氢能技术示范基地，并提供绿色融资及专业服务，助力国家对外输出创新技术，将相关氢能项目推广至全球。
+来自全国各地的30支球队、220余名运动员，将在为期五天的赛程中，展开五人制和三人制两个竞赛项目的激烈角逐。
 
-黄淑娴提到，香港《2025年气体安全(修订)条例》已于2025年7月制定通过，而有关规管氢气的附属法例将于今年内提交立法会审议，涵盖氢气进口、制造、储存、运输、供应及使用等环节。
+作为全国性体育公益组织，中华全国体育基金会以开展慈善活动为宗旨，弘扬中华体育精神，致力于中国竞技体育水平和全民素质的提高，助力体育强国建设。
 
-香港特区政府机电工程署署长潘国英表示，香港享有内联外通的独特优势，同时作为国际金融中心，可建立衔接海内外市场的标准及认证体系，并为绿色资本与氢能产业搭建畅通的融资通道，构建全球氢能交流与合作平台枢纽。
+香港赛马会自2014年起，与国家体育总局合作推出“相约动起来，健康中国人”全民健身公益系列活动。
 
-论坛期间，机电工程署分别与韩国国土交通部及韩国燃气公社签署谅解备忘录，推动氢能生态系统发展，加强气体安全领域的技术合作。
+2023年，又与中华全国体育基金会共同设立了专项基金，定向资助各类全民健身赛事活动和社会体育指导员培训。
 
-另外，中国内地、香港及韩国多家企业亦签署谅解备忘录，合作在香港发展氢能业务，促进氢能供应链区域整合。
+本次比赛，是专项基金连续第三年资助开展的中国职工篮球赛事。
 
-韩国现代汽车集团能源及氢能政策事业部总经理申胜圭说，我们视香港为起点，期望借助未来的合作和业务机遇，进军至更广阔的亚太区氢能市场。
+中华全国体育基金会副理事长兼秘书长彭维勇宣布比赛开幕。
 
-香港中华煤气有限公司营运总裁郑晓光表示，公司将继续担当氢能生态圈的协调者和参与者，希望于2030年前让香港市民切实感受到氢能带来的清新空气与绿色经济效益。
+在五人制篮球揭幕战上，山东创新集团代表队以85比54战胜玉威空调代表队，拔得头筹。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:27 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:52 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:46 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:50 - [平台支付需留神 莫让“付钱”变“借钱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:25 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:52 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:34 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:30 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:28 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:57 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:34 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:40 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:38 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:31 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:57 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:49 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:53 - [戎装缔良缘 相守赴山河](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:35 - [中行境外机构人事调整 涉及中东、西欧多家分行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:31 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:37 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:57 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [文脉华章|我们为什么需要博物馆](http://www.share.kurohicncr.top/Article/details/103764245.shtml)
-- 2026-06-29 12:33 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](http://www.blog.kurohicncr.top/Article/details/685466774.shtml)
-- 2026-06-29 12:41 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](http://www.blog.minike.top/Article/details/735788594580.shtml)
-- 2026-06-29 12:34 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](http://www.share.minike.top/Article/details/0262950.shtml)
-- 2026-06-29 12:34 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](http://www.blog.kurohicncr.top/Article/details/0678415.shtml)
-- 2026-06-29 12:33 - [中信证券：调整何解？重建杠铃结构](http://www.share.minike.top/Article/details/41623887.shtml)
-- 2026-06-29 12:25 - [A股，重磅新规！千家公司面临调整](http://www.share.kurohicncr.top/Article/details/63714774161.shtml)
-- 2026-06-29 12:25 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.share.kurohicncr.top/Article/details/785803066403.shtml)
-- 2026-06-29 12:49 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.blog.kurohicncr.top/Article/details/79799017596.shtml)
-- 2026-06-29 12:39 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.minike.top/Article/details/42173628.shtml)
-- 2026-06-29 12:47 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.kurohicncr.top/Article/details/7389659235.shtml)
+- 2026-06-29 12:59 - [腾讯最新声明：不会开发提供“微信访客功能”](http://www.blog.minike.top/Article/details/011113.shtml)
+- 2026-06-29 12:40 - [抓住重点 务求实效（人民论坛）](http://www.blog.minike.top/Article/details/226192476590.shtml)
+- 2026-06-29 12:33 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](http://www.share.kurohicncr.top/Article/details/6765220.shtml)
+- 2026-06-29 12:50 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](http://www.share.minike.top/Article/details/6896855.shtml)
+- 2026-06-29 12:49 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](http://www.blog.kurohicncr.top/Article/details/321351657.shtml)
+- 2026-06-29 12:34 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](http://www.share.minike.top/Article/details/73335.shtml)
+- 2026-06-29 12:40 - [我国成功发射千帆极轨09组卫星](http://www.share.kurohicncr.top/Article/details/46587565.shtml)
+- 2026-06-29 12:44 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](http://www.share.kurohicncr.top/Article/details/209653581.shtml)
+- 2026-06-29 12:48 - [焦煤短期承压的核心逻辑是？](http://www.blog.kurohicncr.top/Article/details/9638343.shtml)
+- 2026-06-29 12:31 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.share.kurohicncr.top/Article/details/335934540.shtml)
+- 2026-06-29 12:37 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](http://www.blog.minike.top/Article/details/218463.shtml)
+- 2026-06-29 12:50 - [沙特3月下旬曾对伊朗实施报复性打击](http://www.share.minike.top/Article/details/96901890.shtml)
+- 2026-06-29 12:32 - [两岸和平统一后台湾精神文化生活如何“更好” 国台办四方面阐释](http://www.blog.minike.top/Article/details/87791644.shtml)
+- 2026-06-29 12:44 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](http://www.share.minike.top/Article/details/29876803573.shtml)
+- 2026-06-29 12:40 - [创新的力量：视听传播如何实现“从点到链”的变革？](http://www.blog.kurohicncr.top/Article/details/80877821964.shtml)

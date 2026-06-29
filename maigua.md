@@ -1,59 +1,52 @@
-# 衢州发展战略转型受挫，终止购买先导电科95.4559%股份
+# 在伊朗冲突存在不确定性之际 日经指数可能下跌
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【导读】衢州发展战略转型受挫，终止购买先导电科95.4559%股份5月17日晚间，衢州发展发布公告称，公司董事会已审议通过《关于终止发行股份购买资产并募集配套资金暨关联交易事项的议案》。此前，衢州发展拟通过发行股份的方式，购买先导电子科技股份有限公司（以下简称先导电科）95.4559%的股份，同时拟定增募集配套资金。衢州发展将上
+随着对伊朗冲突及其经济影响的不确定性持续存在，日本股市可能下跌。新加坡交易所的日经指数期货下跌0.2%，至62420点。隔夜公布的政府数据显示，受汽油价格上涨推动，4月份美国消费者物价涨幅较上年同期达到3.8%。投资者正关注中东局势的发展以及日本企业的盈利情况。日经指数周二上涨0.5%，至62742.57点。责任编辑：王永生
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 【导读】衢州发展战略转型受挫，终止购买先导电科95.4559%股份5月17日晚间，衢州发展发布公告称，公司董事会已审议通过《关于终止发行股份购买资产并募集配套资金暨关联交易事项的议案》。
+随着对伊朗冲突及其经济影响的不确定性持续存在，日本股市可能下跌。
 
-此前，衢州发展拟通过发行股份的方式，购买先导电子科技股份有限公司（以下简称先导电科）95.4559%的股份，同时拟定增募集配套资金。
+新加坡交易所的日经指数期货下跌0.2%，至62420点。
 
-衢州发展将上述交易作为其战略转型的重要一步。
+隔夜公布的政府数据显示，受汽油价格上涨推动，4月份美国消费者物价涨幅较上年同期达到3.8%。
 
-截至5月15日收盘，衢州发展股价报4.89元/股，跌幅达6.86%，总市值为416.1亿元。
+投资者正关注中东局势的发展以及日本企业的盈利情况。
 
-公告显示，衢州发展终止此次交易，原因是先导电科的股东结构多元，类型涵盖央企、地方国企、民营资本及产业基金等主体，但各方诉求存在差异，在交易定价与核心条款上仍存在较大分歧，难以达成共识。
+日经指数周二上涨0.5%，至62742.57点。
 
-衢州发展此前发布的交易预案显示，衢州发展筹划本次交易的对手方为先导电科的48名股东，包括先导电科的控股股东广东先导稀材股份有限公司、徐州市中金先导专项私募投资基金合伙企业（有限合伙）、上海半导体装备材料产业投资基金合伙企业（有限合伙）、徐州高新技术产业开发区创业发展有限公司、中建材（安徽）新材料产业投资基金合伙企业（有限合伙）等。
-
-5月15日晚间，广东先导稀材股份有限公司向衢州发展发送了《关于终止与衢州发展（600208）资产重组交易的函》，提请衢州发展尽快启动终止本次交易的相关审议及信息披露程序。
-
-衢州发展公告称，鉴于本次交易自筹划以来已历时较长，为维护公司全体股东长期利益，经审慎考虑拟同意终止本次交易。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:45 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:29 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:51 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:42 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:26 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:38 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:51 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:45 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:41 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:31 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:39 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:50 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:52 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:42 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:41 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:48 - [美防长赫格塞思就国防预算出席国会听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:53 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:53 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:40 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:32 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:54 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:56 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.blog.minike.top/Article/details/5923965837.shtml)
-- 2026-06-29 12:39 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](http://www.share.kurohicncr.top/Article/details/07629180.shtml)
-- 2026-06-29 12:47 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.share.kurohicncr.top/Article/details/74177.shtml)
-- 2026-06-29 12:33 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.share.minike.top/Article/details/31177545131.shtml)
-- 2026-06-29 12:28 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.share.kurohicncr.top/Article/details/55508249.shtml)
-- 2026-06-29 12:29 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.blog.minike.top/Article/details/605431.shtml)
-- 2026-06-29 12:33 - [外资企业投资中国提质升级 转向“融入发展”](http://www.blog.minike.top/Article/details/952048.shtml)
-- 2026-06-29 12:47 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.blog.kurohicncr.top/Article/details/91244039.shtml)
-- 2026-06-29 12:36 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.blog.kurohicncr.top/Article/details/23022701.shtml)
-- 2026-06-29 12:28 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.minike.top/Article/details/25530202414.shtml)
-- 2026-06-29 12:47 - [中俄林业教育科技产业创新联盟成立](http://www.blog.kurohicncr.top/Article/details/39234451158.shtml)
+- 2026-06-29 12:52 - [常熟银行收到501笔投诉，薛文坚持“做小做散”](http://www.blog.kurohicncr.top/Article/details/67987.shtml)
+- 2026-06-29 12:36 - [商业航天即将迎来“可回收火箭+IPO”密集催化！航空航天ETF华泰柏瑞（563380）基金份额创历史新高](http://www.share.minike.top/Article/details/47980.shtml)
+- 2026-06-29 12:48 - [春光科技业绩变脸又迟发预告 官方解释与财报数据“打架” 股价逆势上涨呈现“妖股”特征](http://www.blog.kurohicncr.top/Article/details/441979.shtml)
+- 2026-06-29 12:35 - [特朗普将访华 北京机场高速公路附近挂起中美两国国旗](http://www.share.minike.top/Article/details/00028.shtml)
+- 2026-06-29 12:56 - [韩国AI繁荣下的分配之争：“国民分红”构想出炉，三星罢工风暴袭来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [胖东来：从未在任何网络平台开展直播带货业务](http://www.share.kurohicncr.top/Article/details/95413213.shtml)
+- 2026-06-29 12:58 - [成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇](http://www.blog.minike.top/Article/details/6622718.shtml)
+- 2026-06-29 12:35 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.blog.kurohicncr.top/Article/details/56390627.shtml)
+- 2026-06-29 12:47 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.blog.kurohicncr.top/Article/details/7446213.shtml)
+- 2026-06-29 12:48 - [德乌计划联合研发生产各型无人机](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [一季度西藏社会消费品零售总额255.83亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [习近平会见文莱王储比拉](http://www.blog.minike.top/Article/details/479761.shtml)
+- 2026-06-29 12:36 - [韩国交易所开始在资本市场监测工作中采用AI技术](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.blog.minike.top/Article/details/137283946.shtml)
+- 2026-06-29 12:41 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.blog.kurohicncr.top/Article/details/01858.shtml)

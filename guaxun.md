@@ -1,59 +1,47 @@
-# 电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市
+# 防汛关键期！感受直升机索滑降训练现场
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-战略收缩：578亿日元减值后重新聚焦 继日产与梅赛德斯-奔驰之后，斯巴鲁成为最新一家宣布推迟电动化目标的车企。受全球电动汽车市场需求放缓及美国关税政策影响，斯巴鲁决定推迟其自主开发的首款纯电动车型的上市时间，并将部分资源重新转向混合动力和传统燃油车领域。 这一决策伴随着巨大的财务阵痛，在此次战略调整中，斯巴鲁计入了高达578亿日元的相关减值损失，导致2025财年营业利润同比暴跌
+发布时间：2026年05月13日 16:26 来源：中国新闻网 近日，广东防汛即将进入关键期，广州消防救援机动支队开展直升机索滑降训练。模拟“三断”极端场景，通过空中索降快速投送救援力量，突破极端环境救援任务盲区，筑牢汛期应急救援“生命线”。(作者：梁颢瀚) 责任编辑：【魏聪聪】
 
 ## 正文
 
-战略收缩：578亿日元减值后重新聚焦 继日产与梅赛德斯-奔驰之后，斯巴鲁成为最新一家宣布推迟电动化目标的车企。
+发布时间：2026年05月13日 16:26 来源：中国新闻网 近日，广东防汛即将进入关键期，广州消防救援机动支队开展直升机索滑降训练。
 
-受全球电动汽车市场需求放缓及美国关税政策影响，斯巴鲁决定推迟其自主开发的首款纯电动车型的上市时间，并将部分资源重新转向混合动力和传统燃油车领域。
+模拟“三断”极端场景，通过空中索降快速投送救援力量，突破极端环境救援任务盲区，筑牢汛期应急救援“生命线”。
 
-这一决策伴随着巨大的财务阵痛，在此次战略调整中，斯巴鲁计入了高达578亿日元的相关减值损失，导致2025财年营业利润同比暴跌90%至401亿日元。
-
-在财报说明会上，斯巴鲁社长大崎笃坦言，由于核心市场美国的电动化普及速度远低于预期，公司必须重新审视原有的激进计划。
-
-他表示：“考虑到这一点，我们的纯电动车市场导入时间将被推迟。
-
-我们希望全面重新评估包括车型在内的整个战略。
-
-” 柔性生产应对需求变局 尽管推迟了自研纯电项目，斯巴鲁并未停止电动化步伐。
-
-公司仍将按计划与合作伙伴丰田共同开发新车型，此前在纽约车展亮相的三排座纯电SUV“Getaway”预计将在2026年下半年投放北美市场。
+(作者：梁颢瀚) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:41 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:51 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:42 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:53 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:24 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:40 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:36 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:41 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:26 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:42 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:36 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:28 - [伊朗计划在两年内完成南帕尔斯气田重建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:59 - [中国官方附条件批准腾讯收购喜马拉雅股权案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:48 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:48 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:57 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:38 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:35 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:57 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:43 - [多元融合焕新消费 “电影+”让大银幕有大引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:41 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:56 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:35 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.blog.minike.top/Article/details/40348482194.shtml)
-- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/523216663958.shtml)
-- 2026-06-29 12:38 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/06839868.shtml)
-- 2026-06-29 12:48 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.share.minike.top/Article/details/32934387.shtml)
-- 2026-06-29 12:28 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.share.kurohicncr.top/Article/details/27983468931.shtml)
-- 2026-06-29 12:32 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [从过去探寻未来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.kurohicncr.top/Article/details/951178604.shtml)
-- 2026-06-29 12:42 - [金价回落 后市怎么走？](http://www.blog.kurohicncr.top/Article/details/68481.shtml)
-- 2026-06-29 12:47 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.kurohicncr.top/Article/details/43958.shtml)
-- 2026-06-29 12:27 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.minike.top/Article/details/94406955.shtml)
-- 2026-06-29 12:41 - [EMCOR高管团队将出席三场投资者会议](http://www.blog.kurohicncr.top/Article/details/62101667481.shtml)
-- 2026-06-29 12:31 - [习言道｜三个维度观察中美元首北京会晤](http://www.blog.minike.top/Article/details/149728983.shtml)
-- 2026-06-29 12:27 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.blog.minike.top/Article/details/67484343467.shtml)
-- 2026-06-29 12:52 - [美国特使抵达格陵兰岛首府努克](http://www.share.minike.top/Article/details/997273741.shtml)
+- 2026-06-29 12:50 - [名创优品发盈喜 预计第一季度利润约12.28亿至12.48亿元同比增加约195%至200%](http://www.share.minike.top/Article/details/978024556233.shtml)
+- 2026-06-29 12:49 - [创新的力量：视听传播如何实现“从点到链”的变革？](http://www.share.minike.top/Article/details/7744215.shtml)
+- 2026-06-29 12:40 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.blog.minike.top/Article/details/451216911569.shtml)
+- 2026-06-29 12:38 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](http://www.blog.minike.top/Article/details/3138259711.shtml)
+- 2026-06-29 12:46 - [美防长赫格塞思就国防预算出席国会听证会](http://www.share.minike.top/Article/details/8228251.shtml)
+- 2026-06-29 12:59 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.blog.kurohicncr.top/Article/details/20818774062.shtml)
+- 2026-06-29 12:52 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.minike.top/Article/details/919113.shtml)
+- 2026-06-29 12:53 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.minike.top/Article/details/77614930145.shtml)
+- 2026-06-29 12:50 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.share.minike.top/Article/details/825838.shtml)
+- 2026-06-29 12:55 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](http://www.share.kurohicncr.top/Article/details/938421007057.shtml)
+- 2026-06-29 12:36 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [300965，重大资产重组，明日复牌](http://www.blog.minike.top/Article/details/6300367171.shtml)
+- 2026-06-29 12:57 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](http://www.blog.minike.top/Article/details/42278080.shtml)
+- 2026-06-29 12:47 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](http://www.share.minike.top/Article/details/50185310.shtml)

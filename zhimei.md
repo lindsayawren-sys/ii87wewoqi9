@@ -1,56 +1,56 @@
-# 直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会
+# 特朗普：伊朗方案“不可接受” 停火“极其脆弱”
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？台湾用30余年建成的淡江大桥通车即翻车？律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？对话维妮娜：在乘风之前，她已经跑了很久小小香
+中新社华盛顿5月11日电 (记者 陈孟统)美国总统特朗普11日在白宫表示，伊朗方面提交的方案“不可接受”。他重申伊朗不能拥有核武器的立场。 据伊朗媒体10日报道，伊朗已向调解方巴基斯坦正式提交对美国旨在结束战事的最新方案的回应。特朗普当天通过社交媒体表示，伊朗的回应方案“完全不可接受”。 11日在白宫椭圆形办公室的一场活动上，特朗普被问及为何拒绝伊朗的上述方案。他说，伊朗的方案
 
 ## 正文
 
-能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+中新社华盛顿5月11日电 (记者 陈孟统)美国总统特朗普11日在白宫表示，伊朗方面提交的方案“不可接受”。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+他重申伊朗不能拥有核武器的立场。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+据伊朗媒体10日报道，伊朗已向调解方巴基斯坦正式提交对美国旨在结束战事的最新方案的回应。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+特朗普当天通过社交媒体表示，伊朗的回应方案“完全不可接受”。
 
-“超级食物”真有那么神奇吗？
+11日在白宫椭圆形办公室的一场活动上，特朗普被问及为何拒绝伊朗的上述方案。
 
-专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
+他说，伊朗的方案“弱得不可思议”，“我甚至都没把它看完”。
 
-北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
+特朗普表示，美国方案的核心是“伊朗绝不能拥有核武器”，然而伊朗在回复里并没有作出这样的承诺。
 
-“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
+在被问及美伊停火是否仍然维持时，特朗普说，目前停火仍然有效，但“极其脆弱”，正处于“生命维持”状态。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:28 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:44 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:51 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:39 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:33 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:30 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:47 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:24 - [平台支付需留神 莫让“付钱”变“借钱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:50 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:32 - [5月12日龙虎榜，机构青睐这10股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:42 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:49 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:56 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:39 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:30 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:43 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:34 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:57 - [打了网红“气血针”，能否“一针提神”？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:58 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](http://www.share.minike.top/Article/details/155636364.shtml)
-- 2026-06-29 12:39 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.share.kurohicncr.top/Article/details/4378799.shtml)
-- 2026-06-29 12:28 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.minike.top/Article/details/584046373903.shtml)
-- 2026-06-29 12:36 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [十大机构论市：双创冲高回落 科技行情结束了吗？](http://www.share.minike.top/Article/details/809977243.shtml)
-- 2026-06-29 12:39 - [文脉华章|我们为什么需要博物馆](http://www.share.kurohicncr.top/Article/details/0444730396.shtml)
-- 2026-06-29 12:49 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](http://www.share.kurohicncr.top/Article/details/888886814767.shtml)
-- 2026-06-29 12:47 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](http://www.blog.minike.top/Article/details/919927625789.shtml)
-- 2026-06-29 12:28 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [中信证券：调整何解？重建杠铃结构](http://www.blog.minike.top/Article/details/698012848.shtml)
-- 2026-06-29 12:51 - [A股，重磅新规！千家公司面临调整](http://www.blog.minike.top/Article/details/884610068.shtml)
-- 2026-06-29 12:46 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.share.minike.top/Article/details/1556139.shtml)
+- 2026-06-29 12:31 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](http://www.share.kurohicncr.top/Article/details/81798356.shtml)
+- 2026-06-29 12:55 - [日本北海道发生4.8级地震](http://www.blog.minike.top/Article/details/268256.shtml)
+- 2026-06-29 12:34 - [沪粤文脉双向奔赴 展示海丝千年风华](http://www.share.minike.top/Article/details/893121673.shtml)
+- 2026-06-29 12:40 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](http://www.share.kurohicncr.top/Article/details/009902.shtml)
+- 2026-06-29 12:38 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [抓住重点 务求实效（人民论坛）](http://www.blog.kurohicncr.top/Article/details/43674221295.shtml)
+- 2026-06-29 12:49 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](http://www.blog.minike.top/Article/details/333747803211.shtml)
+- 2026-06-29 12:59 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](http://www.share.minike.top/Article/details/6009389370.shtml)
+- 2026-06-29 12:43 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [我国成功发射千帆极轨09组卫星](http://www.blog.kurohicncr.top/Article/details/29164792982.shtml)
+- 2026-06-29 12:30 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](http://www.share.minike.top/Article/details/9651186607.shtml)
+- 2026-06-29 12:30 - [焦煤短期承压的核心逻辑是？](http://www.blog.kurohicncr.top/Article/details/6588487665.shtml)
+- 2026-06-29 12:51 - [欧洲股市下跌，英镑及英国银行股因政治动荡走低](http://www.share.minike.top/Article/details/363554.shtml)
+- 2026-06-29 12:32 - [5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）](https://github.com/lisacumin64-arch)

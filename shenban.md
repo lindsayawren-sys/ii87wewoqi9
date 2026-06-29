@@ -1,60 +1,57 @@
-# 港股三大指数集体收跌，一医药股尾盘一度飙升超150%
+# 金融时报评论：别挑战央行独立性——全球政治压力下的制度保卫战
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】港股三大指数集体收跌，一医药股尾盘一度飙升超150% 中国基金报记者 伊万 5月18日，港股全天震荡下跌，最终集体收跌。截至收盘，恒生指数跌1.11%，报25675.18点；国企指数跌1.07%，报8597.97点；恒生科技指数跌1.95%，报4844.94点。三大指数均录得三连跌
+欧洲央行执行委员会成员伊莎贝尔·施纳贝尔在伦敦发表演讲时发出警告：央行独立性正面临“悄无声息的侵蚀”。此前一个月，美联储主席鲍威尔在其任内最后一次记者会上公开谈及美联储面临的“法律攻击”——一位在任美联储主席发出这样的声音，本身就说明了问题的严重性。 央行独立性正受到双重夹击。一方面，特朗普政府对美联储的公开施压已成常态化背景噪音，要求降息的呼声不断，美联储会议出现了四张反对票
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+欧洲央行执行委员会成员伊莎贝尔·施纳贝尔在伦敦发表演讲时发出警告：央行独立性正面临“悄无声息的侵蚀”。
 
-来源：中国基金报 【导读】港股三大指数集体收跌，一医药股尾盘一度飙升超150% 中国基金报记者 伊万 5月18日，港股全天震荡下跌，最终集体收跌。
+此前一个月，美联储主席鲍威尔在其任内最后一次记者会上公开谈及美联储面临的“法律攻击”——一位在任美联储主席发出这样的声音，本身就说明了问题的严重性。
 
-截至收盘，恒生指数跌1.11%，报25675.18点；国企指数跌1.07%，报8597.97点；恒生科技指数跌1.95%，报4844.94点。
+央行独立性正受到双重夹击。
 
-三大指数均录得三连跌。
+一方面，特朗普政府对美联储的公开施压已成常态化背景噪音，要求降息的呼声不断，美联储会议出现了四张反对票，为1992年以来最高。
 
-盘面上，权重科技股走低，网易跌超2%，腾讯、快手、京东集团跌超1%；汽车股走低，理想汽车大跌超14%，零跑汽车跌超7%；地产股多数下跌，龙湖集团、中国金茂跌超7%，华润置地、新鸿基地产跌超4%；互联网医疗股走弱，叮当健康跌5%，京东健康跌超4%，阿里健康跌超3%。
+另一方面，高企的政府债务正在制造财政主导的风险——当价格稳定与财政可持续性之间产生张力时，央行的独立性便首当其冲。
 
-另一方面，电信股走强，中国电信涨超6%，中国联通、中国移动、中国通信服务等上涨；石油股活跃，中国海洋石油涨超1%，中国石油股份、中海油田服务跟涨。
+这股压力波并非美国独有。
 
-派格生物医药-B 尾盘一度飙升超150% 5月18日，生物医药股派格生物医药-B尾盘一度飙升超150%，收涨66.31%，最新总市值为73亿港元。
+施纳贝尔指出，直接的政治压力之外，金融去监管的势头也在悄悄侵蚀央行有效运作的制度基础。
 
-消息面上，派格生物医药今年3月发布公告称，与腾瑞制药就派达康在中国大陆地区的商业化合作签署战略合作协议。
+当金融系统的韧性被削弱，央行可能被迫在金融稳定与价格稳定之间做出艰难取舍。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:31 - [享道出行倪立诚：未来一到两年将是Robotaxi规模化发展的起点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:27 - [澳大利亚联邦银行聘任玛丽-安妮-威廉姆斯担任首席人工智能科学家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:40 - [2026中德企业乒乓球邀请赛在慕尼黑举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:49 - [北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:48 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:33 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:41 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:30 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:38 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:25 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:49 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:43 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:48 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:42 - [千年“柳杉王”见证中美民间代代“鼓岭缘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:50 - [欧洲债市：政治危机加深导致英国国债遭抛售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:38 - [乙德投资控股遭Liu Chuang减持约1.11亿股 每股均价0.2438港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:37 - [“中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:45 - [今年被罚没已逾2200万元！交通银行为何合规问题不断？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:30 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:55 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:31 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:37 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:46 - [新西兰拟修法限制企业气候排放责任诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:46 - [“交通安全统筹”等服务不属于车险（2026·05·12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](http://www.share.kurohicncr.top/Article/details/8859334.shtml)
-- 2026-06-29 12:39 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](http://www.share.minike.top/Article/details/074021.shtml)
-- 2026-06-29 12:37 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](http://www.blog.minike.top/Article/details/7361228750.shtml)
-- 2026-06-29 12:24 - [渣打集团任命科斯特洛为首席财务官](http://www.blog.kurohicncr.top/Article/details/5569478395.shtml)
-- 2026-06-29 12:35 - [湖南省文化馆数字文旅体验空间开馆](http://www.share.minike.top/Article/details/02712.shtml)
-- 2026-06-29 12:44 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.blog.minike.top/Article/details/72644456285.shtml)
-- 2026-06-29 12:33 - [债券市场异动预示利率或将大幅走高](http://www.blog.minike.top/Article/details/101585498.shtml)
-- 2026-06-29 12:26 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.share.minike.top/Article/details/91443192.shtml)
-- 2026-06-29 12:47 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.blog.kurohicncr.top/Article/details/926734334.shtml)
-- 2026-06-29 12:43 - [我国成功发射千帆星座第9批组网卫星](http://www.blog.kurohicncr.top/Article/details/31605119.shtml)
-- 2026-06-29 12:34 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/399445.shtml)
-- 2026-06-29 12:50 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.share.minike.top/Article/details/5316380130.shtml)
-- 2026-06-29 12:50 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.share.kurohicncr.top/Article/details/62716323310.shtml)
+- 2026-06-29 12:39 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](http://www.share.kurohicncr.top/Article/details/47480968351.shtml)
+- 2026-06-29 12:45 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [Optum Rx推出透明定价新模式，重塑药房福利管理](http://www.share.minike.top/Article/details/162441.shtml)
+- 2026-06-29 12:41 - [法国农办调增2025/26年度谷物出口预期](http://www.blog.minike.top/Article/details/6836940461.shtml)
+- 2026-06-29 12:46 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.share.kurohicncr.top/Article/details/89542.shtml)
+- 2026-06-29 12:44 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](http://www.blog.kurohicncr.top/Article/details/764112.shtml)
+- 2026-06-29 12:52 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.share.minike.top/Article/details/075522192.shtml)
+- 2026-06-29 12:37 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.blog.kurohicncr.top/Article/details/845651473495.shtml)
+- 2026-06-29 12:49 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.kurohicncr.top/Article/details/314673397.shtml)
+- 2026-06-29 12:48 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.kurohicncr.top/Article/details/033197983208.shtml)
+- 2026-06-29 12:44 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [新型“职业闭店人”骗局调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.share.minike.top/Article/details/016080042800.shtml)
+- 2026-06-29 12:52 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](http://www.share.kurohicncr.top/Article/details/45936466230.shtml)

@@ -1,48 +1,61 @@
-# 吉利汽车因认股权获行使而发行13.28万股
+# 助力乡村振兴，平安农业无人机公益计划首站落地伊犁
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-吉利汽车（00175）发布公告，于2026年5月18日因本集团雇员根据认股权计划（于2023年4月28日获采纳）行使认股权而发行13.28万股普通股股份。责任编辑：卢昱君
+5月12日，由中国平安财产保险股份有限公司（以下简称“平安产险”）联合中国乡村发展基金会共同主办的“平安农业无人机公益计划”启动仪式，在新疆伊犁州伊宁县圆满举行。活动得到中国农村经济研究会、中国农业机械化协会及新疆维吾尔自治区、州、县各级政府部门的大力支持。 中央一号文件明确提出要因地制宜发展农业新质生产力，促进人工智能与农业发展相结合，拓展无人机、物联网、机器人等应用场景。作
 
 ## 正文
 
-吉利汽车（00175）发布公告，于2026年5月18日因本集团雇员根据认股权计划（于2023年4月28日获采纳）行使认股权而发行13.28万股普通股股份。
+5月12日，由中国平安财产保险股份有限公司（以下简称“平安产险”）联合中国乡村发展基金会共同主办的“平安农业无人机公益计划”启动仪式，在新疆伊犁州伊宁县圆满举行。
 
-责任编辑：卢昱君
+活动得到中国农村经济研究会、中国农业机械化协会及新疆维吾尔自治区、州、县各级政府部门的大力支持。
+
+中央一号文件明确提出要因地制宜发展农业新质生产力，促进人工智能与农业发展相结合，拓展无人机、物联网、机器人等应用场景。
+
+作为响应政策号召的实践举措，该公益项目将以“科技+农业+金融”为核心思路，计划在全国范围内12个省份落地实施，通过配置农业无人机装备、开展飞防手培训、培育农业社会化服务主体等举措，切实推动农业科技服务下沉田间地头，推动农业增效益、农民增收入、农村增活力。
+
+此次活动旨在通过“科技+服务+保险”的创新模式，补齐农业社会化服务短板，助力小农户与现代农业发展有机衔接。
+
+这标志着平安产险在贯彻落实中央一号文件精神、因地制宜发展农业新质生产力方面迈出了坚实一步。
+
+多方协同，共绘智慧农业新蓝图 启动仪式上，中国乡村发展基金会理事长郑文凯，平安产险党委委员、总经理助理姜华，中国农业机械化协会副会长兼秘书长胡乐鸣，中国农村财经研究会会长符金陵，自治区农业农村厅党组成员、副厅长缪建明，自治区财政厅总经济师胡方毅以及伊犁州人民政府相关领导出席活动。
+
+新疆伊犁州农业农村局党组副书记马合沙提·木拉提汗在致欢迎辞时表示，伊犁正抢抓“十五五”机遇，大力发展智慧农业，加快培育农业新质生产力。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:39 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:24 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:27 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:32 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:45 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:52 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:33 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:50 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:45 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:53 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:25 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:29 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:33 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:49 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:34 - [电动化替代速度超预期，中国新能源汽车创新纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:45 - [外交部谈黎智英案：中国中央政府坚定支持香港司法机关依法履职尽责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:48 - [日本北海道发生4.8级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:55 - [沪粤文脉双向奔赴 展示海丝千年风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:32 - [“加息噩梦”近了？美联储“昔日鸽派”：通胀走向错误，与关税、石油无关！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:36 - [腾讯最新声明：不会开发提供“微信访客功能”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:36 - [抓住重点 务求实效（人民论坛）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:44 - [美丽中国行｜我的家园，越来越美——美丽中国建设成效观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:53 - [eBay拒绝GameStop560亿美元收购要约，称其既缺乏可信度、也毫无吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:54 - [朝“问”健康 慢性病老人泡脚 水温控制在40℃左右](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:57 - [研奥股份积极拓展后市场业务，稳步开拓海外市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:46 - [我国成功发射千帆极轨09组卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:36 - [在伊朗冲突存在不确定性之际 日经指数可能下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:37 - [焦煤短期承压的核心逻辑是？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.blog.kurohicncr.top/Article/details/73053524790.shtml)
-- 2026-06-29 12:52 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.blog.minike.top/Article/details/4536235.shtml)
-- 2026-06-29 12:28 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.share.minike.top/Article/details/064876.shtml)
-- 2026-06-29 12:25 - [高阶产能落地美国 阿特斯加速转型“北美制造”](http://www.blog.kurohicncr.top/Article/details/454828.shtml)
-- 2026-06-29 12:41 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.blog.kurohicncr.top/Article/details/644751.shtml)
-- 2026-06-29 12:28 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](http://www.blog.minike.top/Article/details/29369.shtml)
-- 2026-06-29 12:49 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.blog.minike.top/Article/details/04199.shtml)
-- 2026-06-29 12:30 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.share.minike.top/Article/details/50218120.shtml)
-- 2026-06-29 12:40 - [让2026年成为中美关系继往开来的历史性、标志性年份](http://www.share.minike.top/Article/details/84418992.shtml)
-- 2026-06-29 12:37 - [川投新能源公司总经理刘亮被遣返回国](http://www.share.kurohicncr.top/Article/details/4861208920.shtml)
-- 2026-06-29 12:30 - [美伊谈判，又有新消息](http://www.share.kurohicncr.top/Article/details/53396460.shtml)
-- 2026-06-29 12:26 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](http://www.share.kurohicncr.top/Article/details/73832688.shtml)
-- 2026-06-29 12:34 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.share.kurohicncr.top/Article/details/818544534563.shtml)
-- 2026-06-29 12:51 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.blog.minike.top/Article/details/73915282.shtml)
+- 2026-06-29 12:41 - [油价上涨拖累全球股市](http://www.blog.kurohicncr.top/Article/details/09970.shtml)
+- 2026-06-29 12:52 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](http://www.blog.minike.top/Article/details/133659284.shtml)
+- 2026-06-29 12:57 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [联合航空将恢复飞往委内瑞拉航线](http://www.share.kurohicncr.top/Article/details/158482173664.shtml)
+- 2026-06-29 12:42 - [尼日利亚军方称打死至少70名疑似恐怖分子](http://www.share.minike.top/Article/details/921403.shtml)
+- 2026-06-29 12:50 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](http://www.blog.minike.top/Article/details/4053680.shtml)
+- 2026-06-29 12:57 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](http://www.share.minike.top/Article/details/400860410172.shtml)
+- 2026-06-29 12:54 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](http://www.blog.minike.top/Article/details/6502639.shtml)
+- 2026-06-29 12:45 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](http://www.blog.minike.top/Article/details/54600809.shtml)
+- 2026-06-29 12:49 - [哈萨克斯坦前4个月GDP同比增长3.6%](http://www.blog.minike.top/Article/details/535254.shtml)
+- 2026-06-29 12:38 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [受汽油价格推动，美国4月通胀飙升至 3.8%](http://www.share.minike.top/Article/details/18819232588.shtml)
+- 2026-06-29 12:48 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](http://www.blog.kurohicncr.top/Article/details/50485.shtml)
+- 2026-06-29 12:37 - [受中东局势影响 德钢铁巨头下调销售预期](http://www.share.kurohicncr.top/Article/details/30979241859.shtml)

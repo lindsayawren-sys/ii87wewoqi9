@@ -1,56 +1,57 @@
-# 广西扶绥：趣味体验为乡村文旅聚人气
+# 47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-捉泥鳅、赶鸭子……在广西壮族自治区崇左市扶绥县昌平乡联豪村，当地人曾经习以为常的农家劳动，如今化身趣味体验项目，成为吸引游客的“流量密码”。仅今年“五一”假期，这个小村庄就吸引游客2.09万人，线上参与人数突破376.4万，带动消费超418万元。“现摘的更放心，现场价格也更优惠。”在联豪村蓝莓采摘季活动现场，来自崇左市区的张春华带着7岁女儿正在采摘蓝莓。 昌平乡今年采摘活动的高
+登录新浪财经APP 搜索【信披】查看更多考评等级 一波未平，一波又起。深陷控股股东债务危机与自身业绩巨亏漩涡的ST龙大（龙大美食，SZ002726，股价2.33元，市值25.15亿元），再次遭遇“黑天鹅”。 5月11日晚间，ST龙大发布公告披露，公司收到控股股东蓝润发展控股集团有限公司（以下简称“蓝润发展”）的通知，公司实际控制人戴学斌因涉嫌刑事犯罪，已被达州市公安局刑事拘留。
 
 ## 正文
 
-捉泥鳅、赶鸭子……在广西壮族自治区崇左市扶绥县昌平乡联豪村，当地人曾经习以为常的农家劳动，如今化身趣味体验项目，成为吸引游客的“流量密码”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一波未平，一波又起。
 
-仅今年“五一”假期，这个小村庄就吸引游客2.09万人，线上参与人数突破376.4万，带动消费超418万元。
+深陷控股股东债务危机与自身业绩巨亏漩涡的ST龙大（龙大美食，SZ002726，股价2.33元，市值25.15亿元），再次遭遇“黑天鹅”。
 
-“现摘的更放心，现场价格也更优惠。
+5月11日晚间，ST龙大发布公告披露，公司收到控股股东蓝润发展控股集团有限公司（以下简称“蓝润发展”）的通知，公司实际控制人戴学斌因涉嫌刑事犯罪，已被达州市公安局刑事拘留。
 
-”在联豪村蓝莓采摘季活动现场，来自崇左市区的张春华带着7岁女儿正在采摘蓝莓。
+《每日经济新闻》记者注意到，戴学斌出事已有预兆，根据全国人民代表大会常务委员会4月30日公告，四川省人大常委会决定罢免戴学斌的第十四届全国人民代表大会代表职务，其代表资格终止。
 
-昌平乡今年采摘活动的高人气，源于当地打造的众多“农文旅融合”消费新场景。
+而有蓝润发展母公司蓝润集团的前员工表示，戴学斌出事不是秘密，去年就已有风声。
 
-当地以蓝莓产业为核心，串联起农事体验、民俗文化、特色美食等内容，丰富游客消费体验，让游客从“摘果子”变成“玩一天”。
+对应到蓝润集团官网，去年3月24日以后再无戴学斌的内容。
 
-多彩的趣味体验活动是吸引游客的关键。
+实控人的突然落网，让这家昔日的“猪肉白马股”雪上加霜。
 
-捉猪活动是现场的人气王。
+在此之前，ST龙大已在二级市场连续三日大跌，跌幅偏离值累计超12%。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:39 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:24 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:26 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:29 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:32 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:32 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:29 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:40 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:26 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:57 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:59 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:38 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:58 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:52 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:48 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:30 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:59 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:34 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:36 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:56 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.share.kurohicncr.top/Article/details/8735232070.shtml)
-- 2026-06-29 12:46 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.share.kurohicncr.top/Article/details/98940184.shtml)
-- 2026-06-29 12:36 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.share.kurohicncr.top/Article/details/06430.shtml)
-- 2026-06-29 12:31 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.kurohicncr.top/Article/details/766569929276.shtml)
-- 2026-06-29 12:43 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.kurohicncr.top/Article/details/79392979229.shtml)
-- 2026-06-29 12:47 - [外交部发言人就美国总统特朗普涉台表态答记者问](http://www.share.kurohicncr.top/Article/details/854027.shtml)
-- 2026-06-29 12:24 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.blog.minike.top/Article/details/29024.shtml)
-- 2026-06-29 12:44 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](http://www.share.minike.top/Article/details/181676811.shtml)
-- 2026-06-29 12:32 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.share.minike.top/Article/details/617468377.shtml)
-- 2026-06-29 12:51 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.share.minike.top/Article/details/7688485.shtml)
-- 2026-06-29 12:42 - [2025年全国博物馆接待观众15.6亿人次](http://www.blog.minike.top/Article/details/769552775.shtml)
+- 2026-06-29 12:34 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](http://www.share.kurohicncr.top/Article/details/496017626.shtml)
+- 2026-06-29 12:49 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.share.minike.top/Article/details/6596860.shtml)
+- 2026-06-29 12:32 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.minike.top/Article/details/430225663.shtml)
+- 2026-06-29 12:40 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.share.minike.top/Article/details/6852769572.shtml)
+- 2026-06-29 12:49 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.blog.minike.top/Article/details/9364806.shtml)
+- 2026-06-29 12:42 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/871174.shtml)
+- 2026-06-29 12:47 - [全球首个面向南方国家的教师数字素养提升行动计划发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.blog.minike.top/Article/details/2028093.shtml)
+- 2026-06-29 12:53 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.share.kurohicncr.top/Article/details/5549100932.shtml)
+- 2026-06-29 12:50 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [戎装缔良缘 相守赴山河](http://www.share.kurohicncr.top/Article/details/4212324022.shtml)
+- 2026-06-29 12:38 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.blog.kurohicncr.top/Article/details/324739372817.shtml)
+- 2026-06-29 12:48 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](http://www.share.kurohicncr.top/Article/details/445447268.shtml)
+- 2026-06-29 12:46 - [GTC泽汇资本:原油溢价回落供需博弈](http://www.share.minike.top/Article/details/33145.shtml)
+- 2026-06-29 12:58 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.share.minike.top/Article/details/30237217.shtml)

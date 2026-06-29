@@ -1,59 +1,59 @@
-# 广西北海海上风电单桩基础设备出运越南
+# 时政新闻眼丨一天三场会晤，习近平同外方领导人谈了什么？
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。 据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解
+立夏甫过，火热五月开启。中国元首外交再掀热潮。 5月12日下午，习近平主席在北京人民大会堂先后同文莱王储比拉、联合国教科文组织总干事阿纳尼、塔吉克斯坦总统拉赫蒙举行会见会谈。 面对变乱交织的国际形势，三场密集会晤，畅叙友谊，深化合作，凝聚共识，释放重要信息。《时政新闻眼》为你解读。 视频：习近平同塔吉克斯坦总统拉赫蒙会谈来源：央视新闻客户端 01 叙友谊：亲望亲好 邻望邻好 1
 
 ## 正文
 
-中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。
+立夏甫过，火热五月开启。
 
-这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。
+中国元首外交再掀热潮。
 
-据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。
+5月12日下午，习近平主席在北京人民大会堂先后同文莱王储比拉、联合国教科文组织总干事阿纳尼、塔吉克斯坦总统拉赫蒙举行会见会谈。
 
-自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解潜在风险；并依托与气象、海洋等部门的联动机制，实时跟踪辖区海况变化，及时推送预警信息，协助企业科学研判并抢抓最佳运输窗口期，有效规避恶劣天气风险。
+面对变乱交织的国际形势，三场密集会晤，畅叙友谊，深化合作，凝聚共识，释放重要信息。
 
-在运输环节，海事执法人员对承运船舶“新丝路”轮开展了全面安全“体检”。
+《时政新闻眼》为你解读。
 
-为进一步提升运输效能，北海海事局联合北部湾船舶交通管理中心(筹)、引航机构、码头业主等单位，为风电设备运输船舶开辟“绿色通道”，实行优先受理、优先审核、优先放行，保障船舶优先进出港。
+视频：习近平同塔吉克斯坦总统拉赫蒙会谈来源：央视新闻客户端 01 叙友谊：亲望亲好 邻望邻好 12日下午，习近平主席为塔吉克斯坦总统拉赫蒙举行的一系列国事活动在人民大会堂密集展开。
 
-今年以来，北海海事局已累计保障风电大件设备安全出运12艘次，其中包括导管架17个、基础桩44根。
+长安街上悬挂起中塔两国国旗，天安门广场鸣放21响礼炮，仪式现场奏响塔吉克斯坦特色音乐，习主席陪同拉赫蒙总统检阅中国人民解放军仪仗队，观看分列式。
 
-北海海事局表示，将持续优化监管与服务举措，护航海上风电产业出口。
+国事礼遇，欢迎中国人民的老朋友来访。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:42 - [Boskalis投资新建高容量电缆铺设船，瞄准海上风电与互联市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:33 - [司法部、中国残联发布残疾人法律援助典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:51 - [在新疆兵团，葫芦雕刻何以“破圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:40 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:46 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:31 - [古巴国家主席说美对古军事威胁已构成国际犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:48 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:39 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:50 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:40 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:52 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:40 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:57 - [（台海观澜）福建赴金门自由行持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:31 - [中东局势推高能源成本，德国4月批发物价涨幅创三年新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:39 - [宁淮城际铁路站前4标完成全部箱梁预制任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:56 - [印度酝酿紧急举措以守护外汇储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:32 - [花旗：调整商品偏好次序首选铜 新首选股包括宁德时代等](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:30 - [第二十二届文博会将开幕 聚焦文化产业数智化赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:49 - [双向奔赴！两岸媒体人镜头里的和平与相融](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:45 - [知名基金经理，最新调仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:49 - [俞浩发女装照回应刘靖康](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:39 - [均胜电子将于6月16日派发末期股息每10股2.057467港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:31 - [美国财长贝森特承诺美日将在外汇领域保持持续且强有力的合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:41 - [AI超级行情引爆散户热情，投机热度创疫情以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:45 - [“三不明”中成药或从医保目录“清退” 专家解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.share.kurohicncr.top/Article/details/702320.shtml)
-- 2026-06-29 12:30 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [特斯拉在美国上调Model Y车型的售价](http://www.share.minike.top/Article/details/857500655987.shtml)
-- 2026-06-29 12:53 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.share.kurohicncr.top/Article/details/05786173.shtml)
-- 2026-06-29 12:51 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.share.kurohicncr.top/Article/details/89971.shtml)
-- 2026-06-29 12:25 - [西藏居然有三家公募基金](http://www.share.minike.top/Article/details/75638.shtml)
-- 2026-06-29 12:26 - [M4Markets:金价剧震下蓄力新方向](http://www.share.kurohicncr.top/Article/details/888763985.shtml)
-- 2026-06-29 12:27 - [5月11日—5月17日国家铁路运输货物8198.9万吨](http://www.blog.minike.top/Article/details/466923905436.shtml)
-- 2026-06-29 12:28 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](http://www.blog.minike.top/Article/details/7090503603.shtml)
-- 2026-06-29 12:37 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](http://www.blog.minike.top/Article/details/952907746.shtml)
-- 2026-06-29 12:31 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.minike.top/Article/details/11940.shtml)
+- 2026-06-29 12:52 - [“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [数读中国开局新活力｜青年占比超50% 小镇20年长成“青春经济”样本](http://www.blog.minike.top/Article/details/617161537.shtml)
+- 2026-06-29 12:44 - [奖励名额翻倍！货拉拉2026“平凡之光”魅力司机评选开启报名](http://www.blog.minike.top/Article/details/892191.shtml)
+- 2026-06-29 12:44 - [廖岷与英国财政部国际金融事务总司长怀特举行视频通话](http://www.blog.kurohicncr.top/Article/details/750156028103.shtml)
+- 2026-06-29 12:42 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](http://www.blog.kurohicncr.top/Article/details/06597379555.shtml)
+- 2026-06-29 12:52 - [“广西三月三”系列活动走进香港](http://www.blog.kurohicncr.top/Article/details/33422.shtml)
+- 2026-06-29 12:45 - [M4Markets:白银突破八十美元关口](http://www.share.kurohicncr.top/Article/details/617524327.shtml)
+- 2026-06-29 12:48 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](http://www.blog.minike.top/Article/details/055066.shtml)
+- 2026-06-29 12:53 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.minike.top/Article/details/643494.shtml)
+- 2026-06-29 12:59 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](http://www.blog.kurohicncr.top/Article/details/44929.shtml)
+- 2026-06-29 12:56 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.blog.minike.top/Article/details/82352.shtml)
+- 2026-06-29 12:54 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](http://www.blog.kurohicncr.top/Article/details/17042245.shtml)

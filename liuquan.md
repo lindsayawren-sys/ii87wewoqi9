@@ -1,52 +1,53 @@
-# 古巴国家主席说美对古军事威胁已构成国际犯罪
+# 双向奔赴！两岸媒体人镜头里的和平与相融
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-新华社哈瓦那5月18日电(记者蒋彪 吴昊)古巴国家主席迪亚斯-卡内尔18日说，美国对古巴的军事侵略威胁已构成国际犯罪，一旦付诸实施，将引发一场后果难以估量的灾难，并将严重破坏地区和平与稳定。 迪亚斯-卡内尔在社交媒体发文说，古巴对美国并不构成威胁，也没有针对任何国家的侵略计划或意图。美国政府尤其是其国防和国家安全机构对此非常清楚。 迪亚斯-卡内尔还说，古巴拥有完全且正当的权利自
+发布时间：2026年05月12日 19:36 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。自首届两岸媒体人峰会启幕至今，两岸新闻人以笔墨为舟、以镜头为帆，在海峡两岸搭建起沟通的桥梁。过去一年，当我们用各自的视角记录两岸，哪一段共同记忆，让跨越海峡的连接有了更具体的模样？让我们在交流中，寻找答案。(记者 范思忆 刘子衿 制作 乐小敏) 责任编辑：【刘湃】
 
 ## 正文
 
-新华社哈瓦那5月18日电(记者蒋彪 吴昊)古巴国家主席迪亚斯-卡内尔18日说，美国对古巴的军事侵略威胁已构成国际犯罪，一旦付诸实施，将引发一场后果难以估量的灾难，并将严重破坏地区和平与稳定。
+发布时间：2026年05月12日 19:36 来源：中国新闻网 5月12日，第七届两岸媒体人峰会在北京举行。
 
-迪亚斯-卡内尔在社交媒体发文说，古巴对美国并不构成威胁，也没有针对任何国家的侵略计划或意图。
+自首届两岸媒体人峰会启幕至今，两岸新闻人以笔墨为舟、以镜头为帆，在海峡两岸搭建起沟通的桥梁。
 
-美国政府尤其是其国防和国家安全机构对此非常清楚。
+过去一年，当我们用各自的视角记录两岸，哪一段共同记忆，让跨越海峡的连接有了更具体的模样？
 
-迪亚斯-卡内尔还说，古巴拥有完全且正当的权利自卫，以抵御任何军事攻击。
+让我们在交流中，寻找答案。
 
-美方近期加大对古巴制裁，并多次威胁对古巴动武，包括声称将在美军结束对伊朗战事返回之际“接管古巴”。
-
-古巴方面回应，美方军事侵略威胁升至“危险且前所未有的程度”，但古巴不会屈服，将坚决捍卫国家主权和独立。
+(记者 范思忆 刘子衿 制作 乐小敏) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:37 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:32 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:33 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:44 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:42 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:38 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:30 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:46 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:48 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:35 - [利好！3800亿巨头，午后直线拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:45 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:34 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:40 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:33 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:43 - [法国农办调增2025/26年度谷物出口预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:31 - [习近平会见联合国教科文组织总干事阿纳尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:54 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:32 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:38 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:47 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:59 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:35 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.share.minike.top/Article/details/1829786.shtml)
-- 2026-06-29 12:46 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.kurohicncr.top/Article/details/32787.shtml)
-- 2026-06-29 12:36 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.share.kurohicncr.top/Article/details/9408299.shtml)
-- 2026-06-29 12:42 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.share.kurohicncr.top/Article/details/173906365640.shtml)
-- 2026-06-29 12:26 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.blog.kurohicncr.top/Article/details/85866734.shtml)
-- 2026-06-29 12:32 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.share.kurohicncr.top/Article/details/14760797067.shtml)
-- 2026-06-29 12:37 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [娄山观|谁说山地不能刚？贵州农业硬核登场](http://www.blog.kurohicncr.top/Article/details/9350910.shtml)
-- 2026-06-29 12:29 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.share.kurohicncr.top/Article/details/258554226135.shtml)
-- 2026-06-29 12:41 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.blog.kurohicncr.top/Article/details/346343727057.shtml)
-- 2026-06-29 12:25 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.blog.minike.top/Article/details/81750405430.shtml)
-- 2026-06-29 12:39 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.share.minike.top/Article/details/53905935484.shtml)
-- 2026-06-29 12:36 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.kurohicncr.top/Article/details/244384625422.shtml)
+- 2026-06-29 12:57 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](http://www.share.minike.top/Article/details/212432216420.shtml)
+- 2026-06-29 12:36 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](http://www.blog.minike.top/Article/details/525678811258.shtml)
+- 2026-06-29 12:44 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](http://www.blog.kurohicncr.top/Article/details/86124209.shtml)
+- 2026-06-29 12:42 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](http://www.blog.minike.top/Article/details/6804004.shtml)
+- 2026-06-29 12:33 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [瑞银继续唱多黄金：多重利多因素推动 金价年内仍有望刷新高](http://www.blog.minike.top/Article/details/78798.shtml)
+- 2026-06-29 13:00 - [我国牵头制定发布14项天然气领域国际标准](http://www.share.kurohicncr.top/Article/details/29269.shtml)
+- 2026-06-29 12:38 - [5月12日龙虎榜，机构青睐这10股](http://www.blog.minike.top/Article/details/457323678.shtml)
+- 2026-06-29 12:52 - [西风如何影响亚洲水塔大气水循环？二次青藏科考最新研究揭示](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.share.kurohicncr.top/Article/details/35095204318.shtml)
+- 2026-06-29 12:40 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](http://www.share.kurohicncr.top/Article/details/1604466.shtml)
+- 2026-06-29 12:52 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.share.minike.top/Article/details/24140079.shtml)
+- 2026-06-29 12:57 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.minike.top/Article/details/931220292.shtml)
+- 2026-06-29 12:32 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](http://www.share.minike.top/Article/details/40624.shtml)
+- 2026-06-29 12:30 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.share.kurohicncr.top/Article/details/7848879.shtml)

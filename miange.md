@@ -1,56 +1,61 @@
-# 习言道｜三个维度观察中美元首北京会晤
+# 300965，重大资产重组，明日复牌
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新网5月17日电 题：三个维度观察中美元首北京会晤 应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。 变乱交织的国际形势下，此次中美元首北京会晤的深远意义，三个维度可以观察。 从釜山到北京 “中美两国能不能跨越‘修昔底德陷阱’，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！明日复牌。 恒宇信通（300965）5月12日晚间公告，公司拟通过发行股份及支付现金方式购买张俊清等9名交易对方持有的北京神导科技股份有限公司（简称“神导科技”）100%股权，并拟向不超过35名特定投资者发行股份募集配套资金。公司股票将于2026年5月13日开市起复牌。 本次交易预计构成重大资产重组及关联交
 
 ## 正文
 
-中新网5月17日电 题：三个维度观察中美元首北京会晤 应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-变乱交织的国际形势下，此次中美元首北京会晤的深远意义，三个维度可以观察。
+明日复牌。
 
-从釜山到北京 “中美两国能不能跨越‘修昔底德陷阱’，开创大国关系新范式？
+恒宇信通（300965）5月12日晚间公告，公司拟通过发行股份及支付现金方式购买张俊清等9名交易对方持有的北京神导科技股份有限公司（简称“神导科技”）100%股权，并拟向不超过35名特定投资者发行股份募集配套资金。
 
-能不能携手应对全球性挑战，为世界注入更多稳定性？
+公司股票将于2026年5月13日开市起复牌。
 
-能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？
+本次交易预计构成重大资产重组及关联交易，不构成重组上市，不会导致公司实际控制人变更。
 
-” 5月14日，同特朗普会谈伊始，习近平主席就中美关系提出“三问”。
+本次交易前，公司主营业务为直升机综合显示控制设备的研发、生产、销售，并提供相关专业技术服务，主要产品包括机载多功能综合显示控制设备及嵌入式计算机模块等航空电子产品。
 
-中美两国如何作答，牵动着世界目光。
+本次交易完成后，公司的主要产品将新增标的公司研发、生产和销售的卫星导航产品、惯性导航产品和军用电子设备。
 
-去年10月的中美元首釜山会晤，在关键时刻为中美关系校准了航向。
+公告指出，公司和神导科技之间在技术、产品、市场等方面均具有较强的协同效应。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:42 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:24 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:52 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:41 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:41 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:33 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:29 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:33 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:45 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:33 - [ST龙大实控人戴学斌被刑拘，今日开盘跌停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:45 - [油价上涨拖累全球股市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:53 - [五月生猪行情横向震荡，中期修复窗口逐步临近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:46 - [四川优化升级无人机“扫码飞” 适飞空域预计超全省面积八成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:46 - [龙泉股份：截至2026年5月8日公司股东人数为23412户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:53 - [联合航空将恢复飞往委内瑞拉航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:54 - [尼日利亚军方称打死至少70名疑似恐怖分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:49 - [欧洲央行管委Nagel：如果伊朗战争威胁到价格稳定 则必须采取行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:48 - [突破800万人次 北京口岸2026年度出入境人员总量再攀新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:30 - [App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:36 - [新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:54 - [哈萨克斯坦前4个月GDP同比增长3.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:57 - [国元国际：首钢资源给予“买入”评级 目标价3.18港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:48 - [受汽油价格推动，美国4月通胀飙升至 3.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:30 - [特斯拉前高管创办热泵初创公司 已有数名特斯拉前员工加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.kurohicncr.top/Article/details/8389027797.shtml)
-- 2026-06-29 12:37 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.kurohicncr.top/Article/details/54476900105.shtml)
-- 2026-06-29 12:37 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.share.minike.top/Article/details/2588650049.shtml)
-- 2026-06-29 12:41 - [民生人寿总资产缩水160亿，船大难掉头](http://www.share.minike.top/Article/details/02435864.shtml)
-- 2026-06-29 12:29 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.blog.kurohicncr.top/Article/details/62971376617.shtml)
-- 2026-06-29 12:53 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.share.minike.top/Article/details/307118097730.shtml)
-- 2026-06-29 12:39 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.share.minike.top/Article/details/002411.shtml)
-- 2026-06-29 12:26 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.kurohicncr.top/Article/details/734852966.shtml)
-- 2026-06-29 12:27 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.blog.minike.top/Article/details/489625.shtml)
-- 2026-06-29 12:50 - [高盛：央行要“加码”买黄金了，金价年底看5400](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.blog.minike.top/Article/details/68964300.shtml)
-- 2026-06-29 12:46 - [Anthropic将向监管机构通报网络风险](http://www.share.kurohicncr.top/Article/details/25792.shtml)
-- 2026-06-29 12:52 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [A股“股王”激战！近1个月来频繁易主](http://www.blog.minike.top/Article/details/932143953827.shtml)
+- 2026-06-29 12:38 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](http://www.blog.kurohicncr.top/Article/details/2061776651.shtml)
+- 2026-06-29 12:47 - [世界期待中美携手多办大事实事好事](http://www.share.minike.top/Article/details/62172.shtml)
+- 2026-06-29 12:56 - [500亿市值巨头突然直线拉升](http://www.blog.minike.top/Article/details/13431089724.shtml)
+- 2026-06-29 12:31 - [获刑十三年！荐股“杀猪盘”被查](http://www.blog.minike.top/Article/details/47708494.shtml)
+- 2026-06-29 12:33 - [“二号位”或套现4737万，百亿京北方频遭高管减持](http://www.blog.minike.top/Article/details/367253174.shtml)
+- 2026-06-29 12:51 - [德邦证券思考：当“护主心切”演变为“系统性自伤”](http://www.share.minike.top/Article/details/618799758.shtml)
+- 2026-06-29 12:38 - [英国首相斯塔默周三将与一位主要对手会面](http://www.share.minike.top/Article/details/26018292.shtml)
+- 2026-06-29 12:37 - [光大期货0513热点追踪：橡胶开割季价格不跌反涨，还能看高一线吗？](http://www.blog.minike.top/Article/details/69191.shtml)
+- 2026-06-29 12:59 - [因发放流动资金贷款贷前调查不尽职、贷后管理不到位 一人被禁止从事银行业工作七年](http://www.blog.kurohicncr.top/Article/details/47089.shtml)
+- 2026-06-29 12:50 - [Waymo因积水路段行驶风险召回近3800辆机器人出租车](http://www.blog.minike.top/Article/details/36381738476.shtml)
+- 2026-06-29 12:59 - [滇藏公路通车50周年：缅怀筑路先烈](http://www.share.minike.top/Article/details/30611.shtml)
+- 2026-06-29 12:51 - [四川宝兴蜂桶寨今年首只人工繁育绿尾虹雉孵化出壳](http://www.blog.minike.top/Article/details/511108913707.shtml)
+- 2026-06-29 12:56 - [仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显](http://www.share.minike.top/Article/details/397310417524.shtml)
+- 2026-06-29 12:53 - [黑田东彦：日元汇率跌破160可能性较低，日本经济基本面稳健](http://www.share.kurohicncr.top/Article/details/951354.shtml)
+- 2026-06-29 12:30 - [截至5月7日当周美国大豆出口检验量为655294吨](http://www.share.kurohicncr.top/Article/details/61440249261.shtml)

@@ -1,49 +1,56 @@
-# 国家药监局：我国4月批准注册医疗器械产品318个
+# 情绪易怒爱走神是前额叶受损吗？保护大脑做好这4件事
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据国家药监局网站消息，2026年4月，国家药监局共批准注册医疗器械产品318个。其中，境内第三类医疗器械产品272个，进口第三类医疗器械产品20个，进口第二类医疗器械产品26个。
+最近，“前额叶受损”成为社交平台上的高频词。注意力不集中、做事拖延、情绪易怒，甚至晚上脑子爱放空，都被说成是“大脑中的前额叶坏了”。这个专业医学名词，成了部分网友解释自己失控的万能借口。前额叶究竟是什么？大脑前额叶位于额头后方，是大脑最高级中枢，被形象地称为“大脑CEO”。它的核心功能至关重要：负责全身运动控制、语言输出；制定并执行任务计划；抑制冲动、管控欲望；同时调控注意力、
 
 ## 正文
 
-中新网5月18日电 据国家药监局网站消息，2026年4月，国家药监局共批准注册医疗器械产品318个。
+最近，“前额叶受损”成为社交平台上的高频词。
 
-其中，境内第三类医疗器械产品272个，进口第三类医疗器械产品20个，进口第二类医疗器械产品26个。
+注意力不集中、做事拖延、情绪易怒，甚至晚上脑子爱放空，都被说成是“大脑中的前额叶坏了”。
+
+这个专业医学名词，成了部分网友解释自己失控的万能借口。
+
+前额叶究竟是什么？
+
+大脑前额叶位于额头后方，是大脑最高级中枢，被形象地称为“大脑CEO”。
+
+它的核心功能至关重要：负责全身运动控制、语言输出；制定并执行任务计划；抑制冲动、管控欲望；同时调控注意力、情绪与人格，是人体认知功能的核心指挥部。
+
+网络上流传“前额叶要等到25岁才能发育成熟”，这个说法准确吗？
+
+拖延易怒爱走神，真的是因为前额叶受损吗？
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [2026年谷歌开发者大会召开在即 AI端侧有望迎短期关注(附概念股)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:36 - [广州海关查获毒品氯胺酮4997.87克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:39 - [享道出行倪立诚：未来一到两年将是Robotaxi规模化发展的起点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:39 - [澳大利亚联邦银行聘任玛丽-安妮-威廉姆斯担任首席人工智能科学家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:32 - [2026中德企业乒乓球邀请赛在慕尼黑举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:49 - [北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:27 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:42 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:42 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:37 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:34 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:32 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:53 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:26 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:51 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:36 - [白银为何大涨？瑞银：中国是唯一的理由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:40 - [千年“柳杉王”见证中美民间代代“鼓岭缘”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:56 - [欧洲债市：政治危机加深导致英国国债遭抛售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:38 - [乙德投资控股遭Liu Chuang减持约1.11亿股 每股均价0.2438港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:32 - [“中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:52 - [今年被罚没已逾2200万元！交通银行为何合规问题不断？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:44 - [好评中国丨“防灾减灾救灾”为人民更靠人民](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:32 - [首届香港具身智能产业峰会暨智元APC2026成功举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:39 - [浙江黄岩话剧《问瓷》登国家大剧院 馆藏陈列走向艺术舞台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:40 - [赖清德散布“民主对抗威权”叙事 国台办：谎话说一千遍还是谎话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [广西扶绥：趣味体验为乡村文旅聚人气](http://www.blog.minike.top/Article/details/90100164.shtml)
-- 2026-06-29 12:46 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](http://www.share.minike.top/Article/details/576416344204.shtml)
-- 2026-06-29 12:42 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](http://www.blog.minike.top/Article/details/7234595.shtml)
-- 2026-06-29 12:46 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](http://www.share.kurohicncr.top/Article/details/7586727.shtml)
-- 2026-06-29 12:38 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [渣打集团任命科斯特洛为首席财务官](http://www.blog.kurohicncr.top/Article/details/310912657.shtml)
-- 2026-06-29 12:35 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.minike.top/Article/details/68908216486.shtml)
-- 2026-06-29 12:25 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.share.kurohicncr.top/Article/details/9241301.shtml)
-- 2026-06-29 12:31 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.kurohicncr.top/Article/details/0962655586.shtml)
-- 2026-06-29 12:30 - [债券市场异动预示利率或将大幅走高](http://www.blog.kurohicncr.top/Article/details/070550322702.shtml)
-- 2026-06-29 12:37 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.share.kurohicncr.top/Article/details/38313431368.shtml)
-- 2026-06-29 12:40 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.share.kurohicncr.top/Article/details/56076.shtml)
-- 2026-06-29 12:28 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/4253436056.shtml)
-- 2026-06-29 12:50 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.share.kurohicncr.top/Article/details/7038168409.shtml)
+- 2026-06-29 12:46 - [47岁资本大佬戴学斌，涉嫌刑事犯罪被拘！旗下蓝润系曾坐拥超千亿元资产，知情人：去年就已有风声](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%](http://www.blog.minike.top/Article/details/159588040908.shtml)
+- 2026-06-29 12:30 - [新疆乌恰：大风吹歪屋顶 民辅警徒手帮民众加固](http://www.blog.kurohicncr.top/Article/details/703916.shtml)
+- 2026-06-29 12:53 - [Optum Rx推出透明定价新模式，重塑药房福利管理](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [法国农办调增2025/26年度谷物出口预期](http://www.blog.minike.top/Article/details/272674.shtml)
+- 2026-06-29 12:51 - [习近平会见联合国教科文组织总干事阿纳尼](http://www.share.kurohicncr.top/Article/details/46495863740.shtml)
+- 2026-06-29 12:56 - [学会可轻松赚大钱？当心数字技能培训这些猫腻](http://www.share.minike.top/Article/details/16038704.shtml)
+- 2026-06-29 12:47 - [虎牙发布2026年Q1财报:收入连续五季同比增长，盈利能力持续提升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [嘴唇发紫就是心血管有淤堵？专家解答](http://www.share.kurohicncr.top/Article/details/1789074884.shtml)
+- 2026-06-29 12:47 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](http://www.blog.kurohicncr.top/Article/details/8712794.shtml)
+- 2026-06-29 12:51 - [中国—东盟科技减贫合作交流会在广西南宁开幕](http://www.blog.minike.top/Article/details/896218.shtml)
+- 2026-06-29 12:49 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](http://www.share.minike.top/Article/details/95256.shtml)
+- 2026-06-29 12:49 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](http://www.blog.minike.top/Article/details/8977571.shtml)
+- 2026-06-29 12:49 - [新型“职业闭店人”骗局调查](http://www.blog.kurohicncr.top/Article/details/621643265.shtml)
+- 2026-06-29 12:52 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](http://www.share.kurohicncr.top/Article/details/08262.shtml)

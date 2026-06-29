@@ -1,56 +1,56 @@
-# AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？
+# Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-AI伪造图骗“仅退款”事件频发，国家反诈中心App上线AI内容鉴定功能，能否遏制造假式索赔？ 网购时遇到商品存在问题，拍张照片申请售后，是消费者维权的正常流程。然而近期，不少电商商家反映，买家发来的“破裂手机壳”“枯萎植物”售后图片，乍看像那么回事，实际上却是AI伪造出来的“问题图片”。 如今AI技术的迅猛发展让图像造假门槛大幅降低，“有图有真相”变得不再牢靠。用户上传一张原始
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。 公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。 公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。 远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。 这家数字医疗
 
 ## 正文
 
-AI伪造图骗“仅退款”事件频发，国家反诈中心App上线AI内容鉴定功能，能否遏制造假式索赔？
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。
 
-网购时遇到商品存在问题，拍张照片申请售后，是消费者维权的正常流程。
+公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。
 
-然而近期，不少电商商家反映，买家发来的“破裂手机壳”“枯萎植物”售后图片，乍看像那么回事，实际上却是AI伪造出来的“问题图片”。
+公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。
 
-如今AI技术的迅猛发展让图像造假门槛大幅降低，“有图有真相”变得不再牢靠。
+远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。
 
-用户上传一张原始照片，输入两行指令，新鲜的水果就发霉变质。
+这家数字医疗企业于周一发布一季报，净亏损 9200 万美元，上年同期约亏损 5000 万美元；调整后息税折旧摊销前利润为 4400 万美元，低于去年同期的 9100 万美元。
 
-一张假图就能轻松申请仅退款，不退货白拿商品，这种新型薅羊毛手段，让不少商家叫苦不迭。
+与此同时，公司营收同比增长 4%，达 6.08 亿美元；每用户月均营收为 80 美元，较去年的 85 美元有所下滑。
 
-近日，国家反诈中心App正式上线AI内容鉴定功能，用AI技术对图像、视频等内容进行识别检测，以应对当下泛滥的AI换脸、伪造图片视频等新型诈骗手段，这则消息很快冲上热搜，引发广泛关注。
+Hims & Hers预计第二季度营收区间为 6.8 亿至 7 亿美元，全年营收最高可达 30 亿美元。
 
-用AI治理恶意AI，如何做到？
+公司预测二季度调整后息税折旧摊销前利润最高为 5500 万美元，全年最高可达 3.5 亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:36 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:47 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:42 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:31 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:43 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:25 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:53 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:24 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:26 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:55 - [嘴唇发紫就是心血管有淤堵？专家解答](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:39 - [世卫：加沙已有超4.3万人致残，其中四分之一为儿童](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:39 - [中国—东盟科技减贫合作交流会在广西南宁开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:48 - [全文|京东Q1业绩会实录：外卖实现幅度最大环比减亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:37 - [沪指险守4200点，创业板顽强收红，机构仍看好科技主线行情！| 华宝基金3A日报（2026.5.12）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:38 - [新型“职业闭店人”骗局调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:54 - [俄“萨尔马特”战略导弹将于年底前进入战斗值班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:40 - [为应对欧盟反垄断调查，Meta宣布将向竞争对手开放WhatsApp接口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:51 - [东航7月1日开通成都直航台中航线，国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:39 - [直击！直升机水上绞车救援专项训练现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.blog.kurohicncr.top/Article/details/173730445540.shtml)
-- 2026-06-29 12:53 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](http://www.blog.kurohicncr.top/Article/details/21631462.shtml)
-- 2026-06-29 12:33 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.blog.minike.top/Article/details/7229601421.shtml)
-- 2026-06-29 12:32 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.minike.top/Article/details/954842.shtml)
-- 2026-06-29 12:38 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.kurohicncr.top/Article/details/0068436123.shtml)
-- 2026-06-29 12:41 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.share.minike.top/Article/details/2945790458.shtml)
-- 2026-06-29 12:50 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](http://www.share.minike.top/Article/details/498820765.shtml)
-- 2026-06-29 12:34 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](http://www.blog.minike.top/Article/details/035932893064.shtml)
-- 2026-06-29 12:30 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.share.minike.top/Article/details/45075236959.shtml)
-- 2026-06-29 12:35 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [2025年全国博物馆接待观众15.6亿人次](http://www.blog.minike.top/Article/details/40541380650.shtml)
-- 2026-06-29 12:40 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.blog.minike.top/Article/details/542905429.shtml)
+- 2026-06-29 12:47 - [2026年一季度海南省数字经济产业贷款同比增长49.9%](http://www.blog.kurohicncr.top/Article/details/5717698.shtml)
+- 2026-06-29 12:55 - [汽油价格飙升！美国周一再度大规模释放战略石油储备，应对夏季高峰](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [2026年全国防灾减灾日暨防灾减灾宣传周主场活动在江西南昌举行](http://www.blog.minike.top/Article/details/7323985222.shtml)
+- 2026-06-29 12:42 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](http://www.share.kurohicncr.top/Article/details/14897105.shtml)
+- 2026-06-29 12:44 - [甘肃第二届职业技能大赛：75个赛项选拔“陇原工匠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [全球首个面向南方国家的教师数字素养提升行动计划发布](http://www.blog.kurohicncr.top/Article/details/1260889579.shtml)
+- 2026-06-29 12:48 - [打了网红“气血针”，能否“一针提神”？专家提醒](http://www.blog.minike.top/Article/details/47155.shtml)
+- 2026-06-29 12:36 - [稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具](http://www.blog.kurohicncr.top/Article/details/068538501.shtml)
+- 2026-06-29 12:53 - [防汛关键期！感受直升机索滑降训练现场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [戎装缔良缘 相守赴山河](http://www.blog.minike.top/Article/details/23385797139.shtml)
+- 2026-06-29 12:42 - [中行境外机构人事调整 涉及中东、西欧多家分行](http://www.share.minike.top/Article/details/29369268.shtml)
+- 2026-06-29 12:56 - [国际能源署警示：霍尔木兹海峡供应冲击 复苏需耗时数月](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [GTC泽汇资本:原油溢价回落供需博弈](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [湖南举办教育行业专场招聘活动 发布万余岗位让“湘才留湘”](http://www.blog.minike.top/Article/details/22016759263.shtml)
+- 2026-06-29 12:37 - [Fluence二级市场抛售2300万股，股价应声暴跌16%](http://www.share.kurohicncr.top/Article/details/5803302.shtml)

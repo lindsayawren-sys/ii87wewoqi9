@@ -1,49 +1,46 @@
-# 一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学
+# 戎装缔良缘 相守赴山河
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 21:27 来源：中国新闻网 一骑绝尘！校运会上男生百米跑速度突破10.53秒，看懵现场同学。 责任编辑：【姚为】
+发布时间：2026年05月12日 16:34 来源：中国新闻网 近日，武警第二机动总队某支队隆重举办集体婚礼，三十二对新人情暖军营，甜度超标。(作者：任国帅 刘婧雯 张声鑫 林裔杭 林柜良) 责任编辑：【魏聪聪】
 
 ## 正文
 
-发布时间：2026年05月17日 21:27 来源：中国新闻网 一骑绝尘！
+发布时间：2026年05月12日 16:34 来源：中国新闻网 近日，武警第二机动总队某支队隆重举办集体婚礼，三十二对新人情暖军营，甜度超标。
 
-校运会上男生百米跑速度突破10.53秒，看懵现场同学。
-
-责任编辑：【姚为】
+(作者：任国帅 刘婧雯 张声鑫 林裔杭 林柜良) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:27 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:46 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:30 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:38 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:40 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:39 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:25 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:28 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:47 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:40 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:49 - [伊朗计划在两年内完成南帕尔斯气田重建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:39 - [吉利汽车因认股权获行使而发行13.28万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:46 - [英伟达CEO黄仁勋薪酬下滑27% 源于股票奖励缩水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:40 - [海航6.6万元“顺心卡”背后的金融游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:36 - [中信建投期货：5月13日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:43 - [塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:55 - [外交部：无论赖清德说什么做什么，都改变不了台湾是中国领土一部分的事实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:59 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:40 - [多元融合焕新消费 “电影+”让大银幕有大引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:52 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:45 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:59 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:46 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:43 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.minike.top/Article/details/95677790174.shtml)
-- 2026-06-29 12:47 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.share.kurohicncr.top/Article/details/749668.shtml)
-- 2026-06-29 12:25 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.share.kurohicncr.top/Article/details/36316.shtml)
-- 2026-06-29 12:36 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/5693583099.shtml)
-- 2026-06-29 12:41 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.share.kurohicncr.top/Article/details/75730.shtml)
-- 2026-06-29 12:24 - [从过去探寻未来](http://www.share.kurohicncr.top/Article/details/428416643.shtml)
-- 2026-06-29 12:40 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.kurohicncr.top/Article/details/7751385478.shtml)
-- 2026-06-29 12:25 - [金价回落 后市怎么走？](http://www.share.kurohicncr.top/Article/details/938109.shtml)
-- 2026-06-29 12:44 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.share.minike.top/Article/details/95256960.shtml)
-- 2026-06-29 12:42 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.blog.kurohicncr.top/Article/details/91616.shtml)
-- 2026-06-29 12:46 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.share.minike.top/Article/details/558536434986.shtml)
-- 2026-06-29 12:51 - [美国特使抵达格陵兰岛首府努克](http://www.blog.kurohicncr.top/Article/details/06562429.shtml)
-- 2026-06-29 12:41 - [来华留学生博物馆里“看世界”](http://www.blog.kurohicncr.top/Article/details/737420533.shtml)
+- 2026-06-29 12:31 - [创新的力量：视听传播如何实现“从点到链”的变革？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [腾讯回应收购喜马拉雅股权获批：认真履行各项承诺，确保交易依法合规推进](http://www.blog.kurohicncr.top/Article/details/10682605969.shtml)
+- 2026-06-29 12:54 - [黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [美防长赫格塞思就国防预算出席国会听证会](http://www.blog.kurohicncr.top/Article/details/253941636.shtml)
+- 2026-06-29 12:52 - [“三顾之城开新局”中央主流媒体看南阳主题宣传活动启动](http://www.blog.minike.top/Article/details/69483540.shtml)
+- 2026-06-29 13:00 - [博雷顿拟1301.77万元受让苏州钧灏6.8246%股权 完善新能源储能布局](http://www.share.minike.top/Article/details/06244806201.shtml)
+- 2026-06-29 12:53 - [卢比汇率持续走低，全球第二大黄金市场印度上调金银进口关税](http://www.share.kurohicncr.top/Article/details/483876348.shtml)
+- 2026-06-29 12:59 - [三星与工会奖金谈判破裂 官方深表遗憾](http://www.share.kurohicncr.top/Article/details/5678567186.shtml)
+- 2026-06-29 12:51 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](http://www.share.minike.top/Article/details/44431526.shtml)
+- 2026-06-29 12:53 - [300965，重大资产重组，明日复牌](http://www.blog.minike.top/Article/details/7989963995.shtml)
+- 2026-06-29 12:34 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](http://www.share.kurohicncr.top/Article/details/54233.shtml)
+- 2026-06-29 12:31 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](http://www.share.minike.top/Article/details/16056827247.shtml)
+- 2026-06-29 12:55 - [美国总统特朗普抵达北京](http://www.blog.minike.top/Article/details/6016442.shtml)

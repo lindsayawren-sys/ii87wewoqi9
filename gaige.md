@@ -1,50 +1,57 @@
-# 金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”
+# 创新的力量：视听传播如何实现“从点到链”的变革？
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:05 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据朝中社18日报道，朝鲜劳动党总书记、国务委员会委员长金正恩17日召开朝鲜人民军全军师旅指挥员会议，要求“特别加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。 据报道，金正恩在会上表示，练兵备战是军队的本职工作，他提出关于适应现代战争变化模式和朝鲜人民军发展趋势，整顿训练体系、加强实用训练的方针。 金正恩在谈到领土防卫政策时指出，要求“加强守卫南部边
+中新网北京5月13日电(记者 郎朗)随着技术的发展，视听传播的系统性变革也进入新阶段。5月12日，第六届中国(北京)广电媒体融合发展大会上，“创新的力量——视听传播创新主题研讨”汇聚多位专家学者，围绕视听传播的系统性变革展开深入对话。 内容创新：在变革中坚守价值内核 无论技术如何迭代，内容的高价值与正能量始终是视听传播的根基。 北京大学视听传播研究中心主任陆地教授提出，中国媒体
 
 ## 正文
 
-中新网5月18日电 据朝中社18日报道，朝鲜劳动党总书记、国务委员会委员长金正恩17日召开朝鲜人民军全军师旅指挥员会议，要求“特别加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。
+中新网北京5月13日电(记者 郎朗)随着技术的发展，视听传播的系统性变革也进入新阶段。
 
-据报道，金正恩在会上表示，练兵备战是军队的本职工作，他提出关于适应现代战争变化模式和朝鲜人民军发展趋势，整顿训练体系、加强实用训练的方针。
+5月12日，第六届中国(北京)广电媒体融合发展大会上，“创新的力量——视听传播创新主题研讨”汇聚多位专家学者，围绕视听传播的系统性变革展开深入对话。
 
-金正恩在谈到领土防卫政策时指出，要求“加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。
+内容创新：在变革中坚守价值内核 无论技术如何迭代，内容的高价值与正能量始终是视听传播的根基。
 
-金正恩还表示，随着朝鲜人民军军事技术装备快速现代化，要重新定义各方面作战概念，并积极推进将之运用于各部队战斗训练的计划工作。
+北京大学视听传播研究中心主任陆地教授提出，中国媒体经历了自身融合、与互联网融合、与社会融合三次大规模变革，但“万变不离其宗，内容要是高价值、正能量”。
+
+他认为，内容创新的核心在于通过新连接、新转化、新表达为用户创造深刻体验，而价值观则是“内容产业的操作系统和终极过滤器”，决定着创新的方向与用户的认同。
+
+在技术冲击下，纪实表达并未被削弱，反而获得新的可能。
+
+国家广电总局发展研究中心战略研究所所长赵捷指出，人工智能正在推动纪录片从“局部优化”走向“系统重构”。
+
+他举例说，《吴越国》《神遇：当苏格拉底遇上孔子》等作品借助AI让历史场景和思想对话变得可感可及。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:35 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:30 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:40 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:42 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:48 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:29 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:35 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:41 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:36 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:37 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:53 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:47 - [三星与工会奖金谈判破裂 官方深表遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:31 - [Casa Minerals认股权证行权获43万美元，将用于亚利桑那及BC省勘探项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:51 - [大理大学在洱海蓝藻水华防控研究中取得重要进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:41 - [太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:47 - [300965，重大资产重组，明日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:44 - [纽约联储研究：美国信用卡债务回落至1.25万亿美元，但仍呈现K型分化格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:34 - [“海南鲜品”加速海南农产品向高端走、线上走、海外走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:43 - [美国总统特朗普抵达北京](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:46 - [欧佩克下调2026年全球石油需求增长预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:36 - [力量发展午前涨近4% 机构指公司南非煤矿盈利较为可靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:44 - [金银冲高回落！专家：下半年金银仍上行，白银弹性更大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.share.minike.top/Article/details/64815937.shtml)
-- 2026-06-29 12:31 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.blog.kurohicncr.top/Article/details/578566.shtml)
-- 2026-06-29 12:50 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.kurohicncr.top/Article/details/364006.shtml)
-- 2026-06-29 12:42 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.blog.minike.top/Article/details/3093473.shtml)
-- 2026-06-29 12:27 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.share.minike.top/Article/details/4839249.shtml)
-- 2026-06-29 12:34 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.minike.top/Article/details/839079949.shtml)
-- 2026-06-29 12:32 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.minike.top/Article/details/87603009.shtml)
-- 2026-06-29 12:29 - [中俄林业教育科技产业创新联盟成立](http://www.share.kurohicncr.top/Article/details/95300750575.shtml)
-- 2026-06-29 12:43 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.share.minike.top/Article/details/21690.shtml)
-- 2026-06-29 12:25 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/599490779720.shtml)
-- 2026-06-29 12:31 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.blog.kurohicncr.top/Article/details/472241.shtml)
-- 2026-06-29 12:52 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.minike.top/Article/details/4259298.shtml)
-- 2026-06-29 12:51 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.kurohicncr.top/Article/details/95118474553.shtml)
-- 2026-06-29 12:29 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.minike.top/Article/details/98444.shtml)
-- 2026-06-29 12:53 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [打卡同色系风景 城市“色彩漫步”成为年轻人新型散步方式](http://www.blog.minike.top/Article/details/286518246.shtml)
+- 2026-06-29 12:48 - [海外闽籍青年华商三明叙乡情：根在福建，梦连全球](http://www.blog.kurohicncr.top/Article/details/56381778.shtml)
+- 2026-06-29 12:50 - [德乌计划联合研发生产各型无人机](http://www.blog.kurohicncr.top/Article/details/94348012757.shtml)
+- 2026-06-29 12:30 - [一季度西藏社会消费品零售总额255.83亿元](http://www.share.kurohicncr.top/Article/details/524011905950.shtml)
+- 2026-06-29 12:36 - [习近平会见文莱王储比拉](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [韩国交易所开始在资本市场监测工作中采用AI技术](http://www.share.kurohicncr.top/Article/details/4898865881.shtml)
+- 2026-06-29 12:57 - [机构预测2026年泰国平均通货膨胀率为3.4%](http://www.blog.kurohicncr.top/Article/details/760380.shtml)
+- 2026-06-29 12:46 - [习近平同塔吉克斯坦总统拉赫蒙共同出席合作文件签字仪式](http://www.share.minike.top/Article/details/2837048688.shtml)
+- 2026-06-29 12:42 - [三峡库区水位加快消落 调整航标保畅通](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [AI盈利兑现+油价回落，美股延续反弹](http://www.share.minike.top/Article/details/76658375.shtml)
+- 2026-06-29 12:53 - [股海导航_2026年5月13日_沪深股市公告与交易提示](http://www.blog.minike.top/Article/details/78159956.shtml)
+- 2026-06-29 12:35 - [保时捷控股一季度业绩受挫，敦促大众汽车重组业务模式](http://www.blog.minike.top/Article/details/465494.shtml)
+- 2026-06-29 12:40 - [世界期待中美携手多办大事实事好事](http://www.blog.kurohicncr.top/Article/details/1705190.shtml)
+- 2026-06-29 12:42 - [500亿市值巨头突然直线拉升](http://www.blog.kurohicncr.top/Article/details/1315455.shtml)
+- 2026-06-29 12:40 - [获刑十三年！荐股“杀猪盘”被查](https://github.com/lisacumin64-arch)

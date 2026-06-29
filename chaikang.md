@@ -1,57 +1,60 @@
-# “晋高句骊归义侯”金印正式入藏集安市博物馆
+# 上海加快开发适老化智能产品
 
-> 更新时间：2026-06-29 12:54:05 UTC+8
+> 更新时间：2026-06-29 13:00:04 UTC+8
 
 ## 摘要
 
-中新网吉林集安5月18日电 (记者 郭佳)18日，“晋高句骊归义侯”金印正式纳入集安市博物馆馆藏体系并向公众展出，此印为西晋时期中央王朝颁赐给高句丽首领的册封信物，是中原王朝对东北边疆实施有效行政管理的实证。 高句丽是汉唐时期活跃于中国东北的民族地方政权，其705年的历史中有425年以今天的吉林省集安市为都，当地留有大量遗存。2004年，“高句丽王城、王陵及贵族墓葬”被列入《世
+中新社上海5月13日电 (记者 郑莹莹)为助力长者智慧养老，中国联通上海市分公司13日在上海发布一批为银发人群量身定制的通信产品与服务。 “这根绳子不仅是挂绳，当老人发生意外时，拉拽这根绳子，设备就会自动拨打紧急联系人的电话。”现场工作人员龙鑫为记者介绍一款长者适用的AI产品。 他表示，该款小巧的设备还搭载电子围栏，若老人长时间未外出或无移动，系统将发出提示，便于家人及时关怀，
 
 ## 正文
 
-中新网吉林集安5月18日电 (记者 郭佳)18日，“晋高句骊归义侯”金印正式纳入集安市博物馆馆藏体系并向公众展出，此印为西晋时期中央王朝颁赐给高句丽首领的册封信物，是中原王朝对东北边疆实施有效行政管理的实证。
+中新社上海5月13日电 (记者 郑莹莹)为助力长者智慧养老，中国联通上海市分公司13日在上海发布一批为银发人群量身定制的通信产品与服务。
 
-高句丽是汉唐时期活跃于中国东北的民族地方政权，其705年的历史中有425年以今天的吉林省集安市为都，当地留有大量遗存。
+“这根绳子不仅是挂绳，当老人发生意外时，拉拽这根绳子，设备就会自动拨打紧急联系人的电话。
 
-2004年，“高句丽王城、王陵及贵族墓葬”被列入《世界遗产名录》。
+”现场工作人员龙鑫为记者介绍一款长者适用的AI产品。
 
-“晋高句骊归义侯”金印为马钮印，印面2.4×2.3厘米，印台高0.6厘米，通高2.8厘米，重约88克。
+他表示，该款小巧的设备还搭载电子围栏，若老人长时间未外出或无移动，系统将发出提示，便于家人及时关怀，以防范意外。
 
-印面为阴刻篆书“晋高句骊归义侯”七字。
+上海还通过政策引导与市场机制相结合，降低适老化数字产品的使用门槛。
 
-在中国嘉德香港2025年春季拍卖会上，爱心人士金明南、高金丹夫妇以创下古玺印拍卖新世界纪录的价格将其拍下，后无偿捐赠给集安市博物馆。
+上海市通信管理局方面表示，上海统筹推进互联网应用适老化及无障碍改造的标准化与规范化，确保长辈模式不仅有“大字”，更有“简操作”。
 
-中国国家文物局此前指出，这方金印和以往发现的6方与高句丽朝贡册封有关的玺印形成完整证据链，证明了西晋时期高句丽处在中原王朝的有效管辖之下。
+上海是中国最早进入人口老龄化且老龄化程度最深的城市。
 
-据悉，除了这方“归义侯”金印外，西晋还曾颁赐过“晋高句骊率善邑长”“晋高句骊率善仟长”“晋高句骊率善佰长”等铜质官印。
+截至2024年年末，上海60岁及以上户籍老年人口达577.62万人，占其户籍总人口的37.6%。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:47 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:36 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:45 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:28 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:48 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:47 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:28 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:29 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:48 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:33 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:59 - [美国对伊连打三张牌 油价黄金交易逻辑拆解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:53 - [英国政府拟立法改革银行“隔离”制度,以提振企业融资与经济增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:42 - [“广西三月三”系列活动走进香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:50 - [M4Markets:白银突破八十美元关口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:36 - [奥特曼出庭作证：马斯克想要“完全掌控”OpenAI并将其传给子女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:56 - [琼台青年以棒垒球会友 架起两岸体育文化交流桥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:39 - [新疆导游“天山那头有人民”被贴标签 台湾教师：扩交流是解方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:56 - [广电网络（600831）投资者索赔再获得法院立案，向日葵（300111）索赔案再提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:36 - [道达尔能源、康菲石油与卡塔尔能源签署协议 助力叙利亚重返国际能源版图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:40 - [特朗普：伊朗方案“不可接受” 停火“极其脆弱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:42 - [国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:34 - [乌干达拟发行首笔主权债券，助力31.7亿美元标轨铁路项目建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:35 - [暖心！为了给爸爸生日惊喜 四岁男孩等到后半夜爸爸下班……孩子妈妈：“老父亲”都被感动哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:35 - [劳动者杯中国职工篮球系列赛鸣哨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [三大运营商即将免月租？官方回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](http://www.share.kurohicncr.top/Article/details/42196464.shtml)
-- 2026-06-29 12:45 - [防病控“三高”别错过这些果蔬](http://www.blog.minike.top/Article/details/73537555552.shtml)
-- 2026-06-29 12:28 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.blog.kurohicncr.top/Article/details/354230.shtml)
-- 2026-06-29 12:30 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](http://www.share.minike.top/Article/details/9544739.shtml)
-- 2026-06-29 12:32 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.blog.minike.top/Article/details/278884708441.shtml)
-- 2026-06-29 12:27 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.blog.minike.top/Article/details/7599639272.shtml)
-- 2026-06-29 12:45 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.minike.top/Article/details/4811856.shtml)
-- 2026-06-29 12:52 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.share.minike.top/Article/details/1113029457.shtml)
-- 2026-06-29 12:35 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [中俄共绘教育合作新图景](http://www.blog.minike.top/Article/details/88049438.shtml)
-- 2026-06-29 12:24 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.share.kurohicncr.top/Article/details/3339823227.shtml)
-- 2026-06-29 12:34 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](http://www.share.minike.top/Article/details/42356945615.shtml)
-- 2026-06-29 12:31 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](http://www.blog.kurohicncr.top/Article/details/95220378737.shtml)
+- 2026-06-29 12:33 - [一则传闻！盘面掉头下跌！多空齐发！钢价涨势有变？](http://www.share.kurohicncr.top/Article/details/864174.shtml)
+- 2026-06-29 12:44 - [多元融合焕新消费 “电影+”让大银幕有大引力](http://www.blog.kurohicncr.top/Article/details/5699106366.shtml)
+- 2026-06-29 12:33 - [新疆吐鲁番：青蛙巷文脉绵延 研学赋能葡萄沟文旅新生](http://www.blog.kurohicncr.top/Article/details/78887831131.shtml)
+- 2026-06-29 12:49 - [人工智能概念股涨势消退，中东停火协议“命悬一线”](http://www.blog.kurohicncr.top/Article/details/47976848083.shtml)
+- 2026-06-29 12:33 - [华尔街通胀焦虑加剧 机构关注美联储下一步如何抉择](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [敲诈900多家网店 买家恶意下单2700多次被判刑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [印度拟调整大宗商品衍生品交易规则，以提振市场流动性](http://www.share.kurohicncr.top/Article/details/98203692177.shtml)
+- 2026-06-29 12:41 - [助力乡村振兴，平安农业无人机公益计划首站落地伊犁](http://www.share.kurohicncr.top/Article/details/08433977987.shtml)
+- 2026-06-29 12:35 - [泡泡玛特跨界卖茶饮？知情人士：POP BAKERY直营门店仍以甜品为主](http://www.blog.kurohicncr.top/Article/details/085284775.shtml)
+- 2026-06-29 12:32 - [新疆哈密：光热发电项目年发2亿度清洁电](http://www.share.minike.top/Article/details/11491290853.shtml)
+- 2026-06-29 12:40 - [515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教](http://www.share.minike.top/Article/details/21739294242.shtml)
+- 2026-06-29 12:56 - [挪威国家石油公司Gullfaks油田达成北海5000船原油外运里程碑](http://www.blog.kurohicncr.top/Article/details/40931.shtml)
+- 2026-06-29 12:52 - [融汇东西方经典爱情传说 实验轻歌剧《阴阳喜帖》将首演](http://www.share.kurohicncr.top/Article/details/695749.shtml)
+- 2026-06-29 12:59 - [赣锋锂业(002460.SZ)：注销2022年股票期权激励计划剩余55.125万份期权，因第四个行权期业绩未达标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [谁在借网络平台给日本社会“投毒”？（环球走笔）](http://www.share.kurohicncr.top/Article/details/12843114023.shtml)
