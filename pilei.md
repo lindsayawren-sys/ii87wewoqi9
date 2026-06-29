@@ -1,54 +1,58 @@
-# 阿联酋部长：正朝着完全不依赖霍尔木兹海峡的目标推进
+# 实现多点开花 儿童友好不止添设施更需法治守护
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-美伊临时和平协议签署后，全球正静待霍尔木兹海峡全面恢复通航，与此同时，阿联酋正在推进一项宏大规划，力求彻底摆脱对这一关键航运要道的依赖。 阿联酋外贸部长萨尼・阿尔・扎尤迪在采访中表示：“我们正朝着完全不依赖霍尔木兹海峡的目标推进，无论该航道是否恢复通行。海峡终将开放，我们也期待这一天尽快到来，但相关新建配套规划不会因此停滞。” 扎尤迪表示，阿联酋该规划的核心内容是大规模扩建迪巴
+儿童友好建设逐步实现“点上突破”到“全域覆盖”的跨越 专家指出 儿童友好不止添设施更需法治守护 春日的湖南省长沙市实验小学马栏山文创学校，200平方米的“探碳食物花园”里，是一片盎然绿意，小白菜、香菜、油菜花等错落有致，长势喜人。一群学生蹲在菜畦边，有学生小心翼翼地拨开叶片，看着自己参与播种的菜苗，忍不住欢呼：“它们长得好茂盛啊！” 这是该校常态化儿童友好实践的生动一幕。作为长
 
 ## 正文
 
-美伊临时和平协议签署后，全球正静待霍尔木兹海峡全面恢复通航，与此同时，阿联酋正在推进一项宏大规划，力求彻底摆脱对这一关键航运要道的依赖。
+儿童友好建设逐步实现“点上突破”到“全域覆盖”的跨越 专家指出 儿童友好不止添设施更需法治守护 春日的湖南省长沙市实验小学马栏山文创学校，200平方米的“探碳食物花园”里，是一片盎然绿意，小白菜、香菜、油菜花等错落有致，长势喜人。
 
-阿联酋外贸部长萨尼・阿尔・扎尤迪在采访中表示：“我们正朝着完全不依赖霍尔木兹海峡的目标推进，无论该航道是否恢复通行。
+一群学生蹲在菜畦边，有学生小心翼翼地拨开叶片，看着自己参与播种的菜苗，忍不住欢呼：“它们长得好茂盛啊！
 
-海峡终将开放，我们也期待这一天尽快到来，但相关新建配套规划不会因此停滞。
+” 这是该校常态化儿童友好实践的生动一幕。
 
-” 扎尤迪表示，阿联酋该规划的核心内容是大规模扩建迪巴、富查伊拉、豪尔费坎三座东部港口，这些港口坐落于阿曼湾沿岸，地处霍尔木兹海峡之外。
+作为长沙市首个“儿童友好工作站”所在地，该校处处藏着“以儿童为中心”的细致考量。
 
-他透露，阿联酋还将在同一片海岸线上至少新建一座港口。
+这样的实践正在全国多地悄然铺开。
 
-他表示，阿联酋还将大手笔投资新建管道、铁路与公路路网，以此打通东部港口和国内油气田、石油设施之间的运输通道。
+今年3月，国家发展改革委、国务院妇儿工委办公室联合印发《关于在全社会推进儿童友好建设的意见》(以下简称《意见》)，对儿童友好建设作出系统部署。
 
-责任编辑：陈钰嘉
+《中华人民共和国国民经济和社会发展第十五个五年规划纲要》中明确提出，推进儿童友好建设，营造关心关爱下一代的社会环境。
+
+接受《法治日报》记者采访的专家指出，当前儿童友好建设已迎来热潮，但要想避免“一阵风”，关键是要构建长效机制，应坚持“先落实、再完善”的法治路径，健全标准体系与制度保障，畅通儿童参与渠道，让“儿童友好”真正落地见效。
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 01:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 01:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 01:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 01:16 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 01:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 01:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 01:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 01:33 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:36 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 01:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 01:13 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 01:22 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 01:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 01:15 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 01:33 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 01:19 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 01:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 01:16 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 01:14 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 01:41 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/951203.shtml)
-- 2026-06-30 01:21 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/45535054763.shtml)
-- 2026-06-30 01:16 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/398803.shtml)
-- 2026-06-30 01:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/807294.shtml)
-- 2026-06-30 01:33 - [扫黑风暴](https://www.share.minike.top/Article/details/2883544.shtml)
-- 2026-06-30 01:18 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/754107.shtml)
-- 2026-06-30 01:06 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/78011.shtml)
-- 2026-06-30 01:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/63572643.shtml)
-- 2026-06-30 01:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/3074589338.shtml)
-- 2026-06-30 01:09 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/541147.shtml)
-- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/224819057.shtml)
-- 2026-06-30 01:18 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/12529600.shtml)
-- 2026-06-30 01:29 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/44857522036.shtml)
-- 2026-06-30 01:22 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/0244835.shtml)
-- 2026-06-30 01:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/022257473825.shtml)
+- 2026-06-30 01:36 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/7840706.shtml)
+- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/251855605.shtml)
+- 2026-06-30 01:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/2853936.shtml)
+- 2026-06-30 01:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/7728987953.shtml)
+- 2026-06-30 01:38 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/058023512695.shtml)
+- 2026-06-30 01:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/984698057303.shtml)
+- 2026-06-30 01:23 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/78522216.shtml)
+- 2026-06-30 01:26 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/5064658.shtml)
+- 2026-06-30 01:31 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/544361.shtml)
+- 2026-06-30 01:40 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/415942094625.shtml)
+- 2026-06-30 01:28 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/5625460.shtml)
+- 2026-06-30 01:39 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/0986559468.shtml)
+- 2026-06-30 01:17 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/9318745.shtml)
+- 2026-06-30 01:14 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/7489468.shtml)
+- 2026-06-30 01:31 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/7771421389.shtml)

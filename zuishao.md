@@ -1,57 +1,56 @@
-# 减负？景顺长城老将余广三只产品同日增聘基金经理 已无单独管理产品
+# “丝路方舟”号医院船离开巴新启程回国
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日，景顺长城基金发布公告，公司知名基金经理余广在管的3只产品同日增聘基金经理。其中，景顺长城核心竞争力混合增聘农冰立，景顺长城核心优选一年持有混合增聘张靖，景顺长城核心招景混合增聘周寒颖。加上此前已在3月底增聘董晗的景顺长城核心中景一年持有，余广已无单独管理的公募产品。 16年公募老将过往年化回报8.58%，四只产品均已配备共管搭档 余广是业内知名基金经理，公开资料显示
+解放军报莫尔兹比港4月15日电 崔晓洋、唐磊报道：执行“和谐使命-2025”任务的中国海军“丝路方舟”号医院船，于当地时间15日圆满结束对巴布亚新几内亚的友好访问与医疗服务，驶离莫尔兹比港启程回国。 巴新军政要员、中国驻巴新大使馆工作人员、当地民众及华人华侨代表等到码头送行。 巴新是“丝路方舟”号医院船执行“和谐使命-2025”任务的最后一站。访问巴新期间，医院船累计接诊当地民
 
 ## 正文
 
-6月18日，景顺长城基金发布公告，公司知名基金经理余广在管的3只产品同日增聘基金经理。
+解放军报莫尔兹比港4月15日电 崔晓洋、唐磊报道：执行“和谐使命-2025”任务的中国海军“丝路方舟”号医院船，于当地时间15日圆满结束对巴布亚新几内亚的友好访问与医疗服务，驶离莫尔兹比港启程回国。
 
-其中，景顺长城核心竞争力混合增聘农冰立，景顺长城核心优选一年持有混合增聘张靖，景顺长城核心招景混合增聘周寒颖。
+巴新军政要员、中国驻巴新大使馆工作人员、当地民众及华人华侨代表等到码头送行。
 
-加上此前已在3月底增聘董晗的景顺长城核心中景一年持有，余广已无单独管理的公募产品。
+巴新是“丝路方舟”号医院船执行“和谐使命-2025”任务的最后一站。
 
-16年公募老将过往年化回报8.58%，四只产品均已配备共管搭档 余广是业内知名基金经理，公开资料显示，他是银行和金融工商管理硕士。
+访问巴新期间，医院船累计接诊当地民众及侨胞5635人次，实施手术操作361例，开展各类辅助检查3082人次，收治住院16人。
 
-中国注册会计师，曾先后担任蛇口中华会计师事务所审计项目经理、杭州中融投资管理有限公司财务顾问项目经理，后进入证券基金领域，任职于世纪证券综合研究所、中银国际（中国）证券。
+除提供高水平医疗服务外，医院船还举办了甲板招待会，组织任务官兵与巴新国防军开展篮球友谊赛，赴中国-巴新友谊学校·布图卡学园参观，走访巴斯里斯克海军基地，与巴新大学医学院开展学术交流。
 
-2005年1月加入景顺长城基金，2010年5月起担任股票投资部基金经理，证券、基金行业从业经验长达22年。
+巴布亚新几内亚总理马拉佩表示：“诚挚感谢医院船为巴新民众提供的高质量医疗服务，赞赏中国在维护世界和平与安全方面发挥的重要作用，将继续深化同中国的合作，实现共同发展。
 
-现任公司总经理助理、股票投资部总经理、基金经理，兼任投资经理。
-
-截至一季度末，余广在管产品规模超过70亿元。
+”
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 01:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 01:10 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 01:13 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 01:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 01:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 01:11 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 01:32 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 01:15 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 01:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 01:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 01:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 01:35 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 01:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 01:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 01:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 01:28 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 01:39 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 01:19 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 01:27 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 01:16 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/81671052599.shtml)
-- 2026-06-30 01:32 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/94834329.shtml)
-- 2026-06-30 01:22 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/0578398299.shtml)
-- 2026-06-30 01:17 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/5381912362.shtml)
-- 2026-06-30 01:06 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/9146855701.shtml)
-- 2026-06-30 01:19 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/082799554.shtml)
-- 2026-06-30 01:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/855416.shtml)
-- 2026-06-30 01:10 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/922848357.shtml)
-- 2026-06-30 01:26 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/893177009298.shtml)
-- 2026-06-30 01:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/88006294.shtml)
-- 2026-06-30 01:23 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/77555410.shtml)
-- 2026-06-30 01:12 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/912410.shtml)
-- 2026-06-30 01:30 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/586139.shtml)
-- 2026-06-30 01:34 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/0926534.shtml)
-- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/3448598.shtml)
+- 2026-06-30 01:16 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/77409418502.shtml)
+- 2026-06-30 01:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/07472.shtml)
+- 2026-06-30 01:41 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/20029721.shtml)
+- 2026-06-30 01:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/84615531.shtml)
+- 2026-06-30 01:23 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/42055111028.shtml)
+- 2026-06-30 01:21 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/02842.shtml)
+- 2026-06-30 01:21 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/51588618353.shtml)
+- 2026-06-30 01:28 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/32011.shtml)
+- 2026-06-30 01:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/107440.shtml)
+- 2026-06-30 01:39 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/42425641.shtml)
+- 2026-06-30 01:24 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/41523116015.shtml)
+- 2026-06-30 01:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/223450355.shtml)
+- 2026-06-30 01:40 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/23337132532.shtml)
+- 2026-06-30 01:31 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/79808.shtml)
+- 2026-06-30 01:16 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/19391481.shtml)

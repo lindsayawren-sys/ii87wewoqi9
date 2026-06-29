@@ -1,56 +1,58 @@
-# 游戏科学创始人冯骥：创造中国IP买断制3A大作
+# 沈阳春假叠加五一假期 铁路部门备足运力护航出行
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网杭州6月17日电(林波)“未来将以更高的研发投入和人才密度，全力推进《黑神话：钟馗》等新产品的开发，既保持‘板凳宁坐十年冷’的科研耐心，也保持跨越过往成绩的创业激情，创造出更多叫好叫座的中国IP买断制3A大作。”6月17日，游戏科学创始人、首席执行官冯骥在杭州举行的首届浙江省“之江潮”文化奖表彰会议上如是说。 2024年以来，冯骥团队打造的《黑神话：悟空》持续圈粉海内外。
+中新网沈阳4月16日电(姜月恒)近日，沈阳市中小学生春假正式官宣，与此同时，2026年五一假期临近，“3+5”合计八天的假期即将启幕。沈阳站、沈阳北站、沈阳南站三大火车站已全面部署，通过精准调配运力、优化服务举措等方式，全力保障广大旅客便捷、安全出行。据铁路部门消息，2026年五一假期火车票发售工作将于4月17日正式启动。其中，假期首日车票于4月17日开售，假期最后一日车票则于
 
 ## 正文
 
-中新网杭州6月17日电(林波)“未来将以更高的研发投入和人才密度，全力推进《黑神话：钟馗》等新产品的开发，既保持‘板凳宁坐十年冷’的科研耐心，也保持跨越过往成绩的创业激情，创造出更多叫好叫座的中国IP买断制3A大作。
+中新网沈阳4月16日电(姜月恒)近日，沈阳市中小学生春假正式官宣，与此同时，2026年五一假期临近，“3+5”合计八天的假期即将启幕。
 
-”6月17日，游戏科学创始人、首席执行官冯骥在杭州举行的首届浙江省“之江潮”文化奖表彰会议上如是说。
+沈阳站、沈阳北站、沈阳南站三大火车站已全面部署，通过精准调配运力、优化服务举措等方式，全力保障广大旅客便捷、安全出行。
 
-2024年以来，冯骥团队打造的《黑神话：悟空》持续圈粉海内外。
+据铁路部门消息，2026年五一假期火车票发售工作将于4月17日正式启动。
 
-当日，网络游戏《黑神话：悟空》获得“之江潮”文化奖“优秀奖”。
+其中，假期首日车票于4月17日开售，假期最后一日车票则于4月21日发售。
 
-冯骥表示，在游戏应用技术层面，中国团队与国际顶尖水平已不存在代差。
+铁路部门特别提醒，各车站车票起售时间并非统一为零点，旅客可通过铁路12306手机客户端查询具体起售时间，查询路径为：打开客户端→点击首页“我的”选项→选择“出行向导”中的“起售时间”→输入出发站名称进行查询。
 
-中国供应商在参与全球顶级3A游戏产业链的比例已超过60%，上下游生态高度成熟。
+其中，沈阳站、沈阳南站车票起售时间为9时30分，沈阳北站为9时。
 
-他说：“我们有信心跨越技术与工程管理鸿沟。
+铁路部门预测，今年五一假期跨省中长途出行需求将有所增长，主要集中在北京、上海、西安等方向；管内客流也将持续攀升，以大连、丹东、赤峰等旅游热门方向为主。
 
-事实证明，我们的第一款单机产品，在品质上完全具备了与国际标杆正面硬碰硬的基础，创造了单机游戏的历史在线纪录，迄今为止海外用户比例已接近40%。
+为满足旅客需求，沈阳站将围绕出行需求、结合历史同比客流数据，盯紧车票预售情况，及时安排增开临时旅客列车，并对部分热门方向动车组进行重联运行，确保“一日一图”精准实施，提升运力与客流匹配度。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 01:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 01:10 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 01:34 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 01:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 01:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 01:26 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 01:14 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 01:35 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 01:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 01:38 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 01:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 01:17 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:19 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 01:22 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:27 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 01:32 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 01:27 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/8886086.shtml)
-- 2026-06-30 01:18 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/776460303450.shtml)
-- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/313164229.shtml)
-- 2026-06-30 01:31 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/7882344.shtml)
-- 2026-06-30 01:20 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/174657149.shtml)
-- 2026-06-30 01:24 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/788527.shtml)
-- 2026-06-30 01:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/9034227.shtml)
-- 2026-06-30 01:31 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/1470861407.shtml)
-- 2026-06-30 01:12 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/254781192163.shtml)
-- 2026-06-30 01:15 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/0227109681.shtml)
-- 2026-06-30 01:21 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/72521873.shtml)
-- 2026-06-30 01:23 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/82076813.shtml)
-- 2026-06-30 01:11 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/8249508.shtml)
-- 2026-06-30 01:35 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/25545272753.shtml)
-- 2026-06-30 01:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/297729523.shtml)
+- 2026-06-30 01:31 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/071145.shtml)
+- 2026-06-30 01:15 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/95801.shtml)
+- 2026-06-30 01:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/4625652328.shtml)
+- 2026-06-30 01:24 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/151264685.shtml)
+- 2026-06-30 01:15 - [千香](https://www.share.kurohicncr.top/Article/details/392474.shtml)
+- 2026-06-30 01:17 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/9736464583.shtml)
+- 2026-06-30 01:41 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/83303812.shtml)
+- 2026-06-30 01:23 - [日本16强魔咒](https://www.share.minike.top/Article/details/578161261.shtml)
+- 2026-06-30 01:17 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/383615840635.shtml)
+- 2026-06-30 01:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/585616604.shtml)
+- 2026-06-30 01:17 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/2184308.shtml)
+- 2026-06-30 01:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/587634658843.shtml)
+- 2026-06-30 01:41 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/30769418217.shtml)
+- 2026-06-30 01:33 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/09712880610.shtml)
+- 2026-06-30 01:31 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/81758880856.shtml)

@@ -1,58 +1,54 @@
-# 新闻多一点｜永远的“四大队”
+# 美民主党对防长赫格塞思发起弹劾
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。 1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。其间，新华社
+新华社华盛顿4月15日电（记者杨伶 熊茂伶）美国国会众议院民主党籍议员15日提交6项针对国防部长赫格塞思的弹劾条款，指控他犯有战争罪、滥用职权、鲁莽处理敏感信息等严重不当行为。 这项弹劾动议由亚利桑那州联邦众议员亚萨明·安萨里牵头、多名民主党籍联邦众议员共同发起。6项针对赫格塞思的弹劾条款分别是：对伊朗发动“未经（国会）授权的战争”并罔顾美国军人生命安全；违反武装冲突法和以平民
 
 ## 正文
 
-在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。
+新华社华盛顿4月15日电（记者杨伶 熊茂伶）美国国会众议院民主党籍议员15日提交6项针对国防部长赫格塞思的弹劾条款，指控他犯有战争罪、滥用职权、鲁莽处理敏感信息等严重不当行为。
 
-” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。
+这项弹劾动议由亚利桑那州联邦众议员亚萨明·安萨里牵头、多名民主党籍联邦众议员共同发起。
 
-1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。
+6项针对赫格塞思的弹劾条款分别是：对伊朗发动“未经（国会）授权的战争”并罔顾美国军人生命安全；违反武装冲突法和以平民为攻击目标；疏忽和鲁莽处理敏感军事信息；妨碍国会行使监督权；滥用权力并对军队进行政治操弄；行为有损美国及其军队声誉。
 
-其间，新华社一分为二，一是社长廖承志率领新华社大多数人员转移到太行地区；二是副总编辑范长江率领一支工作队跟随党中央转战陕北，承担新闻通讯联络职责。
+美国媒体分析，由于目前共和党在众议院占微弱多数，这一弹劾动议几乎肯定无法在众议院获得通过。
 
-当时，中央纵队代号“三支队”，下辖4个大队，由范长江带队的新华社工作队，由编辑、翻译、电务和后勤等人员组成，正式定名“四大队”，最初40多人，后来发展到100余人。
+五角大楼新闻秘书金斯利·威尔逊14日称民主党人试图通过弹劾赫格塞思“博取眼球”，并继续宣称五角大楼已经压倒性地实现总统特朗普在伊朗的目标、“取得重大成就”。
 
-“中央留在陕北靠文武两条线指挥全国的革命斗争。
-
-武的一条线是通过电台指挥打仗，文的一条线是通过新华社指导舆论。
-
-”毛主席后来的这句回忆，深刻揭示了“四大队”的独特地位。
+（完）责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 01:11 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 01:18 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 01:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 01:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 01:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 01:11 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 01:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 01:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 01:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 01:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 01:19 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 01:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 01:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 01:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 01:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 01:31 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 01:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 01:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 01:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/19032315.shtml)
-- 2026-06-30 01:14 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/463383.shtml)
-- 2026-06-30 01:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/67693994.shtml)
-- 2026-06-30 01:22 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/5187651114.shtml)
-- 2026-06-30 01:20 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/75656551.shtml)
-- 2026-06-30 01:06 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/40091086061.shtml)
-- 2026-06-30 01:33 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/47184.shtml)
-- 2026-06-30 01:16 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/0828679.shtml)
-- 2026-06-30 01:11 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/336579.shtml)
-- 2026-06-30 01:18 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6429555.shtml)
-- 2026-06-30 01:33 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/303739062.shtml)
-- 2026-06-30 01:13 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/318628410.shtml)
-- 2026-06-30 01:13 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/666136797.shtml)
-- 2026-06-30 01:30 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/29188727805.shtml)
-- 2026-06-30 01:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/126442.shtml)
+- 2026-06-30 01:13 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/662726644505.shtml)
+- 2026-06-30 01:13 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/5251470256.shtml)
+- 2026-06-30 01:29 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/65482549774.shtml)
+- 2026-06-30 01:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/566898215.shtml)
+- 2026-06-30 01:41 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/007095642884.shtml)
+- 2026-06-30 01:17 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/19553.shtml)
+- 2026-06-30 01:23 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/02273508.shtml)
+- 2026-06-30 01:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/3726326.shtml)
+- 2026-06-30 01:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/4432500880.shtml)
+- 2026-06-30 01:15 - [天道](https://www.share.kurohicncr.top/Article/details/6452441.shtml)
+- 2026-06-30 01:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/4618547698.shtml)
+- 2026-06-30 01:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/585682081663.shtml)
+- 2026-06-30 01:32 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/497255.shtml)
+- 2026-06-30 01:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/0605102.shtml)
+- 2026-06-30 01:27 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/9303736.shtml)

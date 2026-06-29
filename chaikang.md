@@ -1,57 +1,59 @@
-# “熊猫”也去看世界杯了！
+# 佩戴头盔从“倡导”变“强制”！北京新规直击骑手交通违法痛点
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-2026美加墨世界杯正如火如荼。 墨西哥联邦众议院大厦内，一场来自四川的别出心裁的展览也热度不减。展览以“2026熊猫‘语’世界同行”为名，在当地收获广泛关注。 “体育盛会与文化传播双向赋能，为中外人文交流开辟全新空间。”四川省新的社会阶层人士联谊会副会长、四川省网联会监事长、四川心悦美术馆创始人魏心田如是说。 墨西哥当地时间6月9日，主题艺术展启幕，魏心田携原创熊猫系列油画亮
+新修订的《北京市非机动车管理条例》将于5月1日起实施，其中驾驶和乘坐电动自行车时佩戴安全头盔将从“倡导”变为“强制”。日常使用电动自行车的人群有普通市民，也包括不少外卖骑手。距离新规实施还有半个月，大家是否养成了戴头盔的习惯？还有哪些常见的交通违法行为？外卖平台企业又将如何履行监管责任？来看总台记者跟随交警上路调查采访情况。新修订的《北京市非机动车管理条例》将于5月1日起实施，
 
 ## 正文
 
-2026美加墨世界杯正如火如荼。
+新修订的《北京市非机动车管理条例》将于5月1日起实施，其中驾驶和乘坐电动自行车时佩戴安全头盔将从“倡导”变为“强制”。
 
-墨西哥联邦众议院大厦内，一场来自四川的别出心裁的展览也热度不减。
+日常使用电动自行车的人群有普通市民，也包括不少外卖骑手。
 
-展览以“2026熊猫‘语’世界同行”为名，在当地收获广泛关注。
+距离新规实施还有半个月，大家是否养成了戴头盔的习惯？
 
-“体育盛会与文化传播双向赋能，为中外人文交流开辟全新空间。
+还有哪些常见的交通违法行为？
 
-”四川省新的社会阶层人士联谊会副会长、四川省网联会监事长、四川心悦美术馆创始人魏心田如是说。
+外卖平台企业又将如何履行监管责任？
 
-墨西哥当地时间6月9日，主题艺术展启幕，魏心田携原创熊猫系列油画亮相拉美政治文化地标，以艺术为桥、以熊猫为媒，为中墨文明互鉴、民心相通写下生动注脚。
+来看总台记者跟随交警上路调查采访情况。
 
-墨西哥联邦众议院墨中议会友好小组议员认为，展览为两国文明互鉴与民心相通贡献力量。
+新修订的《北京市非机动车管理条例》将于5月1日起实施，交警对骑手和普通市民开展宣传提示：现行的非机动车管理条例规定是提倡戴头盔，但是新修订的非机动车管理条例执行以后，是强制要求戴头盔，这戴头盔从可选项变成必选项。
 
-中墨建交54年，中国早年赠予墨西哥的大熊猫“迎迎”“贝贝”及它们的后代——今年36岁的“欣欣”，早已成为两国民众心中跨越世代的友好印记，为文化交流埋下情感根基。
+根据路查情况，外卖骑手的头盔佩戴率明显高于骑乘电动车的普通市民，北京公安交通管理局安全监督管理支队民警陈瀚彬告诉记者，骑手现在经过交警和行业主管部门还有企业定期指导督促，头盔佩戴率基本上能到90%，但是普通市民还没有达到。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 01:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 01:17 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 01:24 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 01:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 01:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 01:16 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 01:17 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 01:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 01:17 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 01:32 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 01:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 01:16 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 01:20 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 01:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:18 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 01:12 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 01:41 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 01:23 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 01:32 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/3508635151.shtml)
-- 2026-06-30 01:28 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/2384022073.shtml)
-- 2026-06-30 01:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/450721.shtml)
-- 2026-06-30 01:30 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/19973120079.shtml)
-- 2026-06-30 01:11 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/778776.shtml)
-- 2026-06-30 01:28 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/08200079.shtml)
-- 2026-06-30 01:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/374620825.shtml)
-- 2026-06-30 01:21 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/931865.shtml)
-- 2026-06-30 01:34 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/777706.shtml)
-- 2026-06-30 01:06 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/648678845.shtml)
-- 2026-06-30 01:20 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/61727885009.shtml)
-- 2026-06-30 01:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/8306864.shtml)
-- 2026-06-30 01:28 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/8968994809.shtml)
-- 2026-06-30 01:21 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/06228332535.shtml)
-- 2026-06-30 01:10 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/63699.shtml)
+- 2026-06-30 01:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/451994398.shtml)
+- 2026-06-30 01:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/33019594550.shtml)
+- 2026-06-30 01:22 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/89056861.shtml)
+- 2026-06-30 01:41 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/4576500.shtml)
+- 2026-06-30 01:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/66122616680.shtml)
+- 2026-06-30 01:31 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/02949268.shtml)
+- 2026-06-30 01:36 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/68991.shtml)
+- 2026-06-30 01:40 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/1678684.shtml)
+- 2026-06-30 01:12 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/8170670.shtml)
+- 2026-06-30 01:12 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/653315.shtml)
+- 2026-06-30 01:33 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/41791.shtml)
+- 2026-06-30 01:13 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/70616926.shtml)
+- 2026-06-30 01:13 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1816878.shtml)
+- 2026-06-30 01:21 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/4153095.shtml)
+- 2026-06-30 01:41 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/6781974340.shtml)

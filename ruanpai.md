@@ -1,44 +1,56 @@
-# 冠豪高新：公司自有设备完成环节为碳纤维湿法抄造成型
+# 人才缺口百万、企业直招进校：安徽万通技师学院的“产教融合”样本
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，冠豪高新在互动平台回答投资者提问时表示，公司自有设备完成环节为碳纤维湿法抄造成型。（文章来源：证券日报）
+新能源汽车行业的人才供需错配，正在从“招聘难”演变为“上岗更难”。官方数据显示，仅新能源汽车维修领域，全国缺口即超百万人。智能制造、PLC编程、工业机器人等岗位供需矛盾同样突出。企业频繁进校，却常遇“招得来、用不上”。 4月15日，中国东方教育（00667.HK）旗下安徽万通技师学院的一场春季招聘会，提供了一个可量化的对照样本：比亚迪、奇瑞、途虎等70余家企业携上千岗位进场，新
 
 ## 正文
 
-证券日报网讯 6月18日，冠豪高新在互动平台回答投资者提问时表示，公司自有设备完成环节为碳纤维湿法抄造成型。
+新能源汽车行业的人才供需错配，正在从“招聘难”演变为“上岗更难”。
 
-（文章来源：证券日报）
+官方数据显示，仅新能源汽车维修领域，全国缺口即超百万人。
+
+智能制造、PLC编程、工业机器人等岗位供需矛盾同样突出。
+
+企业频繁进校，却常遇“招得来、用不上”。
+
+4月15日，中国东方教育（00667.HK）旗下安徽万通技师学院的一场春季招聘会，提供了一个可量化的对照样本：比亚迪、奇瑞、途虎等70余家企业携上千岗位进场，新能源及智能制造岗位占比超六成，多名学生当场获录用意向。
+
+一所技师学院，为何被头部企业视为定点招聘基地？
+
+核心机制在于产教融合的具体落地方式。
+
+传统职业教育长期存在“校热企冷”的问题——学校教的内容滞后于企业需求，学生毕业需要企业再培训3至6个月才能上岗。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:31 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 01:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 01:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 01:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 01:18 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 01:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 01:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 01:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 01:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 01:30 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 01:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:25 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 01:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 01:30 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 01:36 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 01:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 01:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1077206761.shtml)
-- 2026-06-30 01:33 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/71060954.shtml)
-- 2026-06-30 01:22 - [我和我的家乡](http://www.blog.minike.top/Article/details/54418763.shtml)
-- 2026-06-30 01:22 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/227536902.shtml)
-- 2026-06-30 01:20 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/345850813568.shtml)
-- 2026-06-30 01:29 - [天道](https://www.share.minike.top/Article/details/9692624106.shtml)
-- 2026-06-30 01:16 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/94976325680.shtml)
-- 2026-06-30 01:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/20902927698.shtml)
-- 2026-06-30 01:25 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/392735795.shtml)
-- 2026-06-30 01:31 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/54392531716.shtml)
-- 2026-06-30 01:20 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/858767.shtml)
-- 2026-06-30 01:13 - [我们的少年时代2](http://www.share.minike.top/Article/details/82374922.shtml)
-- 2026-06-30 01:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/18619182716.shtml)
-- 2026-06-30 01:13 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/85317096.shtml)
-- 2026-06-30 01:30 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/022550.shtml)
+- 2026-06-30 01:24 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/762850158139.shtml)
+- 2026-06-30 01:16 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/84005916952.shtml)
+- 2026-06-30 01:42 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/13151064710.shtml)
+- 2026-06-30 01:28 - [刘念回应](http://www.blog.minike.top/Article/details/543394.shtml)
+- 2026-06-30 01:36 - [女心理师](http://www.blog.minike.top/Article/details/89128.shtml)
+- 2026-06-30 01:24 - [美股](https://www.blog.kurohicncr.top/Article/details/123332.shtml)
+- 2026-06-30 01:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4911855.shtml)
+- 2026-06-30 01:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/6888299.shtml)
+- 2026-06-30 01:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/21874725572.shtml)
+- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/9304231731.shtml)
+- 2026-06-30 01:32 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/18893230.shtml)
+- 2026-06-30 01:15 - [千与千寻](http://www.share.kurohicncr.top/Article/details/31273469015.shtml)
+- 2026-06-30 01:13 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/280205742.shtml)
+- 2026-06-30 01:35 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/237568574126.shtml)
+- 2026-06-30 01:13 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/02945524.shtml)

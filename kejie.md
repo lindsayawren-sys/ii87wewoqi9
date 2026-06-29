@@ -1,50 +1,57 @@
-# 特朗普称苹果将与英特尔合作在美国生产芯片
+# 高盛：降港交所目标价至528港元 予“买入”评级
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-美国总统特朗普周四在 Truth Social 上发帖称，苹果公司已同意与英特尔合作，在美国设计和制造其芯片。 上个月有报道称，经过一年多的讨论，英特尔已达成初步协议，为苹果生产部分芯片。 与英特尔的交易有助于苹果实现制造基地多元化，以寻求更多的芯片产能。目前苹果高度依赖台积电，而台积电的先进制程产线正被英伟达和AMD等 AI 芯片制造商大量抢占。责任编辑：于健 SF069
+高盛发布研报称，更新港交所（00388）预测模型，目标价由546港元下调至528港元，评级“买入”，对应2027年预测市盈率35倍。 该行表示，3月份现金日均成交较该行预测低2%，主要由于南向交易活动逊预期，但被非南向成交增加部分抵销。衍生产品成交则表现强劲，股票及商品衍生产品均录得强劲按季增长。该行上调首季交易费及存管费用预测1%，收入及纯利预测上调2%及3%，预计首季纯利同
 
 ## 正文
 
-美国总统特朗普周四在 Truth Social 上发帖称，苹果公司已同意与英特尔合作，在美国设计和制造其芯片。
+高盛发布研报称，更新港交所（00388）预测模型，目标价由546港元下调至528港元，评级“买入”，对应2027年预测市盈率35倍。
 
-上个月有报道称，经过一年多的讨论，英特尔已达成初步协议，为苹果生产部分芯片。
+该行表示，3月份现金日均成交较该行预测低2%，主要由于南向交易活动逊预期，但被非南向成交增加部分抵销。
 
-与英特尔的交易有助于苹果实现制造基地多元化，以寻求更多的芯片产能。
+衍生产品成交则表现强劲，股票及商品衍生产品均录得强劲按季增长。
 
-目前苹果高度依赖台积电，而台积电的先进制程产线正被英伟达和AMD等 AI 芯片制造商大量抢占。
+该行上调首季交易费及存管费用预测1%，收入及纯利预测上调2%及3%，预计首季纯利同比增长14%。
 
-责任编辑：于健 SF069
+鉴于中东冲突持续，高盛将MSCI中国及沪深300指数目标下调5%及4%，以反映全球滞胀风险、美国利率更趋僵持及地缘政治风险溢价持续。
+
+该行相应下调2026年日均成交预测3%，以反映较低的市值预测，并维持成交速渡假设不变，2026年每股盈利预测下调2%。
+
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 01:35 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 01:28 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 01:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 01:10 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 01:20 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 01:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 01:21 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 01:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 01:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 01:12 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 01:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 01:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 01:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 01:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 01:18 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 01:37 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:21 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 01:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 01:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 01:33 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/257678.shtml)
-- 2026-06-30 01:22 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/2601256.shtml)
-- 2026-06-30 01:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/313149156323.shtml)
-- 2026-06-30 01:23 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/808880585302.shtml)
-- 2026-06-30 01:35 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/678729156.shtml)
-- 2026-06-30 01:12 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/80557891079.shtml)
-- 2026-06-30 01:13 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/670178.shtml)
-- 2026-06-30 01:33 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/20017.shtml)
-- 2026-06-30 01:11 - [小娘惹](http://www.share.minike.top/Article/details/1601775.shtml)
-- 2026-06-30 01:32 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/242452.shtml)
-- 2026-06-30 01:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/60489499452.shtml)
-- 2026-06-30 01:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/25819675402.shtml)
-- 2026-06-30 01:34 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/765755380.shtml)
-- 2026-06-30 01:26 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/462662.shtml)
-- 2026-06-30 01:31 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/4494648761.shtml)
+- 2026-06-30 01:29 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/5287626.shtml)
+- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/502516657.shtml)
+- 2026-06-30 01:29 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/486108.shtml)
+- 2026-06-30 01:35 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/1636323.shtml)
+- 2026-06-30 01:16 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/8785413.shtml)
+- 2026-06-30 01:40 - [千与千寻](https://www.share.kurohicncr.top/Article/details/82777.shtml)
+- 2026-06-30 01:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/254364.shtml)
+- 2026-06-30 01:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/6910134283.shtml)
+- 2026-06-30 01:17 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/99889836877.shtml)
+- 2026-06-30 01:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/394058.shtml)
+- 2026-06-30 01:18 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/31852320034.shtml)
+- 2026-06-30 01:22 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/045448751307.shtml)
+- 2026-06-30 01:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0042339633.shtml)
+- 2026-06-30 01:27 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/010300140767.shtml)
+- 2026-06-30 01:16 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/0226773618.shtml)

@@ -1,53 +1,57 @@
-# GTC泽汇资本:金价下跌再看支撑
+# 天时地利人和 造就浙江常山亿年地质传奇
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。 按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。 从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数
+中新网衢州4月16日电(项菁)保存着亚洲东部近10亿年连续地层，拥有中国首枚“金钉子”，幼年期生物礁喀斯特石林与碧水青山交融……位于浙江西部的衢州常山，近日成功跻身世界地质公园行列。 在法国巴黎召开的联合国教科文组织执行局第224届会议上，这一结果正式公布。“可以说圆了常山30年来的地质梦。”得知喜讯，常山地质公园管理中心党组成员、副主任秦海浪难掩激动。 实现这一地质梦，靠的正
 
 ## 正文
 
-6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。
+中新网衢州4月16日电(项菁)保存着亚洲东部近10亿年连续地层，拥有中国首枚“金钉子”，幼年期生物礁喀斯特石林与碧水青山交融……位于浙江西部的衢州常山，近日成功跻身世界地质公园行列。
 
-按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。
+在法国巴黎召开的联合国教科文组织执行局第224届会议上，这一结果正式公布。
 
-从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数据使紧缩预期边际降温，贵金属也有机会逐步修复失地。
+“可以说圆了常山30年来的地质梦。
 
-综合来看，GTC泽汇资本预计后续仍需跟踪收益率、美元和风险偏好是否同步变化，金价在当前区间的稳定程度，将决定下一阶段波动是继续放大还是开始收敛。
+”得知喜讯，常山地质公园管理中心党组成员、副主任秦海浪难掩激动。
 
-责任编辑：陈平
+实现这一地质梦，靠的正是天时、地利、人和三重优势。
+
+天时：亿年积淀铸就地层传奇 常山地处浙闽赣皖四省九市之交，漫长的地质演化，造就了得天独厚的地层禀赋。
+
+据了解，常山世界地质公园总面积1043.10平方千米，完整保存着新元古代至新生代连续地层，是亚洲东部近10亿年地质演化序列最连续的区域之一。
+
+这里镌刻着地球演化的清晰年轮。
 
 ## 相关推荐
 
-- 2026-06-30 01:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 01:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 01:25 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 01:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 01:21 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 01:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:35 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 01:20 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 01:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 01:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 01:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 01:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:26 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 01:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 01:36 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 01:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 01:30 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 01:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 01:35 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 01:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 01:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 01:27 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 01:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/63978132.shtml)
-- 2026-06-30 01:35 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/09631618486.shtml)
-- 2026-06-30 01:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/3177117177.shtml)
-- 2026-06-30 01:34 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/836816758.shtml)
-- 2026-06-30 01:26 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/191177175.shtml)
-- 2026-06-30 01:18 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/48646208.shtml)
-- 2026-06-30 01:11 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/01568.shtml)
-- 2026-06-30 01:28 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/641677233637.shtml)
-- 2026-06-30 01:13 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/6767231614.shtml)
-- 2026-06-30 01:22 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/91803143447.shtml)
-- 2026-06-30 01:13 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/239813697.shtml)
-- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/84725137.shtml)
-- 2026-06-30 01:13 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/49718873749.shtml)
-- 2026-06-30 01:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/697301577.shtml)
-- 2026-06-30 01:33 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/4420290.shtml)
+- 2026-06-30 01:35 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/9713742183.shtml)
+- 2026-06-30 01:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/35633.shtml)
+- 2026-06-30 01:34 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/43274.shtml)
+- 2026-06-30 01:13 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/8385763803.shtml)
+- 2026-06-30 01:26 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/9780559.shtml)
+- 2026-06-30 01:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/31410.shtml)
+- 2026-06-30 01:33 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/45458.shtml)
+- 2026-06-30 01:24 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/232344200.shtml)
+- 2026-06-30 01:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/92427567.shtml)
+- 2026-06-30 01:27 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/26385.shtml)
+- 2026-06-30 01:25 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/2950454669.shtml)
+- 2026-06-30 01:35 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/302716553256.shtml)
+- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/19672563.shtml)
+- 2026-06-30 01:27 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/644025229.shtml)
+- 2026-06-30 01:28 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/38838021024.shtml)

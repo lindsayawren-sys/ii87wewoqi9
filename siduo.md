@@ -1,56 +1,59 @@
-# 受暴雨影响 重庆火车站停运列车9趟
+# 广佛同城再提速 从“物理相邻”到“发展相融”
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月18日电 (张旭)中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)18日发布消息称，受暴雨天气影响，当日，重庆火车站停运列车9趟。其中，重庆北站停运7趟，重庆西站停运2趟。 停运列车主要为重庆开往深圳东、长沙、温州、福州、汉口、北京西、昆明、遵义等车站的车次。 重庆火车站已全面启动防汛安全应急保障工作机制，实时梳理列车晚点、停运信息并通过车站显示屏和公
+中新网广州4月16日电 (记者 王坚)“广佛同城金沙同心”金沙洲片区广佛同城合作共建活动15日在广州市白云区举行，白云区金沙街与佛山市南海区大沥镇、里水镇正式签署深度合作共建协议，同步发布2026年十项同城民生实事，标志着这片广佛交界的核心区，从地域接壤迈向治理、服务、文化全方位深度融合，为广佛全域同城化打造基层协同新样板。 活动现场，金沙街与大沥镇、里水镇共同签署深度合作共建
 
 ## 正文
 
-中新网重庆6月18日电 (张旭)中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)18日发布消息称，受暴雨天气影响，当日，重庆火车站停运列车9趟。
+中新网广州4月16日电 (记者 王坚)“广佛同城金沙同心”金沙洲片区广佛同城合作共建活动15日在广州市白云区举行，白云区金沙街与佛山市南海区大沥镇、里水镇正式签署深度合作共建协议，同步发布2026年十项同城民生实事，标志着这片广佛交界的核心区，从地域接壤迈向治理、服务、文化全方位深度融合，为广佛全域同城化打造基层协同新样板。
 
-其中，重庆北站停运7趟，重庆西站停运2趟。
+活动现场，金沙街与大沥镇、里水镇共同签署深度合作共建协议，将此前城市治理一体化框架合作推向实操层面，构建起党建共建、城市共管、社会共治、经济互促、民生互惠、文化互融六大协同体系，推动合作常态化、规范化，为区域高质量发展筑牢制度根基。
 
-停运列车主要为重庆开往深圳东、长沙、温州、福州、汉口、北京西、昆明、遵义等车站的车次。
+签约仪式上，三方同步发布十项民生实事，聚焦骑手友好设施、同心路与同心湖建设、跨域应急协作、普法义诊、就业招聘、文体交流等群众急难愁盼问题，把同城红利转化为可感可及的民生福祉，切实打通服务群众“最后一公里”。
 
-重庆火车站已全面启动防汛安全应急保障工作机制，实时梳理列车晚点、停运信息并通过车站显示屏和公告栏做好信息发布；重庆北站、重庆西站等站点同步增设退票改签服务专窗，快速为旅客办理改签退票手续。
+现场还为广佛金沙洲片区共享社区学院揭牌。
 
-同时，重庆火车站加强进站口、候车厅、服务台等区域宣传解释，引导旅客使用12306手机客户端办理自助退票改签。
+据了解，该学院将整合三方家政、就业、技能培训等资源，搭建跨域学习交流平台，以人才培育夯实同城融合根基。
 
-此外，重庆火车站积极联动地方交通部门，实时对接晚点、停运列车及旅客信息，制定转运方案，优化接驳服务，全力保障旅客出行。
+在文化交流环节，三方互赠非遗文创与特色工艺礼品，以文化为纽带凝聚情感认同，让“广佛一家亲”理念深入人心。
 
-重庆火车站温馨提示，受暴雨天气和端午假期运输影响，重庆火车站列车变化情况较多，请广大旅客实时关注12306网站、官方客户端及车站公告大屏发布的动态信息，合理调整出行计划，避免耽误行程。
+据了解，作为广佛同城的前沿阵地，金沙洲片区数十万群众跨城生活，长期面临行政边界带来的治理、交通、服务等堵点难点问题。
 
-(完)
+此次三方携手，以协议定方向、以实事惠民生、以平台聚合力，破解跨域治理壁垒，推动资源共享、优势互补、发展共促，实现从“物理相邻”到“发展相融”的关键一跃。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 01:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 01:34 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 01:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 01:27 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 01:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 01:30 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 01:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 01:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 01:33 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 01:18 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:41 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 01:29 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 01:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 01:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 01:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 01:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 01:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 01:16 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 01:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 01:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 01:22 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/985105579.shtml)
-- 2026-06-30 01:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/577015.shtml)
-- 2026-06-30 01:21 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/1957262563.shtml)
-- 2026-06-30 01:34 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/91270774.shtml)
-- 2026-06-30 01:14 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/08942.shtml)
-- 2026-06-30 01:13 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/04362.shtml)
-- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/7238386.shtml)
-- 2026-06-30 01:16 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/46995.shtml)
-- 2026-06-30 01:15 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/1939858.shtml)
-- 2026-06-30 01:31 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/28691.shtml)
-- 2026-06-30 01:08 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/267748.shtml)
-- 2026-06-30 01:33 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/71011946474.shtml)
-- 2026-06-30 01:35 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/048583158.shtml)
-- 2026-06-30 01:10 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/4030017255.shtml)
-- 2026-06-30 01:28 - [绘画区你赢了](http://www.blog.minike.top/Article/details/1663344.shtml)
+- 2026-06-30 01:34 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/4344054391.shtml)
+- 2026-06-30 01:30 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/7889814221.shtml)
+- 2026-06-30 01:33 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/41858071826.shtml)
+- 2026-06-30 01:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/30531335118.shtml)
+- 2026-06-30 01:38 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/277469833.shtml)
+- 2026-06-30 01:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/549892.shtml)
+- 2026-06-30 01:16 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/294720958482.shtml)
+- 2026-06-30 01:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/429463.shtml)
+- 2026-06-30 01:29 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/315970.shtml)
+- 2026-06-30 01:21 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/2292006378.shtml)
+- 2026-06-30 01:36 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/660183620.shtml)
+- 2026-06-30 01:34 - [流金岁月](https://www.share.minike.top/Article/details/32955358819.shtml)
+- 2026-06-30 01:33 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/875706078848.shtml)
+- 2026-06-30 01:22 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/04351.shtml)
+- 2026-06-30 01:23 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/118323793.shtml)

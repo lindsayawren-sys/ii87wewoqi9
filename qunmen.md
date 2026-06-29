@@ -1,60 +1,56 @@
-# 上交所发布人工智能大模型企业适用科创板第五套上市标准审核指引
+# OpenAI据悉将斥资超200亿美元购买Cerebras芯片并获得股份
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上交所发布 为了贯彻落实《中国证监会关于在科创板设置科创成长层 增强制度包容性适应性的意见》，上海证券交易所（以下简称上交所）今日正式发布《上海证券交易所发行上市审核规则适用指引第10号——人工智能大模型企业适用科创板第五套上市标准》（以下简称《指引》）。 当前，人工智能是发展新质生产力重要推动力量，
+据The Information援引消息人士的话报道，OpenAI已同意在未来三年内向芯片初创公司 Cerebras支付200多亿美元，以使用该公司芯片驱动的服务器，这笔交易也可能让OpenAI获得该公司的股权。 这一进展正值 OpenAI 试图在人工智能竞赛中拔得头筹并满足日益增长的需求之际。今年1月，该公司同意在三年内从Cerebras公司购买多达750兆瓦的计算能力，交易
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据The Information援引消息人士的话报道，OpenAI已同意在未来三年内向芯片初创公司 Cerebras支付200多亿美元，以使用该公司芯片驱动的服务器，这笔交易也可能让OpenAI获得该公司的股权。
 
-来源：上交所发布 为了贯彻落实《中国证监会关于在科创板设置科创成长层 增强制度包容性适应性的意见》，上海证券交易所（以下简称上交所）今日正式发布《上海证券交易所发行上市审核规则适用指引第10号——人工智能大模型企业适用科创板第五套上市标准》（以下简称《指引》）。
+这一进展正值 OpenAI 试图在人工智能竞赛中拔得头筹并满足日益增长的需求之际。
 
-当前，人工智能是发展新质生产力重要推动力量，大模型是人工智能产业链的主要技术引擎，是新一轮科技革命与产业变革的关键载体，已成为全球科技竞争的焦点，需持续进行高强度技术开发、算力投入及引进专业化人才。
+今年1月，该公司同意在三年内从Cerebras公司购买多达750兆瓦的计算能力，交易价值超过100亿美元 （link）。
 
-经过多年努力，我国人工智能大模型企业已处于大规模商业化进程的关键时期，亟需发挥资本市场的支持作用。
+新承诺的规模是OpenAI此前 报道的与芯片制造商协议的两倍。
 
-《指引》遵循科创板第五套上市标准相关要求，结合人工智能大模型领域科技创新实际情况，对明显技术优势、阶段性成果、取得国家有关部门批准以及市场空间大等四方面作出具体规定。
+这笔交易凸显了业界对运行推理（人工智能模型生成响应的过程）的计算能力的需求日益增长。
 
-其中，将适用科创板第五套上市标准的阶段性成果明确为：“在申报时至少有一个大模型产品已完成上线发布并实现规模化应用”。
+报道称，Cerebras最快可能在周五披露其与OpenAI之前未披露的部分协议。
 
-模型上线发布及实现规模化应用是大模型产品商业模式可行、具备商业化落地能力的有力验证。
+据The Information报道，根据该交易，OpenAI 将获得 Cerebras 少数股权的认股权证，随着其支出的增加，OpenAI 的所有权可能会增加。
 
-同时，《指引》将发行人主营业务明确为“人工智能大模型的自主研发、模型服务或者模型应用等”，支持通用大模型和行业专用模型同步适用《指引》。
+报道还称，OpenAI还同意向Cerebras提供约10亿美元，用于资助其开发运行人工智能产品的数据中心。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 01:16 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 01:33 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 01:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 01:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 01:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 01:35 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 01:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 01:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 01:19 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 01:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 01:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:21 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 01:33 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:30 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 01:27 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 01:34 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 01:15 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 01:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 01:22 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 01:34 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 01:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 01:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/978334166.shtml)
-- 2026-06-30 01:34 - [巴西vs日本](https://www.share.minike.top/Article/details/10905770589.shtml)
-- 2026-06-30 01:20 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/370427.shtml)
-- 2026-06-30 01:17 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/454054613582.shtml)
-- 2026-06-30 01:13 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/19688447.shtml)
-- 2026-06-30 01:19 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/78236463.shtml)
-- 2026-06-30 01:23 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/46216992.shtml)
-- 2026-06-30 01:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/537217013.shtml)
-- 2026-06-30 01:24 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/07153740960.shtml)
-- 2026-06-30 01:32 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/6114615.shtml)
-- 2026-06-30 01:15 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/38344551.shtml)
-- 2026-06-30 01:09 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/199560555160.shtml)
-- 2026-06-30 01:30 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/389503766043.shtml)
-- 2026-06-30 01:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/22485.shtml)
-- 2026-06-30 01:10 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/76243103.shtml)
+- 2026-06-30 01:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/297304.shtml)
+- 2026-06-30 01:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/992454.shtml)
+- 2026-06-30 01:27 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/073826591287.shtml)
+- 2026-06-30 01:40 - [恋与深空 日服](http://www.share.minike.top/Article/details/061825048496.shtml)
+- 2026-06-30 01:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/50602507.shtml)
+- 2026-06-30 01:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/6368800369.shtml)
+- 2026-06-30 01:27 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/0750921120.shtml)
+- 2026-06-30 01:31 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/593328137373.shtml)
+- 2026-06-30 01:26 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/25806.shtml)
+- 2026-06-30 01:31 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/3193239033.shtml)
+- 2026-06-30 01:19 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/863341642.shtml)
+- 2026-06-30 01:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/8346276.shtml)
+- 2026-06-30 01:39 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/544085.shtml)
+- 2026-06-30 01:20 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/36137881.shtml)
+- 2026-06-30 01:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/99583.shtml)

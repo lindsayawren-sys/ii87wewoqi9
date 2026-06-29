@@ -1,57 +1,55 @@
-# 云南五部门提出20项举措抓实民族团结进步促进法学习宣传贯彻工作
+# 现货黄金跌超1% 亚太早盘曾涨向4800美元
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一
+周三（4月15日）纽约尾盘，现货黄金跌1.08%，报4789.13美元/盎司，整体持续走低，亚太早盘曾出现一波冲高回落行情——北京时间09：18刷新日高至4871.42美元。 COMEX黄金期货跌0.74%，报4814.20美元/盎司，09：18也曾涨至4895.40美元刷新日高。 现货白银跌0.78%，报78.93美元/盎司。COMEX白银期货跌0.34%，报79.260美元
 
 ## 正文
 
-近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。
+周三（4月15日）纽约尾盘，现货黄金跌1.08%，报4789.13美元/盎司，整体持续走低，亚太早盘曾出现一波冲高回落行情——北京时间09：18刷新日高至4871.42美元。
 
-《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一课”、主题党日等组织生活。
+COMEX黄金期货跌0.74%，报4814.20美元/盎司，09：18也曾涨至4895.40美元刷新日高。
 
-抓好系统培训，将法律纳入各级党校(行政学院)、社会主义学院、干部学院、全省公职人员年度学法内容和领导干部任职培训，实现全省民委系统干部进行全员轮训，省委民族团结进步示范区建设工作领导小组成员单位、铸牢中华民族共同体意识研究基地、教育实践基地等重点对象全覆盖。
+现货白银跌0.78%，报78.93美元/盎司。
 
-《方案》强调，加大宣传教育力度，组建民族团结进步促进法宣讲团，将法律纳入“思奇宣讲·百千万行”理论宣讲活动，广泛开展主题征文、演讲比赛、知识竞答等互动活动，推出权威访谈。
+COMEX白银期货跌0.34%，报79.260美元/盎司。
 
-深化全媒体传播，创作一批群众喜闻乐见的融媒体产品，制作一批“双语”普法音视频和有声读物。
+COMEX铜期货跌0.11%，报6.1370美元/磅。
 
-结合“法治宣传边关行”“法治宣传固边防”活动，把民族团结进步促进法宣传与边疆治理、国门党建深度融合；推动民族团结进步促进法进机关、进社区、进乡村、进学校、进企业、进文博场所、进景区、进边境口岸、进社会组织、进宗教活动场所“十进”普法活动，在全社会营造铸牢中华民族共同体意识的良好氛围。
+现货铂金涨0.34%，美元/盎司；现货钯金跌1.17%。
 
-《方案》要求，要扎实做好法律贯彻实施工作。
-
-一是构筑共有精神家园。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 01:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 01:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 01:33 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 01:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 01:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 01:12 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 01:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 01:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 01:06 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 01:36 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 01:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 01:15 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 01:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 01:21 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 01:13 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 01:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 01:39 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 01:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 01:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/0932767758.shtml)
-- 2026-06-30 01:10 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/246928.shtml)
-- 2026-06-30 01:08 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/50271687.shtml)
-- 2026-06-30 01:12 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/250347863.shtml)
-- 2026-06-30 01:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/0943065551.shtml)
-- 2026-06-30 01:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/686213418.shtml)
-- 2026-06-30 01:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/31139.shtml)
-- 2026-06-30 01:07 - [流金岁月](http://www.share.minike.top/Article/details/0667981188.shtml)
-- 2026-06-30 01:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/20403166.shtml)
-- 2026-06-30 01:32 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/68093311647.shtml)
-- 2026-06-30 01:30 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/971294668976.shtml)
-- 2026-06-30 01:12 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/646646.shtml)
-- 2026-06-30 01:17 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/36488.shtml)
-- 2026-06-30 01:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/8817514.shtml)
-- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/52126074048.shtml)
+- 2026-06-30 01:34 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/097867.shtml)
+- 2026-06-30 01:23 - [巴西vs日本](http://www.share.minike.top/Article/details/00917.shtml)
+- 2026-06-30 01:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/961691.shtml)
+- 2026-06-30 01:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/741468.shtml)
+- 2026-06-30 01:31 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/1187906.shtml)
+- 2026-06-30 01:14 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/40753.shtml)
+- 2026-06-30 01:21 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/15344863.shtml)
+- 2026-06-30 01:21 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/4326424.shtml)
+- 2026-06-30 01:41 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/996693732280.shtml)
+- 2026-06-30 01:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/40477870118.shtml)
+- 2026-06-30 01:12 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/92379665534.shtml)
+- 2026-06-30 01:15 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/90637649.shtml)
+- 2026-06-30 01:39 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/76476717901.shtml)
+- 2026-06-30 01:27 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/86900344720.shtml)
+- 2026-06-30 01:13 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/03597032802.shtml)

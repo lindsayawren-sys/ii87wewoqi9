@@ -1,61 +1,59 @@
-# 美国与伊朗公布谅解备忘录文本全文
+# 谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-新华社华盛顿/德黑兰6月17日电(记者黄强 赵伟宏)伊朗官方媒体17日公布了同美国达成的谅解备忘录条款内容。同日，美国政府高级官员也通过媒体公布了谅解备忘录正式文本。双方文本内容基本一致，全文如下： 1.美国、伊朗及其在当前战争中的盟友签署本谅解备忘录，声明立即并永久停止包括黎巴嫩在内的所有战线的军事行动；承诺今后互不发动战争或军事行动，互不使用武力或以武力相威胁；并确保黎巴嫩
+据科技媒体The Information周四（4月16日）报道，谷歌母公司Alphabet正与美国国防部就一项机密人工智能合作协议进行谈判，此举标志着谷歌在AI军备竞赛中加速追赶竞争对手，并彻底扭转此前与军方合作的谨慎立场。 谈判核心：Gemini模型进驻机密环境 报道援引两位直接知情人士的消息称，谷歌与五角大楼正在商讨一项协议，拟允许美国国防部在机密环境中部署谷歌的Gemin
 
 ## 正文
 
-新华社华盛顿/德黑兰6月17日电(记者黄强 赵伟宏)伊朗官方媒体17日公布了同美国达成的谅解备忘录条款内容。
+据科技媒体The Information周四（4月16日）报道，谷歌母公司Alphabet正与美国国防部就一项机密人工智能合作协议进行谈判，此举标志着谷歌在AI军备竞赛中加速追赶竞争对手，并彻底扭转此前与军方合作的谨慎立场。
 
-同日，美国政府高级官员也通过媒体公布了谅解备忘录正式文本。
+谈判核心：Gemini模型进驻机密环境 报道援引两位直接知情人士的消息称，谷歌与五角大楼正在商讨一项协议，拟允许美国国防部在机密环境中部署谷歌的Gemini人工智能模型。
 
-双方文本内容基本一致，全文如下： 1.美国、伊朗及其在当前战争中的盟友签署本谅解备忘录，声明立即并永久停止包括黎巴嫩在内的所有战线的军事行动；承诺今后互不发动战争或军事行动，互不使用武力或以武力相威胁；并确保黎巴嫩的领土完整与主权。
+若协议达成，五角大楼将被授权在“所有合法用途”中使用谷歌的人工智能技术。
 
-最终协议将确认包括黎巴嫩在内的所有战线战争的永久结束，以及本条款中的其他规定。
+红线与制约：自主武器与大规模监控 在谈判过程中，谷歌方面展现出对伦理边界的考量。
 
-2.美国与伊朗承诺相互尊重主权和领土完整，互不干涉内政。
+据悉，谷歌已在拟议的合同中提出附加条款，旨在防止其人工智能技术被用于美国国内的大规模监控，或在缺乏“适当”人工监督的情况下被用于自主武器系统。
 
-3.美国与伊朗承诺在最多60天内进行谈判并达成最终协议，该期限经双方同意可延长。
+这一做法与OpenAI此前与五角大楼达成协议时的条款保持一致，被视为平衡商业利益与技术伦理的尝试。
 
-4.本谅解备忘录签署后，美国将立即着手解除对伊朗的海上封锁及针对该国的任何干扰或阻碍行为，并将在30天内完全解除海上封锁。
+背景透视：从“Maven项目”风波到“全面拥抱” 此次谈判标志着谷歌与军方关系的显著逆转，也意味着谷歌正积极填补Anthropic退出后留下的市场空白。
 
-在此期间，船只通行量将与伊朗恢复的战前通行量保持相应比例。
+2018年（冰点）：谷歌在员工大规模抗议下，被迫退出旨在利用AI分析无人机镜头的美军“Maven项目”，并发布了禁止将AI用于武器的使用原则。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 01:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 01:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 01:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:19 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 01:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 01:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 01:13 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 01:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:18 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 01:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 01:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 01:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 01:35 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 01:26 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 01:29 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:21 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 01:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 01:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:25 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 01:41 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 01:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 01:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 01:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 01:23 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 01:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/96546975.shtml)
-- 2026-06-30 01:24 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2200654.shtml)
-- 2026-06-30 01:34 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/658930246450.shtml)
-- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/601370440748.shtml)
-- 2026-06-30 01:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/6241812.shtml)
-- 2026-06-30 01:09 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/4116704.shtml)
-- 2026-06-30 01:22 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/654933547.shtml)
-- 2026-06-30 01:26 - [千与千寻](http://www.blog.minike.top/Article/details/1360183180.shtml)
-- 2026-06-30 01:27 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/080526615.shtml)
-- 2026-06-30 01:15 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/074594810.shtml)
-- 2026-06-30 01:33 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/29872361264.shtml)
-- 2026-06-30 01:31 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/36854400572.shtml)
-- 2026-06-30 01:11 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/4789653438.shtml)
-- 2026-06-30 01:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/35806.shtml)
-- 2026-06-30 01:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/1131226339.shtml)
+- 2026-06-30 01:40 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/8502893961.shtml)
+- 2026-06-30 01:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/36100411376.shtml)
+- 2026-06-30 01:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/88218513802.shtml)
+- 2026-06-30 01:36 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/83444207782.shtml)
+- 2026-06-30 01:39 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/653116.shtml)
+- 2026-06-30 01:18 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/2995674895.shtml)
+- 2026-06-30 01:36 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/27149058379.shtml)
+- 2026-06-30 01:16 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/13758006732.shtml)
+- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/02733427653.shtml)
+- 2026-06-30 01:38 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/1608387510.shtml)
+- 2026-06-30 01:28 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/50187327661.shtml)
+- 2026-06-30 01:31 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/227375949243.shtml)
+- 2026-06-30 01:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/71265.shtml)
+- 2026-06-30 01:16 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/664580318.shtml)
+- 2026-06-30 01:25 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/003916.shtml)

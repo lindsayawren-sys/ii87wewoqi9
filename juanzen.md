@@ -1,57 +1,59 @@
-# 联想集团拟发行20亿美元的新可换股债券并同步溢价赎回旧债叠加股份回购
+# 广东记录到中华穿山甲“薅树叶”行为清晰影像
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-联想集团（00992）公布，于2026年6月17日（交易时段后），公司与经办人订立债券认购协议，据此，经办人已有条件同意认购或促使认购人认购公司将予发行本金总额为20亿美元的新可换股债券，并就此付款或促使认购人就此付款。初步换股价定为每股转换股份 36.70 港元。 同日，公司就于2029年到期、本金额为6.75亿美元 2.50% 的可换股债券与交易经办人订立交易经办人协议，据
+中新网广州4月16日电 (程景伟 林荫)广东省林业局16日公布一段珍贵影像，国家一级保护野生动物中华穿山甲在惠东乌禽嶂山林中忙碌“薅树叶”的画面清晰呈现：镜头中，一只穿山甲前爪快速扒拉落叶，尾巴稳稳支撑身体，憨态可掬地收集叶片搭建巢穴。 据惠州市惠东县林业局相关负责人介绍，自2019年起，西子江生态保育中心、惠东县自然生态保护促进会等单位联手，在乌禽嶂区域启动系统性穿山甲专项保
 
 ## 正文
 
-联想集团（00992）公布，于2026年6月17日（交易时段后），公司与经办人订立债券认购协议，据此，经办人已有条件同意认购或促使认购人认购公司将予发行本金总额为20亿美元的新可换股债券，并就此付款或促使认购人就此付款。
+中新网广州4月16日电 (程景伟 林荫)广东省林业局16日公布一段珍贵影像，国家一级保护野生动物中华穿山甲在惠东乌禽嶂山林中忙碌“薅树叶”的画面清晰呈现：镜头中，一只穿山甲前爪快速扒拉落叶，尾巴稳稳支撑身体，憨态可掬地收集叶片搭建巢穴。
 
-初步换股价定为每股转换股份 36.70 港元。
+据惠州市惠东县林业局相关负责人介绍，自2019年起，西子江生态保育中心、惠东县自然生态保护促进会等单位联手，在乌禽嶂区域启动系统性穿山甲专项保护行动，组建专业巡护队伍、全域网格化布设红外相机、常态化开展反盗猎专项行动。
 
-同日，公司就于2029年到期、本金额为6.75亿美元 2.50% 的可换股债券与交易经办人订立交易经办人协议，据此，交易经办人已就建议同步购回获委任，以协助公司收集愿意出售其现有2029年可换股债券予公司的现有2029年可换股债券持有人的意向。
+截至2025年12月，当地累计开展巡护896次、总里程达6469公里，红外相机记录中华穿山甲有效触发超1200次，监测显示该区域的中华穿山甲种群数量稳步增长、分布范围持续扩大。
 
-现有2029年可换股债券的购回价定为现有2029年可换股债券本金额 293.20%。
+为减少对野生动物的干扰，当地科研团队自主研发模拟天然光源的专用补光灯，可在夜间拍摄到清晰可用于个体识别的影像，最大程度降低对穿山甲自然行为的影响。
 
-于本公告日期，公司已透过交易经办人收到合资格债券持有人出售合共本金额约2.25亿美元的现有2029年可换股债券予公司的承诺。
+据悉，惠东县计划逐步升级替换老式红外相机为新型高清设备，精准记录穿山甲洞穴活动、育幼、活动节律等行为，建立完善的乌禽嶂中华穿山甲个体影像档案，为全省及全国穿山甲科学保护提供数据支撑。
 
-现有2029年可换股债券仍未偿还的剩余本金总额约为4.5亿美元。
+近年来，广东省聚焦穿山甲这一旗舰物种保护，构建起全域覆盖、多方协同的野生动物保护网络，坚持“安静观察、科学保护”理念，推动保护工作提质增效。
 
-公司拟使用债券发行所得款项为建议同步购回提供资金。
+作为全国生物多样性最丰富的省份之一，广东省已完成首次中华穿山甲野外种群资源调查，数量约1778只，种群密度基线0.33只/平方公里，梅州、河源、惠州为集中分布区，栖息地质量持续提升。
 
-为确保对现有股东的股权不造成稀释影响，公司于债券发行及建议同时购回完成后拟不时于市场上进行回购股份，惟在购回规模不会触发收购守则下的全面要约责任为限。
+全省已有16个地级市记录到穿山甲活动踪迹，野外种群稳定复苏、分布范围不断拓展。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 01:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 01:14 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 01:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 01:10 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 01:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 01:28 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 01:26 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 01:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 01:33 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 01:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 01:18 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 01:25 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 01:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 01:24 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 01:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 01:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:22 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 01:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 01:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 01:29 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 01:38 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 01:21 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:25 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/19317.shtml)
-- 2026-06-30 01:34 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/7799278331.shtml)
-- 2026-06-30 01:26 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/51181632376.shtml)
-- 2026-06-30 01:20 - [乔家的儿女](https://www.share.minike.top/Article/details/0424954271.shtml)
-- 2026-06-30 01:30 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/882439516.shtml)
-- 2026-06-30 01:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/8542689.shtml)
-- 2026-06-30 01:17 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/853799167.shtml)
-- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/9877623.shtml)
-- 2026-06-30 01:22 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/25486890.shtml)
-- 2026-06-30 01:29 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/80255985820.shtml)
-- 2026-06-30 01:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/801299705.shtml)
-- 2026-06-30 01:19 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/360789554.shtml)
-- 2026-06-30 01:12 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/5419608827.shtml)
-- 2026-06-30 01:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/090560974187.shtml)
-- 2026-06-30 01:22 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/13226039467.shtml)
+- 2026-06-30 01:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/21523.shtml)
+- 2026-06-30 01:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/50423599047.shtml)
+- 2026-06-30 01:33 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/7304692503.shtml)
+- 2026-06-30 01:22 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/2415278.shtml)
+- 2026-06-30 01:24 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/64009473875.shtml)
+- 2026-06-30 01:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/840063947.shtml)
+- 2026-06-30 01:27 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/595970234.shtml)
+- 2026-06-30 01:34 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/3958344291.shtml)
+- 2026-06-30 01:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/6738677.shtml)
+- 2026-06-30 01:12 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/280689699.shtml)
+- 2026-06-30 01:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/99585071124.shtml)
+- 2026-06-30 01:19 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/35893456808.shtml)
+- 2026-06-30 01:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/39632055736.shtml)
+- 2026-06-30 01:18 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/58318.shtml)
+- 2026-06-30 01:27 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/8198479.shtml)

@@ -1,61 +1,60 @@
-# 白皮书：若无国际法治，昨天还在餐桌边，明天就可能在菜单上
+# 开局之年看中国·开放自贸港：三亚的新跃升
 
-> 更新时间：2026-06-30 01:36:03 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新社北京6月17日电 (记者 谢雁冰)中国国务院新闻办公室17日发布的《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书指出，各国都是国际法治的利益攸关方，如果没有了国际法治，昨天还在餐桌边，明天就有可能在菜单上。白皮书指出，全球治理倡议以维护联合国宪章宗旨和原则、践行共商共建共享的全球治理观为基本遵循，提出奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本
+中新网三亚4月17日电 题：开局之年看中国·开放自贸港：三亚的新跃升 作者 张月和 谈及三亚，往往脑海中浮现的是阳光沙滩、碧海蓝天、椰风海韵。而在热带滨海旅游城市的光环下，一场由科技引领、政策赋能的变革正在这里发生。 南繁种业、深海科技、黄金珠宝产业……三亚，正从传统的“度假天堂”加速向“科创新高地”跃升。连日来，参加“开局之年看中国·开放自贸港”网络主题传播活动的海内外媒体人
 
 ## 正文
 
-中新社北京6月17日电 (记者 谢雁冰)中国国务院新闻办公室17日发布的《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书指出，各国都是国际法治的利益攸关方，如果没有了国际法治，昨天还在餐桌边，明天就有可能在菜单上。
+中新网三亚4月17日电 题：开局之年看中国·开放自贸港：三亚的新跃升 作者 张月和 谈及三亚，往往脑海中浮现的是阳光沙滩、碧海蓝天、椰风海韵。
 
-白皮书指出，全球治理倡议以维护联合国宪章宗旨和原则、践行共商共建共享的全球治理观为基本遵循，提出奉行主权平等、遵守国际法治、践行多边主义、倡导以人为本、注重行动导向五大核心理念，切中诸多危机挑战的症结和根源，为构建更加公正合理的全球治理体系提供科学指南。
+而在热带滨海旅游城市的光环下，一场由科技引领、政策赋能的变革正在这里发生。
 
-白皮书说，厉行国际法治，关键在于捍卫其公正性严肃性。
+南繁种业、深海科技、黄金珠宝产业……三亚，正从传统的“度假天堂”加速向“科创新高地”跃升。
 
-只有确保国际法平等统一适用，而不是合则用、不合则弃，才能真正做到明辨是非曲直、促进和平与发展。
+连日来，参加“开局之年看中国·开放自贸港”网络主题传播活动的海内外媒体人走进三亚崖州湾科技城高新区(简称“崖州湾科技城”)，抚触这座知名旅游城市的科技新脉动。
 
-各国都是国际法治的利益攸关方，如果没有了国际法治，昨天还在餐桌边，明天就有可能在菜单上。
+战略优势为科创发展奠基 海南拥有发展南繁种业得天独厚的气候优势。
 
-大国是促进国际法治的关键力量，尤其要带头守规矩、讲法治，不应将自身利益凌驾于国际法之上，更不应将自己的家法帮规强加于人。
+分布在三亚、陵水和乐东的南繁基地年平均气温为23至24摄氏度，光热充足，能满足农作物周年生长的温度需要，是育制种的天然大温室和加速器。
 
-白皮书说，多边主义的要义是国际上的事由大家共同商量着办，世界命运由各国共同掌握。
+自20世纪50年代以来，以三亚、陵水、乐东为代表的南繁基地，每年都会集聚来自全国各地的科研机构及科研人员在此开展农作物品种选育、亲本繁育、种植鉴定和种子生产等南繁活动。
 
-要以共商汇聚众智、以共建凝聚众力、以共享惠及众人，旗帜鲜明反对一切形式的单边主义，反对“一国独霸”、“几方共治”、集团政治。
+中国已育成的农作物新品种中，70%以上都经过了南繁基地的培育。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:11 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:32 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 01:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 01:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 01:32 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 01:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 01:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 01:11 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 01:31 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 01:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 01:29 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 01:12 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 01:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 01:14 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 01:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 01:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 01:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 01:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 01:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 01:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:23 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 01:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 01:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 01:25 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 01:25 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [一见倾心](http://www.share.minike.top/Article/details/549389.shtml)
-- 2026-06-30 01:28 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/59527259.shtml)
-- 2026-06-30 01:22 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/6135836610.shtml)
-- 2026-06-30 01:12 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/381756813376.shtml)
-- 2026-06-30 01:15 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/5326543935.shtml)
-- 2026-06-30 01:33 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/7355444102.shtml)
-- 2026-06-30 01:07 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/136387267842.shtml)
-- 2026-06-30 01:15 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/82074.shtml)
-- 2026-06-30 01:21 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/41255240772.shtml)
-- 2026-06-30 01:23 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/113731778.shtml)
-- 2026-06-30 01:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/0761948.shtml)
-- 2026-06-30 01:35 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/0889323.shtml)
-- 2026-06-30 01:21 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/914464384.shtml)
-- 2026-06-30 01:13 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/8418757178.shtml)
-- 2026-06-30 01:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/82193.shtml)
+- 2026-06-30 01:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/31965.shtml)
+- 2026-06-30 01:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/660348.shtml)
+- 2026-06-30 01:26 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/67310309930.shtml)
+- 2026-06-30 01:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/79744.shtml)
+- 2026-06-30 01:33 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/581347454934.shtml)
+- 2026-06-30 01:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/82291148719.shtml)
+- 2026-06-30 01:32 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/587645.shtml)
+- 2026-06-30 01:38 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/9585087010.shtml)
+- 2026-06-30 01:22 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/46694828043.shtml)
+- 2026-06-30 01:19 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/711692315.shtml)
+- 2026-06-30 01:37 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/38206545877.shtml)
+- 2026-06-30 01:36 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/736344.shtml)
+- 2026-06-30 01:25 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/413009730.shtml)
+- 2026-06-30 01:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/97723447300.shtml)
+- 2026-06-30 01:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/37830172447.shtml)

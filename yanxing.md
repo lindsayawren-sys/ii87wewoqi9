@@ -1,60 +1,54 @@
-# 南铁7月1日起实施新列车运行图 南昌多个车站将互联互通
+# Kan：以色列安全内阁将开会讨论黎巴嫩停火问题
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网南昌6月17日电 (刘力鑫 付森)17日，中国铁路南昌局集团有限公司(以下简称“南铁”)发布消息称，自2026年7月1日零时起，铁路部门将实施新的列车运行图。调图后，南铁安排图定旅客列车703.5对，同比增长3.5%；南昌铁路枢纽的多个车站间将开行列车，实现互联互通。 7月1日调图后，南铁依托南唐联络线建成释放的新线运输能力，安排南昌、南昌东至南昌西开行动车组列车36列，
+以色列公共广播公司Kan报道称，以色列安全内阁将于周三晚间召开会议，讨论黎巴嫩停火提案。报道未说明消息来源。 Kan援引一位未具名以色列官员称，围绕停火问题的谈判正在进行，但在真主党停止开火之前，以色列不会停止战斗。 Kan援引另一位未具名官员报道称，目前尚未就停火作出任何决定。 以色列第12频道援引一位未具名官员报道，美国一直在施压以色列，要求其同意临时停火。责任编辑：丁文武
 
 ## 正文
 
-中新网南昌6月17日电 (刘力鑫 付森)17日，中国铁路南昌局集团有限公司(以下简称“南铁”)发布消息称，自2026年7月1日零时起，铁路部门将实施新的列车运行图。
+以色列公共广播公司Kan报道称，以色列安全内阁将于周三晚间召开会议，讨论黎巴嫩停火提案。
 
-调图后，南铁安排图定旅客列车703.5对，同比增长3.5%；南昌铁路枢纽的多个车站间将开行列车，实现互联互通。
+报道未说明消息来源。
 
-7月1日调图后，南铁依托南唐联络线建成释放的新线运输能力，安排南昌、南昌东至南昌西开行动车组列车36列，增加动车组列车在南昌、南昌东、南昌西、南昌南的停靠站次37次，南昌枢纽的通达性进一步提升，旅客出行更加顺畅高效。
+Kan援引一位未具名以色列官员称，围绕停火问题的谈判正在进行，但在真主党停止开火之前，以色列不会停止战斗。
 
-同时，南铁结合季节客流特点，在热门旅游城市间增加运力投放。
+Kan援引另一位未具名官员报道称，目前尚未就停火作出任何决定。
 
-加开福州至梅州西D2365/4次，景德镇北至南昌东G5007次、萍乡北至南昌西G5058/7次，婺源至九江D6265/6次等14趟列车，并调整多趟列车的运行区段，让区域交通更加通达，小城旅游更加便利。
+以色列第12频道援引一位未具名官员报道，美国一直在施压以色列，要求其同意临时停火。
 
-在周末、节假日等客流高峰时段，南铁将动态加开赣州西至深圳G4255/6次、泉州东至福州G9840次，南昌、南昌东至厦门G9838/5次、G9836/7次等高峰线列车，满足旅客假期集中出行需求，催生周末游、周边游、深度游等不同消费场景。
-
-此外，铁路部门在沪昆高铁杭长段安排速度快、停站少、旅时短的标杆列车23对(含动卧1对)，进一步压缩旅客出行时间，实现“快旅慢游”。
-
-在货物运输方面，此次调图，铁路部门统筹运用线路、场站资源，增开徐州北至东莞东(龙川北)X8583次、增城西至临沂X8773/4次等多趟快速多式联运班列，增开黄塘(向塘西)至新丰镇X9712/1次、赣州国际港至东孚86842/3次普快多式联运班列，进一步完善“公铁水”多式联运链条。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 01:14 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 01:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 01:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 01:23 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 01:35 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 01:20 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 01:20 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 01:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 01:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 01:21 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:22 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 01:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 01:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 01:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 01:14 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 01:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 01:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 01:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 01:39 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 01:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 01:23 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 01:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 01:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/0975761023.shtml)
-- 2026-06-30 01:27 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/89681439142.shtml)
-- 2026-06-30 01:07 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/9095616225.shtml)
-- 2026-06-30 01:19 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/7975508218.shtml)
-- 2026-06-30 01:09 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/003149836.shtml)
-- 2026-06-30 01:31 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/44124149615.shtml)
-- 2026-06-30 01:35 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/278721.shtml)
-- 2026-06-30 01:32 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/84212.shtml)
-- 2026-06-30 01:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/742105.shtml)
-- 2026-06-30 01:20 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/0362607352.shtml)
-- 2026-06-30 01:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/01248.shtml)
-- 2026-06-30 01:27 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/44546282876.shtml)
-- 2026-06-30 01:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/625807879772.shtml)
-- 2026-06-30 01:20 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/69693635477.shtml)
-- 2026-06-30 01:09 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/9339229.shtml)
+- 2026-06-30 01:30 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/3495487274.shtml)
+- 2026-06-30 01:36 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/062123792864.shtml)
+- 2026-06-30 01:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/084534340333.shtml)
+- 2026-06-30 01:39 - [天道](https://www.share.minike.top/Article/details/4174137512.shtml)
+- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/7444369435.shtml)
+- 2026-06-30 01:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/74662.shtml)
+- 2026-06-30 01:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/7484374530.shtml)
+- 2026-06-30 01:40 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/560453185.shtml)
+- 2026-06-30 01:16 - [《贺子珍》](http://www.share.minike.top/Article/details/380777048323.shtml)
+- 2026-06-30 01:36 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/58847495.shtml)
+- 2026-06-30 01:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/5162183758.shtml)
+- 2026-06-30 01:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/81250189.shtml)
+- 2026-06-30 01:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/3581501.shtml)
+- 2026-06-30 01:37 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/27002.shtml)
+- 2026-06-30 01:18 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/528538038.shtml)

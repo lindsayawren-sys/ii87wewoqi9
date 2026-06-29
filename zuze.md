@@ -1,51 +1,56 @@
-# 中国外贸信托变更股权获批 中化资本100%控股
+# 商务部：促进服务消费扩容升级 统筹布局建设国家服务贸易创新发展示范区等平台
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日金融一线消息，北京金融监管局发布关于中国对外经济贸易信托有限公司变更股权及调整股权结构的批复，同意中化资本有限公司受让中化集团财务有限责任公司持有的中国对外经济贸易信托有限公司2.74%股权。受让后，中化资本有限公司合计持股比例为100%。 责任编辑：王馨茹
+4月16日，商务部召开例行新闻发布会。对于推动服务业高质量发展，商务部新闻发言人何亚东表示，商务部将重点做好促进服务消费扩容升级、推进服务业开放合作、推动批发零售业创新提升三方面工作。谈及外资，何亚东表示，要吸引更多跨国公司将研发环节放在中国。 不断拓宽服务业开放广度深度 “服务消费，一头连着经济，一头连着民生。”何亚东说。在促进服务消费扩容升级方面，商务部将坚持惠民生和促消费
 
 ## 正文
 
-6月18日金融一线消息，北京金融监管局发布关于中国对外经济贸易信托有限公司变更股权及调整股权结构的批复，同意中化资本有限公司受让中化集团财务有限责任公司持有的中国对外经济贸易信托有限公司2.74%股权。
+4月16日，商务部召开例行新闻发布会。
 
-受让后，中化资本有限公司合计持股比例为100%。
+对于推动服务业高质量发展，商务部新闻发言人何亚东表示，商务部将重点做好促进服务消费扩容升级、推进服务业开放合作、推动批发零售业创新提升三方面工作。
 
-责任编辑：王馨茹
+谈及外资，何亚东表示，要吸引更多跨国公司将研发环节放在中国。
+
+不断拓宽服务业开放广度深度 “服务消费，一头连着经济，一头连着民生。
+
+”何亚东说。
+
+在促进服务消费扩容升级方面，商务部将坚持惠民生和促消费相结合，投资于物和投资于人相结合，坚持“对外开放、对内放开”，深入推进消费新业态新模式新场景试点，推动家政、住宿、餐饮等生活服务业高品质、多样化、便利化发展。
+
+在推进服务业开放合作方面，有序扩大增值电信、生物技术、外商独资医院等领域开放试点，完善跨境服务贸易负面清单管理制度。
+
+同时，统筹布局建设国家服务贸易创新发展示范区等平台，培育服务出口新动能，提升“中国服务”国际竞争力。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 01:09 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 01:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 01:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 01:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 01:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 01:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 01:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 01:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 01:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 01:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 01:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 01:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 01:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 01:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 01:16 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:12 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 01:21 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 01:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 01:16 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 01:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 01:39 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 01:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/4311193.shtml)
-- 2026-06-30 01:31 - [斗破苍穹](https://www.blog.minike.top/Article/details/1869118.shtml)
-- 2026-06-30 01:30 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/37698817.shtml)
-- 2026-06-30 01:32 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/833473002937.shtml)
-- 2026-06-30 01:31 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/14877529598.shtml)
-- 2026-06-30 01:23 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/811103.shtml)
-- 2026-06-30 01:08 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/654957351.shtml)
-- 2026-06-30 01:26 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/7929749564.shtml)
-- 2026-06-30 01:28 - [绘画区你赢了](https://www.share.minike.top/Article/details/95868263.shtml)
-- 2026-06-30 01:25 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/496292306.shtml)
-- 2026-06-30 01:35 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/439051.shtml)
-- 2026-06-30 01:34 - [送你一朵小红花](http://www.share.minike.top/Article/details/38617602.shtml)
-- 2026-06-30 01:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/4503240007.shtml)
-- 2026-06-30 01:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/07589.shtml)
-- 2026-06-30 01:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/37443580.shtml)
+- 2026-06-30 01:18 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/97339771379.shtml)
+- 2026-06-30 01:37 - [沉睡花园](https://www.share.minike.top/Article/details/7438978.shtml)
+- 2026-06-30 01:33 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/25344082036.shtml)
+- 2026-06-30 01:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/73508.shtml)
+- 2026-06-30 01:17 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/33350017.shtml)
+- 2026-06-30 01:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/04735.shtml)
+- 2026-06-30 01:16 - [巴西vs日本](https://www.share.minike.top/Article/details/87980.shtml)
+- 2026-06-30 01:31 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/864710940.shtml)
+- 2026-06-30 01:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/252878955826.shtml)
+- 2026-06-30 01:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/337275864002.shtml)
+- 2026-06-30 01:36 - [明星大侦探第四季](https://www.share.minike.top/Article/details/3492475.shtml)
+- 2026-06-30 01:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/2563269.shtml)
+- 2026-06-30 01:15 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8190913.shtml)
+- 2026-06-30 01:41 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/107503.shtml)
+- 2026-06-30 01:37 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/8404109.shtml)

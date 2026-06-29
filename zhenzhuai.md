@@ -1,45 +1,61 @@
-# 视频 | 百润股份推13亿元定增押注威士忌，11亿元狂买20万只橡木桶
+# 客户争相下单 广东智造何以风靡全球？
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：深圳商报 责任编辑：宋雅芳
+广东智造，何以风靡全球？ 技术创新、AI嵌入、区域定制…… “两业协同”锻造广货新优势 张露、赵方圆 广货行天下 从语音操控的智能家电，到订单火爆的低空飞行器，广交会上的广东智造持续刷屏。在智慧家电展区，AI电磁炉一句“小德小德，打开电磁炉并调至最大火力”，就能轻松完成烹饪；广州企业晔生航空两日斩获180架飞行器意向订单，企业负责人在朋友圈笑称：“广交会首日，订单多到九宫格都放
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+广东智造，何以风靡全球？
 
-来源：深圳商报 责任编辑：宋雅芳
+技术创新、AI嵌入、区域定制…… “两业协同”锻造广货新优势 张露、赵方圆 广货行天下 从语音操控的智能家电，到订单火爆的低空飞行器，广交会上的广东智造持续刷屏。
+
+在智慧家电展区，AI电磁炉一句“小德小德，打开电磁炉并调至最大火力”，就能轻松完成烹饪；广州企业晔生航空两日斩获180架飞行器意向订单，企业负责人在朋友圈笑称：“广交会首日，订单多到九宫格都放不下啦。
+
+”制造业当家，服务业赋能，“两业协同”助广东制造在全球市场持续走俏，生动彰显中国智造的强劲活力。
+
+文/广州日报全媒体记者张露、赵方圆 客户争相下单 穗企意向订单超千万美元 本次广交会现场，广州企业晔生航空屡传捷报：首日新签100多架意向订单，订单总额600多万美元。
+
+同时，记者在展会现场留意到一个细节：晔生航空的展台，除了集中展示自主研发的飞行器产品，洽谈区的桌面上还整齐摆放着红色的签约本，透着火热的签约氛围。
+
+晔生航空董事总经理吴傲冰自豪地告诉记者，16日，新增80架意向订单；展会首日，公司就签下100架意向订单，这两天意向订单总额超过1000万美元。
+
+丰硕的签约战果，让吴傲冰在朋友圈笑称：“广交会首日，晔生航空签下多笔意向订单，九宫格都放不下啦。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 01:21 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 01:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 01:09 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 01:28 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 01:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 01:35 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:10 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 01:29 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 01:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 01:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 01:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 01:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 01:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 01:15 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 01:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 01:13 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 01:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 01:38 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 01:26 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 01:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:38 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 01:24 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 01:18 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/77951.shtml)
-- 2026-06-30 01:34 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/76138009.shtml)
-- 2026-06-30 01:06 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/023526420.shtml)
-- 2026-06-30 01:20 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/64469824.shtml)
-- 2026-06-30 01:10 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/731390.shtml)
-- 2026-06-30 01:12 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/247398308658.shtml)
-- 2026-06-30 01:18 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/86797021.shtml)
-- 2026-06-30 01:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/544209438.shtml)
-- 2026-06-30 01:25 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/93992.shtml)
-- 2026-06-30 01:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/809359570.shtml)
-- 2026-06-30 01:26 - [月亮](http://www.share.kurohicncr.top/Article/details/782002362.shtml)
-- 2026-06-30 01:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/95972209.shtml)
-- 2026-06-30 01:19 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/922643023.shtml)
-- 2026-06-30 01:15 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/2350719.shtml)
-- 2026-06-30 01:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/2505070.shtml)
+- 2026-06-30 01:24 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/7618911.shtml)
+- 2026-06-30 01:37 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/08455402713.shtml)
+- 2026-06-30 01:31 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/09464502615.shtml)
+- 2026-06-30 01:15 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/31051.shtml)
+- 2026-06-30 01:33 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/196287034.shtml)
+- 2026-06-30 01:28 - [日本16强魔咒](https://www.blog.minike.top/Article/details/741776987.shtml)
+- 2026-06-30 01:16 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/5070679653.shtml)
+- 2026-06-30 01:35 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/2113539265.shtml)
+- 2026-06-30 01:22 - [时光音乐会](http://www.share.minike.top/Article/details/4272300727.shtml)
+- 2026-06-30 01:15 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/4219798.shtml)
+- 2026-06-30 01:28 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/792685484883.shtml)
+- 2026-06-30 01:21 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/00667.shtml)
+- 2026-06-30 01:26 - [美股](https://www.blog.minike.top/Article/details/97943297192.shtml)
+- 2026-06-30 01:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/53093045337.shtml)
+- 2026-06-30 01:38 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/0462829661.shtml)

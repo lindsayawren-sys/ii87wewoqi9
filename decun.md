@@ -1,56 +1,60 @@
-# 方星海：量化机构出海正当时，建议香港金融管理部门吸引内地量化机构在香港展业
+# 黄金交易提醒：金价陷入“战争脱敏”怪圈，降息梦碎打压多头士气？关注三大变量
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会原副主席、中国金融学会副会长方星海表示，近年来内地一批量化私募与管理机构技术能力突飞猛进，其算法模型、交易执行与风控水平已不输于国际顶尖同业。他们非常愿意在香港拓展业务——既可在香港市场直接交易，也能通过沪深港通反向配置内地产品。建议香港金融管理部门吸引内地量化机构在香港开展
+周三（4月15日）现货黄金在触及一个月高点4871.28美元后急速回落，最终收于4790美元附近，单日跌幅接近1%；美国期金也同步下挫0.5%，结算价报4823.60美元。短短24小时内，黄金从避险天堂瞬间变身获利了结的战场，这一切，都源于特朗普口中那句“伊朗战争接近结束”带来的复杂连锁反应。周四（4月16日）亚市早盘，现货黄金小幅上涨，目前交投于4820美元/盎司附近，涨幅约
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会原副主席、中国金融学会副会长方星海表示，近年来内地一批量化私募与管理机构技术能力突飞猛进，其算法模型、交易执行与风控水平已不输于国际顶尖同业。
+周三（4月15日）现货黄金在触及一个月高点4871.28美元后急速回落，最终收于4790美元附近，单日跌幅接近1%；美国期金也同步下挫0.5%，结算价报4823.60美元。
 
-他们非常愿意在香港拓展业务——既可在香港市场直接交易，也能通过沪深港通反向配置内地产品。
+短短24小时内，黄金从避险天堂瞬间变身获利了结的战场，这一切，都源于特朗普口中那句“伊朗战争接近结束”带来的复杂连锁反应。
 
-建议香港金融管理部门吸引内地量化机构在香港开展业务。
+周四（4月16日）亚市早盘，现货黄金小幅上涨，目前交投于4820美元/盎司附近，涨幅约0.6%，美元持续走弱，仍给金价提供支撑。
 
-从5000亿到4万亿：两通如何打破外资“天花板” 方星海首先回顾了沪港通、深港通的历史性作用。
+美伊停火谈判“接近尾声”下的暗流涌动 特朗普的乐观表态像一剂强心针，却也瞬间刺破了黄金的避险泡沫。
 
-他坦言，在两大互联互通机制推出之前，外资进入A股主要依赖QFII（合格境外机构投资者）通道。
+他明确表示，与以色列共同对伊朗发起的军事行动已接近尾声，同时巴基斯坦陆军参谋长紧急赶赴德黑兰，试图阻止冲突重燃。
 
-自2001年推出QFII以来，很长一段时间内，外资持有A股的规模长期徘徊在5000亿元人民币左右，增长乏力。
+白宫新闻秘书莱维特进一步透露，美伊官员正考虑重返巴基斯坦进行面对面谈判，以色列与美国的战略目标高度一致：要求伊朗移除浓缩铀、取消铀浓缩能力，并彻底开放霍尔木兹海峡这一“关键航运通道”。
 
-“两通推出之后，外资投资内地的量很快就上去了。
+然而，现实远比表态残酷。
 
-”方星海给出了一组对比数据——目前外资持有A股市值已达4万亿元人民币。
+伊朗革命卫队仍维持对霍尔木兹海峡45天的封锁宣言，尽管为期两周的停火协议已达成，但该海峡通航状况依然不明朗。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 01:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 01:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 01:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 01:07 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:31 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 01:06 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 01:08 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 01:18 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 01:13 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:28 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 01:14 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 01:37 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 01:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 01:36 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 01:15 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 01:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 01:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 01:19 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 01:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 01:16 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/18534.shtml)
-- 2026-06-30 01:35 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/8790205833.shtml)
-- 2026-06-30 01:26 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/211954594682.shtml)
-- 2026-06-30 01:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/895768005183.shtml)
-- 2026-06-30 01:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/91244807.shtml)
-- 2026-06-30 01:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/404147.shtml)
-- 2026-06-30 01:17 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/124471.shtml)
-- 2026-06-30 01:14 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/82684039225.shtml)
-- 2026-06-30 01:27 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/89573762371.shtml)
-- 2026-06-30 01:29 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/8594660190.shtml)
-- 2026-06-30 01:28 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/631037.shtml)
-- 2026-06-30 01:12 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/2337455413.shtml)
-- 2026-06-30 01:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/0060044782.shtml)
-- 2026-06-30 01:26 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/4771105861.shtml)
-- 2026-06-30 01:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/597955664.shtml)
+- 2026-06-30 01:38 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/60267965013.shtml)
+- 2026-06-30 01:26 - [请回答王牌2019](http://www.share.minike.top/Article/details/586299.shtml)
+- 2026-06-30 01:31 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/0399003.shtml)
+- 2026-06-30 01:22 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/9373404.shtml)
+- 2026-06-30 01:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/494649391.shtml)
+- 2026-06-30 01:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/305536324373.shtml)
+- 2026-06-30 01:39 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/40184.shtml)
+- 2026-06-30 01:31 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/3985720653.shtml)
+- 2026-06-30 01:34 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/13534.shtml)
+- 2026-06-30 01:22 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/5310998.shtml)
+- 2026-06-30 01:36 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/3965085500.shtml)
+- 2026-06-30 01:28 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/83695529993.shtml)
+- 2026-06-30 01:19 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/379290153960.shtml)
+- 2026-06-30 01:40 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/16864855657.shtml)
+- 2026-06-30 01:19 - [勇敢的心第二部](https://www.share.minike.top/Article/details/887501.shtml)

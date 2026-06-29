@@ -1,59 +1,59 @@
-# 美联储维持利率不变 沃什拟设工作组推进改革
+# 时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。 美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。美联储重申其维持
+暮春时节，中国元首外交再启“繁忙时刻”。 4月14日至15日，习近平先后在北京人民大会堂同阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会见会谈。 引领双边关系发展、破解全球难题困局，习近平在会晤中多次提到“战略定力”，释放重要信息。《时政新闻眼》为你解读。 视频：习近平同越共中央总书记、国家主席苏林举行会谈来源：央视新闻客户端
 
 ## 正文
 
-发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。
+暮春时节，中国元首外交再启“繁忙时刻”。
 
-这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。
+4月14日至15日，习近平先后在北京人民大会堂同阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会见会谈。
 
-美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。
+引领双边关系发展、破解全球难题困局，习近平在会晤中多次提到“战略定力”，释放重要信息。
 
-美联储重申其维持银行体系充裕准备金的政策。
+《时政新闻眼》为你解读。
 
-这份声明获得了参与投票的所有美联储官员支持。
+视频：习近平同越共中央总书记、国家主席苏林举行会谈来源：央视新闻客户端 01 这些细节见证特殊情谊 15日上午，习近平总书记、国家主席为越共中央总书记、国家主席苏林举行的一系列国事活动在人民大会堂密集展开。
 
-当天，美联储还公布了经济预测概要。
+三个细节，《时政新闻眼》带你“打开”这场备受瞩目的元首外交。
 
-其中，利率点阵图由除沃什之外的高级官员提交的利率预期汇总形成。
+一首歌曲。
 
-点阵图显示，联邦基金利率中值到2026年年末将升至3.8%，暗示年内可能实施加息操作。
+“共饮一江水，早相见、晚相望，清晨共听雄鸡高唱。
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 01:18 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 01:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 01:31 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 01:32 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 01:26 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 01:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 01:07 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 01:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 01:14 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 01:24 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 01:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 01:36 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 01:31 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 01:30 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:26 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 01:18 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:29 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 01:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 01:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 01:37 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 01:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 01:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 01:34 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/99517.shtml)
-- 2026-06-30 01:11 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/785450892150.shtml)
-- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/3764079130.shtml)
-- 2026-06-30 01:19 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/6327612.shtml)
-- 2026-06-30 01:18 - [时光音乐会](https://www.share.minike.top/Article/details/5279199.shtml)
-- 2026-06-30 01:16 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/087294119.shtml)
-- 2026-06-30 01:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/550409988.shtml)
-- 2026-06-30 01:19 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/96095.shtml)
-- 2026-06-30 01:16 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/31999.shtml)
-- 2026-06-30 01:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/75726.shtml)
-- 2026-06-30 01:32 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/89121770657.shtml)
-- 2026-06-30 01:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/508927635.shtml)
-- 2026-06-30 01:17 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/9344156357.shtml)
-- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/5623376396.shtml)
-- 2026-06-30 01:11 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/8184811494.shtml)
+- 2026-06-30 01:17 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/58771885571.shtml)
+- 2026-06-30 01:31 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/54335689.shtml)
+- 2026-06-30 01:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/1835360.shtml)
+- 2026-06-30 01:22 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/5771679.shtml)
+- 2026-06-30 01:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/81518.shtml)
+- 2026-06-30 01:27 - [金刚川](https://www.blog.minike.top/Article/details/107557674.shtml)
+- 2026-06-30 01:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/411514321.shtml)
+- 2026-06-30 01:25 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/5271648.shtml)
+- 2026-06-30 01:27 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/525282660.shtml)
+- 2026-06-30 01:24 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6741889.shtml)
+- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/29733328.shtml)
+- 2026-06-30 01:25 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/22954.shtml)
+- 2026-06-30 01:38 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/66069761930.shtml)
+- 2026-06-30 01:20 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8940952.shtml)
+- 2026-06-30 01:27 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/4616978385.shtml)

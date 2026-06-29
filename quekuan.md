@@ -1,44 +1,50 @@
-# 德国机构警告依赖美AI模型存在风险
+# ST联合，停牌一天！撤销其他风险警示
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 撤销其他风险警示，ST联合（维权）（600358）4月17日停牌一天。 4月16日晚间，ST联合披露公告称，公司股票将于4月17日停牌一天，自4月20日起复牌交易，公司股票将撤销其他风险警示，A股股票简称由“ST联合”变更为“国旅联合”，证券代码仍为“600358”。 公告显示，撤销其他风险
 
 ## 正文
 
-发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+来源：资本秘闻 撤销其他风险警示，ST联合（维权）（600358）4月17日停牌一天。
+
+4月16日晚间，ST联合披露公告称，公司股票将于4月17日停牌一天，自4月20日起复牌交易，公司股票将撤销其他风险警示，A股股票简称由“ST联合”变更为“国旅联合”，证券代码仍为“600358”。
+
+公告显示，撤销其他风险警示后，ST联合股票转出风险警示板交易，公司股票交易的日涨跌幅限制由5%变为10%。
+
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 01:15 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 01:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 01:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:14 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 01:19 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 01:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 01:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 01:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 01:24 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 01:17 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 01:08 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 01:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 01:15 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 01:34 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 01:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 01:14 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 01:30 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 01:39 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 01:26 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 01:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/05524432278.shtml)
-- 2026-06-30 01:32 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/31084805.shtml)
-- 2026-06-30 01:10 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/6418799316.shtml)
-- 2026-06-30 01:28 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7039025022.shtml)
-- 2026-06-30 01:25 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/358440.shtml)
-- 2026-06-30 01:14 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/513058590928.shtml)
-- 2026-06-30 01:26 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/175818804186.shtml)
-- 2026-06-30 01:23 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/89733584682.shtml)
-- 2026-06-30 01:10 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/63707.shtml)
-- 2026-06-30 01:20 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/373579914727.shtml)
-- 2026-06-30 01:28 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/63183.shtml)
-- 2026-06-30 01:20 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/4848142405.shtml)
-- 2026-06-30 01:09 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/41332827.shtml)
-- 2026-06-30 01:20 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/539559684.shtml)
-- 2026-06-30 01:12 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/6273499.shtml)
+- 2026-06-30 01:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/14979142227.shtml)
+- 2026-06-30 01:38 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/849392429.shtml)
+- 2026-06-30 01:13 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/71755299.shtml)
+- 2026-06-30 01:18 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/1552249.shtml)
+- 2026-06-30 01:40 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/11835311317.shtml)
+- 2026-06-30 01:34 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/57641.shtml)
+- 2026-06-30 01:26 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/00138788710.shtml)
+- 2026-06-30 01:29 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/26157177715.shtml)
+- 2026-06-30 01:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3854071581.shtml)
+- 2026-06-30 01:20 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/72527901093.shtml)
+- 2026-06-30 01:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/72818.shtml)
+- 2026-06-30 01:17 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/4703090212.shtml)
+- 2026-06-30 01:31 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/77015000.shtml)
+- 2026-06-30 01:31 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/43352.shtml)
+- 2026-06-30 01:21 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/9380204831.shtml)

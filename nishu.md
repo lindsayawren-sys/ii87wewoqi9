@@ -1,60 +1,60 @@
-# 张小东：今年1-5月中国农业发展银行累放政策性贷款近9000亿元
+# 英国2月经济回暖 复苏前景仍存隐忧
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。中国农业发展银行副董事长、行长张小东出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。 张小东表示，提升普惠金融有效性和精准度，需要专注主业，分工协作。 “普惠金融高质量发展需要不同类型金融机构根据自身特点，找准定位错位发展。”张小东指出，比如政策性银行要强
+中新社伦敦4月16日电 (记者 欧阳开宇)英国国家统计局16日发布数据显示，2026年2月英国国内生产总值同比增长1%，环比增长0.5%，两项指标均超出市场预期，呈现出阶段性回暖态势，为英国经济在一季度摆脱低迷带来一线曙光。英国国家统计局称，从经济运行脉络来看，此次回暖是英国经济在持续承压下逐步修复的体现。 此前，英国经济受通胀高企、消费支出疲软以及全球供应链波动等因素影响，增
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。
+中新社伦敦4月16日电 (记者 欧阳开宇)英国国家统计局16日发布数据显示，2026年2月英国国内生产总值同比增长1%，环比增长0.5%，两项指标均超出市场预期，呈现出阶段性回暖态势，为英国经济在一季度摆脱低迷带来一线曙光。
 
-中国农业发展银行副董事长、行长张小东出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。
+英国国家统计局称，从经济运行脉络来看，此次回暖是英国经济在持续承压下逐步修复的体现。
 
-张小东表示，提升普惠金融有效性和精准度，需要专注主业，分工协作。
+此前，英国经济受通胀高企、消费支出疲软以及全球供应链波动等因素影响，增长动能不足，1月环比数据一度陷入停滞。
 
-“普惠金融高质量发展需要不同类型金融机构根据自身特点，找准定位错位发展。
+进入2月，随着部分行业供应链压力缓解，服务业这一经济支柱性板块率先发力，行政支持服务、批发零售等细分领域活动活跃度提升，带动整体服务业扩张。
 
-”张小东指出，比如政策性银行要强化先导作用，聚焦基础设施薄弱的欠发达区域和三农薄弱环节，通过投放政策性贷款，为后续产业发展和商业信贷注入打好基础。
+同时，矿业和采石业的显著增长为生产端提供支撑，建筑业也扭转连续下滑趋势，实现环比增长，三大产业协同发力，共同推动经济走出此前的徘徊区间。
 
-大型商业银行、地方中小银行需要各有侧重，提升金融资源配置的效率与精准度。
+不过，英国经济的不确定性依然突出，复苏前景仍存隐忧。
 
-张小东介绍，近年来，农发行深入践行大普惠理念，领域上聚焦服务乡村全面振兴、服务巩固拓展脱贫攻坚成果、服务涉农小微企业高质量发展三个重点；投向上聚焦服务国家粮食安全、农业现代化、城乡融合发展、农村生态文明建设四大板块，做好有农发行特色的普惠金融大文章。
+国际货币基金组织近期下调了英国全年经济增长预期，反映出国际机构对其复苏前景的审慎态度。
 
-今年1-5月累放政策性贷款近9000亿元。
+与此同时，地缘政治冲突引发的能源价格波动风险持续存在，不仅可能推高通胀，进一步挤压居民消费和企业投资空间，还会对英国外贸和产业链稳定构成冲击。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 01:13 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 01:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 01:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 01:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 01:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 01:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 01:14 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 01:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 01:28 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 01:31 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 01:34 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 01:06 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 01:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 01:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 01:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 01:26 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 01:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 01:39 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 01:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 01:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:13 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 01:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 01:16 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 01:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 01:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/14907895.shtml)
-- 2026-06-30 01:25 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/286317441122.shtml)
-- 2026-06-30 01:12 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/620210900389.shtml)
-- 2026-06-30 01:28 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/48290.shtml)
-- 2026-06-30 01:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/14032.shtml)
-- 2026-06-30 01:23 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/16009570.shtml)
-- 2026-06-30 01:30 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/46019525737.shtml)
-- 2026-06-30 01:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/8959744.shtml)
-- 2026-06-30 01:16 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/7511713988.shtml)
-- 2026-06-30 01:19 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/71118018.shtml)
-- 2026-06-30 01:24 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/833233233804.shtml)
-- 2026-06-30 01:27 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/5052363.shtml)
-- 2026-06-30 01:31 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/5341916597.shtml)
-- 2026-06-30 01:06 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/4369492.shtml)
-- 2026-06-30 01:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/921988962.shtml)
+- 2026-06-30 01:28 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/8661389.shtml)
+- 2026-06-30 01:37 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/521741.shtml)
+- 2026-06-30 01:23 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/689510110648.shtml)
+- 2026-06-30 01:16 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/765386657593.shtml)
+- 2026-06-30 01:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/295415470.shtml)
+- 2026-06-30 01:16 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/156789511488.shtml)
+- 2026-06-30 01:34 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/31915658.shtml)
+- 2026-06-30 01:26 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/267318266.shtml)
+- 2026-06-30 01:37 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/4913479.shtml)
+- 2026-06-30 01:30 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/54261.shtml)
+- 2026-06-30 01:30 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/69361645.shtml)
+- 2026-06-30 01:14 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/102372016.shtml)
+- 2026-06-30 01:37 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/865012653.shtml)
+- 2026-06-30 01:15 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/53627925.shtml)
+- 2026-06-30 01:38 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/34078.shtml)

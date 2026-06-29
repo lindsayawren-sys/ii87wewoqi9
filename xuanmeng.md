@@ -1,56 +1,57 @@
-# Allbirds持续向AI赛道转型：再度更名并聘任新任CEO，股价应声暴涨
+# “我们坚信体育拥有凝聚人心的力量”
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。 这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。 卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她
+中新网北京4月17日电 “体育交流是青少年成长的重要桥梁。”谈及中美青少年体育事业发展，NYBO青少年篮球公开赛发起人陆浩这样说道。 近日，陆浩与美国业余体育联合会(AAU)主席乔·米尔扎在美国纽约签署合作备忘录。据了解，双方将以青少年篮球为核心纽带，搭建跨国体育文化交流平台，携手赋能中美青少年体育事业发展。 本次合作聚焦体育文化深度交流，明确了长期联动发展方向：为两地青少年及
 
 ## 正文
 
-核心要点 距离突然宣布全面押注人工智能、完成品牌更名仅过去两个月，原鞋履品牌 Allbirds 再度更名为 Smartbird，同时迎来新任首席执行官。
+中新网北京4月17日电 “体育交流是青少年成长的重要桥梁。
 
-这家从制鞋企业转型为人工智能基础设施服务商的公司于周三官宣：任命纳迪娅・卡尔斯滕出任首席执行官兼董事会成员，接替现任 CEO 乔・维尔纳基奥。
+”谈及中美青少年体育事业发展，NYBO青少年篮球公开赛发起人陆浩这样说道。
 
-卡尔斯滕曾执掌亚马逊云科技量子计算中心，还曾任职于美国国土安全部；加入本公司前，她担任人工智能基础设施企业 DCAI 的首席执行官，该企业近期与英伟达达成合作，旗下运营着名为 “盖菲昂” 的超级计算机。
+近日，陆浩与美国业余体育联合会(AAU)主席乔·米尔扎在美国纽约签署合作备忘录。
 
-受利好消息提振，BIRD 股价周三大涨 41.88%。
+据了解，双方将以青少年篮球为核心纽带，搭建跨国体育文化交流平台，携手赋能中美青少年体育事业发展。
 
-今年 4 月，Allbirds 突然向市场抛出重磅转型计划：彻底放弃鞋履生产业务，全面布局人工智能算力基础设施与硬件赛道，彼时公司更名为 NewBird AI，市值随即暴涨 7 倍。
+本次合作聚焦体育文化深度交流，明确了长期联动发展方向：为两地青少年及家庭、教练员和裁判员带来“走出去、引进来”的双向成长通道和国际交流平台。
 
-就在此次转型公告发布的一个月前，该公司以 3900 万美元的价格，将全部鞋类业务资产出售给品牌运营企业美国交易集团；今年 2 月，Allbirds 已经关停了美国所有正价线下门店。
+陆浩表示，本次合作，双方在青训理念、赛事体系上高度契合，“希望通过整合国际资源，让中国青少年拓宽视野。
 
-Allbirds 是当下大批跟风转型 AI 赛道的企业之一，众多公司希望抓住 2022 年末 ChatGPT 问世掀起的科技行业红利。
+期待通过常态化交流，完善人才培养路径，让体育成为中美青少年相知相伴的长久纽带。
 
-就在 Allbirds 官宣品牌更名的次日，社交媒体平台迈西姆也宣布全面转型布局人工智能业务。
+” 乔·米尔扎认为：“我们坚信体育拥有凝聚人心的力量。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 01:22 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 01:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 01:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 01:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 01:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 01:20 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 01:15 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 01:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 01:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 01:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 01:12 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 01:17 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 01:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 01:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:14 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 01:30 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 01:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/91458.shtml)
-- 2026-06-30 01:09 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/050279428.shtml)
-- 2026-06-30 01:08 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/2216376596.shtml)
-- 2026-06-30 01:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/318104206.shtml)
-- 2026-06-30 01:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/845020998629.shtml)
-- 2026-06-30 01:10 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/368779.shtml)
-- 2026-06-30 01:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/6181159.shtml)
-- 2026-06-30 01:10 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/382801059709.shtml)
-- 2026-06-30 01:32 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/266445030.shtml)
-- 2026-06-30 01:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/9648453320.shtml)
-- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/65746263.shtml)
-- 2026-06-30 01:14 - [极限挑战第一季](https://www.blog.minike.top/Article/details/558260196538.shtml)
-- 2026-06-30 01:28 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/625607.shtml)
-- 2026-06-30 01:08 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/0403219781.shtml)
-- 2026-06-30 01:19 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/3290744177.shtml)
+- 2026-06-30 01:15 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/34867.shtml)
+- 2026-06-30 01:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/238991179.shtml)
+- 2026-06-30 01:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/058020900979.shtml)
+- 2026-06-30 01:29 - [小娘惹](https://www.blog.minike.top/Article/details/776084.shtml)
+- 2026-06-30 01:27 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/636247.shtml)
+- 2026-06-30 01:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/79455.shtml)
+- 2026-06-30 01:12 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/019649356219.shtml)
+- 2026-06-30 01:39 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/3413120333.shtml)
+- 2026-06-30 01:28 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/85305270637.shtml)
+- 2026-06-30 01:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/97362.shtml)
+- 2026-06-30 01:23 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4208487.shtml)
+- 2026-06-30 01:38 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/0165935872.shtml)
+- 2026-06-30 01:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/12409643415.shtml)
+- 2026-06-30 01:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/81722025363.shtml)
+- 2026-06-30 01:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/71945.shtml)

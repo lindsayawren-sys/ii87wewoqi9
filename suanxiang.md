@@ -1,51 +1,56 @@
-# 人首鸟身，“妙音”千年：西夏陵红陶迦陵频伽的丝路“混血”密码
+# 春季购房季已至，但房价并未给购房者带来多少实惠
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。(记者 王惠琳） 责任编辑：【黄钰涵】
+春季通常会有更多房源上市，但今年到目前为止，房价并未因此变得更亲民。 美国全国房地产经纪人协会数据显示，3 月成屋价格中位数升至408，800 美元，同比上涨 1.4%，创下历年 3 月的历史新高。 与此同时，其他生活成本也未见缓和。衡量日常商品与服务成本的消费者价格指数显示，3 月通胀同比上涨 3.3%。自 2021 年初以来，通胀率始终高于美联储 2% 的目标水平，持续给家
 
 ## 正文
 
-发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。
+春季通常会有更多房源上市，但今年到目前为止，房价并未因此变得更亲民。
 
-她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。
+美国全国房地产经纪人协会数据显示，3 月成屋价格中位数升至408，800 美元，同比上涨 1.4%，创下历年 3 月的历史新高。
 
-这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。
+与此同时，其他生活成本也未见缓和。
 
-(记者 王惠琳） 责任编辑：【黄钰涵】
+衡量日常商品与服务成本的消费者价格指数显示，3 月通胀同比上涨 3.3%。
+
+自 2021 年初以来，通胀率始终高于美联储 2% 的目标水平，持续给家庭预算带来压力，也让人们更难攒钱买房。
+
+借贷成本同样没有缓解。
+
+《抵押贷款新闻日报》数据显示，30 年期固定抵押贷款平均利率为 6.32%，且已连续近四年维持在 6% 以上，让许多购房者无力承担月供。
+
+由于能负担得起房价的人越来越少，美国全国房地产经纪人协会称，3 月成屋销量环比下降 3.6%，经季节调整后年率为 398 万套，创下 2025 年 6 月以来最低水平 —— 在这个通常是全年最繁忙的购房季里，开局表现疲软。
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 01:13 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 01:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 01:34 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 01:12 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 01:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 01:34 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 01:33 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 01:24 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 01:08 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 01:24 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 01:34 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 01:20 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 01:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:42 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 01:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 01:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 01:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 01:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 01:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 01:28 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 01:17 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/301328169388.shtml)
-- 2026-06-30 01:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/255501941.shtml)
-- 2026-06-30 01:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/68245477.shtml)
-- 2026-06-30 01:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/241188622.shtml)
-- 2026-06-30 01:19 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/6171449.shtml)
-- 2026-06-30 01:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5696634.shtml)
-- 2026-06-30 01:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/4550749949.shtml)
-- 2026-06-30 01:11 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/68717076.shtml)
-- 2026-06-30 01:14 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/986022.shtml)
-- 2026-06-30 01:10 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/829057626.shtml)
-- 2026-06-30 01:19 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/8305859.shtml)
-- 2026-06-30 01:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/988623157.shtml)
-- 2026-06-30 01:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/9860979.shtml)
-- 2026-06-30 01:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/216870623094.shtml)
-- 2026-06-30 01:06 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/1461058498.shtml)
+- 2026-06-30 01:32 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/994140.shtml)
+- 2026-06-30 01:40 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/35183.shtml)
+- 2026-06-30 01:29 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/20198784.shtml)
+- 2026-06-30 01:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/86110800.shtml)
+- 2026-06-30 01:22 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/23532844574.shtml)
+- 2026-06-30 01:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/95512374435.shtml)
+- 2026-06-30 01:25 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/006293746.shtml)
+- 2026-06-30 01:13 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/32853485277.shtml)
+- 2026-06-30 01:25 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/851222173.shtml)
+- 2026-06-30 01:12 - [绘画区你赢了](http://www.share.minike.top/Article/details/467606.shtml)
+- 2026-06-30 01:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/88834.shtml)
+- 2026-06-30 01:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/51639970413.shtml)
+- 2026-06-30 01:15 - [美股](http://www.blog.kurohicncr.top/Article/details/8871067.shtml)
+- 2026-06-30 01:18 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/7717147051.shtml)
+- 2026-06-30 01:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/262135371971.shtml)

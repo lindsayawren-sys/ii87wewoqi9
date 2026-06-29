@@ -1,54 +1,54 @@
-# 瑞士携经典卡通形象Pingu首次亮相图博会
+# “维也纳女童合唱团”成都献唱 成立22年首次走出欧洲巡演
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。 据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。 此次
+发布时间：2026年04月17日 13:54 来源：中国新闻网 “2026成都·欧洲文化季”4月16日晚启幕。今年正值中国和奥地利建立正式外交关系55周年，奥地利应邀作为活动主宾国。 当晚举行的开幕音乐会上，奥地利国宝级合唱团“维也纳童声合唱团”的独立女童合唱团——“维也纳女童合唱团”精彩献唱。据了解，开幕音乐会拉开了该团队中国巡演的序幕，这是其成立22年来首次走出欧洲巡演。(
 
 ## 正文
 
-发布时间：2026年06月17日 21:44 来源：中国新闻网 6月17日，瑞士驻华大使馆于北京国际图书博览会举行期间，在北京国家会议中心举行“书页之间·遇见瑞士”主题展览开幕活动，瑞士驻华大使馆文化参赞、文化与媒体处主任施文德发表致辞。
+发布时间：2026年04月17日 13:54 来源：中国新闻网 “2026成都·欧洲文化季”4月16日晚启幕。
 
-据介绍，瑞士以“书籍不仅承载阅读，更连接设计、插画与想象”为核心理念，通过展览、讲座、工作坊和互动活动，呈现其多元创新的当代书籍文化。
+今年正值中国和奥地利建立正式外交关系55周年，奥地利应邀作为活动主宾国。
 
-此次展览特别呈现了经典卡通形象企鹅家族(Pingu)的瑞士渊源——Pingu在中国广受欢迎，但其瑞士背景鲜为人知。
+当晚举行的开幕音乐会上，奥地利国宝级合唱团“维也纳童声合唱团”的独立女童合唱团——“维也纳女童合唱团”精彩献唱。
 
-第32届北京国际图书博览会当天在国家会议中心开幕，这是瑞士首次参加图博会。
+据了解，开幕音乐会拉开了该团队中国巡演的序幕，这是其成立22年来首次走出欧洲巡演。
 
-(记者 张焕迪 制作 徐妙巧） 责任编辑：【李季】
+(岳依桐 制作 王嘉怡 视频来源 成都市人民政府外事办公室） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 01:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 01:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 01:31 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 01:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 01:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 01:18 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 01:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 01:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 01:21 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 01:22 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 01:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 01:20 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 01:28 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 01:14 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 01:38 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 01:26 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 01:17 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 01:37 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 01:26 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 01:19 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 01:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 01:29 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 01:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:29 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 01:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/1924418564.shtml)
-- 2026-06-30 01:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/715341794.shtml)
-- 2026-06-30 01:18 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/207056834.shtml)
-- 2026-06-30 01:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/464147.shtml)
-- 2026-06-30 01:31 - [千香](http://www.share.minike.top/Article/details/568145833289.shtml)
-- 2026-06-30 01:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/1902881.shtml)
-- 2026-06-30 01:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/443109436.shtml)
-- 2026-06-30 01:07 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/236721.shtml)
-- 2026-06-30 01:34 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/64594.shtml)
-- 2026-06-30 01:19 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/195740.shtml)
-- 2026-06-30 01:10 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/098650.shtml)
-- 2026-06-30 01:16 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/724617423405.shtml)
-- 2026-06-30 01:24 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/009898982427.shtml)
-- 2026-06-30 01:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/417185620173.shtml)
-- 2026-06-30 01:31 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/120038401.shtml)
+- 2026-06-30 01:37 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/545552482436.shtml)
+- 2026-06-30 01:33 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/898512127233.shtml)
+- 2026-06-30 01:17 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/57745642842.shtml)
+- 2026-06-30 01:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/5026012592.shtml)
+- 2026-06-30 01:13 - [千香](http://www.share.minike.top/Article/details/84073.shtml)
+- 2026-06-30 01:15 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/7600758.shtml)
+- 2026-06-30 01:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/77582667.shtml)
+- 2026-06-30 01:37 - [千与千寻](http://www.share.minike.top/Article/details/2893728.shtml)
+- 2026-06-30 01:28 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/635649.shtml)
+- 2026-06-30 01:27 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/81569651.shtml)
+- 2026-06-30 01:12 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/9254202505.shtml)
+- 2026-06-30 01:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/59610042.shtml)
+- 2026-06-30 01:37 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/689863701.shtml)
+- 2026-06-30 01:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/6601309219.shtml)
+- 2026-06-30 01:13 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/86103599.shtml)

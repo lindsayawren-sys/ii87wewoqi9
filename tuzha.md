@@ -1,58 +1,60 @@
-# （活力中国调研行）中国北方工业重镇谋转型 机器人产业成“链”
+# 珠江流域部分中小河流近期可能出现超警洪水
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新社天津6月18日电 (记者 王梦瑶 王恩博 周亚强)中国的传统工业城市正加速布局向“新”转型，北方工业重镇天津就是其中之一。 近年来，天津市瞄准智能机器人这一发展蓝海。据该市工业和信息化局数据，今年1至4月，全市智能机器人产业链延续快速增长态势，规模以上企业产值同比增长12.8%，增加值增长17.5%。目前，该市已培育形成了涵盖智能机器人关键零部件、整机、控制系统、应用服务
+中新网广州4月15日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)15日消息，近期，珠江流域西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。 珠江委介绍，受高空槽、西南气流、切变线影响，预计15日至17日，珠江流域贵州东南部、广西东北部、广东北部等地部分地区累计降雨量有50至100毫米，局地可能超过100毫米，西江支流柳
 
 ## 正文
 
-中新社天津6月18日电 (记者 王梦瑶 王恩博 周亚强)中国的传统工业城市正加速布局向“新”转型，北方工业重镇天津就是其中之一。
+中新网广州4月15日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)15日消息，近期，珠江流域西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。
 
-近年来，天津市瞄准智能机器人这一发展蓝海。
+珠江委介绍，受高空槽、西南气流、切变线影响，预计15日至17日，珠江流域贵州东南部、广西东北部、广东北部等地部分地区累计降雨量有50至100毫米，局地可能超过100毫米，西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。
 
-据该市工业和信息化局数据，今年1至4月，全市智能机器人产业链延续快速增长态势，规模以上企业产值同比增长12.8%，增加值增长17.5%。
+同时，近期海南维持高温少雨天气，气象干旱可能进一步发展。
 
-目前，该市已培育形成了涵盖智能机器人关键零部件、整机、控制系统、应用服务的完整产业链条。
+珠江防总常务副总指挥、珠江委主任吴小龙对近期流域水旱灾害防御工作提出明确要求，强调要立足防大汛、抗大旱，坚持旱涝同防同治，全力以赴做好各项防范应对措施，牢牢守住流域水旱灾害防御底线。
 
-“具身智能体的相当一部分关节会用到谐波减速器，其中的关键零部件就是圆柱滚子。
+近日，珠江委召开会商会，分析研判流域防汛抗旱形势，安排部署近期防御重点工作。
 
-”天津创进精工科技有限公司董事长兼首席科学家任成祖介绍，该公司主要生产超高精度轴承滚子研磨设备，目前已将轴承滚子的批直径变动量减小至亚微米量级。
+会商要求，要密切监视流域雨情、水情、汛情、旱情发展态势，滚动预测预报，做好暴雨区内中小河流洪水预报，强化短临暴雨预警，提前发出预警信息直达防御一线。
 
-任成祖说，更高的精度意味着更高的装配效率，可以让机器人运行得更久、更精密，噪声和发热问题也能得到改善。
+同时，要突出抓好山洪灾害和中小河流洪水防御，指导地方严格落实临灾预警“叫应”机制和人员转移“五个关键环节”措施，坚决避免人员伤亡。
 
-具身智能的应用场景大规模落地后，高精度滚子的市场将迎来爆发式增长，现在应做好准备。
+要动态梳理风险隐患，全面掌握暴雨区内中小水库、病险水库、在建水利工程清单，督促地方落实安全责任和抢护措施，确保工程安全度汛。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 01:34 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 01:12 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 01:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 01:25 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 01:14 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 01:17 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 01:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 01:17 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 01:15 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 01:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 01:27 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 01:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 01:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 01:33 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 01:27 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 01:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 01:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 01:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 01:15 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 01:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:32 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/6767731175.shtml)
-- 2026-06-30 01:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/42010655.shtml)
-- 2026-06-30 01:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/79759.shtml)
-- 2026-06-30 01:06 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/292507592921.shtml)
-- 2026-06-30 01:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/70230.shtml)
-- 2026-06-30 01:28 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/36751.shtml)
-- 2026-06-30 01:34 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/33338.shtml)
-- 2026-06-30 01:34 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/85781524900.shtml)
-- 2026-06-30 01:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/97767680493.shtml)
-- 2026-06-30 01:13 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/28411702.shtml)
-- 2026-06-30 01:35 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/634935.shtml)
-- 2026-06-30 01:32 - [85花告别古偶](http://www.share.minike.top/Article/details/955793.shtml)
-- 2026-06-30 01:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/811002418.shtml)
-- 2026-06-30 01:18 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/0489581.shtml)
-- 2026-06-30 01:30 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/31734.shtml)
+- 2026-06-30 01:33 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/34971453562.shtml)
+- 2026-06-30 01:34 - [明星大侦探第一季](https://www.share.minike.top/Article/details/5347744.shtml)
+- 2026-06-30 01:24 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/00808372785.shtml)
+- 2026-06-30 01:21 - [速度与激情9](http://www.share.minike.top/Article/details/93223.shtml)
+- 2026-06-30 01:14 - [起风了](http://www.share.kurohicncr.top/Article/details/797321714141.shtml)
+- 2026-06-30 01:14 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/125653.shtml)
+- 2026-06-30 01:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/86738.shtml)
+- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/02794438939.shtml)
+- 2026-06-30 01:33 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/631822032433.shtml)
+- 2026-06-30 01:25 - [世界杯](https://www.blog.kurohicncr.top/Article/details/9951075.shtml)
+- 2026-06-30 01:32 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/23036466717.shtml)
+- 2026-06-30 01:24 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/2223148.shtml)
+- 2026-06-30 01:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/80837337.shtml)
+- 2026-06-30 01:13 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/839095.shtml)
+- 2026-06-30 01:13 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/6913633971.shtml)

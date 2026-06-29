@@ -1,49 +1,59 @@
-# 视频 | 特朗普G7峰会迟到后，向全场宣告：“我是老大”
+# 中国最高法发布涉外商事海事调解案例 涵盖海难救助等
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
+中新社北京4月16日电 (记者 张素)中国最高人民法院16日发布一批涉外商事海事调解典型案例，涵盖跨境投资、股权转让、买卖合同、船舶经营管理、海难救助、涉外仲裁裁决承认与执行等领域。 其中一起涉外海难救助合同纠纷，关系中外当事人合法权益与西部陆海新通道国际航运秩序。 海口海事法院依托水上“一站式”多元解纷机制，运用“一网一库”数字司法资源，最终促成双方达成调解协议，葡萄牙籍某公
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月16日电 (记者 张素)中国最高人民法院16日发布一批涉外商事海事调解典型案例，涵盖跨境投资、股权转让、买卖合同、船舶经营管理、海难救助、涉外仲裁裁决承认与执行等领域。
 
-责任编辑：宋雅芳
+其中一起涉外海难救助合同纠纷，关系中外当事人合法权益与西部陆海新通道国际航运秩序。
+
+海口海事法院依托水上“一站式”多元解纷机制，运用“一网一库”数字司法资源，最终促成双方达成调解协议，葡萄牙籍某公司一次性向中国某救助打捞公司支付5万美元救助费用。
+
+“也门籍商人哈某与广州某公司买卖合同纠纷案”涉及跨境交易、专业技术认定、中外双方法律认知差异等多重障碍。
+
+在中外调解员联动协作下，法院组织双方多次磋商，逐步缩小分歧，最终自愿达成调解协议，并于协议签订次日全面主动履行完毕。
+
+此外，“韩国某健康产业集团与中国某健康投资公司、何某某、上海某医疗公司等股东出资纠纷案”，系中韩两国企业跨境交叉持股合作模式产生争议导致的诉讼案件。
+
+合议庭最终形成“以恢复原状为原则，解除跨境交叉持股关系”的调解方案。
+
+各方因开展合作曾签署的框架合作协议、基本交易条款约定、股东协议、投资合同等七项协议全部解除，当事人之间正在准备的其他对抗性诉讼也得以消融。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 01:21 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 01:17 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 01:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 01:27 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 01:17 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 01:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 01:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 01:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 01:08 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 01:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 01:08 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 01:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 01:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 01:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 01:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 01:32 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 01:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 01:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 01:35 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 01:32 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 01:41 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 01:21 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 01:23 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:14 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 01:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/543946.shtml)
-- 2026-06-30 01:33 - [时光音乐会](https://www.blog.minike.top/Article/details/5441632086.shtml)
-- 2026-06-30 01:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/6156646.shtml)
-- 2026-06-30 01:20 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/549740096967.shtml)
-- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/259294.shtml)
-- 2026-06-30 01:31 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/28277020715.shtml)
-- 2026-06-30 01:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/95675528.shtml)
-- 2026-06-30 01:32 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/159517974.shtml)
-- 2026-06-30 01:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/799496576079.shtml)
-- 2026-06-30 01:35 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/66924798.shtml)
-- 2026-06-30 01:09 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/38126825478.shtml)
-- 2026-06-30 01:11 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/2729560.shtml)
-- 2026-06-30 01:10 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/7155897990.shtml)
-- 2026-06-30 01:31 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/251680.shtml)
-- 2026-06-30 01:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/50911879.shtml)
+- 2026-06-30 01:38 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/98220185.shtml)
+- 2026-06-30 01:23 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/897747163335.shtml)
+- 2026-06-30 01:36 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/335053.shtml)
+- 2026-06-30 01:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/47430487467.shtml)
+- 2026-06-30 01:23 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/232125.shtml)
+- 2026-06-30 01:25 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/197589854112.shtml)
+- 2026-06-30 01:26 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/56155760251.shtml)
+- 2026-06-30 01:30 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/182353683394.shtml)
+- 2026-06-30 01:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/4601156072.shtml)
+- 2026-06-30 01:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/832802732.shtml)
+- 2026-06-30 01:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/5408029.shtml)
+- 2026-06-30 01:24 - [起风了](https://www.blog.minike.top/Article/details/15610284284.shtml)
+- 2026-06-30 01:38 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/862453703.shtml)
+- 2026-06-30 01:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/2244419826.shtml)
+- 2026-06-30 01:24 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/8675583125.shtml)

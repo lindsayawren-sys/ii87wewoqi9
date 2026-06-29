@@ -1,47 +1,56 @@
-# 河北银行获批发行发行不超过20亿元无固定期限资本债券
+# 新书《中华民族共同体意识的觉醒》发布
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日金融一线消息，河北金融监管局发布批复，同意河北银行发行不超过20亿元人民币的资本工具，品种为无固定期限资本债券。 责任编辑：秦艺
+中新网广州4月17日电 (程景伟 董芳)据广东人民出版社消息，新书《中华民族共同体意识的觉醒》日前发布。据介绍，该书由历史学家郑师渠领衔主编，通过严谨的历史考证和系统梳理，深入阐释中华民族共同体意识自近代以来的演进脉络与时代特征，揭示其从“自在”走向“自觉”的内在逻辑，为新时代中华民族伟大复兴的精神动力建设提供坚实学理支撑。 据悉，该书是国家社科基金重大项目成果，且入选广东省精
 
 ## 正文
 
-6月18日金融一线消息，河北金融监管局发布批复，同意河北银行发行不超过20亿元人民币的资本工具，品种为无固定期限资本债券。
+中新网广州4月17日电 (程景伟 董芳)据广东人民出版社消息，新书《中华民族共同体意识的觉醒》日前发布。
 
-责任编辑：秦艺
+据介绍，该书由历史学家郑师渠领衔主编，通过严谨的历史考证和系统梳理，深入阐释中华民族共同体意识自近代以来的演进脉络与时代特征，揭示其从“自在”走向“自觉”的内在逻辑，为新时代中华民族伟大复兴的精神动力建设提供坚实学理支撑。
+
+据悉，该书是国家社科基金重大项目成果，且入选广东省精品出版扶持项目。
+
+该书主编郑师渠曾任北京师范大学党委副书记、副校长，他表示，该著作基于对中国近代史与中华文化深厚底蕴的深刻理解，以国家治理和学术思想互动的视角展开研究，力求构建中华民族共同体意识形成和发展的完整脉络。
+
+据广东人民出版社相关负责人介绍，出版社高度重视该书的出版，组建专业编辑团队全程跟进，严格把控内容质量和编校流程，力求以严谨的态度与高质量的编校呈现这部学术力作。
+
+有专家指出，该著作结合宏观历史叙述和微观细节解析，精准揭示中华民族共同体意识由“自在”到“自觉”的逻辑链条，为新时代铸牢中华民族共同体意识提供珍贵历史借鉴和理论支持。
+
+另有专家认为，著作紧扣中国近代发展进程与时代脉搏，其研究成果不仅学术内涵丰富，更具有国家治理和文化建设的现实指导意义。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 01:29 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 01:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 01:10 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 01:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:27 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 01:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 01:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 01:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 01:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 01:08 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 01:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 01:14 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 01:19 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 01:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 01:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 01:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 01:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 01:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 01:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 01:15 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 01:15 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 01:37 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/88020061.shtml)
-- 2026-06-30 01:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3846855129.shtml)
-- 2026-06-30 01:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/273670535160.shtml)
-- 2026-06-30 01:18 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/64167727.shtml)
-- 2026-06-30 01:16 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3339123.shtml)
-- 2026-06-30 01:12 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/280613137.shtml)
-- 2026-06-30 01:24 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/877922134.shtml)
-- 2026-06-30 01:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/732662382.shtml)
-- 2026-06-30 01:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/58647.shtml)
-- 2026-06-30 01:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/903964.shtml)
-- 2026-06-30 01:07 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/74106984.shtml)
-- 2026-06-30 01:12 - [世界杯](http://www.blog.kurohicncr.top/Article/details/32616015.shtml)
-- 2026-06-30 01:22 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/53993321810.shtml)
-- 2026-06-30 01:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/9923313.shtml)
-- 2026-06-30 01:17 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/832701.shtml)
+- 2026-06-30 01:21 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/293135.shtml)
+- 2026-06-30 01:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/108137034757.shtml)
+- 2026-06-30 01:36 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2783413097.shtml)
+- 2026-06-30 01:14 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/404388778.shtml)
+- 2026-06-30 01:27 - [请回答王牌2019](http://www.blog.minike.top/Article/details/934345698117.shtml)
+- 2026-06-30 01:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/7742381688.shtml)
+- 2026-06-30 01:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/02847318.shtml)
+- 2026-06-30 01:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/1987432388.shtml)
+- 2026-06-30 01:13 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/64076.shtml)
+- 2026-06-30 01:40 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/62262213381.shtml)
+- 2026-06-30 01:24 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/75379358514.shtml)
+- 2026-06-30 01:33 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/58047229112.shtml)
+- 2026-06-30 01:14 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/00862.shtml)
+- 2026-06-30 01:26 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/9539045611.shtml)
+- 2026-06-30 01:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/62942117142.shtml)

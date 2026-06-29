@@ -1,59 +1,52 @@
-# 财经早报：沃什首秀！议息声明大修改出现三个变化，吴清释放A股改革强音！四个重要信号丨2026年6月18日
+# 日经指数在创下历史新高后可能下跌
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-【重磅】全球迎来“芯片牛”！别再错过，立即开户跟进>> 【头条要闻】 沃什首秀！美联储维持利率不变 当地时间6月17日，美国联邦储备委员会结束为期两天的议息会议，宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变。这是凯文·沃什就任美联储主席以来的首次议息会议，该利率决议符合市场预期，也是美联储今年以来第四次维持利率不变。 分析人士认为，美国联邦公开市场委员会中的多名
+日本日经指数可能下跌，因市场对美国和伊朗的和平谈判持谨慎态度，且该基准指数周四创下历史新高。日经指数期货在新加坡交易所下跌0.2%，报59470点。投资者正关注中东局势的发展，以及日本政府对冲突和能源及石化产品短缺的任何应对措施。日经指数周四上涨2.4%，至59518.34点的历史新高。责任编辑：王永生
 
 ## 正文
 
-【重磅】全球迎来“芯片牛”！
+日本日经指数可能下跌，因市场对美国和伊朗的和平谈判持谨慎态度，且该基准指数周四创下历史新高。
 
-别再错过，立即开户跟进>> 【头条要闻】 沃什首秀！
+日经指数期货在新加坡交易所下跌0.2%，报59470点。
 
-美联储维持利率不变 当地时间6月17日，美国联邦储备委员会结束为期两天的议息会议，宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变。
+投资者正关注中东局势的发展，以及日本政府对冲突和能源及石化产品短缺的任何应对措施。
 
-这是凯文·沃什就任美联储主席以来的首次议息会议，该利率决议符合市场预期，也是美联储今年以来第四次维持利率不变。
+日经指数周四上涨2.4%，至59518.34点的历史新高。
 
-分析人士认为，美国联邦公开市场委员会中的多名“鸽派”委员此前已公开表示暂不支持降息，美联储的整体货币政策立场更加趋于中性，市场对美联储未来利率路径的判断也更加谨慎。
-
-考虑到当前美国通胀压力顽固，就业市场韧性持续显现，短期内降息缺少基本面支撑。
-
-\[一文读懂|美联储主席沃什首秀 抛弃前瞻指引\] 美联储如期按兵不动：议息声明大修改，出现三个变化（附声明全文） 被美国总统特朗普寄予厚望的沃什，在就任美联储主席后主持的首次议息会议上并没有降息。
-
-北京时间6月18凌晨，美联储将联邦基金利率目标区间维持在3.5%-3.75%不变，符合市场预期。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 01:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 01:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 01:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 01:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 01:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 01:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 01:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:30 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 01:26 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 01:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 01:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 01:15 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 01:41 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 01:14 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 01:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 01:14 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 01:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 01:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 01:14 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 01:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 01:33 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 01:15 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 01:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 01:20 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/96629569813.shtml)
-- 2026-06-30 01:13 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/43515120819.shtml)
-- 2026-06-30 01:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/270721282845.shtml)
-- 2026-06-30 01:28 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/0300184.shtml)
-- 2026-06-30 01:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/716506.shtml)
-- 2026-06-30 01:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/639122467386.shtml)
-- 2026-06-30 01:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/869867.shtml)
-- 2026-06-30 01:08 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/10428895.shtml)
-- 2026-06-30 01:09 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/85539285.shtml)
-- 2026-06-30 01:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/241154030.shtml)
-- 2026-06-30 01:34 - [巴西vs日本](http://www.share.minike.top/Article/details/147829726455.shtml)
-- 2026-06-30 01:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/54509.shtml)
-- 2026-06-30 01:16 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/0352218874.shtml)
-- 2026-06-30 01:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/51983.shtml)
-- 2026-06-30 01:23 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/41658.shtml)
+- 2026-06-30 01:28 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/281847692061.shtml)
+- 2026-06-30 01:29 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/965990846.shtml)
+- 2026-06-30 01:31 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/6557195.shtml)
+- 2026-06-30 01:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/44536515.shtml)
+- 2026-06-30 01:31 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/152217382377.shtml)
+- 2026-06-30 01:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/3907903.shtml)
+- 2026-06-30 01:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/12010.shtml)
+- 2026-06-30 01:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/1049054652.shtml)
+- 2026-06-30 01:29 - [美股](http://www.share.kurohicncr.top/Article/details/8329296.shtml)
+- 2026-06-30 01:40 - [点菜也要教吗](https://www.blog.minike.top/Article/details/05971067.shtml)
+- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/89007.shtml)
+- 2026-06-30 01:38 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/00942740.shtml)
+- 2026-06-30 01:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/30958628.shtml)
+- 2026-06-30 01:25 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/682212658.shtml)
+- 2026-06-30 01:19 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/26726883.shtml)

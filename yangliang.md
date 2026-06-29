@@ -1,56 +1,60 @@
-# （活力中国调研行）以天津为样板 中国探路“新三样”固废回收利用
+# 炸裂“双高”，华宝基金创业板人工智能ETF暴拉4.97%，近1年涨超184%领跑！港股芯片硬核飙升，有色稳步修复
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。 这片占地26.6万平方米的基地由闲置厂房改造而成。2025年，中国资环
+4月16日，A+H携手爆发，创业板指涨超3%继续刷新近11年新高，权重股宁德时代、光模块三巨头“易中天”纷纷大涨，高“光”创业板人工智能ETF（159363）场内价格暴涨4.97%再创历史新高，单日成交额超15亿元创阶段新高，领跑一众AI主题ETF。 科技方向集体走强，双创50ETF（588330）、大数据ETF（516700）、科技ETF（515000）、信创ETF（5620
 
 ## 正文
 
-中新社天津6月17日电 题：以天津为样板 中国探路“新三样”固废回收利用 中新社记者 周亚强 随着新能源产业快速发展，逐步迎来退役高峰的光伏组件、动力电池、风机叶片等“新三样”固废的回收利用备受关注。
+4月16日，A+H携手爆发，创业板指涨超3%继续刷新近11年新高，权重股宁德时代、光模块三巨头“易中天”纷纷大涨，高“光”创业板人工智能ETF（159363）场内价格暴涨4.97%再创历史新高，单日成交额超15亿元创阶段新高，领跑一众AI主题ETF。
 
-中新社记者近日走进位于天津的中国资源循环集团(下称“中国资环”)绿色低碳循环经济示范基地，探访相关产业实践。
+科技方向集体走强，双创50ETF（588330）、大数据ETF（516700）、科技ETF（515000）、信创ETF（562030）场内均涨超2%。
 
-这片占地26.6万平方米的基地由闲置厂房改造而成。
+有色走势活跃，高人气有色ETF（159876）场内价格收涨2.84%，延续近期修复态势。
 
-2025年，中国资环仅用百余天将其建成国内首个资源循环领域国家级示范基地，集资源循环、能源循环、数字循环、资产循环于一体。
+整体来看，市场迎来内外利好共振。
 
-“我们正加快建设兼具回收储运与综合利用功能的大型区域回收利用中心，目标是形成千亿级循环经济产业集群。
+海外，中东局势缓和预期升温；国内，一季度GDP同比增长5%，超出预期。
 
-”中资环绿投循环科技投资(深圳)有限公司董事长罗晓光说，目前基地已集聚多家产业链上下游企业，推进从绿色分拣、梯级利用到再生循环的完整链条构建。
+随着市场目光逐渐从霍尔木兹移开，高景气赛道有望重回主线。
 
-罗晓光介绍，常规光伏板多为黑色或深蓝色，中国资环创新了全彩化涂层技术，使退役组件变身彩色发电建材，“既做建筑立面装饰，又能发电支持园区照明”，发电效率可达到标准光伏板的90%左右。
+港股全线大涨，恒指站稳26000点上方，恒生科技猛拉3.67%，权重科技龙头领衔上攻，港股AI核心资产——港股互联网ETF（513770）、聚焦“港股硬科技”的港股通信息技术ETF（159131）场内价格双双涨超3%。
 
-基地已应用此类组件10296块，其中彩色化应用7171块；覆盖面积约2.7万平方米，年发电量约550万千瓦时。
+宁德时代绩后飙升，引爆电池产业链，聚焦港股新能源汽车的港股通汽车ETF（520780）场内价格涨超2%，创历史收盘新高。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 01:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 01:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 01:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 01:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 01:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:35 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 01:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 01:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 01:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 01:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 01:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 01:20 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 01:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 01:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 01:19 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 01:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 01:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 01:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/718613232.shtml)
-- 2026-06-30 01:23 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/91835646148.shtml)
-- 2026-06-30 01:13 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/62277.shtml)
-- 2026-06-30 01:32 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/997515704.shtml)
-- 2026-06-30 01:25 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/4025264.shtml)
-- 2026-06-30 01:16 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/23716.shtml)
-- 2026-06-30 01:35 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/77358.shtml)
-- 2026-06-30 01:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/74330081223.shtml)
-- 2026-06-30 01:16 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/0020658206.shtml)
-- 2026-06-30 01:26 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/68611891924.shtml)
-- 2026-06-30 01:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/4458945.shtml)
-- 2026-06-30 01:08 - [乔家的儿女](http://www.share.minike.top/Article/details/87125462817.shtml)
-- 2026-06-30 01:34 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/649259141.shtml)
-- 2026-06-30 01:10 - [我们的少年时代2](https://www.blog.minike.top/Article/details/29500.shtml)
-- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/617829086.shtml)
+- 2026-06-30 01:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1123742706.shtml)
+- 2026-06-30 01:21 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/616707.shtml)
+- 2026-06-30 01:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/4626477.shtml)
+- 2026-06-30 01:29 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/1091260180.shtml)
+- 2026-06-30 01:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/74231981.shtml)
+- 2026-06-30 01:23 - [《贺子珍》](http://www.share.minike.top/Article/details/07672.shtml)
+- 2026-06-30 01:17 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/95193219.shtml)
+- 2026-06-30 01:25 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/30290.shtml)
+- 2026-06-30 01:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/62423428458.shtml)
+- 2026-06-30 01:17 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/5503788.shtml)
+- 2026-06-30 01:21 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/054849148420.shtml)
+- 2026-06-30 01:13 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/4102960103.shtml)
+- 2026-06-30 01:34 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/20318307.shtml)
+- 2026-06-30 01:30 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/544382942404.shtml)
+- 2026-06-30 01:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/3009631.shtml)

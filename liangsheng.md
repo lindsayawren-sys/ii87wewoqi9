@@ -1,58 +1,61 @@
-# 昆明国际游戏动漫产业园开园 打造数字文化出海基地
+# 中国成功发射高精度温室气体综合探测卫星
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网昆明6月17日电(记者 韩帅南)17日，昆明国际游戏动漫产业园正式开园，火薪(昆明)网络科技有限责任公司、红月画天 (云南) 动漫有限公司等7家企业首批签约入驻。当日，园区链主企业昆明螺舟网络科技有限公司新作《太吾绘卷·天幕心帷》全球同步上线。 昆明国际游戏动漫产业园落址于昆明市盘龙区，规划以数字技术为底座、游戏制作及发行为核心、电子竞技为辅助、文旅消费为延伸、人才培育为
+中新社北京4月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月17日12时10分，中国在酒泉卫星发射中心使用长征四号丙运载火箭，成功将高精度温室气体综合探测卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 高精度温室气体综合探测卫星是国家民用空间基础设施中长期发展规划的业务卫星，卫星携带大气探测激光雷达、宽幅高光谱温室气体监测仪、红外高光谱大气成分探测仪
 
 ## 正文
 
-中新网昆明6月17日电(记者 韩帅南)17日，昆明国际游戏动漫产业园正式开园，火薪(昆明)网络科技有限责任公司、红月画天 (云南) 动漫有限公司等7家企业首批签约入驻。
+中新社北京4月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月17日12时10分，中国在酒泉卫星发射中心使用长征四号丙运载火箭，成功将高精度温室气体综合探测卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-当日，园区链主企业昆明螺舟网络科技有限公司新作《太吾绘卷·天幕心帷》全球同步上线。
+高精度温室气体综合探测卫星是国家民用空间基础设施中长期发展规划的业务卫星，卫星携带大气探测激光雷达、宽幅高光谱温室气体监测仪、红外高光谱大气成分探测仪、紫外高光谱大气成分探测仪、云和气溶胶成像仪5台有效载荷。
 
-昆明国际游戏动漫产业园落址于昆明市盘龙区，规划以数字技术为底座、游戏制作及发行为核心、电子竞技为辅助、文旅消费为延伸、人才培育为支撑，致力打造国家级精品游戏产业生态集聚地、创新策源地、面向南亚东南亚的数字文化出海基地和西南数字创意产业示范高地。
+该卫星将在全球首次实现主被动温室气体联合探测及紫外红外污染气体联合探测，可为自然资源、农业农村、林业和草原、气象等行业应用的观测要素信息提取、业务专题产品批量化生产等业务化运行提供遥感数据支撑，服务现代化基础设施体系构建。
 
-该园区坚持科学分区、功能互补。
+高精度温室气体综合探测卫星入轨后，将与大气环境监测卫星协同观测，构建主动激光、紫外、可见光、红外等综合观测手段的环境监测天基平台，大幅提升中国温室气体、污染气体、气溶胶等高精度监测能力，为全球气候变化研究、节能减排、环境外交与履约、污染防治等生态环境管理提供技术支撑。
 
-龙头引领区承载螺舟科技总部、核心研发中心、鸿蒙生态合作实验室与IP运营中心；产业集聚区划分了游戏研发、动漫制作、电竞运营、IP衍生品开发等区域，配备共享办公、数字展厅支持等公共设施，吸引上下游中小微企业、独立工作室入驻；文旅体验区设置有精品游戏展区、动漫IP联展、数字文创市集等，实现“产业+文旅+体验”深度融合，构建“上下楼即上下游”的产业链格局。
+执行本次发射任务的长征四号丙运载火箭是一款常温液体三级运载火箭，具备发射多种类型、不同轨道要求卫星的能力，可实施一箭一星或多星发射，700公里太阳同步轨道运载能力为3吨。
 
-未来，昆明国际游戏动漫产业园将牢牢依托链主企业带动作用，精准招引游戏研发、动漫创作、3D建模、出海服务、鸿蒙生态等上下游企业。
+此次任务是长征系列运载火箭的第638次飞行。
 
-全力推动游戏动漫与云南民族文化、文旅产业深度融合，持续孵化原创IP、培育本土团队、培养电竞人才。
+本次任务星箭均由中国航天科技集团八院抓总研制。
 
-螺舟科技负责人表示，作为与园区开园同步推出的重磅游戏力作，《太吾绘卷·天幕心帷》历经七年持续打磨迭代，在核心玩法创新、剧情深度拓展、视觉界面优化等方面实现了全方位升级。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 01:22 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 01:19 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 01:27 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 01:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 01:27 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:13 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 01:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 01:33 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 01:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 01:13 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 01:19 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 01:37 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 01:35 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 01:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 01:36 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 01:31 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 01:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 01:25 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 01:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 01:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 01:26 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 01:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 01:19 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 01:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/06139.shtml)
-- 2026-06-30 01:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/30075714106.shtml)
-- 2026-06-30 01:22 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/405414493086.shtml)
-- 2026-06-30 01:11 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/690806.shtml)
-- 2026-06-30 01:30 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/54382.shtml)
-- 2026-06-30 01:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/529619856.shtml)
-- 2026-06-30 01:07 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/6387105.shtml)
-- 2026-06-30 01:13 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/57639412.shtml)
-- 2026-06-30 01:09 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/20382387.shtml)
-- 2026-06-30 01:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/2604562.shtml)
-- 2026-06-30 01:17 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/7461662749.shtml)
-- 2026-06-30 01:31 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/44121984620.shtml)
-- 2026-06-30 01:20 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/14363288121.shtml)
-- 2026-06-30 01:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/258913475969.shtml)
-- 2026-06-30 01:35 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/15363.shtml)
+- 2026-06-30 01:28 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/20464497.shtml)
+- 2026-06-30 01:33 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/53140909923.shtml)
+- 2026-06-30 01:31 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/452202978.shtml)
+- 2026-06-30 01:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/462829.shtml)
+- 2026-06-30 01:36 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/249224558.shtml)
+- 2026-06-30 01:12 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/675495843974.shtml)
+- 2026-06-30 01:30 - [房价什么时候能涨](http://www.share.minike.top/Article/details/435899949.shtml)
+- 2026-06-30 01:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/9991541240.shtml)
+- 2026-06-30 01:36 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/891629.shtml)
+- 2026-06-30 01:12 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/084893.shtml)
+- 2026-06-30 01:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/56756.shtml)
+- 2026-06-30 01:20 - [扬名立万](http://www.blog.minike.top/Article/details/61854.shtml)
+- 2026-06-30 01:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/5980024.shtml)
+- 2026-06-30 01:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/4711914331.shtml)
+- 2026-06-30 01:34 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/044667946.shtml)

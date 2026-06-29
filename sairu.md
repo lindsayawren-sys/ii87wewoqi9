@@ -1,59 +1,47 @@
-# 创历史新高！电子ETF华宝（515260）强势拉升4.45%！PCB、玻璃基板爆发！深南电路等6股涨停，多股刷新纪录！
+# 4月16日人民币对美元中间价报6.8616 下调34个基点
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-今日（6月17日）电子板块领涨全市场，全天获主力资金净流入790亿元，拉长时间来看，近5日、近20日分别吸金1856亿元、3251亿元，板块吸金额持续断层高居31个申万一级行业首位。兆易创新、京东方A分别获主力资金净流入68亿元、42亿元，占据A股吸金榜第一、第二位。 热门ETF方面，囊括PCB、玻璃基板等热门概念的电子ETF华宝（515260）场内价格强势拉升4.45%，斩获
+中新网4月16日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月16日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8616元，下调34个基点。
 
 ## 正文
 
-今日（6月17日）电子板块领涨全市场，全天获主力资金净流入790亿元，拉长时间来看，近5日、近20日分别吸金1856亿元、3251亿元，板块吸金额持续断层高居31个申万一级行业首位。
-
-兆易创新、京东方A分别获主力资金净流入68亿元、42亿元，占据A股吸金榜第一、第二位。
-
-热门ETF方面，囊括PCB、玻璃基板等热门概念的电子ETF华宝（515260）场内价格强势拉升4.45%，斩获日线3连阳，创历史新高！
-
-（即，刷新该ETF 2020年7月31日上市以来的高点） 值得关注的是，电子ETF华宝（515260）标的指数囊括PCB、玻璃基板等热门概念，具体来看： 1、玻璃基板概念方面，京东方A、TCL科技涨停 台积电向供应链发布CoWoS玻璃基板开发计划，确定携手ABF载板厂商Ibiden与面板厂商群创，共同验证玻璃基板导入CoWoS先进封装的可行性。
-
-这是台积电首次公开玻璃基板技术应用进程，意味着玻璃基板正式跨入产业化验证阶段。
-
-国盛证券认为，玻璃基板有望迎来黄金发展周期*。
-
-2、PCB（印制电路板）方面，深南电路涨停创新高，鹏鼎控股亦涨停 PCB仍然受益于“扩产+涨价”两大热潮：扩产潮方面，东山精密豪掷12亿美元“追光”，实施光芯片及光模块扩建项目；涨价潮方面，覆铜板龙头建滔积层板再发布涨价函，由于目前铜价高企，玻璃布价格持续上涨且供应十分紧张，导致覆铜板成本急剧上升，公司对所有FR-4、PP提价15%。
-
-3、存储芯片概念方面，兆易创新涨停创新高，登顶A股吸金榜榜首 存储芯片涨价潮延续，上半年NOR Flash合约价涨幅超100%，SLC NAND价格涨幅达130%–150%，下半年高端特规产品仍有涨价空间。
+中新网4月16日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月16日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8616元，下调34个基点。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:29 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 01:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 01:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 01:33 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 01:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 01:24 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 01:32 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 01:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 01:25 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 01:28 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 01:24 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 01:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 01:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 01:35 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 01:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 01:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 01:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:23 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 01:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 01:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 01:22 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 01:39 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 01:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 01:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 01:22 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/60108.shtml)
-- 2026-06-30 01:24 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/7802756.shtml)
-- 2026-06-30 01:16 - [月亮](http://www.blog.minike.top/Article/details/21769995.shtml)
-- 2026-06-30 01:25 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/75471533.shtml)
-- 2026-06-30 01:10 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4262763.shtml)
-- 2026-06-30 01:23 - [恋与深空 巧合](https://www.share.minike.top/Article/details/44334363202.shtml)
-- 2026-06-30 01:14 - [美股](https://www.blog.minike.top/Article/details/54787126.shtml)
-- 2026-06-30 01:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/7374613.shtml)
-- 2026-06-30 01:12 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/66739.shtml)
-- 2026-06-30 01:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/2545261171.shtml)
-- 2026-06-30 01:29 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/970279665297.shtml)
-- 2026-06-30 01:35 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/09154224.shtml)
-- 2026-06-30 01:15 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/04204892683.shtml)
-- 2026-06-30 01:32 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/7838648.shtml)
-- 2026-06-30 01:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/23389775.shtml)
+- 2026-06-30 01:21 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/7482951.shtml)
+- 2026-06-30 01:20 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/03727.shtml)
+- 2026-06-30 01:22 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/3774889948.shtml)
+- 2026-06-30 01:19 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/492208682301.shtml)
+- 2026-06-30 01:14 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/181132836.shtml)
+- 2026-06-30 01:17 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/2745518680.shtml)
+- 2026-06-30 01:36 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/460204521.shtml)
+- 2026-06-30 01:32 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/45837039474.shtml)
+- 2026-06-30 01:25 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/8731874564.shtml)
+- 2026-06-30 01:25 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/68546679.shtml)
+- 2026-06-30 01:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/145013.shtml)
+- 2026-06-30 01:30 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/765832.shtml)
+- 2026-06-30 01:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/5798515.shtml)
+- 2026-06-30 01:13 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/73172755337.shtml)
+- 2026-06-30 01:34 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/753851980087.shtml)

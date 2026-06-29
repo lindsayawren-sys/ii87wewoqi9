@@ -1,48 +1,57 @@
-# 九三学社天桥区委员会赴中共山东早期历史纪念馆开展主题教育学习
+# 中国驻日使馆：敦促日方查清系列恐怖威胁事件 保障中方人员安全
 
-> 更新时间：2026-06-30 01:36:03 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-为感悟红色初心，凝聚奋进力量，进一步推进“参政为公、实干为民”主题教育走深走实，6月16日，九三学社天桥区委员会组织社员赴中共山东早期历史纪念馆(山东省党史陈列馆)开展主题教育学习。 活动中，大家在讲解员的引导下，依次参观了“社会变革、历史选择”“点燃星火、彰显初心”等展区，系统学习了山东早期党组织创建、发展和斗争的光辉历程，通过珍贵的历史照片、文献手稿、革命实物，沉浸式聆听了
+中新社东京4月16日电 4月16日，中国驻日本大使馆举行记者会，中国驻日本大使馆临时代办施泳发布大使馆近期受到系列恐怖威胁有关情况。日本媒体、中国驻日媒体、华文媒体等约20名记者出席。 施泳表示，3月5日，自称“由前警察和前自卫队员组成的军事精锐部队”人员向我馆寄送恐吓信，威胁称将对中国驻日使领馆发动袭击，把所有在日“支那人”消灭殆尽。我馆收到恐吓信后即报警，日方未予重视，未采
 
 ## 正文
 
-为感悟红色初心，凝聚奋进力量，进一步推进“参政为公、实干为民”主题教育走深走实，6月16日，九三学社天桥区委员会组织社员赴中共山东早期历史纪念馆(山东省党史陈列馆)开展主题教育学习。
+中新社东京4月16日电 4月16日，中国驻日本大使馆举行记者会，中国驻日本大使馆临时代办施泳发布大使馆近期受到系列恐怖威胁有关情况。
 
-活动中，大家在讲解员的引导下，依次参观了“社会变革、历史选择”“点燃星火、彰显初心”等展区，系统学习了山东早期党组织创建、发展和斗争的光辉历程，通过珍贵的历史照片、文献手稿、革命实物，沉浸式聆听了革命先烈抛头颅洒热血、百折不挠的英勇事迹，深切感悟共产党人的初心使命和坚定信仰。
+日本媒体、中国驻日媒体、华文媒体等约20名记者出席。
 
-参加活动的社员一致表示，此次主题教育学习是一次深刻的精神洗礼，要从党史中传承红色基因、汲取前行力量，传承爱国、民主、科学的优良传统，把“参政为公、实干为民”主题教育各项要求内化于心、外化于行，在参政议政、社会服务等方面持续发扬求真务实的作风，以实际行动展现九三学社社员的责任与担当。
+施泳表示，3月5日，自称“由前警察和前自卫队员组成的军事精锐部队”人员向我馆寄送恐吓信，威胁称将对中国驻日使领馆发动袭击，把所有在日“支那人”消灭殆尽。
 
-下一步，九三学社天桥区委员将常态化开展红色教育、主题研学等活动，丰富思想政治建设载体，引导全体社员厚植爱国情怀、坚定理想信念，在新时代新征程上更好履行参政党职能，为天桥区经济社会发展贡献九三学社的力量。
+我馆收到恐吓信后即报警，日方未予重视，未采取有力措施，至今未查明事实真相。
+
+19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国大使馆的严重事件。
+
+中方紧急向日本外务省、警方提出严正交涉。
+
+但是，“闯馆”事件仅一周后，3月31日，又一名自称“应急预备自卫官”的人员通过网络向我馆发出恐怖威胁，称其在中国使馆内安装了远距离遥控炸弹。
+
+我馆立刻向警方报警，日本警方当天对使馆展开近2小时的排弹作业。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:18 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 01:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 01:13 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:19 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 01:28 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 01:07 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:19 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 01:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 01:41 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 01:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 01:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 01:16 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 01:28 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 01:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 01:15 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 01:12 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 01:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 01:19 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 01:29 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/726374254.shtml)
-- 2026-06-30 01:16 - [张凌赫 客串](http://www.blog.minike.top/Article/details/145729.shtml)
-- 2026-06-30 01:16 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/8481901.shtml)
-- 2026-06-30 01:10 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/98914.shtml)
-- 2026-06-30 01:18 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/50233.shtml)
-- 2026-06-30 01:13 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/32622.shtml)
-- 2026-06-30 01:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/5569199055.shtml)
-- 2026-06-30 01:32 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/02103248.shtml)
-- 2026-06-30 01:13 - [张凌赫 客串](https://www.blog.minike.top/Article/details/63921.shtml)
-- 2026-06-30 01:24 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/8835417388.shtml)
-- 2026-06-30 01:17 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/525472926.shtml)
-- 2026-06-30 01:31 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/32845050317.shtml)
-- 2026-06-30 01:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/6665013283.shtml)
-- 2026-06-30 01:07 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/194759919469.shtml)
-- 2026-06-30 01:06 - [速度与激情9](http://www.blog.minike.top/Article/details/429149847477.shtml)
+- 2026-06-30 01:30 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2346621.shtml)
+- 2026-06-30 01:14 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/816802.shtml)
+- 2026-06-30 01:16 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/10237399.shtml)
+- 2026-06-30 01:33 - [金刚川](https://www.blog.minike.top/Article/details/645411886.shtml)
+- 2026-06-30 01:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/155347193855.shtml)
+- 2026-06-30 01:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/628404380.shtml)
+- 2026-06-30 01:34 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/15271516.shtml)
+- 2026-06-30 01:13 - [爱很美味](http://www.share.kurohicncr.top/Article/details/838080452.shtml)
+- 2026-06-30 01:25 - [张凌赫 客串](https://www.blog.minike.top/Article/details/822479875.shtml)
+- 2026-06-30 01:29 - [锐评T1零封KC](http://www.share.minike.top/Article/details/87510550330.shtml)
+- 2026-06-30 01:29 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/9958111.shtml)
+- 2026-06-30 01:24 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/543179.shtml)
+- 2026-06-30 01:38 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/1480358088.shtml)
+- 2026-06-30 01:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/65315297397.shtml)
+- 2026-06-30 01:22 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/920935304502.shtml)

@@ -1,53 +1,57 @@
-# MHMarkets迈汇:长线买盘仍在等待
+# 香港都会大学将全方位提升学生AI素养
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。 从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。 这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可
+中新网香港4月16日电 香港都会大学(下称“都大”)16日公布未来发展蓝图。该校校长林群声说，为全方位提升学生的人工智能(AI)素养，从2026/27学年起，都大本科生须修读两个核心单元“与AI共创：未来的沟通与团队协作”及“人工智能、可持续发展与创业领导力”。 林群声表示，期望通过上述措施培育“AI就绪”(AI-ready)人才，让学生能够以创新、批判且负责任的方式善用新兴的
 
 ## 正文
 
-6月18日，尽管黄金短线波动仍大，MHMarkets迈汇表示部分机构并未完全转向悲观，通胀风险和财政扩张背景仍被视作中长期支撑贵金属的重要逻辑。
+中新网香港4月16日电 香港都会大学(下称“都大”)16日公布未来发展蓝图。
 
-从机构观点看，MHMarkets迈汇认为当前价格回撤更多体现为高位震荡中的再平衡，若实际利率没有继续单边上冲，黄金对中长期配置型资金依旧保持一定吸引力。
+该校校长林群声说，为全方位提升学生的人工智能(AI)素养，从2026/27学年起，都大本科生须修读两个核心单元“与AI共创：未来的沟通与团队协作”及“人工智能、可持续发展与创业领导力”。
 
-这意味着金市短线可能继续围绕宏观预期反复拉锯，但中期方向并未被完全改写，资金更可能等待更清晰的利率与通胀组合信号再扩大仓位。
+林群声表示，期望通过上述措施培育“AI就绪”(AI-ready)人才，让学生能够以创新、批判且负责任的方式善用新兴的AI技术。
 
-放在接下来一段时间观察，MHMarkets迈汇判断黄金能否恢复韧性，关键仍在于配置需求是否回流以及收益率上行压力能否逐渐缓和。
+他指出，北部都会区是香港未来发展的新引擎，都大将善用“北都大学教育城”的地理优势，聚焦科技教育与研究发展，并深化与粤港澳大湾区企业及科研机构的产学研协作，发挥更强大的协同效应。
 
-责任编辑：陈平
+林群声提到，近日正式开幕的都大深圳研究院将会作为该校的深港产学研基地，把握粤港澳大湾区重大发展机遇，促进内地与香港两地学术研究与产业创新深度融合。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 01:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 01:35 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 01:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 01:08 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 01:07 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 01:21 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 01:11 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 01:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 01:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 01:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 01:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 01:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 01:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 01:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 01:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 01:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 01:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 01:40 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 01:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 01:16 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 01:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 01:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 01:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 01:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 01:33 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 01:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/98826409.shtml)
-- 2026-06-30 01:33 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/68097279218.shtml)
-- 2026-06-30 01:33 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3566209.shtml)
-- 2026-06-30 01:27 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/01540806.shtml)
-- 2026-06-30 01:32 - [东方风云榜直播](http://www.share.minike.top/Article/details/7401653.shtml)
-- 2026-06-30 01:08 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/01194834596.shtml)
-- 2026-06-30 01:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/178441385946.shtml)
-- 2026-06-30 01:32 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8809465.shtml)
-- 2026-06-30 01:11 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/89207649.shtml)
-- 2026-06-30 01:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/1591062608.shtml)
-- 2026-06-30 01:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/072616.shtml)
-- 2026-06-30 01:16 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4310017734.shtml)
-- 2026-06-30 01:35 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/9558206.shtml)
-- 2026-06-30 01:33 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/060312.shtml)
-- 2026-06-30 01:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/92044.shtml)
+- 2026-06-30 01:26 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/43519840.shtml)
+- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/057968.shtml)
+- 2026-06-30 01:30 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/2444241961.shtml)
+- 2026-06-30 01:30 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/48700.shtml)
+- 2026-06-30 01:28 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/283171.shtml)
+- 2026-06-30 01:18 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/81264154589.shtml)
+- 2026-06-30 01:22 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/374423292999.shtml)
+- 2026-06-30 01:39 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0064291081.shtml)
+- 2026-06-30 01:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/208772902.shtml)
+- 2026-06-30 01:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/634254294.shtml)
+- 2026-06-30 01:32 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/684666619.shtml)
+- 2026-06-30 01:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/52104039.shtml)
+- 2026-06-30 01:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5730555222.shtml)
+- 2026-06-30 01:35 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/1182999264.shtml)
+- 2026-06-30 01:12 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/838250543.shtml)

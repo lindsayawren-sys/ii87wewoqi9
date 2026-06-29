@@ -1,60 +1,58 @@
-# 工行、中行、中信等在列 六家银行获批试点离岸人民币外汇交易
+# 以“稳”求“效” 千亿茅台业绩背后的长期主义
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。 本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新
+4月16日晚间，贵州茅台发布2025年年报，报告显示，2025年公司实现营业总收入1720.54亿元，利润总额1147.55亿元，归母净利润823.20亿元。在白酒行业深度调整期，国内外市场都面临较大的困难和挑战下，贵州茅台作为行业龙头企业，这份业绩殊为不易。业内人士认为，在行业整体承压、消费动能重构的当下，贵州茅台并未谋求急功近利的短期增长，而是实事求是，不“唯指标论”，坚持
 
 ## 正文
 
-21世纪经济报道记者张欣 6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，将在上海自贸试验区开展离岸人民币外汇交易试点，授权工商银行、农业银行、中国银行、建设银行、交通银行及中信银行等6家银行，利用中国外汇交易中心平台开展离岸人民币外汇交易。
+4月16日晚间，贵州茅台发布2025年年报，报告显示，2025年公司实现营业总收入1720.54亿元，利润总额1147.55亿元，归母净利润823.20亿元。
 
-本次试点直击在岸、离岸人民币市场长期分割痛点，推动两地市场互联互通与定价权回流，为人民币国际化和上海国际金融中心建设注入新动能。
+在白酒行业深度调整期，国内外市场都面临较大的困难和挑战下，贵州茅台作为行业龙头企业，这份业绩殊为不易。
 
-据本报记者了解，工商银行、中国银行率先落地上海自贸区离岸人民币外汇试点首批业务。
+业内人士认为，在行业整体承压、消费动能重构的当下，贵州茅台并未谋求急功近利的短期增长，而是实事求是，不“唯指标论”，坚持以“稳”求“效”，致力于自身市场化改革，这是一项系统性、长期性工程，改革红利不会马上释放。
 
-工商银行方面表示，率先开展双边做市报价并完成首批交易，交易对手涵盖中国香港、新加坡、英国伦敦等多个国家和地区的金融机构，交易品种包括外汇即期、远期和掉期全品类，交易货币覆盖离岸人民币对美元、欧元、日元、港币、新加坡元、土耳其里拉、澳大利亚元、泰国铢、南非兰特等，交易规模、对手数量和币种种类丰富度处行业前列。
+长远而言，随着市场化改革持续走深、各项举措稳步落地，改革带来的综合效益与发展红利，将会在未来逐步显现、持续兑现，为企业高质量发展积蓄动能，继续为股东、渠道、消费者创造长期价值。
 
-工商银行称，依托银行间各类市场核心做市商与全球一体化经营优势，持续助力人民币国际化与高水平对外开放。
+对股东：以精细化管理打造市值管理标杆 对于投资者而言，评判一家公司的价值，不能只看短期的业绩利润，更要看其回馈股东的意愿与长期盈利能力。
 
-首批试点机构中国银行亦完成试点首单，据中行官方披露，该行本次首批交易覆盖外汇即期、外汇掉期两大主流交易品种，交易币种涵盖多个发达经济体货币以及“一带一路”共建国家货币，且已成功与境外同业机构达成首笔相关交易。
+长期以来，茅台的市值管理备受瞩目，其目标是成为A股市值管理的标杆企业，而核心抓手在于制度体系的建立与市值管理工具的灵活运用。
 
-中国银行方面表示，本次业务落地进一步丰富了离岸人民币外汇市场参与主体，拓宽市场交易渠道，助力离岸人民币市场规范化、规模化发展，持续推动人民币跨境交易生态完善。
+当前，茅台正多措并举健全完善市值管理体系，包括发布实施《市值管理办法》《投资者关系管理办法》，持续提升市值管理精细化、规范化水平，这意味着，茅台对股东价值的维护不再是临时性的，而是有章可循、有据可依的常态化工作，通过规范化的投资者关系管理，主动倾听市场声音，及时回应股东关切。
 
-远东资信研究院副院长张林针对本次试点政策作出解读。
+在制度保障的基础上，茅台灵活运用分红、回购、大股东增持等一系列市场工具，打出“组合拳”。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 01:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 01:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 01:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:28 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 01:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 01:25 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 01:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 01:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 01:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 01:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:22 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 01:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 01:36 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 01:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 01:35 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 01:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 01:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 01:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 01:35 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 01:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 01:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 01:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 01:29 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 01:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [毒液2](https://www.blog.kurohicncr.top/Article/details/80488.shtml)
-- 2026-06-30 01:30 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/293200.shtml)
-- 2026-06-30 01:33 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/70512017.shtml)
-- 2026-06-30 01:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/99278276437.shtml)
-- 2026-06-30 01:22 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/48330346280.shtml)
-- 2026-06-30 01:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/420972969494.shtml)
-- 2026-06-30 01:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/048336265178.shtml)
-- 2026-06-30 01:11 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/71734.shtml)
-- 2026-06-30 01:16 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/935889.shtml)
-- 2026-06-30 01:16 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/38160640406.shtml)
-- 2026-06-30 01:13 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/09709.shtml)
-- 2026-06-30 01:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/245239313.shtml)
-- 2026-06-30 01:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/404192.shtml)
-- 2026-06-30 01:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/944090804.shtml)
-- 2026-06-30 01:06 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/18065692151.shtml)
+- 2026-06-30 01:14 - [金刚川](http://www.share.kurohicncr.top/Article/details/5736733.shtml)
+- 2026-06-30 01:16 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/479942436019.shtml)
+- 2026-06-30 01:30 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/486646259.shtml)
+- 2026-06-30 01:37 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/554441570.shtml)
+- 2026-06-30 01:21 - [千与千寻](http://www.share.kurohicncr.top/Article/details/53425.shtml)
+- 2026-06-30 01:39 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/090466646093.shtml)
+- 2026-06-30 01:17 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/5423634855.shtml)
+- 2026-06-30 01:16 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/954792.shtml)
+- 2026-06-30 01:18 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/14453.shtml)
+- 2026-06-30 01:41 - [斗破苍穹](http://www.share.minike.top/Article/details/450115496.shtml)
+- 2026-06-30 01:22 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/148940015929.shtml)
+- 2026-06-30 01:37 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/616454996891.shtml)
+- 2026-06-30 01:40 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/0022230259.shtml)
+- 2026-06-30 01:27 - [千香](https://www.blog.minike.top/Article/details/8036586.shtml)
+- 2026-06-30 01:31 - [巴西vs日本](http://www.blog.minike.top/Article/details/121484057500.shtml)

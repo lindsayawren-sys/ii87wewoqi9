@@ -1,55 +1,57 @@
-# 湖北石首：昔日“龙须沟” 今朝成“新宠”
+# 共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 22:26 来源：中国新闻网 6月17日，湖北省石首市中心城区渠道截污及生态修复工程全面完工，标志着由石首市委市政府统筹谋划、长江生态环保集团牵头实施、中交二航局承建的石首市中心城区水环境综合治理PPP项目(一期工程)取得阶段性成效。昔日被当地居民称为“龙须沟”的水渠，如今已蜕变为“水下有草、岸边有树、四季有景”的生态廊道。 四年奋战，成效斐然
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
 
 ## 正文
 
-发布时间：2026年06月17日 22:26 来源：中国新闻网 6月17日，湖北省石首市中心城区渠道截污及生态修复工程全面完工，标志着由石首市委市政府统筹谋划、长江生态环保集团牵头实施、中交二航局承建的石首市中心城区水环境综合治理PPP项目(一期工程)取得阶段性成效。
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
 
-昔日被当地居民称为“龙须沟”的水渠，如今已蜕变为“水下有草、岸边有树、四季有景”的生态廊道。
+同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
 
-四年奋战，成效斐然。
+经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
 
-项目累计清除淤泥18余万立方米，改造升级雨污管网31.32公里，新建及修复绿化景观8.76万平方米，成功打通官田湖、显扬湖、山底湖三大淤塞内湖，全面疏通城市水系“经络网”。
+上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
 
-该项目不仅实现了“治污”与“添景”的双重目标，更显著改善了石首中心城区水生态环境，为长江荆江段流域治理提供了可复制、可推广的实践样本。
+案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
 
-下一步，项目将持续巩固水体治理成效，擦亮“鄂南明珠”生态底色，全力服务长江经济带高质量发展，切实把生态治理成果转化为群众可感知、可享受的民生福祉。
-
-(完) 责任编辑：【李季】
+(总台央视记者 王婧 汪君）
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 01:32 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 01:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 01:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 01:22 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 01:10 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 01:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 01:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 01:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 01:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 01:29 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 01:30 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:27 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 01:40 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 01:15 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 01:21 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 01:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:20 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 01:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 01:26 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 01:18 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 01:29 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 01:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/755461259.shtml)
-- 2026-06-30 01:15 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/603307867569.shtml)
-- 2026-06-30 01:09 - [千与千寻](https://www.share.minike.top/Article/details/844675653.shtml)
-- 2026-06-30 01:08 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/7711654157.shtml)
-- 2026-06-30 01:24 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/527481654882.shtml)
-- 2026-06-30 01:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/3188401677.shtml)
-- 2026-06-30 01:06 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/119983.shtml)
-- 2026-06-30 01:32 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/62961598067.shtml)
-- 2026-06-30 01:06 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/573060979.shtml)
-- 2026-06-30 01:07 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/375945508.shtml)
-- 2026-06-30 01:35 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/71650.shtml)
-- 2026-06-30 01:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/710210263.shtml)
-- 2026-06-30 01:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/715205977.shtml)
-- 2026-06-30 01:25 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/157022563427.shtml)
-- 2026-06-30 01:23 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/262242659.shtml)
+- 2026-06-30 01:33 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/79409707653.shtml)
+- 2026-06-30 01:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/69576991.shtml)
+- 2026-06-30 01:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/732512520.shtml)
+- 2026-06-30 01:39 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/3721757.shtml)
+- 2026-06-30 01:12 - [一见倾心](https://www.share.minike.top/Article/details/50941997.shtml)
+- 2026-06-30 01:29 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2142253.shtml)
+- 2026-06-30 01:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/3981915108.shtml)
+- 2026-06-30 01:30 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/9450791977.shtml)
+- 2026-06-30 01:16 - [周生如故](https://www.blog.minike.top/Article/details/89619.shtml)
+- 2026-06-30 01:39 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/41841153.shtml)
+- 2026-06-30 01:30 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/23301679.shtml)
+- 2026-06-30 01:33 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/6762440.shtml)
+- 2026-06-30 01:19 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/13665790554.shtml)
+- 2026-06-30 01:16 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/72116192.shtml)
+- 2026-06-30 01:23 - [房价什么时候能涨](https://www.share.minike.top/Article/details/19624.shtml)

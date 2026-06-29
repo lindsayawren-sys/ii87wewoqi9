@@ -1,60 +1,58 @@
-# 投教高校行 | 德邦基金走进天华学院开展第二场专题量化投资课程
+# 超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-为积极响应国务院关于投资者教育纳入国民教育体系的重要部署，落实中国证券投资基金业协会发起的“一司一省一高校”投资者教育专项活动要求，切实履行金融机构的社会责任与使命担当，2026年5月26日 ，德邦基金“投教进百校”系列活动走进上海师范大学天华学院，开展“金融投资实务实训”系列课程的第二场专题讲座 ，以系统化、专业化的课程内容助力高校学子深化对公募基金行业的认知、提升自身金融素
+今日（4月16日）有色金属板块表现活跃，全天获主力资金净流入超154亿元，板块吸金额高居31个申万一级行业第三位，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）震荡上扬，场内价格劲涨2.84%，收于日内高点。 成份股方面，厦门钨业、恒邦股份涨停，盛新锂能、国城矿业涨超7%，天山铝业、中矿资源等个股跟涨。 数据统计区间：2026.3.24-2026.4.16。中
 
 ## 正文
 
-为积极响应国务院关于投资者教育纳入国民教育体系的重要部署，落实中国证券投资基金业协会发起的“一司一省一高校”投资者教育专项活动要求，切实履行金融机构的社会责任与使命担当，2026年5月26日 ，德邦基金“投教进百校”系列活动走进上海师范大学天华学院，开展“金融投资实务实训”系列课程的第二场专题讲座 ，以系统化、专业化的课程内容助力高校学子深化对公募基金行业的认知、提升自身金融素养。
+今日（4月16日）有色金属板块表现活跃，全天获主力资金净流入超154亿元，板块吸金额高居31个申万一级行业第三位，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）震荡上扬，场内价格劲涨2.84%，收于日内高点。
 
-继首场课程《指数编制与指数演变》获得师生热烈反响后，本次课程以《指数基金、ETF及量化基金的投资管理与应用》为主题，继续由德邦基金总经理助理、复旦大学经济学博士提云涛担任主讲导师，为天华学院学子带来一场理论与实践深度融合的专业分享。
+成份股方面，厦门钨业、恒邦股份涨停，盛新锂能、国城矿业涨超7%，天山铝业、中矿资源等个股跟涨。
 
-商学院院长助理谢富生老师再次出席并致辞，对系列课程的持续开展给予肯定。
+数据统计区间：2026.3.24-2026.4.16。
 
-第二场课程聚焦指数增强与主动量化投资。
+中证有色金属指数近5个完整年度的涨跌幅为：2021年，35.89%；2022年，-19.22%；2023年，-10.43%；2024年，2.96%；2025年，91.67%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-提云涛老师以多因子模型为切入点，详细阐释了指数增强基金如何通过因子暴露控制、交易成本优化和负面信息监控，在跟踪基准指数的基础上获取稳健超额收益。
+拉长时间来看，有色ETF华宝（159876）标的指数，自本轮低点3月24日以来，累计拉升18.17%，或已走出震荡上行台阶。
 
-他结合实际案例，从因子定义、模型组合到业绩归因，完整拆解了量化投资的投研闭环，帮助同学们建立起从理论到实践的认知桥梁。
+有色金属近期为何表现强势？
 
-提云涛老师特别指出，随着A股市场有效性持续提升，量化投资正从过去的“黑箱”走向更加透明、可解释的体系。
+细分方向来看： 1、黄金方面，美国总统特朗普称伊朗战争“非常接近结束”，暗示本周可能达成协议。
 
-无论是基本面因子还是量价因子，其有效性都必须放在整个金融市场生态中加以检验，而指数工具的开发与应用正是主动投资被动化的重要路径。
+现货黄金站上4800美元/盎司，自3月24日以来累计上涨近10%。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 01:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 01:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:29 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 01:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 01:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 01:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 01:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 01:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 01:20 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 01:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 01:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 01:26 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 01:16 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 01:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:28 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 01:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 01:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 01:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 01:27 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 01:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 01:14 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 01:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 01:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 01:40 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/879821894030.shtml)
-- 2026-06-30 01:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/97532.shtml)
-- 2026-06-30 01:11 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/522724.shtml)
-- 2026-06-30 01:13 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/543320.shtml)
-- 2026-06-30 01:16 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/56970.shtml)
-- 2026-06-30 01:35 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/430795.shtml)
-- 2026-06-30 01:27 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/56313.shtml)
-- 2026-06-30 01:06 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/4631559.shtml)
-- 2026-06-30 01:28 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/21321.shtml)
-- 2026-06-30 01:26 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/28883979358.shtml)
-- 2026-06-30 01:16 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/6294032970.shtml)
-- 2026-06-30 01:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/4064378.shtml)
-- 2026-06-30 01:33 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/02802522.shtml)
-- 2026-06-30 01:11 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/0732137700.shtml)
-- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/95299776.shtml)
+- 2026-06-30 01:12 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/8187161.shtml)
+- 2026-06-30 01:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/714243.shtml)
+- 2026-06-30 01:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/09090624.shtml)
+- 2026-06-30 01:39 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/080322468.shtml)
+- 2026-06-30 01:19 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/635610278014.shtml)
+- 2026-06-30 01:34 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/197018780004.shtml)
+- 2026-06-30 01:15 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/0147816.shtml)
+- 2026-06-30 01:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/566230689235.shtml)
+- 2026-06-30 01:27 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/4931749.shtml)
+- 2026-06-30 01:24 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/7847760406.shtml)
+- 2026-06-30 01:37 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/85798726.shtml)
+- 2026-06-30 01:22 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/87221362123.shtml)
+- 2026-06-30 01:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/61386.shtml)
+- 2026-06-30 01:31 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/896382.shtml)
+- 2026-06-30 01:38 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/02565.shtml)

@@ -1,50 +1,53 @@
-# 湖北省公安厅经济犯罪侦查总队原总队长王郁辉被开除党籍
+# 伊朗警告：美勿充当霍尔木兹海峡“警察”
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据湖北省纪委监委消息：经湖北省委批准，湖北省纪委监委对湖北省公安厅经济犯罪侦查总队原总队长王郁辉严重违纪违法问题进行了立案审查调查。 经查，王郁辉丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，违规接受宴请，收受可能影响公正执行公务的礼品、礼金；违背组织原则，在组织函询时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失
+中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。 据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？ 雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。“我们会击沉所有船只。没有人能逃脱我们的追击。”
 
 ## 正文
 
-中新网6月17日电 据湖北省纪委监委消息：经湖北省委批准，湖北省纪委监委对湖北省公安厅经济犯罪侦查总队原总队长王郁辉严重违纪违法问题进行了立案审查调查。
+中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。
 
-经查，王郁辉丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，违规接受宴请，收受可能影响公正执行公务的礼品、礼金；违背组织原则，在组织函询时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失守，在分配、购买住房中侵犯国家、集体利益；纪法底线失守，将公权力异化为谋取私利的工具，利用职务便利为他人在项目承揽、职务晋升等方面谋利，并非法收受巨额财物。
+据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？
 
-王郁辉严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经湖北省纪委常委会会议研究并报中共湖北省委批准，决定给予王郁辉开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+“我们会击沉所有船只。
+
+没有人能逃脱我们的追击。
+
+”
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 01:22 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 01:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:16 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 01:21 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 01:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 01:26 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 01:08 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 01:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 01:33 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 01:33 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:12 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:21 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 01:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 01:30 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 01:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 01:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 01:15 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 01:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 01:12 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 01:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 01:14 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [周生如故](http://www.blog.kurohicncr.top/Article/details/42216136.shtml)
-- 2026-06-30 01:31 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/655831.shtml)
-- 2026-06-30 01:15 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/9718954.shtml)
-- 2026-06-30 01:06 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/49295.shtml)
-- 2026-06-30 01:32 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/391125.shtml)
-- 2026-06-30 01:23 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/960161877325.shtml)
-- 2026-06-30 01:31 - [东方风云榜直播](http://www.share.minike.top/Article/details/50406.shtml)
-- 2026-06-30 01:33 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/1158516.shtml)
-- 2026-06-30 01:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/731258.shtml)
-- 2026-06-30 01:20 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/2193307326.shtml)
-- 2026-06-30 01:07 - [流金岁月](http://www.share.kurohicncr.top/Article/details/93388382835.shtml)
-- 2026-06-30 01:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/453983093238.shtml)
-- 2026-06-30 01:13 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8374954255.shtml)
-- 2026-06-30 01:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/96668710851.shtml)
-- 2026-06-30 01:23 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/807531425054.shtml)
+- 2026-06-30 01:29 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/601802840026.shtml)
+- 2026-06-30 01:30 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/69993.shtml)
+- 2026-06-30 01:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/826167.shtml)
+- 2026-06-30 01:22 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/154281675.shtml)
+- 2026-06-30 01:28 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/513637739326.shtml)
+- 2026-06-30 01:24 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/73652.shtml)
+- 2026-06-30 01:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/130269862373.shtml)
+- 2026-06-30 01:16 - [沙丘](https://www.blog.kurohicncr.top/Article/details/298720930.shtml)
+- 2026-06-30 01:22 - [扬名立万](http://www.share.kurohicncr.top/Article/details/229347.shtml)
+- 2026-06-30 01:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/994932471.shtml)
+- 2026-06-30 01:41 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/84728310629.shtml)
+- 2026-06-30 01:26 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/293791.shtml)
+- 2026-06-30 01:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/636580419994.shtml)
+- 2026-06-30 01:12 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/683982107.shtml)
+- 2026-06-30 01:32 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/505690570.shtml)

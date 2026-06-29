@@ -1,58 +1,58 @@
-# 中国美院打造赵无极美术馆：在西湖边为一位“游子”安家
+# 宗教界人士中华优秀传统文化学习体验活动在武汉启动
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。”6月17日，中国美院院长余旭红接受专访时如是表示。 当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。 赵无极是法籍华人艺术家，也是中国美院的杰出校友。1935年，15岁的他考入国立杭
+要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。 4月16日，宗教界人士中华优秀传统文化学习体验活动在湖北省武汉市举行启动仪式。中央统战部副部长、国家宗教事务局局长段毅君出席活动启动仪式并讲话。中国佛教协会会长演觉、中国道教协会会长李光富、中国伊斯兰教协会副会长木哈提热木·西日甫、中国天主教爱国会主席
 
 ## 正文
 
-中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。
+要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。
 
-”6月17日，中国美院院长余旭红接受专访时如是表示。
+4月16日，宗教界人士中华优秀传统文化学习体验活动在湖北省武汉市举行启动仪式。
 
-当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。
+中央统战部副部长、国家宗教事务局局长段毅君出席活动启动仪式并讲话。
 
-赵无极是法籍华人艺术家，也是中国美院的杰出校友。
+中国佛教协会会长演觉、中国道教协会会长李光富、中国伊斯兰教协会副会长木哈提热木·西日甫、中国天主教爱国会主席李山、中国基督教协会会长吴巍带队参加。
 
-1935年，15岁的他考入国立杭州艺术专科学校(现中国美院)，在杭州西湖边开启了艺术生涯。
+与会宗教界代表人士表示，要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。
 
-1948年，他赴法国留学并定居，成为“抒情抽象”的代表画家。
+要坚持以核心价值观为引领，以中华优秀传统文化浸润宗教，系统推进我国宗教中国化；严格落实全面从严治教各项要求，更加自觉加强自我教育、自我管理、自我约束，带头守法遵规、提升宗教修为。
 
-其作品被法国蓬皮杜艺术中心、美国大都会艺术博物馆等全球150余个博物馆和美术馆收藏。
+本次学习体验活动由中央统战部举办，为期7天，80余名宗教界代表人士参加，将组织开展专题讲座、分组讨论、现场教学等活动。
 
-1985年，赵无极回到浙江美术学院(现中国美院)举办了“赵无极绘画讲习班”，对中国美术教育界产生深远影响。
+(佟轩) (“统战新语”微信公众号)
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 01:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 01:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 01:33 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 01:10 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 01:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 01:33 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 01:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 01:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 01:08 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 01:34 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 01:25 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 01:41 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 01:33 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 01:15 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 01:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 01:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 01:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 01:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 01:38 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:40 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 01:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 01:36 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/75648765.shtml)
-- 2026-06-30 01:20 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/7017685.shtml)
-- 2026-06-30 01:23 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/645223549.shtml)
-- 2026-06-30 01:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/14866439.shtml)
-- 2026-06-30 01:28 - [绘画区你赢了](http://www.blog.minike.top/Article/details/326248.shtml)
-- 2026-06-30 01:28 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/71763.shtml)
-- 2026-06-30 01:09 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/729033299773.shtml)
-- 2026-06-30 01:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/753282813.shtml)
-- 2026-06-30 01:34 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/73975162.shtml)
-- 2026-06-30 01:12 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/41601804.shtml)
-- 2026-06-30 01:16 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/868305.shtml)
-- 2026-06-30 01:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/304242.shtml)
-- 2026-06-30 01:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/713082.shtml)
-- 2026-06-30 01:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/159191443730.shtml)
-- 2026-06-30 01:22 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/1390307.shtml)
+- 2026-06-30 01:31 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/468726604.shtml)
+- 2026-06-30 01:15 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/1908721.shtml)
+- 2026-06-30 01:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/67801043260.shtml)
+- 2026-06-30 01:32 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/6688192950.shtml)
+- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/3377152680.shtml)
+- 2026-06-30 01:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/281429065999.shtml)
+- 2026-06-30 01:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/567544047.shtml)
+- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/9349679485.shtml)
+- 2026-06-30 01:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8630632.shtml)
+- 2026-06-30 01:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/3295079.shtml)
+- 2026-06-30 01:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/92295020.shtml)
+- 2026-06-30 01:34 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/0024379952.shtml)
+- 2026-06-30 01:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/070918381697.shtml)
+- 2026-06-30 01:35 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/49015483171.shtml)
+- 2026-06-30 01:19 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/548351178066.shtml)

@@ -1,59 +1,61 @@
-# 部分省份工业经济运行座谈交流活动在京召开
+# 4月16日财经早餐：美伊可能再次面对面会谈，金价坚守4800关口，美油回落至90关口下方
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总
+文章来源：汇通财经 周四（北京时间4月16日）亚市早盘，现货黄金交投于4812美元/盎司附近，金价周三在触及一个月高位后小幅下跌，受投资者评估美伊局势最新动向及利率前景影响，美国总统特朗普表示伊朗战争“接近结束”，同时巴基斯坦陆军参谋长抵达德黑兰试图阻止冲突重燃；美原油交投于87.60美元/桶附近，尽管美国库存下降，市场对供应干扰的担忧挥之不去，但市场对美伊重启新谈判持谨慎乐观
 
 ## 正文
 
-6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。
+文章来源：汇通财经 周四（北京时间4月16日）亚市早盘，现货黄金交投于4812美元/盎司附近，金价周三在触及一个月高位后小幅下跌，受投资者评估美伊局势最新动向及利率前景影响，美国总统特朗普表示伊朗战争“接近结束”，同时巴基斯坦陆军参谋长抵达德黑兰试图阻止冲突重燃；美原油交投于87.60美元/桶附近，尽管美国库存下降，市场对供应干扰的担忧挥之不去，但市场对美伊重启新谈判持谨慎乐观预期。
 
-会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。
+日内重点关注 股市 美股周三上涨，受助于企业财报以及市场对美伊谈判取得进展的乐观预期，美股标普500指数和纳斯达克指数双双收于历史新高，其中纳指自10月29日以来首次创收盘新高，并录得自2021年11月以来的首次11日连涨，道指微跌0.15%，标普500指数收涨0.80%报7022.95点，纳指收涨1.60%报24016.02点。
 
-要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总基调，更好统筹国内经济工作和国际经贸斗争，统筹发展和安全，不断巩固工业经济运行良好态势。
+白宫表示与伊朗的第二轮谈判讨论“富有成效”，但否认要求伊朗停火的报道，同时美国财政部对伊朗石油运输基础设施实施新制裁。
 
-会议强调，当前工业经济运行中还存在一些困难和问题，但工业经济发展的基本面和长期向好的趋势没有变。
+科技板块领涨，软件股表现突出，而材料和工业板块跌幅居前。
 
-要推动供需适配，深入挖掘内需潜力，扩大优质商品供给，以高质量供给创造和引领需求。
+美国银行和摩根士丹利因财报亮眼分别上涨1.8%和4.5%。
 
-要加快培育新动能，深入实施“人工智能+制造”专项行动，加快新一代信息技术全方位全链条普及应用，持续培育壮大新质生产力，深入整治“内卷式”竞争，推动工业经济实现质的有效提升和量的合理增长相统一。
+波动率指数VIX跌至2月26日以来最低。
 
-要坚持底线思维，强化形势研判和政策储备，穿透数据表象准确分析经济运行的实际情况和趋势性变化，扎实做好重点企业纾困帮扶，谋划好迎峰度夏期间能源保供和应急防灾减灾工作，切实推动二季度工业经济平稳运行，努力完成全年目标任务，为“十五五”良好开局奠定基础。
+不过，部分策略师警告，油价仍高于战前水平且中东局势未定，市场需新的催化剂来维持涨势。
 
-会上，河北、江苏、浙江、安徽、福建、山东、河南、湖北、湖南、广东、四川等11个省份工业和信息化主管部门负责同志作交流发言。
+金市 金价周三在触及一个月高位后小幅下跌，现货黄金收报每盎司4798.89美元，跌幅0.9%；受投资者评估美伊局势最新动向及利率前景影响，美国总统特朗普表示与以色列共同对伊朗发起的战争“接近结束”，同时巴基斯坦陆军参谋长抵达德黑兰试图阻止冲突重燃。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 01:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 01:27 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 01:32 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 01:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 01:33 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 01:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 01:10 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 01:17 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 01:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 01:21 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 01:30 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 01:26 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:22 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 01:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 01:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 01:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 01:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 01:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:38 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 01:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 01:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 01:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 01:41 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/361114.shtml)
-- 2026-06-30 01:24 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/7338641027.shtml)
-- 2026-06-30 01:28 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/31065876.shtml)
-- 2026-06-30 01:30 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/866325855.shtml)
-- 2026-06-30 01:18 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/2473370518.shtml)
-- 2026-06-30 01:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/836452360108.shtml)
-- 2026-06-30 01:11 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/934504.shtml)
-- 2026-06-30 01:15 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/1951590203.shtml)
-- 2026-06-30 01:29 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/74623.shtml)
-- 2026-06-30 01:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/442595010640.shtml)
-- 2026-06-30 01:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/4039346734.shtml)
-- 2026-06-30 01:17 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/4719637.shtml)
-- 2026-06-30 01:16 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/55079328.shtml)
-- 2026-06-30 01:21 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/529896549505.shtml)
-- 2026-06-30 01:06 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/246345581.shtml)
+- 2026-06-30 01:31 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/4084794.shtml)
+- 2026-06-30 01:22 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/783056325678.shtml)
+- 2026-06-30 01:28 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/2989512.shtml)
+- 2026-06-30 01:19 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4846287.shtml)
+- 2026-06-30 01:22 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/331627428.shtml)
+- 2026-06-30 01:34 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/74618654.shtml)
+- 2026-06-30 01:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/3168403229.shtml)
+- 2026-06-30 01:30 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/73995110.shtml)
+- 2026-06-30 01:37 - [啊啊啊](http://www.blog.minike.top/Article/details/145312.shtml)
+- 2026-06-30 01:28 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/5476957012.shtml)
+- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/38294261299.shtml)
+- 2026-06-30 01:28 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/894199.shtml)
+- 2026-06-30 01:20 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/711924736.shtml)
+- 2026-06-30 01:23 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/0849472.shtml)
+- 2026-06-30 01:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/64721.shtml)

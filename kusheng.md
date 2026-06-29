@@ -1,53 +1,60 @@
-# 工行行长刘珺：现代经济是一种交互经济、参与经济、融合经济
+# 领跑！创业板人工智能持续走牛！高“光”159363暴涨超4%再轰新高！算力牛股狂涌，本周最高已狂飙48%
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经
+4月16日盘中，创业板人工智能持续走牛，再创新高！算力牛股频出，算力租赁概念股协创数据领涨超10%续创新高，截至今日午盘本周已拉升48%，光模块龙头天孚通信暴涨超8%冲击前高，新易盛大涨7%、中际旭创涨超2%，双双录得历史新高！ 热门ETF方面，双创AI赛道规模第一的创业板人工智能ETF华宝（159363）半日大涨超4%领涨全市场ETF，成功反包迭创新高，实时放量成交超8亿元，
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。
+4月16日盘中，创业板人工智能持续走牛，再创新高！
 
-在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。
+算力牛股频出，算力租赁概念股协创数据领涨超10%续创新高，截至今日午盘本周已拉升48%，光模块龙头天孚通信暴涨超8%冲击前高，新易盛大涨7%、中际旭创涨超2%，双双录得历史新高！
 
-注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经济、融合经济。
+热门ETF方面，双创AI赛道规模第一的创业板人工智能ETF华宝（159363）半日大涨超4%领涨全市场ETF，成功反包迭创新高，实时放量成交超8亿元，交投高居全市场AI主题类ETF首位！
 
-” 他表示，吸引注意力只是前置环节，关键是要实现交互和融合，让客户成为金融活动的有机组成部分，从而为客户提供更加适配的服务，形成价值创造的共同体。
+时间拉长看，光模块CPO等算力方向加速突破，截至4月14日，创业板人工智能ETF华宝（159363）标的指数近1年已累计上涨超176%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
 
-客户在金融消费的过程中，也是新的金融创新的生产者。
+展望后市，光模块CPO、IDC算力租赁、AI应用等多重利好共振，创业板人工智能ETF华宝（159363）有望继续受益。
 
-银行是通过客户的反馈进一步优化调整银行产品，使得客户本身参与了创新金融产品的生产，这是特别重要的新经济的概念。
+注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
+
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+
+一、光模块：景气度爆表，订单锁定至2028年 海外光通信龙头Lumentum表示，科技巨头对光学组件需求加速，2028年产能已面临售罄，本轮行业周期至少还能维持5年左右景气持续性。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 01:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 01:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 01:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 01:11 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 01:09 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 01:26 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 01:09 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 01:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 01:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 01:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 01:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 01:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 01:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 01:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:18 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 01:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 01:13 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 01:32 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 01:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 01:33 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 01:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [乔家的儿女](https://www.blog.minike.top/Article/details/79769191.shtml)
-- 2026-06-30 01:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/12429.shtml)
-- 2026-06-30 01:18 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/854906.shtml)
-- 2026-06-30 01:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/56278162116.shtml)
-- 2026-06-30 01:09 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/16427.shtml)
-- 2026-06-30 01:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/1034857.shtml)
-- 2026-06-30 01:19 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/952790.shtml)
-- 2026-06-30 01:15 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/681610.shtml)
-- 2026-06-30 01:11 - [沉睡花园](https://www.share.minike.top/Article/details/3790582.shtml)
-- 2026-06-30 01:13 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/8453998.shtml)
-- 2026-06-30 01:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/36919658.shtml)
-- 2026-06-30 01:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/4866948.shtml)
-- 2026-06-30 01:20 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/161526.shtml)
-- 2026-06-30 01:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/12177426523.shtml)
-- 2026-06-30 01:19 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/12818019009.shtml)
+- 2026-06-30 01:38 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/56354476807.shtml)
+- 2026-06-30 01:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/35643164821.shtml)
+- 2026-06-30 01:13 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/849958831.shtml)
+- 2026-06-30 01:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/5114163799.shtml)
+- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/57606059838.shtml)
+- 2026-06-30 01:39 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/161854499.shtml)
+- 2026-06-30 01:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/616132.shtml)
+- 2026-06-30 01:14 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/268824442.shtml)
+- 2026-06-30 01:30 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8474823.shtml)
+- 2026-06-30 01:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/641964.shtml)
+- 2026-06-30 01:26 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/01896397.shtml)
+- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/7416594.shtml)
+- 2026-06-30 01:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/44229.shtml)
+- 2026-06-30 01:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/944161539051.shtml)
+- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/03260848.shtml)

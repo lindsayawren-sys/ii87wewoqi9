@@ -1,59 +1,51 @@
-# “大空头”伯里：想做空SpaecX，但太贵了
+# 伊朗议长同巴基斯坦陆军参谋长举行会谈
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-因成功预测2008年美国房地产市场崩盘而闻名的投资者迈克尔·伯里周二表示，他曾想做空埃隆·马斯克的SpaceX公司，但最终还是放弃了这个想法，原因是看跌期权成本过高，但他仍对该公司高达2.7万亿美元的估值提出了质疑。 伯里在Substack平台发帖称：“我现在已经与SpaceX毫无瓜葛，既未做空，也未做多。” 伯里指出，在他撰写这篇帖子时，一份2028年12月到期、行权价为10
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月16日电据伊朗媒体16日报道，伊朗伊斯兰议会议长卡利巴夫同巴基斯坦陆军参谋长穆尼尔举行会谈。（完）责任编辑：宋雅芳
 
 ## 正文
 
-因成功预测2008年美国房地产市场崩盘而闻名的投资者迈克尔·伯里周二表示，他曾想做空埃隆·马斯克的SpaceX公司，但最终还是放弃了这个想法，原因是看跌期权成本过高，但他仍对该公司高达2.7万亿美元的估值提出了质疑。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-伯里在Substack平台发帖称：“我现在已经与SpaceX毫无瓜葛，既未做空，也未做多。
+新华社德黑兰4月16日电据伊朗媒体16日报道，伊朗伊斯兰议会议长卡利巴夫同巴基斯坦陆军参谋长穆尼尔举行会谈。
 
-” 伯里指出，在他撰写这篇帖子时，一份2028年12月到期、行权价为100美元的看跌期权报价约为25美元，而SpaceX目前股价超过200美元。
-
-伯里补充说，一份2026年12月到期、报价为6.75美元的看跌期权也引起了他的注意，但他最终决定不进行交易。
-
-“确实有点心动，但还是算了。
-
-”这位投资者说道，并补充说他认为该股最终会稳定在200美元区间的中段，届时看跌期权链的交易量将会大幅下降。
-
-与此同时，SpaceX的股价在IPO后继续上涨，周二盘中一度触及225.64美元的高点。
-
-SpaceX公司目前仍未盈利，该公司2025年营收为187亿美元，而周二其市值一度达到了2.8万亿美元。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 01:29 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:08 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 01:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 01:13 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 01:30 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 01:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 01:17 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 01:07 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 01:34 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 01:35 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 01:28 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 01:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 01:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 01:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 01:41 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 01:12 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 01:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 01:41 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 01:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 01:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 01:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 01:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 01:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 01:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 01:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 01:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/534507.shtml)
-- 2026-06-30 01:25 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/005941763375.shtml)
-- 2026-06-30 01:15 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/1193020574.shtml)
-- 2026-06-30 01:30 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/138725617.shtml)
-- 2026-06-30 01:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/92458871.shtml)
-- 2026-06-30 01:28 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/5100965913.shtml)
-- 2026-06-30 01:06 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/028334.shtml)
-- 2026-06-30 01:20 - [金牌调解](https://www.share.minike.top/Article/details/113552352934.shtml)
-- 2026-06-30 01:31 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/71654814.shtml)
-- 2026-06-30 01:17 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/481484764.shtml)
-- 2026-06-30 01:17 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/024605322597.shtml)
-- 2026-06-30 01:35 - [极限挑战第一季](http://www.blog.minike.top/Article/details/243728648.shtml)
-- 2026-06-30 01:19 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/47573.shtml)
-- 2026-06-30 01:22 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/9993947148.shtml)
-- 2026-06-30 01:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/2885139.shtml)
+- 2026-06-30 01:27 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/3372349090.shtml)
+- 2026-06-30 01:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/263198772.shtml)
+- 2026-06-30 01:25 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/644974.shtml)
+- 2026-06-30 01:28 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/18505601380.shtml)
+- 2026-06-30 01:12 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/953415.shtml)
+- 2026-06-30 01:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/9875979967.shtml)
+- 2026-06-30 01:26 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/3713456.shtml)
+- 2026-06-30 01:39 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/05650603970.shtml)
+- 2026-06-30 01:20 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/53399.shtml)
+- 2026-06-30 01:25 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/444772.shtml)
+- 2026-06-30 01:37 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/49879680051.shtml)
+- 2026-06-30 01:24 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/7939569900.shtml)
+- 2026-06-30 01:32 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/2115646290.shtml)
+- 2026-06-30 01:20 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/654919369.shtml)
+- 2026-06-30 01:18 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/72612.shtml)

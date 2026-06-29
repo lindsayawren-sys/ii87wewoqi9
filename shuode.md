@@ -1,56 +1,55 @@
-# 公安部交管局发布端午节假期道路交通安全提示
+# 法国液化空气集团拟投2亿欧元在日本建设新生产装置，支持AI芯片生产
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据公安部交通管理局微信公众号消息，端午节假期，群众旅游观赛、返乡探亲出行集中，农村地区务农务工集体出行繁忙，南方强降雨、北方多阵雨，道路交通安全风险突出。公安部交通管理局结合近年来端午节假期交通事故规律特点，对今年端午节假期交通安全形势进行了分析研判，并发出交通安全提示。据研判，今年端午节假期道路交通安全主要存在以下突出风险： 一是旅游交通安全风险。假期群众
+法国液化空气集团（Air Liquide）周四宣布，将投资2亿欧元（约合2.36亿美元）在日本广岛建设、拥有并运营两套新的工业气体生产装置。这是该公司与一家全球领先的半导体企业达成的长期协议的一部分，旨在扩大后者的先进芯片的制造能力。 这家法国工业气体集团表示，这两套装置预计将于2028年底前投产，届时将供应大量用于生产下一代人工智能芯片的超高纯度氮气、氧气和氩气。 在日本经营
 
 ## 正文
 
-中新网6月17日电 据公安部交通管理局微信公众号消息，端午节假期，群众旅游观赛、返乡探亲出行集中，农村地区务农务工集体出行繁忙，南方强降雨、北方多阵雨，道路交通安全风险突出。
+法国液化空气集团（Air Liquide）周四宣布，将投资2亿欧元（约合2.36亿美元）在日本广岛建设、拥有并运营两套新的工业气体生产装置。
 
-公安部交通管理局结合近年来端午节假期交通事故规律特点，对今年端午节假期交通安全形势进行了分析研判，并发出交通安全提示。
+这是该公司与一家全球领先的半导体企业达成的长期协议的一部分，旨在扩大后者的先进芯片的制造能力。
 
-据研判，今年端午节假期道路交通安全主要存在以下突出风险： 一是旅游交通安全风险。
+这家法国工业气体集团表示，这两套装置预计将于2028年底前投产，届时将供应大量用于生产下一代人工智能芯片的超高纯度氮气、氧气和氩气。
 
-假期群众旅游出行需求旺盛，高考结束、高校毕业，亲子游、家庭游出行增多，龙舟赛等大型民俗活动集中，足协杯、“城超”等体育赛事密集，旅游观赛、返乡探亲等出行叠加，超速超员、疲劳驾驶、非法营运等违法违规问题肇事易发多发。
+在日本经营超过一个世纪的法国液化空气集团表示，这项投资将巩固其在日本半导体行业的地位，并有助于满足全球对先进芯片日益增长的需求。
 
-二是酒驾醉驾肇事风险。
-
-假期亲朋好友聚餐娱乐饮酒多，加上美加墨世界杯赛事多在下半夜，夜间聚集观赛饮酒，酒驾醉驾肇事风险上升。
-
-三是农村务农务工集体出行风险。
-
-“三夏”时节农村地区务农务工出行通勤繁忙，轻型货车、三轮车、拖拉机违法载人以及面包车超员载客等严重交通违法导致群死群伤事故风险高。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 01:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 01:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 01:27 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 01:28 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 01:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:26 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 01:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 01:15 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 01:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:15 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 01:18 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 01:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 01:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 01:34 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:39 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 01:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 01:12 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 01:27 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 01:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 01:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 01:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 01:15 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 01:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 01:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/624254592073.shtml)
-- 2026-06-30 01:34 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/90293748.shtml)
-- 2026-06-30 01:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/491848097.shtml)
-- 2026-06-30 01:13 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/13637580132.shtml)
-- 2026-06-30 01:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/160000016810.shtml)
-- 2026-06-30 01:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/2277372.shtml)
-- 2026-06-30 01:06 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/157767883111.shtml)
-- 2026-06-30 01:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/82441381053.shtml)
-- 2026-06-30 01:35 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/186941526.shtml)
-- 2026-06-30 01:14 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/809374764023.shtml)
-- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/31735399.shtml)
-- 2026-06-30 01:35 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/07978.shtml)
-- 2026-06-30 01:30 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/00377313731.shtml)
-- 2026-06-30 01:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/36031822381.shtml)
-- 2026-06-30 01:25 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/51247.shtml)
+- 2026-06-30 01:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/329679970535.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/526048447567.shtml)
+- 2026-06-30 01:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/45855633127.shtml)
+- 2026-06-30 01:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/96811444.shtml)
+- 2026-06-30 01:35 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/134294433.shtml)
+- 2026-06-30 01:39 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/4679012463.shtml)
+- 2026-06-30 01:25 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/7747347072.shtml)
+- 2026-06-30 01:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/79664185.shtml)
+- 2026-06-30 01:21 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/824342.shtml)
+- 2026-06-30 01:23 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/7077294.shtml)
+- 2026-06-30 01:15 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/41317139479.shtml)
+- 2026-06-30 01:41 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/28993123.shtml)
+- 2026-06-30 01:14 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/82932103.shtml)
+- 2026-06-30 01:27 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/049391410.shtml)
+- 2026-06-30 01:14 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/20013731.shtml)

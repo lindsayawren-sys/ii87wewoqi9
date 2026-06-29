@@ -1,48 +1,56 @@
-# 山间鲜果映红一方乡土 浙江缙云高山杨梅的“共富”之路
+# 易成栋：二手房销售还有继续上升空间
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 14:05 来源：中国新闻网 6月，浙江省缙云县大源镇海拔五百多米的群山上，一树树杨梅错落有致，层层叠叠缀满枝头。今年，该基地内50亩山地高架智能大棚杨梅迎来首年采摘，大棚里配备了智慧化温控与水肥一体化控制系统，实现精细化管理，使其平均上市时间提早10天，稳稳抢占初夏高端鲜果市场的先机，最高可以卖到10块钱一颗。(胡丰盛） 责任编辑：【罗攀】
+中新网北京4月16日电 (记者 王梦瑶)中新社国是直通车16日举行“2026年一季度经济形势分析会”，解读新鲜出炉的一季度经济数据。谈及房地产市场形势，中央财经大学管理科学与工程学院教授易成栋在会上表示，今后二手房销售还会有继续上升的空间。 易成栋表示，中国房地产已经从过去供给短缺的阶段走向了供求基本平衡的阶段，从缺房子的阶段走向了高质量发展阶段。看房地产市场时，不只要看新房，
 
 ## 正文
 
-发布时间：2026年06月17日 14:05 来源：中国新闻网 6月，浙江省缙云县大源镇海拔五百多米的群山上，一树树杨梅错落有致，层层叠叠缀满枝头。
+中新网北京4月16日电 (记者 王梦瑶)中新社国是直通车16日举行“2026年一季度经济形势分析会”，解读新鲜出炉的一季度经济数据。
 
-今年，该基地内50亩山地高架智能大棚杨梅迎来首年采摘，大棚里配备了智慧化温控与水肥一体化控制系统，实现精细化管理，使其平均上市时间提早10天，稳稳抢占初夏高端鲜果市场的先机，最高可以卖到10块钱一颗。
+谈及房地产市场形势，中央财经大学管理科学与工程学院教授易成栋在会上表示，今后二手房销售还会有继续上升的空间。
 
-(胡丰盛） 责任编辑：【罗攀】
+易成栋表示，中国房地产已经从过去供给短缺的阶段走向了供求基本平衡的阶段，从缺房子的阶段走向了高质量发展阶段。
+
+看房地产市场时，不只要看新房，还要看二手房。
+
+他表示，最近几年新房和二手房销售面积总量基本稳定在15亿平方米左右。
+
+一个很重要的结构性变化是，在整体市场调整的大背景下，二手房销售面积在2023到2025年保持上升，2025年二手房销售面积占比约一半，房地产市场进入新的发展阶段。
+
+他指出，今后二手房还会有继续上升的空间。
+
+对于今年房地产市场总体发展，易成栋表示，市场基本趋势是今年总体趋稳，一线城市有所回暖。
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 01:07 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 01:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 01:25 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 01:35 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 01:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 01:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 01:27 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 01:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 01:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 01:15 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 01:32 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 01:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 01:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 01:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 01:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 01:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 01:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 01:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/012044139352.shtml)
-- 2026-06-30 01:06 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/0196872.shtml)
-- 2026-06-30 01:22 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/33071.shtml)
-- 2026-06-30 01:26 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/89598.shtml)
-- 2026-06-30 01:25 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/68649864197.shtml)
-- 2026-06-30 01:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/522913.shtml)
-- 2026-06-30 01:34 - [东方风云榜直播](http://www.blog.minike.top/Article/details/69182962904.shtml)
-- 2026-06-30 01:35 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/568323523.shtml)
-- 2026-06-30 01:32 - [世界杯](http://www.blog.minike.top/Article/details/550884661.shtml)
-- 2026-06-30 01:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/87384182.shtml)
-- 2026-06-30 01:35 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/3199859.shtml)
-- 2026-06-30 01:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/491686926.shtml)
-- 2026-06-30 01:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/3459163720.shtml)
-- 2026-06-30 01:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/476786298.shtml)
-- 2026-06-30 01:28 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/828030388484.shtml)
+- 2026-06-30 01:33 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/257904445387.shtml)
+- 2026-06-30 01:30 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/80183290503.shtml)
+- 2026-06-30 01:22 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/63387988.shtml)
+- 2026-06-30 01:32 - [时光音乐会](http://www.share.minike.top/Article/details/48954952580.shtml)
+- 2026-06-30 01:30 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/364265705.shtml)
+- 2026-06-30 01:17 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/232797.shtml)
+- 2026-06-30 01:37 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/0591177880.shtml)
+- 2026-06-30 01:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/945800.shtml)
+- 2026-06-30 01:20 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/01615.shtml)
+- 2026-06-30 01:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/252286327.shtml)
+- 2026-06-30 01:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/949840424724.shtml)
+- 2026-06-30 01:17 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/714513467.shtml)
+- 2026-06-30 01:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/07092.shtml)
+- 2026-06-30 01:38 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8180256646.shtml)
+- 2026-06-30 01:40 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/5058814286.shtml)

@@ -1,59 +1,44 @@
-# 中越边境河口口岸跨境人民币结算开通至今突破千亿元
+# 乳业板块异动拉升，均瑶健康直线涨停
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网云南红河6月18日电 (闫鹏起 林刚)人民银行红河州分行河口营业管理部18日通报称，2010年跨境人民币结算试点开展以来至今年5月，中越边境河口口岸跨境人民币累计结算额1072.91亿元(人民币，下同)，成功突破千亿元关口，十余年来年均增速达33%。河口口岸位于云南省红河哈尼族彝族自治州河口瑶族自治县，是中越边境云南段最大的口岸，与越南老街市隔河相望。目前，该口岸跨境人民
+乳业板块异动拉升，均瑶健康直线涨停，维维股份、熊猫乳品、皇氏集团（维权）、西部牧业、庄园牧场等跟涨。
 
 ## 正文
 
-中新网云南红河6月18日电 (闫鹏起 林刚)人民银行红河州分行河口营业管理部18日通报称，2010年跨境人民币结算试点开展以来至今年5月，中越边境河口口岸跨境人民币累计结算额1072.91亿元(人民币，下同)，成功突破千亿元关口，十余年来年均增速达33%。
-
-河口口岸位于云南省红河哈尼族彝族自治州河口瑶族自治县，是中越边境云南段最大的口岸，与越南老街市隔河相望。
-
-目前，该口岸跨境人民币收付占本外币跨境收支比重达87%，人民币已成为河口口岸第一大跨境结算货币。
-
-据了解，河口营业管理部推动辖区6家外汇指定银行与越南老街省16家银行建立常态化合作关系。
-
-目前越方银行开立人民币同业往来账户41户、境外机构开立NRA账户(一般指境内银行为境外机构开立的境内外汇账户)112户。
-
-数据显示，河口县全面落地边民互市电子化结算，实现边民互市进口业务本币结算全覆盖，累计结算84.21亿元；推动边境小额贸易代理外国自然人出口纳入本币结算范畴，今年前5月结算额16.13亿元；今年前5月河口县开展跨境人民币业务的市场主体达528户，其中首办户91户。
-
-(完)
+乳业板块异动拉升，均瑶健康直线涨停，维维股份、熊猫乳品、皇氏集团（维权）、西部牧业、庄园牧场等跟涨。
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 01:13 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 01:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 01:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 01:10 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:18 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 01:18 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 01:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 01:16 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 01:33 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 01:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 01:12 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 01:06 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 01:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 01:29 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 01:33 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 01:13 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 01:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 01:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 01:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 01:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 01:14 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 01:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 01:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 01:20 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 01:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/837219892373.shtml)
-- 2026-06-30 01:32 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/20927266922.shtml)
-- 2026-06-30 01:31 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/99107422832.shtml)
-- 2026-06-30 01:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/14650434483.shtml)
-- 2026-06-30 01:28 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/239530646908.shtml)
-- 2026-06-30 01:14 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/4711428.shtml)
-- 2026-06-30 01:13 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/641956214548.shtml)
-- 2026-06-30 01:31 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/0814324.shtml)
-- 2026-06-30 01:32 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/300763.shtml)
-- 2026-06-30 01:20 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/7743837.shtml)
-- 2026-06-30 01:22 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/273737084.shtml)
-- 2026-06-30 01:17 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/85525824.shtml)
-- 2026-06-30 01:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/173849225933.shtml)
-- 2026-06-30 01:35 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/17639815213.shtml)
-- 2026-06-30 01:19 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/3406883.shtml)
+- 2026-06-30 01:33 - [小娘惹](https://www.blog.minike.top/Article/details/484042995310.shtml)
+- 2026-06-30 01:16 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/6524157.shtml)
+- 2026-06-30 01:24 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/299506.shtml)
+- 2026-06-30 01:29 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/56411018.shtml)
+- 2026-06-30 01:14 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/06376672909.shtml)
+- 2026-06-30 01:17 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/47953122.shtml)
+- 2026-06-30 01:19 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/6338315.shtml)
+- 2026-06-30 01:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/84302382.shtml)
+- 2026-06-30 01:17 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/26889.shtml)
+- 2026-06-30 01:25 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/0037997.shtml)
+- 2026-06-30 01:38 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/168280798.shtml)
+- 2026-06-30 01:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/584674142.shtml)
+- 2026-06-30 01:38 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/2430525.shtml)
+- 2026-06-30 01:15 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/187509.shtml)
+- 2026-06-30 01:39 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/706501.shtml)

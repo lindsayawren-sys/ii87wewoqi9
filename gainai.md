@@ -1,60 +1,59 @@
-# 白银龙头盛达资源（000603）突爆夜光雷！曾涉 7.92 亿资金占用，投资者可索赔
+# 酒价内参4月17日价格发布，青花汾20上涨3元
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，盛达资源（维权）（000603）发布公告称，公司于当日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0142026038号），因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。同日晚间，公司实际控制人赵满堂亦收到证监会下发
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。市场整体价格延续低位运行，终端交投表现平稳偏弱。 今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，盛达资源（维权）（000603）发布公告称，公司于当日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0142026038号），因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。
 
-同日晚间，公司实际控制人赵满堂亦收到证监会下发的《立案告知书》（编号：证监立案字0142026039号），因涉嫌信息披露违法违规，证监会决定对赵满堂立案。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。
 
-上海百悦律师事务所牛彬律师表示，盛达资源及其实控人被证监会立案，投资者或可索赔。
+市场整体价格延续低位运行，终端交投表现平稳偏弱。
 
-暂定：符合以下任一条件的亏损投资者（包括个人投资者及投资机构），均可参与索赔： 条件一： 于2024年2月1日至2025年4月29日之间买入盛达资源（000603）股票，且在2025年4月29日之后卖出或仍持有；（盛达资源维权入口） 条件二： 于2026年6月16日之前买入盛达资源（000603）股票，且在2026年6月16日之后卖出或仍持有。
+今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。
 
-初步索赔范围最终以法院裁决为准。
+上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下近一个月最高；青花汾20上涨3元/瓶；水晶剑南春小幅上涨1元/瓶。
 
-索赔材料： 一、买卖盛达资源（000603）股票的对账单原件 （1）对账单原件需加盖证券公司营业部印章； （2）对账单从第一次买入盛达资源股票开始打到打印日当天，包含所有交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
+下跌方面，洋河梦之蓝M6+跌幅居前，下跌8元/瓶，平一个月来最低纪录；古井贡古20下跌6元/瓶；精品茅台下跌4元/瓶；国窖1573下跌3元/瓶；飞天茅台、五粮液1618及青花郎均下跌2元/瓶；五粮液普五八代小幅回落1元/瓶。
 
-二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 01:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 01:12 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 01:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 01:21 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 01:09 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 01:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 01:10 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 01:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:23 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 01:12 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 01:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 01:23 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 01:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 01:22 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 01:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 01:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 01:12 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 01:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:36 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 01:13 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 01:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 01:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 01:22 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 01:16 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 01:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 01:23 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:16 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/604335053111.shtml)
-- 2026-06-30 01:15 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/854536.shtml)
-- 2026-06-30 01:17 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/092356850848.shtml)
-- 2026-06-30 01:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/780062431933.shtml)
-- 2026-06-30 01:18 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/704050.shtml)
-- 2026-06-30 01:11 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/7775044605.shtml)
-- 2026-06-30 01:09 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/031340268.shtml)
-- 2026-06-30 01:18 - [天道](http://www.share.kurohicncr.top/Article/details/24485876754.shtml)
-- 2026-06-30 01:20 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/33252896.shtml)
-- 2026-06-30 01:12 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/810686919331.shtml)
-- 2026-06-30 01:13 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/469396555848.shtml)
-- 2026-06-30 01:23 - [千香](http://www.share.minike.top/Article/details/190108286.shtml)
-- 2026-06-30 01:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/3979440.shtml)
-- 2026-06-30 01:24 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/048317.shtml)
-- 2026-06-30 01:33 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/60898698.shtml)
+- 2026-06-30 01:36 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/80756.shtml)
+- 2026-06-30 01:25 - [时光音乐会](https://www.blog.minike.top/Article/details/280591408.shtml)
+- 2026-06-30 01:19 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/351605.shtml)
+- 2026-06-30 01:19 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/27529282.shtml)
+- 2026-06-30 01:25 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/5427897755.shtml)
+- 2026-06-30 01:13 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/3344670898.shtml)
+- 2026-06-30 01:41 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/896078627930.shtml)
+- 2026-06-30 01:24 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/286476893.shtml)
+- 2026-06-30 01:31 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/8000852.shtml)
+- 2026-06-30 01:18 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/316819.shtml)
+- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/538377619024.shtml)
+- 2026-06-30 01:33 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/81991295731.shtml)
+- 2026-06-30 01:35 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/18278.shtml)
+- 2026-06-30 01:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/77828908.shtml)
+- 2026-06-30 01:13 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/08527983.shtml)

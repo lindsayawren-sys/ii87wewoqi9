@@ -1,57 +1,61 @@
-# 自研堵漏利器落地陕晋 大庆钻探钻井施工提效降本双突破
+# 霍尔木兹海峡：如何打开“死结”
 
-> 更新时间：2026-06-30 01:36:03 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网大庆6月17日电 (余虹娜 杨晓丹)地层裂隙密布、井漏难题频发，一直是掣肘陕晋区块钻井施工提质增效的痛点。17日，记者从大庆钻探了解到，其自研随钻堵漏工具完成区域规模化应用，以科创技术破解复杂地层施工困境，单井缩短钻井周期3.5天，累计节约日费、钻井液损耗成本超77万元，为区域油气钻井施工减负提速。 陕晋区块地质构造复杂、地层裂隙发育，钻井作业中井漏高发频发，部分井出现钻
+中国新闻周刊记者：陈惟杉 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月13日早上，一位国内货运代理人看到美国封锁霍尔木兹海峡的消息后感慨，“这下更糟糕了”。他称自己从未像现在这样关注国际大事。 自美国、伊朗4月8日宣布停火以来，霍尔木兹海峡的通行情况几次发生变化，外界一度看到通行量上升的曙光，但随着美国宣布封锁海峡，通行量再度暴跌。美伊正在通过层出不穷的封锁措
 
 ## 正文
 
-中新网大庆6月17日电 (余虹娜 杨晓丹)地层裂隙密布、井漏难题频发，一直是掣肘陕晋区块钻井施工提质增效的痛点。
+中国新闻周刊记者：陈惟杉 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月13日早上，一位国内货运代理人看到美国封锁霍尔木兹海峡的消息后感慨，“这下更糟糕了”。
 
-17日，记者从大庆钻探了解到，其自研随钻堵漏工具完成区域规模化应用，以科创技术破解复杂地层施工困境，单井缩短钻井周期3.5天，累计节约日费、钻井液损耗成本超77万元，为区域油气钻井施工减负提速。
+他称自己从未像现在这样关注国际大事。
 
-陕晋区块地质构造复杂、地层裂隙发育，钻井作业中井漏高发频发，部分井出现钻井液失返、漏失量大等极端工况，不仅拉长施工工期，更极易诱发井下安全事故，成为当地钻井工程长期难以攻克的技术瓶颈。
+自美国、伊朗4月8日宣布停火以来，霍尔木兹海峡的通行情况几次发生变化，外界一度看到通行量上升的曙光，但随着美国宣布封锁海峡，通行量再度暴跌。
 
-本次该区域3口重点作业井施工期间，井漏险情接连出现，现场施工一度陷入停滞。
+美伊正在通过层出不穷的封锁措施争夺海峡的控制权，而航运业，以及众多国际贸易的参与者正在为此买单。
 
-直面复杂恶劣井下工况，大庆钻探工程技术研究院技术人员扎根井场全程值守，实时监测井下数据、精准研判漏失规律，依托自研随钻堵漏工具动态调校施工参数。
+海峡对峙再升级 在美伊谈判并未达成协议后，美国总统特朗普在社交平台发帖称，美国海军将开始封锁所有试图进出霍尔木兹海峡的船只。
 
-针对单井严重失返性漏失难题，技术团队精准把控作业节奏，高效完成两轮堵漏施工，快速阻断漏失通道，稳住井下施工态势。
+根据他的多条帖文，以及在接受福克斯采访时的表述，“封锁霍尔木兹海峡”主要包含两层含义，一方面是阻止向伊朗支付通行费的船只通过海峡，另一方面是开始清除水雷。
 
-“相较于传统堵漏工艺，自研工具可实现随钻同步作业，无需停钻处置，大幅压缩应急处置时间，同时规避井下风险升级。
+不过，美国中央司令部当天发表声明，关于“封锁”的表述并不相同。
 
-”现场技术负责人表示。
+其表示将于美国东部时间4月13日上午10时(北京时间4月13日晚上10时)起，对所有进出伊朗港口的海上交通实施封锁，但是不会阻碍往返于非伊朗港口的船只通过霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 01:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 01:35 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 01:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 01:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 01:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 01:25 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 01:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 01:08 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 01:27 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 01:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 01:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 01:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 01:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 01:25 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 01:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 01:18 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 01:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 01:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 01:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 01:32 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 01:23 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 01:22 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/702561639.shtml)
-- 2026-06-30 01:28 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/58082143206.shtml)
-- 2026-06-30 01:16 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8402035.shtml)
-- 2026-06-30 01:07 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/11231106519.shtml)
-- 2026-06-30 01:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/56303506417.shtml)
-- 2026-06-30 01:22 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/9005802174.shtml)
-- 2026-06-30 01:07 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/28330081216.shtml)
-- 2026-06-30 01:27 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/193178745.shtml)
-- 2026-06-30 01:14 - [流金岁月](https://www.share.kurohicncr.top/Article/details/2906812713.shtml)
-- 2026-06-30 01:16 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/817928814446.shtml)
-- 2026-06-30 01:29 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/80489649.shtml)
-- 2026-06-30 01:11 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/2725580208.shtml)
-- 2026-06-30 01:21 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/961098.shtml)
-- 2026-06-30 01:21 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/459162476.shtml)
-- 2026-06-30 01:08 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/841705518563.shtml)
+- 2026-06-30 01:25 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/896637247598.shtml)
+- 2026-06-30 01:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/95569495.shtml)
+- 2026-06-30 01:23 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/362869.shtml)
+- 2026-06-30 01:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/1135804.shtml)
+- 2026-06-30 01:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/50739080263.shtml)
+- 2026-06-30 01:35 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/54606.shtml)
+- 2026-06-30 01:28 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/06853.shtml)
+- 2026-06-30 01:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/330794621.shtml)
+- 2026-06-30 01:31 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/313316639836.shtml)
+- 2026-06-30 01:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/95106911.shtml)
+- 2026-06-30 01:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/56000433.shtml)
+- 2026-06-30 01:35 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/08944403.shtml)
+- 2026-06-30 01:28 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/9160122398.shtml)
+- 2026-06-30 01:17 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2547788281.shtml)
+- 2026-06-30 01:31 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/34658156.shtml)

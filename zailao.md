@@ -1,51 +1,57 @@
-# EasyMarkets易信:合规永续带来新变量
+# 沪浙共探“生物制造”新经济增长点
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日，美国受监管的比特币永续产品进入讨论中心后，EasyMarkets易信表示这一变化可能重新定义部分资金参与数字资产衍生品的方式，让合规渠道的重要性继续提升。 从市场机制看，EasyMarkets易信认为受监管产品若能兼顾流动性与透明度，有望吸引此前更谨慎的参与者，从而改变永续合约主要依赖离岸平台的格局。 这类产品短期未必立刻改变价格方向，但会提升市场对制度化交易工具的
+中新网杭州4月16日电(鲍梦妮)“科学咖啡馆·未来产业专场——生物制造新技术·新产品·新场景”活动日前在杭州举行，来自上海、浙江两地政府部门、科研院所、高校、企业的代表汇聚一堂，围绕生物制造领域的AI大模型、高通量平台、酶工程与药物智造等前沿议题展开深度对话。 “十五五”规划明确将生物制造列为前瞻布局的未来产业，要求其“成为新的经济增长点”。全球生物制造正站在产业化的临界点。据
 
 ## 正文
 
-6月18日，美国受监管的比特币永续产品进入讨论中心后，EasyMarkets易信表示这一变化可能重新定义部分资金参与数字资产衍生品的方式，让合规渠道的重要性继续提升。
+中新网杭州4月16日电(鲍梦妮)“科学咖啡馆·未来产业专场——生物制造新技术·新产品·新场景”活动日前在杭州举行，来自上海、浙江两地政府部门、科研院所、高校、企业的代表汇聚一堂，围绕生物制造领域的AI大模型、高通量平台、酶工程与药物智造等前沿议题展开深度对话。
 
-从市场机制看，EasyMarkets易信认为受监管产品若能兼顾流动性与透明度，有望吸引此前更谨慎的参与者，从而改变永续合约主要依赖离岸平台的格局。
+“十五五”规划明确将生物制造列为前瞻布局的未来产业，要求其“成为新的经济增长点”。
 
-这类产品短期未必立刻改变价格方向，但会提升市场对制度化交易工具的关注，也可能在未来影响资金如何在现货与衍生品之间配置。
+全球生物制造正站在产业化的临界点。
 
-放眼后续，EasyMarkets易信分析称数字资产衍生品的发展重点将不只是杠杆效率，还包括规则透明度与参与门槛是否更适配机构需求。
+据麦肯锡预测，原则上市场60%的产品可以采用生物制造的方法进行生产，预计在未来10—20年将直接产生约4万亿美元的经济价值。
 
-责任编辑：陈平
+面对这一广阔赛道，长三角地区正凭借其雄厚的产业基础与活跃的创新生态，抢占优势。
+
+现场，多位专家学者分享了生物制造领域的最新研究成果与应用进展。
+
+上海科学智能研究院物质科学主任研究员曹风雷分享了基于分子、原子构建物质世界的燧人大模型。
+
+他指出，该模型以10B参数规模、逾1亿条样本数据构建，实现了对分子微观结构的精准建模。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 01:12 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 01:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 01:27 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 01:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:09 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 01:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 01:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 01:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 01:07 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 01:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 01:41 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 01:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 01:36 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 01:29 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 01:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 01:39 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 01:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 01:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 01:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/27448.shtml)
-- 2026-06-30 01:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/6874898611.shtml)
-- 2026-06-30 01:23 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/695470.shtml)
-- 2026-06-30 01:17 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/82537.shtml)
-- 2026-06-30 01:08 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/643747.shtml)
-- 2026-06-30 01:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/9065853204.shtml)
-- 2026-06-30 01:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/377761067.shtml)
-- 2026-06-30 01:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/759861632.shtml)
-- 2026-06-30 01:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/9602998.shtml)
-- 2026-06-30 01:07 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/95900674.shtml)
-- 2026-06-30 01:35 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/101923488415.shtml)
-- 2026-06-30 01:29 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/35711337484.shtml)
-- 2026-06-30 01:34 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/2242784599.shtml)
-- 2026-06-30 01:17 - [刘念回应](http://www.share.minike.top/Article/details/70604.shtml)
-- 2026-06-30 01:08 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/92871.shtml)
+- 2026-06-30 01:19 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/370053412606.shtml)
+- 2026-06-30 01:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/0118984356.shtml)
+- 2026-06-30 01:17 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/59127.shtml)
+- 2026-06-30 01:26 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/153748249.shtml)
+- 2026-06-30 01:22 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/74344.shtml)
+- 2026-06-30 01:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/14864100521.shtml)
+- 2026-06-30 01:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/49423408.shtml)
+- 2026-06-30 01:16 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/2720652.shtml)
+- 2026-06-30 01:41 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/606469.shtml)
+- 2026-06-30 01:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/535997.shtml)
+- 2026-06-30 01:25 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/817905061.shtml)
+- 2026-06-30 01:40 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/036459722133.shtml)
+- 2026-06-30 01:33 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/457148443.shtml)
+- 2026-06-30 01:15 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/61168498062.shtml)
+- 2026-06-30 01:30 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/0072076.shtml)

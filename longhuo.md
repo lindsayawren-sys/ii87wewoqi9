@@ -1,47 +1,56 @@
-# 传智教育：公司将遵守相关规则的要求，在会计半年度结束之日起十五日内进行披露
+# AI细分赛道，火爆！两大科技巨头双双发布，这个板块最先受益
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，传智教育（维权）在互动平台回答投资者提问时表示，根据规则，公司预计半年度经营业绩将出现“（一）净利润为负值；（二）净利润实现扭亏为盈；（三）实现盈利，且净利润与上年同期相比上升或者下降50%以上”情形之一的，应当在半年度结束之日起十五日内进行预告。公司将遵守相关规则的要求，在会计半年度结束之日起十五日内进行披露。（文章来源：证券日报）
+腾讯和阿里巴巴两大科技公司双双发布新的世界模型。4月16日，阿里巴巴发布世界模型Happy Oyster，该模型基于原生多模态架构而建，支持多模态理解与音视频联合生成，用户可以实时构建可互动、可演绎、可探索的AI数字世界，该产品可生成动态三维环境，支持影视制作、游戏开发等场景。当日，腾讯正式发布并开源混元3D世界模型2.0（HY-World 2.0），该模型是一个多模态世界模型
 
 ## 正文
 
-证券日报网讯 6月18日，传智教育（维权）在互动平台回答投资者提问时表示，根据规则，公司预计半年度经营业绩将出现“（一）净利润为负值；（二）净利润实现扭亏为盈；（三）实现盈利，且净利润与上年同期相比上升或者下降50%以上”情形之一的，应当在半年度结束之日起十五日内进行预告。
+腾讯和阿里巴巴两大科技公司双双发布新的世界模型。
 
-公司将遵守相关规则的要求，在会计半年度结束之日起十五日内进行披露。
+4月16日，阿里巴巴发布世界模型Happy Oyster，该模型基于原生多模态架构而建，支持多模态理解与音视频联合生成，用户可以实时构建可互动、可演绎、可探索的AI数字世界，该产品可生成动态三维环境，支持影视制作、游戏开发等场景。
 
-（文章来源：证券日报）
+当日，腾讯正式发布并开源混元3D世界模型2.0（HY-World 2.0），该模型是一个多模态世界模型，能够理解文字、图片、视频等不同类型输入，自动生成、重建和模拟3D世界，同时支持多格式3D资产导出，可以与现有的游戏工作流无缝对接，用于快速生成游戏地图和关卡原型。
+
+值得注意的是，4月15日，世界模型领域权威评测平台WorldArena最新榜单显示，一款标注来自阿里巴巴的世界模型ABot-PhysWorld以显著优势登上榜首。
+
+据悉，该模型出自阿里巴巴旗下高德地图团队，其能够准确预见物体在复杂交互下的运动轨迹，如滑动、倾倒、堆叠、流体变化等，并保持多步因果逻辑的一致性。
+
+世界模型还获得资本涌入。
+
+在4月14日，世界模型领域的明星企业——极佳视界宣布完成15亿元融资，公司估值已超百亿元，而就在一个月前，其刚刚完成近10亿元Pre-B轮融资。
+
+在世界模型领域，极佳视界自研的GigaWorld-1世界模型，在顶级评测基准WorldArena中击败国际顶尖机构，荣登全球榜首。
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 01:35 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:13 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 01:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 01:16 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 01:35 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 01:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 01:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 01:22 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 01:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 01:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 01:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 01:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 01:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 01:22 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 01:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 01:12 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 01:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 01:38 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 01:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [这一刀 会很帅](http://www.share.minike.top/Article/details/96569.shtml)
-- 2026-06-30 01:14 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/007757055.shtml)
-- 2026-06-30 01:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/703765622.shtml)
-- 2026-06-30 01:18 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/17798876.shtml)
-- 2026-06-30 01:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/1284865.shtml)
-- 2026-06-30 01:16 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/9597961.shtml)
-- 2026-06-30 01:07 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/749905.shtml)
-- 2026-06-30 01:19 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/44744.shtml)
-- 2026-06-30 01:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/0074559911.shtml)
-- 2026-06-30 01:06 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/26128.shtml)
-- 2026-06-30 01:17 - [刘念回应](https://www.share.minike.top/Article/details/758477.shtml)
-- 2026-06-30 01:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/12787991.shtml)
-- 2026-06-30 01:35 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/69097.shtml)
-- 2026-06-30 01:27 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/8660514.shtml)
-- 2026-06-30 01:24 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/361319.shtml)
+- 2026-06-30 01:31 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/79118928904.shtml)
+- 2026-06-30 01:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/00399323283.shtml)
+- 2026-06-30 01:32 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6853948781.shtml)
+- 2026-06-30 01:33 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/747289386.shtml)
+- 2026-06-30 01:27 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/06130218962.shtml)
+- 2026-06-30 01:23 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/864143.shtml)
+- 2026-06-30 01:16 - [世界杯](http://www.share.kurohicncr.top/Article/details/30247331457.shtml)
+- 2026-06-30 01:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/83246.shtml)
+- 2026-06-30 01:39 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6894997016.shtml)
+- 2026-06-30 01:39 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/5370597.shtml)
+- 2026-06-30 01:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/623901329.shtml)
+- 2026-06-30 01:20 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/818804820.shtml)
+- 2026-06-30 01:36 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/03180290916.shtml)
+- 2026-06-30 01:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/2699208981.shtml)
+- 2026-06-30 01:29 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/160802891.shtml)

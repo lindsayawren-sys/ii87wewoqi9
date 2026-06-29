@@ -1,54 +1,49 @@
-# 腾盛博药-B公布拟回购公司股份
+# 韩国称其运载原油船只安全驶离红海
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-腾盛博药-B（02137）发布公告，董事有意根据股东于2026年6月16日通过的决议案授予董事的一般授权行使其权力，以购回不超过于2026年6月16日的已发行股份总数（不包括库存股份）10%的公司股份。就公司根据购回授权购回的股份而言，公司可注销有关股份及╱或将其持作库存股份，视（其中包括）进行购回相关时间的市况及公司的资本管理需求而定。考虑到公司股价现时处于业绩、资产价值及业
+韩国海洋水产部表示，一艘从沙特阿拉伯延布港装载原油的韩国船只于周五安全驶离红海，这是霍尔木兹海峡遭封锁后，首次有原油通过替代航线运输。韩国一直在积极寻求将红海作为霍尔木兹海峡替代航线的利用方案。韩国海洋水产部为船员及船只提供安全保障，包括 24 小时实时监控，并在该部门、船只及航运公司之间搭建实时通信渠道。责任编辑：王永生
 
 ## 正文
 
-腾盛博药-B（02137）发布公告，董事有意根据股东于2026年6月16日通过的决议案授予董事的一般授权行使其权力，以购回不超过于2026年6月16日的已发行股份总数（不包括库存股份）10%的公司股份。
+韩国海洋水产部表示，一艘从沙特阿拉伯延布港装载原油的韩国船只于周五安全驶离红海，这是霍尔木兹海峡遭封锁后，首次有原油通过替代航线运输。
 
-就公司根据购回授权购回的股份而言，公司可注销有关股份及╱或将其持作库存股份，视（其中包括）进行购回相关时间的市况及公司的资本管理需求而定。
+韩国一直在积极寻求将红海作为霍尔木兹海峡替代航线的利用方案。
 
-考虑到公司股价现时处于业绩、资产价值及业务前景被低估的水平，董事会于2026年6月17日决议动用购回授权，不时因应市况于公开市场积极推行场内股份购回计划。
+韩国海洋水产部为船员及船只提供安全保障，包括 24 小时实时监控，并在该部门、船只及航运公司之间搭建实时通信渠道。
 
-根据该股份购回计划，用于购回股份的资金总额不超过6000万港元，股份购回计划的期限自本公告日期起至公司于2027年举行下届股东周年大会之日止。
-
-董事会相信，股份购回计划可进一步反映公司对旗下业务前景及展望充满信心，最终将使公司受益，并为股东缔造价值。
-
-董事会相信，凭借现有财务资源，公司可在维持稳健财务状况的情况下根据股份购回计划实施股份购回。
-
-责任编辑：卢昱君
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 01:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 01:34 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 01:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 01:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:33 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 01:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 01:25 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 01:16 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 01:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 01:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 01:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 01:28 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 01:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 01:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 01:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 01:24 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 01:29 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 01:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 01:30 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/00963502.shtml)
-- 2026-06-30 01:31 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/375219577181.shtml)
-- 2026-06-30 01:30 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/66330306.shtml)
-- 2026-06-30 01:35 - [美人鱼](https://www.blog.minike.top/Article/details/84280.shtml)
-- 2026-06-30 01:19 - [爱很美味](https://www.share.minike.top/Article/details/4523915.shtml)
-- 2026-06-30 01:15 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/23043.shtml)
-- 2026-06-30 01:34 - [我和我的家乡](https://www.blog.minike.top/Article/details/7374219269.shtml)
-- 2026-06-30 01:25 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/47987185.shtml)
-- 2026-06-30 01:23 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/7820195.shtml)
-- 2026-06-30 01:25 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/5975265479.shtml)
-- 2026-06-30 01:08 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/968652393251.shtml)
-- 2026-06-30 01:11 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/94319380953.shtml)
-- 2026-06-30 01:23 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/947160.shtml)
-- 2026-06-30 01:21 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/316964.shtml)
-- 2026-06-30 01:24 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/5049786986.shtml)
+- 2026-06-30 01:12 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/939153781080.shtml)
+- 2026-06-30 01:19 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/790490.shtml)
+- 2026-06-30 01:17 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/64336.shtml)
+- 2026-06-30 01:30 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/35959806583.shtml)
+- 2026-06-30 01:36 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/52596693304.shtml)
+- 2026-06-30 01:17 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/3550251025.shtml)
+- 2026-06-30 01:14 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/435450560673.shtml)
+- 2026-06-30 01:12 - [恋与深空 日服](http://www.blog.minike.top/Article/details/121634.shtml)
+- 2026-06-30 01:37 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/1469724.shtml)
+- 2026-06-30 01:35 - [千与千寻](http://www.share.kurohicncr.top/Article/details/37109.shtml)
+- 2026-06-30 01:15 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/76289540.shtml)
+- 2026-06-30 01:40 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/900414135.shtml)
+- 2026-06-30 01:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/49534.shtml)
+- 2026-06-30 01:35 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/840482827.shtml)
+- 2026-06-30 01:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/954163038546.shtml)

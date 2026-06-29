@@ -1,56 +1,59 @@
-# 德意志银行：沃什若避免释放政策信号 套利交易将迎来机会
+# 相互猛烈袭击后 黎以实施10天临时停火
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-德意志银行全球外汇研究主管George Saravelos表示，美联储主席凯文·沃什的目标是“尽可能避免就今年的货币政策发表看法，从而将对市场定价的影响降至最低”。如果沃什能够做到这一点，那么美元很可能走弱，而“夏季套利交易的道路将完全打开”。 德银在周三发给客户的报告中表示，随着伊朗战争对市场造成的有限影响逐渐消退，“很难不看好”风险资产。 该行指出，自去年以来，全球经济增长
+中新社北京4月17日电 综合消息：在连夜相互发动猛烈袭击后，黎巴嫩与以色列自当地时间17日零时起，实施为期10天的临时停火。伊朗等多方对此表示欢迎。以方称，停火期间以军将驻留黎南部地区。 美国总统特朗普16日在社交媒体发文，宣布黎巴嫩与以色列达成停火协议，停火在黎以当地时间17日零时生效，为期10天。美方称，停火期间，黎以将就“实现持久安全与和平的协议”进行谈判，以总理和黎总理
 
 ## 正文
 
-德意志银行全球外汇研究主管George Saravelos表示，美联储主席凯文·沃什的目标是“尽可能避免就今年的货币政策发表看法，从而将对市场定价的影响降至最低”。
+中新社北京4月17日电 综合消息：在连夜相互发动猛烈袭击后，黎巴嫩与以色列自当地时间17日零时起，实施为期10天的临时停火。
 
-如果沃什能够做到这一点，那么美元很可能走弱，而“夏季套利交易的道路将完全打开”。
+伊朗等多方对此表示欢迎。
 
-德银在周三发给客户的报告中表示，随着伊朗战争对市场造成的有限影响逐渐消退，“很难不看好”风险资产。
+以方称，停火期间以军将驻留黎南部地区。
 
-该行指出，自去年以来，全球经济增长预测几乎没有发生变化，而这种具有韧性的增长前景“并不是特别利好美元的信号”。
+美国总统特朗普16日在社交媒体发文，宣布黎巴嫩与以色列达成停火协议，停火在黎以当地时间17日零时生效，为期10天。
 
-德银还认为，就未来几个月增长预期上修的空间而言，欧洲“拥有最大的潜力”。
+美方称，停火期间，黎以将就“实现持久安全与和平的协议”进行谈判，以总理和黎总理可能在华盛顿会面。
 
-责任编辑：李桐
+黎媒称，在16日晚停火实施前几小时，以军猛烈袭击黎南部地区，造成多人死伤。
+
+以色列国防军通报称，16日全天在黎南部打击380多个真主党目标。
+
+黎真主党通报称，16日对黎境内的以军目标和以北部地区目标共发动75次袭击。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:16 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 01:16 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 01:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 01:29 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 01:35 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 01:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 01:13 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 01:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 01:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 01:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 01:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 01:36 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 01:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 01:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 01:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 01:28 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 01:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 01:26 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 01:16 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 01:20 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 01:12 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 01:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 01:14 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/94933918.shtml)
-- 2026-06-30 01:18 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/14892.shtml)
-- 2026-06-30 01:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/0339784719.shtml)
-- 2026-06-30 01:14 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/188587032.shtml)
-- 2026-06-30 01:09 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/697542635566.shtml)
-- 2026-06-30 01:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/80707923012.shtml)
-- 2026-06-30 01:19 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/01347.shtml)
-- 2026-06-30 01:17 - [TOP Prada](http://www.blog.minike.top/Article/details/69580120930.shtml)
-- 2026-06-30 01:18 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/414957266774.shtml)
-- 2026-06-30 01:16 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/227294804191.shtml)
-- 2026-06-30 01:08 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/05497.shtml)
-- 2026-06-30 01:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/184921.shtml)
-- 2026-06-30 01:28 - [锐评T1零封KC](https://www.share.minike.top/Article/details/26515661347.shtml)
-- 2026-06-30 01:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/609687.shtml)
-- 2026-06-30 01:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/19349346.shtml)
+- 2026-06-30 01:34 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/52091600.shtml)
+- 2026-06-30 01:14 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/7253170369.shtml)
+- 2026-06-30 01:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/257403747.shtml)
+- 2026-06-30 01:32 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/40144.shtml)
+- 2026-06-30 01:31 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/426462755727.shtml)
+- 2026-06-30 01:13 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/78284337498.shtml)
+- 2026-06-30 01:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/7779452478.shtml)
+- 2026-06-30 01:23 - [TOP Prada](https://www.blog.minike.top/Article/details/6060201604.shtml)
+- 2026-06-30 01:23 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/1691884220.shtml)
+- 2026-06-30 01:13 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/352381807.shtml)
+- 2026-06-30 01:25 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/123896723.shtml)
+- 2026-06-30 01:38 - [美股](http://www.blog.minike.top/Article/details/4440190308.shtml)
+- 2026-06-30 01:41 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/730636328447.shtml)
+- 2026-06-30 01:40 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/6796463.shtml)
+- 2026-06-30 01:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/5494872.shtml)

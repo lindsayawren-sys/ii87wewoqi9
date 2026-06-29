@@ -1,58 +1,59 @@
-# 两岸青年踏访北庭故城 共读丝路历史
+# “小而精”的新型研究型大学正在扩招 你会让孩子报考吗？
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？十届南博会，一叶清茶何以架起文明对话之桥？中国沙漠治理经验，如何与世界共享？人工智能如何向善而行？为什么不能总挖鼻孔？专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲
+目前，南方科技大学、西湖大学等新型研究型大学的综合评价招生正在进行中，部分高校和地区的报名时间截止到本月底。不同于传统大学，新型研究型大学，一般采用“631”模式考核学生，也就是高考成绩占60%、能力测试成绩占30%、高中平时成绩占10%，最终择优录取。统计显示，全国现已成立8所 “新型研究型大学”，比如南方科技大学、西湖大学、福建福耀科技大学、大湾区大学等等，尽管这批大学创办
 
 ## 正文
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+目前，南方科技大学、西湖大学等新型研究型大学的综合评价招生正在进行中，部分高校和地区的报名时间截止到本月底。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+不同于传统大学，新型研究型大学，一般采用“631”模式考核学生，也就是高考成绩占60%、能力测试成绩占30%、高中平时成绩占10%，最终择优录取。
 
-中国沙漠治理经验，如何与世界共享？
+统计显示，全国现已成立8所 “新型研究型大学”，比如南方科技大学、西湖大学、福建福耀科技大学、大湾区大学等等，尽管这批大学创办时间不长，但是部分高校的录取分数对标985高校，成为高等院校中的“黑马”。
 
-人工智能如何向善而行？
+南方科技大学、西湖大学等新型研究型大学为何集体扩招？
 
-为什么不能总挖鼻孔？
+截止到本月30号，南方科技大学面向全国24个省(区、市)开展的综合评价招生网上报名工作将结束，根据计划，今年南科大计划在全国本科招生超1400人，预计比去年增加30至40人，其中在广东将进一步扩招。
 
-专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了1000块钱”“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+南科大招生办主任汪飞介绍，目前报名综合评价招生的考生人数约4万人。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+汪飞：扩招的这一部分名额的话可能还是重点会投放在广东省内。
 
-多边主义保障世界人权面临何种挑战与机遇？
+我们今年最大的一个变化的话，我们将会增加一个招生省份，在甘肃省招生，就是在一本批次普通高考录取的方式。
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 01:29 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 01:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 01:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 01:16 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 01:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 01:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 01:06 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 01:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 01:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:13 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 01:25 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 01:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 01:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 01:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 01:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 01:17 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 01:30 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 01:20 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 01:14 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/10688.shtml)
-- 2026-06-30 01:29 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/232072.shtml)
-- 2026-06-30 01:27 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/349831.shtml)
-- 2026-06-30 01:16 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/0481506.shtml)
-- 2026-06-30 01:14 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/19919041684.shtml)
-- 2026-06-30 01:07 - [急先锋](https://www.share.kurohicncr.top/Article/details/48099414853.shtml)
-- 2026-06-30 01:13 - [送你一朵小红花](http://www.share.minike.top/Article/details/514724883.shtml)
-- 2026-06-30 01:20 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/276868851.shtml)
-- 2026-06-30 01:15 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/5083948.shtml)
-- 2026-06-30 01:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/84520.shtml)
-- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/4871512145.shtml)
-- 2026-06-30 01:30 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/29331098986.shtml)
-- 2026-06-30 01:20 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/67854.shtml)
-- 2026-06-30 01:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/45372275.shtml)
-- 2026-06-30 01:32 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0200369485.shtml)
+- 2026-06-30 01:14 - [逃狱兄弟](http://www.blog.minike.top/Article/details/48177015008.shtml)
+- 2026-06-30 01:30 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/74521641.shtml)
+- 2026-06-30 01:32 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/4530320.shtml)
+- 2026-06-30 01:19 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/65159281.shtml)
+- 2026-06-30 01:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/075742684.shtml)
+- 2026-06-30 01:31 - [世界杯](https://www.share.minike.top/Article/details/7599821.shtml)
+- 2026-06-30 01:31 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/955486.shtml)
+- 2026-06-30 01:37 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/6929675.shtml)
+- 2026-06-30 01:37 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/829042677741.shtml)
+- 2026-06-30 01:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/27152817799.shtml)
+- 2026-06-30 01:29 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/467002.shtml)
+- 2026-06-30 01:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/3092139183.shtml)
+- 2026-06-30 01:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/71284833.shtml)
+- 2026-06-30 01:32 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/33690195.shtml)
+- 2026-06-30 01:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/70918.shtml)

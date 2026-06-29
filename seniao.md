@@ -1,57 +1,60 @@
-# 厦门“一张床”免费住宿护航大学生求职就业
+# 澳门引进人才助力四大产业发展
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网厦门6月18日电 (吴冠标)2026年第二季度“央媒话厦门”采访团17日走进厦门市湖里区围里公寓，了解该市以大学生“一张床”免费住宿保障“筑巢引凤”的成效。 近年来，针对高校毕业生来厦不同阶段居住难题，厦门构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系，为稳就业、引青年、聚人才提供支撑。 据介绍，厦门2024年推出首批围里公寓“一张床”房源，将
+中新社澳门4月15日电 (记者 郑嘉伟)记者15日从澳门特区人才发展委员会(下称“人才委”)获悉，澳门人才引进工作取得成效。自2023年推出人才引进计划至今，已成功引进中国工程院院士、金牌运动员、科学探索奖获得者、四大产业领军人物等。据介绍，引进人才已相继投入澳门四大产业(中医药大健康、现代金融、高新技术、会展商贸及文化体育产业)发展，在助力澳门经济适度多元发展的同时，通过“带
 
 ## 正文
 
-中新网厦门6月18日电 (吴冠标)2026年第二季度“央媒话厦门”采访团17日走进厦门市湖里区围里公寓，了解该市以大学生“一张床”免费住宿保障“筑巢引凤”的成效。
+中新社澳门4月15日电 (记者 郑嘉伟)记者15日从澳门特区人才发展委员会(下称“人才委”)获悉，澳门人才引进工作取得成效。
 
-近年来，针对高校毕业生来厦不同阶段居住难题，厦门构建求职“一张床”、就业“一间屋”、安家“一套房”阶梯式全链条住房保障体系，为稳就业、引青年、聚人才提供支撑。
+自2023年推出人才引进计划至今，已成功引进中国工程院院士、金牌运动员、科学探索奖获得者、四大产业领军人物等。
 
-据介绍，厦门2024年推出首批围里公寓“一张床”房源，将求职和见习实习期间的高校大学生纳入保障体系，提供免费住宿，解决他们的过渡性居住需求。
+据介绍，引进人才已相继投入澳门四大产业(中医药大健康、现代金融、高新技术、会展商贸及文化体育产业)发展，在助力澳门经济适度多元发展的同时，通过“带教”培育澳门本地人才。
 
-目前，“一张床”免费住宿政策已在湖里区、集美区、海沧区等地布局6个居住点，惠及大学生1.4万余人次。
+为强化主动吸纳人才、人才落地发展的整体工作，人才委于2025年成立“人才推广及拓展组”和“人才服务工作组”两个跨部门工作组，通过发挥澳门驻外办事处在地联系人角色，并借助招商、经济科技等成员在海内外举办的招商引资活动，合力宣传澳门人才政策。
 
-端午节临近，围里公寓里节日氛围浓厚，桌上粽子飘香，各类活动有序开展。
+同时，工作组计划于今年下半年举办专题会，协助相关人才了解澳门产业政策等，促进其在澳门投资及各项发展尽快落地实施。
 
-大学生们有的参加技能培训课，有的参与互动游戏，有的动手制作香囊，在求职奔波之余也能感受到节日暖意。
+此外，紧扣特区政府“澳门+横琴”的发展定位，并配合澳琴国际教育(大学)城等重大工程有序开展，人才委还加强与横琴共同推动协同引才工作，包括探索和研究“澳琴人才卡”等。
 
-走进围里公寓房间，床具、储物柜、桌椅、空调、电热水壶等设施一应俱全，可直接“拎包入住”。
+澳门人才委表示，未来将坚持“引得准、留得住、用得好”的原则，配合国家发展战略和澳门产业布局，持续优化人才引进政策和服务措施，并发挥不同平台的作用，致力向海内外宣传澳门人才政策，广纳天下英才。
 
-公共区域还设置了早餐点、咖啡休息区、公共洗衣房、健身房、招聘对接室等功能空间，全方位便利大学生的生活与求职。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:35 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 01:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 01:07 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 01:21 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 01:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 01:27 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 01:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 01:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 01:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 01:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 01:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 01:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 01:31 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 01:31 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 01:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 01:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 01:40 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 01:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 01:34 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:35 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:35 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 01:23 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 01:29 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 01:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 01:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/447360.shtml)
-- 2026-06-30 01:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/32648.shtml)
-- 2026-06-30 01:09 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/81097.shtml)
-- 2026-06-30 01:35 - [明星大侦探第一季](http://www.share.minike.top/Article/details/231021025.shtml)
-- 2026-06-30 01:22 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/043767.shtml)
-- 2026-06-30 01:20 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/12462544.shtml)
-- 2026-06-30 01:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/81669028.shtml)
-- 2026-06-30 01:21 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/45154957.shtml)
-- 2026-06-30 01:11 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/137031963.shtml)
-- 2026-06-30 01:10 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/3563369.shtml)
-- 2026-06-30 01:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/62911647.shtml)
-- 2026-06-30 01:19 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/921296212918.shtml)
-- 2026-06-30 01:06 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/5900043.shtml)
-- 2026-06-30 01:12 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/2554773.shtml)
-- 2026-06-30 01:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/95297.shtml)
+- 2026-06-30 01:29 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/3649294.shtml)
+- 2026-06-30 01:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/73232302.shtml)
+- 2026-06-30 01:34 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/082975.shtml)
+- 2026-06-30 01:31 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/0761327156.shtml)
+- 2026-06-30 01:20 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/731023.shtml)
+- 2026-06-30 01:17 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/611112171.shtml)
+- 2026-06-30 01:15 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/40562769.shtml)
+- 2026-06-30 01:35 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/91468670259.shtml)
+- 2026-06-30 01:18 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/20078379091.shtml)
+- 2026-06-30 01:38 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/26470.shtml)
+- 2026-06-30 01:24 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/124752243.shtml)
+- 2026-06-30 01:23 - [第一炉香](https://www.share.kurohicncr.top/Article/details/28911177237.shtml)
+- 2026-06-30 01:34 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/48871.shtml)
+- 2026-06-30 01:26 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/34455142345.shtml)
+- 2026-06-30 01:40 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/32581254320.shtml)

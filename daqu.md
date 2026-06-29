@@ -1,57 +1,61 @@
-# 研究显示德国工业就业人数降至十年来的最低水平
+# 在风雪弥漫的川藏线上，一代代汽车兵守护着这条钢铁运输线
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-德国经济研究所（IW）周四发布的一项研究显示，2025年德国工业就业人数降至10年来的最低点，仅为660万人。 这一下降并非由雇主解雇人数增加所致，而是由于雇主在填补空缺职位和招聘新员工方面犹豫不决。 “新雇员数量的减少是对未来就业趋势的一个预警信号，”委托IW开展这项研究的贝塔斯曼基金会劳动力市场专家Luisa Kunze表示。 自2014年以来，工业在整体劳动力市场中的占比
+雪漫川藏线 -廖平洋 初春的青藏高原，一连几夜都有降雪，风也没有停歇。从扎木到拉萨，600多公里川藏线，色季拉山弯急崖深，稍不留神就是万丈深渊。新驾驶员、下士张攀双眼圆睁，双手握住方向盘，目光盯着前方。 雨刮器划过挡风玻璃，眼前是白茫茫一片。这里是雪山上最难走的一段路，已经驾车行驶一天，疲惫涌入驾驶室内。突然，对讲机里传来指导员的提醒：“前方上山，打起精神！”窗外雪粒横飞，寒意
 
 ## 正文
 
-德国经济研究所（IW）周四发布的一项研究显示，2025年德国工业就业人数降至10年来的最低点，仅为660万人。
+雪漫川藏线 -廖平洋 初春的青藏高原，一连几夜都有降雪，风也没有停歇。
 
-这一下降并非由雇主解雇人数增加所致，而是由于雇主在填补空缺职位和招聘新员工方面犹豫不决。
+从扎木到拉萨，600多公里川藏线，色季拉山弯急崖深，稍不留神就是万丈深渊。
 
-“新雇员数量的减少是对未来就业趋势的一个预警信号，”委托IW开展这项研究的贝塔斯曼基金会劳动力市场专家Luisa Kunze表示。
+新驾驶员、下士张攀双眼圆睁，双手握住方向盘，目光盯着前方。
 
-自2014年以来，工业在整体劳动力市场中的占比已从22%降至19%，这加剧了关于德国“去工业化”的争论。
+雨刮器划过挡风玻璃，眼前是白茫茫一片。
 
-该研究指出，由于工业企业相对于其他行业的工资优势在10年内大致减半，对员工的吸引力已有所下降。
+这里是雪山上最难走的一段路，已经驾车行驶一天，疲惫涌入驾驶室内。
 
-责任编辑：于健 SF069
+突然，对讲机里传来指导员的提醒：“前方上山，打起精神！
+
+”窗外雪粒横飞，寒意渗进骨缝，张攀和坐在副驾驶的教练员姚荣丝毫不敢懈怠。
+
+他们与前车的距离越落越远，张攀右脚一直不加油。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 01:08 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 01:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 01:07 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 01:26 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 01:29 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:19 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 01:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 01:06 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 01:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 01:12 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 01:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:13 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 01:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 01:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 01:35 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 01:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 01:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 01:27 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 01:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 01:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 01:20 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 01:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 01:14 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 01:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:30 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 01:27 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 01:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 01:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/373875.shtml)
-- 2026-06-30 01:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/76059851.shtml)
-- 2026-06-30 01:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/52967274266.shtml)
-- 2026-06-30 01:08 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/0309903.shtml)
-- 2026-06-30 01:15 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/91279736.shtml)
-- 2026-06-30 01:17 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/3043267429.shtml)
-- 2026-06-30 01:19 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/43002861.shtml)
-- 2026-06-30 01:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/451102839.shtml)
-- 2026-06-30 01:27 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/772651548031.shtml)
-- 2026-06-30 01:34 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/34277281.shtml)
-- 2026-06-30 01:31 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/55200317.shtml)
-- 2026-06-30 01:08 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/5122843738.shtml)
-- 2026-06-30 01:08 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/965636477.shtml)
-- 2026-06-30 01:09 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/293729900.shtml)
-- 2026-06-30 01:07 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/0433670.shtml)
+- 2026-06-30 01:27 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/082500061.shtml)
+- 2026-06-30 01:27 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/06281965929.shtml)
+- 2026-06-30 01:27 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/74080474824.shtml)
+- 2026-06-30 01:24 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/2619089.shtml)
+- 2026-06-30 01:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/53030535946.shtml)
+- 2026-06-30 01:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/740406348.shtml)
+- 2026-06-30 01:29 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/8157740597.shtml)
+- 2026-06-30 01:14 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/908419072.shtml)
+- 2026-06-30 01:36 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/8132100.shtml)
+- 2026-06-30 01:39 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/18565.shtml)
+- 2026-06-30 01:36 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/4634894593.shtml)
+- 2026-06-30 01:14 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/009157432.shtml)
+- 2026-06-30 01:21 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/52165540295.shtml)
+- 2026-06-30 01:32 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/915801008.shtml)
+- 2026-06-30 01:15 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/63690593430.shtml)

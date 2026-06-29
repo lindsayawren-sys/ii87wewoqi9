@@ -1,53 +1,52 @@
-# 驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问
+# 国泰君安期货：4000点上，大A的底气从何而来？
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。 记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。中方对此有何评论？ 发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。 发言人强调，中国在乌克兰危机问题上一贯
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！国泰君安期货市场分析师 张驰宁 Z0020302 大A一转眼站上4000点整数关口已经三个交易日了。这一轮从低点反弹，幅度接近两百点，市场似乎摆脱了以往的纠结反复。回想过去，每到这种关键整数关口，市场总免不了横盘确认、反复突破又失守的拉锯战。但这一次，站上4000点后，指数并未过多犹豫，反而一股脑又向上拉了
 
 ## 正文
 
-中新网6月17日电 据中国驻欧盟使团网站消息，驻欧盟使团发言人就欧盟新一轮对俄制裁新增制裁中方企业答记者问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！国泰君安期货市场分析师 张驰宁 Z0020302 大A一转眼站上4000点整数关口已经三个交易日了。这一轮从低点反弹，幅度接近两百点，市场似乎摆脱了以往的纠结反复。回想过去，每到这种关键整数关口，市场总免不了横盘确认、反复突破又失守的拉锯战。但这一次，站上4000点后，指数并未过多犹豫，反而一股脑又向上拉了接近50个点。很多投资者都在问：这一次，大A会不会真的不一样？ 【对比年初以来亚洲主要市场的涨幅】 从2026年初至4月16日，日经指数涨了大概16%（截至今晨10点30分），韩国股市涨了接近47%，涨幅已经非常高了。而我们上证指数，从年初到现在只涨了大概1.5%。相比之下，我们的表现更收敛，前期涨幅没那么大。这就意味着，当外部市场已经涨到相对高位、风险开始积聚的时候，A股反而
 
-记者问：6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。
+根据今早公布的数据，国家统计局初步核算，一季度国内生产总值334193亿元，按不变价格计算，一季度国内生产总值同比增长5.0%，不仅稳稳落在今年4.5-5%的增长目标区间内，更是一举触及了区间上沿。考虑到一季度往往受春节等因素影响，是全年经济的相对淡季，这样的开局成绩单，无疑彰显出经济内在的韧性，为市场情绪提供了坚实的“压舱石”。当然，从另一角度看，一季度表现强劲，也可能意味着市场对于后续出台超强刺激政策的预期会有所降温。
 
-中方对此有何评论？
+今年开始，我们的主要经济指标都出现了回升迹象。 自年初开始，全国固定资产投资同比增速呈现回升态势。在关键时刻，政府主导的投资能够有效发挥“稳增长”的托底作用，稳住了经济的大盘。接下来的看点，在于能否激发更多民间投资和外资的活力，为经济注入新的动力。 社会消费品零售总额增速确实有所回落，但细看结构，主要的拖累项如汽车、家电等，很大程度上是由于国补政策调整、前期消费集中释放等短期因素导致。而像服装、化妆品、金银珠宝等可选消费品的增速保持得还不错，说明老百姓的消费意愿和能力有韧性，内需的基本盘依然有支撑。 工业增加值保持了可观增长，更重要的是增长结构在优化。拉动工业增长的主力军中，高技术制造业表现尤为突出，例如计算机通信设备、铁路船舶航空航天等领域增速都超过12%。这些正是“新质生产力”的重要领域，它们的快速增长表明经济转型升级正在取得实效，为股市提供了具
 
-发言人称，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。
+3月份制造业PMI回到了50.4%，站上了50%的荣枯线以上，意味着制造业景气水平回升，重新回到了扩张区间。此外，本月13日公布的金融数据显示，信贷结构也在持续优化。
 
-发言人强调，中国在乌克兰危机问题上一贯秉持客观公正立场，致力于劝和促谈，为推动政治解决乌克兰危机发挥建设性作用。
-
-中方坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，坚决反对没有联合国安理会授权、缺乏国际法依据的非法单边制裁，将采取一切必要措施，坚定维护中方企业正当权益。
+那可能有朋友会担心，前段时间公布的3月份CPI数据环比是下降的，会不会说明需求不行了？我们仔细看一下数据就会发现，这个环比下降，绝大部分，是由食品价格和服务价格下跌贡献的。食品价格下跌，主要是因为像猪肉这类供应比较充足；服务价格下跌，主要是因为春节假期过后，出行、旅游这些需求自然回落了。这些都是季节性的、暂时性的因素。而剔除食品和能源价格影响的核心CPI，其实还是保持稳定的。 这说明我们内需的基础其实还是比较平稳的，不用过度担心短期的价格波动。 总体上，从国内的经济数据组合来看，经济可能正处于一个弱企稳的阶段，这为大A市场的表现提供了一个相对稳定的宏观背景。 【外部动荡中的“避风港”】 其次，我们来看看外部环境。最近中东的地缘局势大家关注度非常高，国际油价波动很大。在这种环境下，不同市场的抗风险能力是不一样的。像日本和韩国，它们的传统能源供应非常依赖
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 01:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 01:20 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 01:14 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 01:35 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 01:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 01:31 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 01:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 01:09 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 01:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 01:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 01:16 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 01:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 01:15 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 01:15 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 01:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 01:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:22 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 01:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 01:37 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 01:16 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 01:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/460398276076.shtml)
-- 2026-06-30 01:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/995818151624.shtml)
-- 2026-06-30 01:23 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/83986517.shtml)
-- 2026-06-30 01:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/331671147.shtml)
-- 2026-06-30 01:06 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/535583841.shtml)
-- 2026-06-30 01:22 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/73297.shtml)
-- 2026-06-30 01:29 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/706194058883.shtml)
-- 2026-06-30 01:23 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/540686150542.shtml)
-- 2026-06-30 01:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/387687488815.shtml)
-- 2026-06-30 01:16 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/7350133843.shtml)
-- 2026-06-30 01:16 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/268856209.shtml)
-- 2026-06-30 01:06 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/58744397667.shtml)
-- 2026-06-30 01:08 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/27674.shtml)
-- 2026-06-30 01:09 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/758188620.shtml)
-- 2026-06-30 01:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/49743.shtml)
+- 2026-06-30 01:35 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/256764877.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/3919474.shtml)
+- 2026-06-30 01:40 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/0177848.shtml)
+- 2026-06-30 01:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/71093.shtml)
+- 2026-06-30 01:12 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/17294943351.shtml)
+- 2026-06-30 01:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/102800.shtml)
+- 2026-06-30 01:33 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/4326005285.shtml)
+- 2026-06-30 01:14 - [扬名立万](https://www.share.kurohicncr.top/Article/details/3866422.shtml)
+- 2026-06-30 01:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/285958891952.shtml)
+- 2026-06-30 01:21 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/62306155.shtml)
+- 2026-06-30 01:21 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/862863413953.shtml)
+- 2026-06-30 01:21 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/793227.shtml)
+- 2026-06-30 01:26 - [起风了](https://www.blog.minike.top/Article/details/43632.shtml)
+- 2026-06-30 01:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/74258237.shtml)
+- 2026-06-30 01:17 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/5162528831.shtml)

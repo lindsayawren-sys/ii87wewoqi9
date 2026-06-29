@@ -1,59 +1,57 @@
-# 博睿康冲击“脑机接口第一股”：25年创收1亿却亏2.3亿、侵入式产品未创收商业化前景存未知 升级版对赌显露
+# 意大利天然气公司Edison称卡塔尔可能延长天然气不可抗力，预计美国LNG填补缺口
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：cici 6月11日，博睿康技术（上海）股份有限公司（以下简称“博睿康”）科创板IPO申请正式获得受理，拟募资25亿元，主要用于脑机接口研发项目、脑机接口产业化建设项目以及补充流动资金。红杉恒辰、上海国资背景的国孚领航、浦东创投现身本次发行前的前十名股东名单。 2023年
+意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。 供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。 该合同自2009年开始，为期25年。上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Ed
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+意大利天然气进口商Edison周三表示，卡塔尔可能会将其天然气供应的不可抗力状态延长至6月中旬之后，同时预计这一缺口将由美国供应而非俄罗斯天然气来填补。
 
-出品：新浪财经上市公司研究院 作者：cici 6月11日，博睿康技术（上海）股份有限公司（以下简称“博睿康”）科创板IPO申请正式获得受理，拟募资25亿元，主要用于脑机接口研发项目、脑机接口产业化建设项目以及补充流动资金。
+供应中断背景 Edison与卡塔尔能源公司签有长期合同，每年接收64亿立方米液化天然气，约占意大利年消费量的10%。
 
-红杉恒辰、上海国资背景的国孚领航、浦东创投现身本次发行前的前十名股东名单。
+该合同自2009年开始，为期25年。
 
-2023年至2025年，博睿康营收从7521万元爬升至1.08亿元，净利润却连续三年告负，累计亏损高达3.28亿元。
+上个月，由于中东冲突及霍尔木兹海峡的持续敌对行动，卡塔尔能源公司通知Edison，在4月至6月中旬期间将无法履行10船货物（相当于14亿立方米天然气）的合同义务。
 
-尤其2025年，归母净亏损骤扩至2.3亿元，即便剔除1.96亿元股份支付费用，扣非后仍亏逾4300万元。
+据卡塔尔能源公司首席执行官称，上个月伊朗的袭击导致该公司17%的LNG出口能力瘫痪。
 
-而承载此次IPO核心想象力的侵入式脑机接口产品NEO-ONE SCI——虽坐拥“全球首证”光环——报告期内创收为零。
+美国LNG填补缺口 Edison首席执行官Nicola Monti在媒体简报会上表示，在卡塔尔能源公司因中东战争取消了4月至6月中旬的10船LNG货物后，该意大利集团已从美国购买了7船LNG。
 
-除此之外，投资机构的要求从“能否上市”延伸到了“以什么估值上市、融到多少钱”。
+Monti对美国LNG供应能力表示信心，他提到了今年美国两座LNG工厂的投产——Venture Global的Plaquemines项目和Golden Pass项目（后者部分由卡塔尔能源公司和埃克森美孚持有）。
 
-2025年10月，公司与投资方签署增资协议，约定上市时估值不低于50亿元、融资额不低于5亿元。
+他指出，其他工厂也在建设中。
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 01:23 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 01:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 01:33 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 01:30 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:12 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 01:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 01:29 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 01:10 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 01:14 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 01:09 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 01:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 01:30 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 01:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 01:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 01:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 01:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 01:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 01:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 01:14 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 01:33 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 01:22 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 01:26 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/853277444869.shtml)
-- 2026-06-30 01:08 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/001442695.shtml)
-- 2026-06-30 01:10 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/980728.shtml)
-- 2026-06-30 01:12 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/9676878895.shtml)
-- 2026-06-30 01:24 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/47209237587.shtml)
-- 2026-06-30 01:33 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/7190244.shtml)
-- 2026-06-30 01:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/24933517.shtml)
-- 2026-06-30 01:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/443514656.shtml)
-- 2026-06-30 01:06 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/980469331430.shtml)
-- 2026-06-30 01:24 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/180862462898.shtml)
-- 2026-06-30 01:27 - [起风了](https://www.share.kurohicncr.top/Article/details/50917191.shtml)
-- 2026-06-30 01:20 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/851444078.shtml)
-- 2026-06-30 01:24 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/965932736.shtml)
-- 2026-06-30 01:07 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/695892069464.shtml)
-- 2026-06-30 01:06 - [金刚川](https://www.blog.minike.top/Article/details/653158387.shtml)
+- 2026-06-30 01:34 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/42228243.shtml)
+- 2026-06-30 01:26 - [青春环游记第三季](http://www.share.minike.top/Article/details/6504089731.shtml)
+- 2026-06-30 01:33 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/985485252186.shtml)
+- 2026-06-30 01:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/97584.shtml)
+- 2026-06-30 01:34 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/123298.shtml)
+- 2026-06-30 01:41 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/200101.shtml)
+- 2026-06-30 01:32 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/74858646.shtml)
+- 2026-06-30 01:18 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/88409002.shtml)
+- 2026-06-30 01:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/5112776904.shtml)
+- 2026-06-30 01:12 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/9041318040.shtml)
+- 2026-06-30 01:19 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/9431522.shtml)
+- 2026-06-30 01:16 - [勇敢的心第二部](http://www.share.minike.top/Article/details/86727.shtml)
+- 2026-06-30 01:33 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/535053.shtml)
+- 2026-06-30 01:16 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/89671022.shtml)
+- 2026-06-30 01:39 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/191857444.shtml)

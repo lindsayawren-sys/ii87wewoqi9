@@ -1,60 +1,61 @@
-# 德国总统访问乌兹别克斯坦 聚焦产业、能源与交通物流合作
+# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
 
-> 更新时间：2026-06-30 01:36:03 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳6月17日电 塔什干消息：乌兹别克斯坦总统米尔济约耶夫17日在塔什干同到访的德国总统施泰因迈尔举行会谈。双方围绕经贸投资、产业合作、能源和绿色经济、交通物流等议题进行讨论，并启动一批联合投资和教育项目。据乌兹别克斯坦总统网站消息，会谈期间，双方就进一步发展乌德关系、加强政治对话、扩大经贸联系和推进人文交流等交换意见。 米尔济约耶夫表示，去年乌德双边贸易额超过14亿
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
 
 ## 正文
 
-中新社阿斯塔纳6月17日电 塔什干消息：乌兹别克斯坦总统米尔济约耶夫17日在塔什干同到访的德国总统施泰因迈尔举行会谈。
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
 
-双方围绕经贸投资、产业合作、能源和绿色经济、交通物流等议题进行讨论，并启动一批联合投资和教育项目。
+数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
 
-据乌兹别克斯坦总统网站消息，会谈期间，双方就进一步发展乌德关系、加强政治对话、扩大经贸联系和推进人文交流等交换意见。
+供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
 
-米尔济约耶夫表示，去年乌德双边贸易额超过14亿美元；2025年，德国对乌兹别克斯坦经济投资额达到20亿美元。
+3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
 
-近年来两国双边对话密集，各层级交往保持较高水平，贸易投资合作呈现积极态势。
+数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
 
-会谈中，双方确认，将进一步扩大工业、能源和绿色经济、交通物流、矿业、纺织、制药、农业、教育和卫生等领域合作，并支持在塔什干举办第二届乌德大学论坛和第三届乌德医学论坛。
+从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
 
-会谈后，双方通过联合声明。
+产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
 
-在两国领导人见证下，双方启动一批联合投资和教育项目，涉及在塔什干开展德国大众汽车大部件组装、在安集延州建设物流中心、培养铁路行业专业人才以及开设现代化考试中心等。
+从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 01:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 01:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 01:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:30 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 01:30 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 01:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 01:15 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 01:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 01:28 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 01:34 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 01:06 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 01:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 01:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 01:26 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 01:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 01:37 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 01:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 01:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 01:13 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 01:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 01:15 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 01:27 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 01:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 01:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 01:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 01:15 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 01:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/94138247207.shtml)
-- 2026-06-30 01:30 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/7844665.shtml)
-- 2026-06-30 01:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/15782171354.shtml)
-- 2026-06-30 01:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/473531195880.shtml)
-- 2026-06-30 01:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8762837428.shtml)
-- 2026-06-30 01:28 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/49289.shtml)
-- 2026-06-30 01:34 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/103145673.shtml)
-- 2026-06-30 01:23 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/51648608.shtml)
-- 2026-06-30 01:21 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0214668.shtml)
-- 2026-06-30 01:15 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/8759491598.shtml)
-- 2026-06-30 01:08 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/4021130589.shtml)
-- 2026-06-30 01:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/95075152397.shtml)
-- 2026-06-30 01:22 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/67947637.shtml)
-- 2026-06-30 01:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/15529.shtml)
-- 2026-06-30 01:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/68129665.shtml)
+- 2026-06-30 01:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/99127961412.shtml)
+- 2026-06-30 01:21 - [金刚川](https://www.share.minike.top/Article/details/5126664198.shtml)
+- 2026-06-30 01:29 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/01240731000.shtml)
+- 2026-06-30 01:29 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/36230983.shtml)
+- 2026-06-30 01:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/58568685738.shtml)
+- 2026-06-30 01:39 - [明星大侦探第一季](https://www.share.minike.top/Article/details/78233479215.shtml)
+- 2026-06-30 01:23 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/2997688.shtml)
+- 2026-06-30 01:34 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/70349.shtml)
+- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/198729308.shtml)
+- 2026-06-30 01:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/8557516.shtml)
+- 2026-06-30 01:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/27515812035.shtml)
+- 2026-06-30 01:22 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/47392921.shtml)
+- 2026-06-30 01:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/9268008.shtml)
+- 2026-06-30 01:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/67882011.shtml)
+- 2026-06-30 01:32 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/0741733.shtml)

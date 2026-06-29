@@ -1,55 +1,60 @@
-# 中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研
+# DeepOcean与Woodside完成Sangomar油田双范围水下调查作业
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-来源：进出口银行 近日，中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研。期间，拜会我驻外使领馆，就双边经贸投资发展、重点金融领域合作等内容深入交流；与多家航运航空企业、当地中资金融同业、中资企业、中国船级社分支机构等负责人座谈，实地考察相关项目，并与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流。 △与丹麦马士基集团会谈 △调研土耳其航空培训
+海洋服务提供商DeepOcean与澳大利亚石油与天然气公司伍德赛德(Woodside Energy)已共同完成在塞内加尔近海Sangomar油田进行的联合水下检查与3D扫描作业。 该作业覆盖了69个水下结构，包括17套水下采油树，采用了一种能够同时进行检查和3D扫描的方法。 DeepOcean表示，这种方法使作业完成时间比分别进行两项独立作业所需时间的一半略多，同时增加了收集的
 
 ## 正文
 
-来源：进出口银行 近日，中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研。
+海洋服务提供商DeepOcean与澳大利亚石油与天然气公司伍德赛德(Woodside Energy)已共同完成在塞内加尔近海Sangomar油田进行的联合水下检查与3D扫描作业。
 
-期间，拜会我驻外使领馆，就双边经贸投资发展、重点金融领域合作等内容深入交流；与多家航运航空企业、当地中资金融同业、中资企业、中国船级社分支机构等负责人座谈，实地考察相关项目，并与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流。
+该作业覆盖了69个水下结构，包括17套水下采油树，采用了一种能够同时进行检查和3D扫描的方法。
 
-△与丹麦马士基集团会谈 △调研土耳其航空培训中心 李忠元首席风险官分别与丹麦马士基集团、波兰汽船航运公司和土耳其航空公司等企业负责人会谈，深入了解国际航运航空市场动态及企业经营发展情况，就共同应对市场波动、持续深化务实合作达成共识。
+DeepOcean表示，这种方法使作业完成时间比分别进行两项独立作业所需时间的一半略多，同时增加了收集的数据量。
 
-同时，赴有关中资企业走访，了解其业务开展现状与面临的挑战，围绕境外业务风险防控与差异化可持续发展路径进行交流。
+该作业使用了配备扫描系统和软件的遥控潜水器，利用摄影测量技术生成水下资产的数字3D模型。
 
-在调研期间，李忠元首席风险官还与建行欧洲华沙分行、工银土耳其和土耳其中行等中资银行相关负责人举行会谈，围绕风险研判、项目协作、人民币融资等内容进行交流，并就充分发挥互补优势，提升金融服务质效，更好支持双边经贸关系发展交换意见。
+整个作业包包括检查工程师、ROV操作员、配备专业扫描设备的ROV、能够使用计算机辅助绘图的数据处理软件、ROV影像和声纳、数字孪生，以及专有的可将数据转换为真实3D模型的水下3D成像软件。
 
-在波期间，李忠元首席风险官还与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流，强调要持续发挥海外机构桥头堡作用，进一步提升深度调研能力与资源整合能力，为全行境外业务高质量发展提供更强有力的支撑。
+Sangomar深水油田由Woodside运营，位于达喀尔以南约100公里处，于2024年6月投产。
 
-责任编辑：秦艺
+DeepOcean首席执行官Øyvind Mikaelsen表示：“过去，对水下基础设施进行检查和3D扫描通常是分两次ROV作业完成的。
+
+然而，我们开发了一套远程支持的整体系统，使我们能够同时进行两项作业——从而为运营商减少船天和成本。
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:32 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 01:12 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 01:20 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 01:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 01:25 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 01:16 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 01:07 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 01:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 01:17 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 01:28 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 01:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 01:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 01:41 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 01:19 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 01:40 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 01:21 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:20 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 01:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 01:24 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 01:34 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 01:20 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 01:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:34 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 01:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/98281100.shtml)
-- 2026-06-30 01:34 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/9841504090.shtml)
-- 2026-06-30 01:12 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/513558486.shtml)
-- 2026-06-30 01:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/57695018231.shtml)
-- 2026-06-30 01:09 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/836610156.shtml)
-- 2026-06-30 01:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/72165607091.shtml)
-- 2026-06-30 01:10 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/737347323.shtml)
-- 2026-06-30 01:14 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/42017338.shtml)
-- 2026-06-30 01:08 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/674654738.shtml)
-- 2026-06-30 01:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/0233965.shtml)
-- 2026-06-30 01:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/6257625811.shtml)
-- 2026-06-30 01:08 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/86656762769.shtml)
-- 2026-06-30 01:32 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/0319720423.shtml)
-- 2026-06-30 01:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/57812124.shtml)
-- 2026-06-30 01:11 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/5936274402.shtml)
+- 2026-06-30 01:12 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/6063452.shtml)
+- 2026-06-30 01:28 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/0468250.shtml)
+- 2026-06-30 01:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/62328.shtml)
+- 2026-06-30 01:28 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/17801467.shtml)
+- 2026-06-30 01:34 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/396362640660.shtml)
+- 2026-06-30 01:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/1642938695.shtml)
+- 2026-06-30 01:21 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/232559.shtml)
+- 2026-06-30 01:35 - [毒液2](http://www.share.kurohicncr.top/Article/details/58791.shtml)
+- 2026-06-30 01:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/009089391.shtml)
+- 2026-06-30 01:13 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/35098.shtml)
+- 2026-06-30 01:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/94360531060.shtml)
+- 2026-06-30 01:15 - [爱很美味](https://www.blog.minike.top/Article/details/55173049.shtml)
+- 2026-06-30 01:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/7468104.shtml)
+- 2026-06-30 01:30 - [恋与深空回应争议](http://www.share.minike.top/Article/details/3659563.shtml)
+- 2026-06-30 01:15 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/22264418.shtml)

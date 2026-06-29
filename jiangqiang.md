@@ -1,54 +1,51 @@
-# 张毅出席2026陆家嘴论坛并发表演讲
+# 智元发布远征A3人形机器人：为舞台而生，续航达10小时
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：今日建行 6月17日，2026陆家嘴论坛在上海开幕。中国建设银行行长张毅出席论坛开幕式暨第一次全体大会，并在“建立健全功能完善的资本市场”主题会议上发言。 张毅指出，建立健全功能完善的资本市场，银行业金融机构可以发挥更大作用。一是做好资本市场的参与者，强化银行系“耐心资本”的优质供给，投早、投小、投长期、投硬科
+新浪科技讯 4月17日上午消息，今日举办的APC2026智元合作伙伴大会上，智元机器人联合创始人、总裁兼CTO彭志辉宣布，智元远征A3新一代人形机器人发布。 据彭志辉介绍，远征A3是一款面向文娱场景，为舞台而生的“国际明星”，重55公斤，功率推动比达到0.218千瓦/千克，这意味着它不仅很轻，而且动态性能爆发力非常强，可以完成空翻等动作，续航能力由此前的2~3个小时提升到10个
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：今日建行 6月17日，2026陆家嘴论坛在上海开幕。
+新浪科技讯 4月17日上午消息，今日举办的APC2026智元合作伙伴大会上，智元机器人联合创始人、总裁兼CTO彭志辉宣布，智元远征A3新一代人形机器人发布。
 
-中国建设银行行长张毅出席论坛开幕式暨第一次全体大会，并在“建立健全功能完善的资本市场”主题会议上发言。
+据彭志辉介绍，远征A3是一款面向文娱场景，为舞台而生的“国际明星”，重55公斤，功率推动比达到0.218千瓦/千克，这意味着它不仅很轻，而且动态性能爆发力非常强，可以完成空翻等动作，续航能力由此前的2~3个小时提升到10个小时，更可实现百台级协同编队共舞。
 
-张毅指出，建立健全功能完善的资本市场，银行业金融机构可以发挥更大作用。
+（文猛）新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-一是做好资本市场的参与者，强化银行系“耐心资本”的优质供给，投早、投小、投长期、投硬科技；二是做好资本市场与信贷市场的桥梁，积极推进“商投行一体化”，优化“股贷债保租”综合服务；三是做好跨境金融服务供应商，积极推进本外币、境内外一体化，进一步深化全球资本市场的互联互通。
-
-本次2026陆家嘴论坛以“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”为主题，由上海市人民政府和中国人民银行、国家金融监督管理总局、中国证券监督管理委员会共同主办。
-
-责任编辑：秦艺
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 01:33 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 01:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 01:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 01:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 01:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 01:30 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 01:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 01:19 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 01:25 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 01:35 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 01:21 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 01:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 01:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 01:39 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 01:38 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 01:18 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 01:20 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 01:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 01:28 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:35 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 01:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/22809078117.shtml)
-- 2026-06-30 01:19 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/98811.shtml)
-- 2026-06-30 01:34 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/48174.shtml)
-- 2026-06-30 01:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/40768922127.shtml)
-- 2026-06-30 01:35 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/2387771675.shtml)
-- 2026-06-30 01:35 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/780401007.shtml)
-- 2026-06-30 01:23 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/8482176.shtml)
-- 2026-06-30 01:15 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/9998382292.shtml)
-- 2026-06-30 01:10 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/361870097208.shtml)
-- 2026-06-30 01:18 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/9280082164.shtml)
-- 2026-06-30 01:31 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/0510387709.shtml)
-- 2026-06-30 01:11 - [点菜也要教吗](http://www.blog.minike.top/Article/details/11220.shtml)
-- 2026-06-30 01:16 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/1064587807.shtml)
-- 2026-06-30 01:17 - [请回答王牌2019](http://www.blog.minike.top/Article/details/07990262.shtml)
-- 2026-06-30 01:12 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/73356115772.shtml)
+- 2026-06-30 01:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/505049.shtml)
+- 2026-06-30 01:24 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/433447.shtml)
+- 2026-06-30 01:39 - [千香](https://www.share.minike.top/Article/details/208473.shtml)
+- 2026-06-30 01:37 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/751384.shtml)
+- 2026-06-30 01:25 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/0633009.shtml)
+- 2026-06-30 01:14 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/705256468.shtml)
+- 2026-06-30 01:39 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/68791231.shtml)
+- 2026-06-30 01:35 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/49896642.shtml)
+- 2026-06-30 01:38 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/227478671.shtml)
+- 2026-06-30 01:27 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/66991.shtml)
+- 2026-06-30 01:18 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/12196494392.shtml)
+- 2026-06-30 01:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/6131699054.shtml)
+- 2026-06-30 01:35 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/59942250.shtml)
+- 2026-06-30 01:36 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/702608.shtml)
+- 2026-06-30 01:24 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/574137.shtml)

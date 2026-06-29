@@ -1,56 +1,60 @@
-# 算力、存力、运力三箭齐发！比科创50更猛的“宽基”科技ETF再创新高！双龙头携手破顶，主升浪又加速？
+# 中国远洋海运集团总经理调整
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日早盘，算力、存力、运力三箭齐飞，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超2%，日线四连阳再创上市近7年新高！ 算力方面，GPU龙头海光信息猛攻超6%；存力方面，兆易创新涨超7%，再创历史新高；运力方面，光模块继续突破，中际旭创涨超4%再创新高，光迅科技涨超9%。 当前，电子、通信等科技板块迎多重催化：PCB龙头提价，AI算力、
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：星岛记事 据“中远海运”官方公众号消息，4月17日，中国远洋海运集团有限公司召开领导班子（扩大）会议。 受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国远洋海运集团有限公司总经理调整的决定： 林戟同志任中国远洋海运集团有限公司董事、总经理、党组副书记；免去朱碧新同志的中国远洋海运
 
 ## 正文
 
-6月18日早盘，算力、存力、运力三箭齐飞，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超2%，日线四连阳再创上市近7年新高！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-算力方面，GPU龙头海光信息猛攻超6%；存力方面，兆易创新涨超7%，再创历史新高；运力方面，光模块继续突破，中际旭创涨超4%再创新高，光迅科技涨超9%。
+来源：星岛记事 据“中远海运”官方公众号消息，4月17日，中国远洋海运集团有限公司召开领导班子（扩大）会议。
 
-当前，电子、通信等科技板块迎多重催化：PCB龙头提价，AI算力、光模块、车载需求共振驱动盈利中枢上移；存储巨头扩产印证AI强劲需求，涨价趋势料延续；上游设备及材料受益晶圆扩产，需求持续向好。
+受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国远洋海运集团有限公司总经理调整的决定： 林戟同志任中国远洋海运集团有限公司董事、总经理、党组副书记；免去朱碧新同志的中国远洋海运集团有限公司董事、总经理、党组副书记职务。
 
-产业链闭环共振，科技龙头业绩弹性可期。
+相关职务任免，按有关法律和章程的规定办理。
 
-基本面利好持续催化PCB板块行情。
+▲林戟 资料图 公开报道显示，林戟出生于1970年4月，福建福州人，长期在中远海运工作，曾任中远海运（欧洲）有限公司董事长等职，2022年6月任集团副总经理。
 
-消息面上，PCB行业龙头宣布覆铜板再度提价15%，为年内第四次上调。
+直至此番履新。
 
-业内指出，本轮PCB涨价由AI算力基建、高速光模块迭代、车载电子三大需求共振驱动，叠加上游原材料紧缺，成本传导顺畅，盈利中枢持续抬升，PCB涨价具备强持续性，区别于以往消费电子周期的短期调价。
+官网简介显示，2025年，中远海运位居《财富》世界500强榜单第212位，排名全球航运企业第一。
 
-全球内存龙头SK海力士股价续创历史新高，点燃存储芯片行情。
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-30 01:25 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 01:14 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 01:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 01:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 01:14 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 01:22 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 01:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 01:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:12 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 01:24 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 01:18 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:15 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 01:28 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 01:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 01:34 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 01:28 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 01:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 01:41 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:32 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 01:33 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 01:25 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 01:35 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 01:34 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 01:31 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/1273877855.shtml)
-- 2026-06-30 01:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/046457.shtml)
-- 2026-06-30 01:26 - [千香](http://www.blog.minike.top/Article/details/649049805.shtml)
-- 2026-06-30 01:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/9577745039.shtml)
-- 2026-06-30 01:29 - [起风了](https://www.blog.minike.top/Article/details/8231737516.shtml)
-- 2026-06-30 01:20 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/018667.shtml)
-- 2026-06-30 01:24 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/58665293.shtml)
-- 2026-06-30 01:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/9353999.shtml)
-- 2026-06-30 01:26 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/531946542568.shtml)
-- 2026-06-30 01:19 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/859651.shtml)
-- 2026-06-30 01:17 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/0678240642.shtml)
-- 2026-06-30 01:33 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/448280035088.shtml)
-- 2026-06-30 01:24 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/40582.shtml)
-- 2026-06-30 01:32 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/68979.shtml)
-- 2026-06-30 01:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/9074396524.shtml)
+- 2026-06-30 01:32 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/561887701.shtml)
+- 2026-06-30 01:13 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/302868320.shtml)
+- 2026-06-30 01:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/06627638.shtml)
+- 2026-06-30 01:16 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/24755339814.shtml)
+- 2026-06-30 01:36 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/45481.shtml)
+- 2026-06-30 01:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/4642260.shtml)
+- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/65949635.shtml)
+- 2026-06-30 01:20 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/421459886.shtml)
+- 2026-06-30 01:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/580918701.shtml)
+- 2026-06-30 01:18 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/22678043591.shtml)
+- 2026-06-30 01:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/26761.shtml)
+- 2026-06-30 01:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/74563149.shtml)
+- 2026-06-30 01:30 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/00640671.shtml)
+- 2026-06-30 01:14 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/6549876.shtml)
+- 2026-06-30 01:34 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/296287.shtml)

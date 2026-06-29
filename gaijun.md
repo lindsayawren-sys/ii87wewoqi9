@@ -1,56 +1,61 @@
-# 全球媒体聚焦 | 外媒：全球治理白皮书阐述南方国家诉求 引发共鸣
+# 永辉超市2026年一季报：归母净利润2.87亿 调改门店达327家
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月17日，国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。白皮书指出，当今世界面临严峻复杂的危机挑战，全球南方声音需要更多被倾听，全球治理倡议为破解难题提供时代答案，引发多家国际媒体关注。欧洲《现代外交》网站的文章指出，中国呼吁联合国增强全球南方代表性。随着新兴经济体在全球经济增长和人口中所占份额越来越大，关于全球治理的讨论正变得日益重要
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月16日晚间消息，永辉超市发布2026年第一季度财务报告。报告显示，2026年第一季度公司实现营业收入133.67亿元，利润总额3.42亿元，同比增长74.73%；归母净利润2.87亿元，同比增长94.4%；扣非后归母净利润为2.47亿元，同比增长79.55%。 永辉超市盈利能力显著攀升，这意味着，永辉超
 
 ## 正文
 
-6月17日，国务院新闻办公室发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-白皮书指出，当今世界面临严峻复杂的危机挑战，全球南方声音需要更多被倾听，全球治理倡议为破解难题提供时代答案，引发多家国际媒体关注。
+4月16日晚间消息，永辉超市发布2026年第一季度财务报告。
 
-欧洲《现代外交》网站的文章指出，中国呼吁联合国增强全球南方代表性。
+报告显示，2026年第一季度公司实现营业收入133.67亿元，利润总额3.42亿元，同比增长74.73%；归母净利润2.87亿元，同比增长94.4%；扣非后归母净利润为2.47亿元，同比增长79.55%。
 
-随着新兴经济体在全球经济增长和人口中所占份额越来越大，关于全球治理的讨论正变得日益重要。
+永辉超市盈利能力显著攀升，这意味着，永辉超市第一阶段调改步入正向循环，成效加速兑现。
 
-中国推动增强全球南方代表性，反映了在联合国、世界银行和国际货币基金组织等机构内部进行改革的更广泛诉求。
+截至一季度末，永辉超市全国累计调改门店达327家，胖东来理念与永辉经营体系加速融合，整体驶入以价值深耕为核心的第二阶段精细化调改，全面转向经营质量提升。
 
-如果成功，此类改革可能会重塑国际决策，改变全球组织内的投票权，并增加发展中国家在贸易、金融、安全及气候政策等问题上的影响力。
+自有品牌品质永辉的渗透率持续提升，成为驱动毛利优化的核心动能。
 
-巴基斯坦《每日时报》(Daily Times)的报道指出，根据白皮书中阐述的中国立场，提升发展中国家的作用对于构建更加平衡、公正的国际秩序至关重要。
+据了解，2026年“永辉定制”与自有品牌“品质永辉”双系列商品，在全国各大区的销售占比有望突破20%。
 
-这一提议反映了中国更广泛的外交努力，旨在扩大其在全球南方国家中的影响力，并推动建立替代性的全球治理框架。
+其中，自有品牌“品质永辉”预计上市200支，单系列占比力争突破10%。
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 01:07 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 01:24 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 01:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 01:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 01:14 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 01:34 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 01:15 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 01:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:09 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 01:15 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 01:26 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 01:37 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 01:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 01:13 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 01:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 01:33 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 01:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 01:37 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 01:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 01:36 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 01:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 01:32 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 01:22 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 01:24 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/9635386393.shtml)
-- 2026-06-30 01:13 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/4120541458.shtml)
-- 2026-06-30 01:19 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/59059.shtml)
-- 2026-06-30 01:09 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/80425631455.shtml)
-- 2026-06-30 01:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/14766757.shtml)
-- 2026-06-30 01:15 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/1278136238.shtml)
-- 2026-06-30 01:20 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/54160860.shtml)
-- 2026-06-30 01:16 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/27822223.shtml)
-- 2026-06-30 01:08 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/507206.shtml)
-- 2026-06-30 01:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/033324474.shtml)
-- 2026-06-30 01:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/30774711.shtml)
-- 2026-06-30 01:10 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/147186891.shtml)
-- 2026-06-30 01:21 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/0143632934.shtml)
-- 2026-06-30 01:07 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/3982359.shtml)
-- 2026-06-30 01:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/185746.shtml)
+- 2026-06-30 01:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/70287850628.shtml)
+- 2026-06-30 01:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/8322128027.shtml)
+- 2026-06-30 01:26 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/372542733.shtml)
+- 2026-06-30 01:41 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/391219.shtml)
+- 2026-06-30 01:26 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/82478907.shtml)
+- 2026-06-30 01:28 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/6095401.shtml)
+- 2026-06-30 01:21 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/798545348.shtml)
+- 2026-06-30 01:39 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/47806.shtml)
+- 2026-06-30 01:40 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/026752259.shtml)
+- 2026-06-30 01:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4094258.shtml)
+- 2026-06-30 01:36 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/109710727584.shtml)
+- 2026-06-30 01:24 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/957633338.shtml)
+- 2026-06-30 01:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/216182650.shtml)
+- 2026-06-30 01:17 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/46652.shtml)
+- 2026-06-30 01:38 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/090110.shtml)

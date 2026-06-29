@@ -1,61 +1,61 @@
-# Babycare回应：送检纸尿裤均未检出甲酰胺
+# 创新药热度攀升 长城基金梁福睿：当前创新药板块估值性价比突出
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-6月18日消息，近期，有消费者反映，使用部分品牌婴幼儿纸尿裤后，婴幼儿出现反复红臀乃至皮肤破溃，停用后症状明显缓解。 为核实投诉线索，《经济参考报》委托专业检测机构对市场上部分品牌婴幼儿纸尿裤开展抽样检测，结果在“好奇”“碧芭宝贝”“Babycare”等多个品牌的婴幼儿纸尿裤中，检出毒性物质——甲酰胺。 对此，Babycare回应称，公司第一时间成立专项小组启动内部核查工作。在
+近期，创新药板块逐渐活跃，也迎来多重催化。从政策端看，国务院办公厅发布关于健全药品价格形成机制的若干意见。意见指出，优化创新药等新上市药品首发价格机制。对创新程度高、临床价值大的高水平创新药，支持在上市初期制定与高投入、高风险相符的价格，在一定时期内保持价格相对稳定。此外，4月18日至23日被视为“全球癌症科研风向标”的美国癌症研究协会年会（AACR）即将召开，中国创新药企业参
 
 ## 正文
 
-6月18日消息，近期，有消费者反映，使用部分品牌婴幼儿纸尿裤后，婴幼儿出现反复红臀乃至皮肤破溃，停用后症状明显缓解。
+近期，创新药板块逐渐活跃，也迎来多重催化。
 
-为核实投诉线索，《经济参考报》委托专业检测机构对市场上部分品牌婴幼儿纸尿裤开展抽样检测，结果在“好奇”“碧芭宝贝”“Babycare”等多个品牌的婴幼儿纸尿裤中，检出毒性物质——甲酰胺。
+从政策端看，国务院办公厅发布关于健全药品价格形成机制的若干意见。
 
-对此，Babycare回应称，公司第一时间成立专项小组启动内部核查工作。
+意见指出，优化创新药等新上市药品首发价格机制。
 
-在售纸尿裤产品，均严格遵循现行国家标准，截至目前，未收到任何市场监管部门关于抽检不合格的正式通知或反馈。
+对创新程度高、临床价值大的高水平创新药，支持在上市初期制定与高投入、高风险相符的价格，在一定时期内保持价格相对稳定。
 
-此外，公司始终将产品安全置于首位，严禁添加任何有害物质，并已建立全链路管控体系。
+此外，4月18日至23日被视为“全球癌症科研风向标”的美国癌症研究协会年会（AACR）即将召开，中国创新药企业参与度进一步提升。
 
-前期已主动依据欧盟 REACH法规中的 SVHC（ 高关注物质 ）要求，对纸尿裤进行检测，甲酰胺项目检测结果均为“未检出”。
+长城医药产业精选基金经理梁福睿表示，创新药板块近期关注度明显提升，成为二级市场热门赛道之一，与基本面、政策、估值等多种因素共振驱动相关。
 
-Babycare表示，针对报道中提及的检测结果及方法，因国内尚无明确统一标准，公司已主动联系《经济参考报》，希望对方提供样品来源、检测方法及依据，以便进一步核实。
+首先基本面端，创新药板块自身基本面持续向好，中国创新药历经过多年积累，全球竞争力显著提升，逐渐从全球创新药研发的跟随者成为全球创新药发展和进步的重要参与者，通过授权合作等方式出海持续兑现。
 
-同时也已委托多家第三方权威检测机构，对全系列纸尿裤开展独立抽检，并全程进行公证，检测过程及结果接受社会各界公开监督。
+政策端，在国内审评审批和医保支付等方面政策支持下，创新药企业的研发管线不断积累和推进，获批上市产品商业化放量提速；今年的政府工作报告将生物医药定位从“新兴产业”提升至“新兴支柱产业”，叠加商业健康保险等配套政策支持，创新药板块有望持续高质量发展。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 01:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 01:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 01:27 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 01:21 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 01:10 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 01:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 01:14 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 01:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 01:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:35 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 01:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 01:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 01:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 01:38 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 01:40 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 01:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 01:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 01:34 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:31 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 01:15 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 01:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 01:26 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 01:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 01:23 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 01:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 01:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 01:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/1163086.shtml)
-- 2026-06-30 01:07 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/352020567.shtml)
-- 2026-06-30 01:34 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/32623.shtml)
-- 2026-06-30 01:06 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/0499070268.shtml)
-- 2026-06-30 01:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/5864017.shtml)
-- 2026-06-30 01:15 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/658882228237.shtml)
-- 2026-06-30 01:21 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/40763.shtml)
-- 2026-06-30 01:33 - [逃狱兄弟](http://www.blog.minike.top/Article/details/551277.shtml)
-- 2026-06-30 01:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/97134936937.shtml)
-- 2026-06-30 01:31 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/499585303562.shtml)
-- 2026-06-30 01:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/78293610085.shtml)
-- 2026-06-30 01:34 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/75791.shtml)
-- 2026-06-30 01:31 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/180951.shtml)
-- 2026-06-30 01:22 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/733340.shtml)
-- 2026-06-30 01:26 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/66878289.shtml)
+- 2026-06-30 01:29 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/591983.shtml)
+- 2026-06-30 01:27 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/1468646.shtml)
+- 2026-06-30 01:17 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/60060674.shtml)
+- 2026-06-30 01:41 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/3641707838.shtml)
+- 2026-06-30 01:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/629552729795.shtml)
+- 2026-06-30 01:37 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/6358841.shtml)
+- 2026-06-30 01:20 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/24690118974.shtml)
+- 2026-06-30 01:28 - [张凌赫 客串](https://www.share.minike.top/Article/details/930215309351.shtml)
+- 2026-06-30 01:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/07971985.shtml)
+- 2026-06-30 01:39 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/60815133.shtml)
+- 2026-06-30 01:15 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/206409278604.shtml)
+- 2026-06-30 01:14 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/44556.shtml)
+- 2026-06-30 01:33 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/80354663.shtml)
+- 2026-06-30 01:34 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/35333506742.shtml)
+- 2026-06-30 01:21 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/85981.shtml)

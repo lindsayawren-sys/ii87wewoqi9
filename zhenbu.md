@@ -1,56 +1,60 @@
-# 好盈科技研发人员薪酬占比偏高而材料费占比偏低 最具可比性公司在创业板上市|科创板国产替代
+# 俄总统新闻秘书：普京准备重新考虑接收伊朗浓缩铀
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 自2019年7月22日开市至今，科创板已走过近七年历程。这七年，不仅是中国多层次资本市场改革深化的七年，更是硬科技企业从“实验室”走向“生产线”，进而实现国产化大规模突围的关键时期。科创板以其明确的“
+中新网4月16日电 据《今日印度》15日报道，俄罗斯总统新闻秘书佩斯科夫在接受采访时表示，俄总统普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。 据报道，佩斯科夫称，俄方曾准备从伊朗接收浓缩铀，这原本可能是“不错的解决方案”，但美方拒绝了这一提议。不过，如果相关国家需要，俄总统普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。 佩斯科夫指出，国际原子能机构从未证实伊朗有任何发展核武器
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月16日电 据《今日印度》15日报道，俄罗斯总统新闻秘书佩斯科夫在接受采访时表示，俄总统普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 自2019年7月22日开市至今，科创板已走过近七年历程。
+据报道，佩斯科夫称，俄方曾准备从伊朗接收浓缩铀，这原本可能是“不错的解决方案”，但美方拒绝了这一提议。
 
-这七年，不仅是中国多层次资本市场改革深化的七年，更是硬科技企业从“实验室”走向“生产线”，进而实现国产化大规模突围的关键时期。
+不过，如果相关国家需要，俄总统普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。
 
-科创板以其明确的“硬科技”属性，与国家的国产化替代战略形成了高度一致的同频共振，其贡献不仅体现在助力个体公司突破“卡脖子”环节，更深刻体现在对关键技术的产业链协同功能上。
+佩斯科夫指出，国际原子能机构从未证实伊朗有任何发展核武器的企图。
 
-截至2026年6月16日，科创板在审的IPO企业数量为50家（以交易所受理为标准，不包含已终止及已发行项目，下同）。
+佩斯科夫在采访中还表示，俄方与伊朗保持着联系，并谴责对伊朗的侵略。
 
-50家企业中，长鑫科技近一年（招股书披露的最后一年，下同）营收最高、发明专利数量最多、近三年（招股书披露的最近三年，下同）研发投入累计额最高；汉诺医疗近三年研发投入占营收比值最高；中科科化近三年研发投入累计额最少；中图科技研发人员占比最低；株洲科能近三年研发投入占营收比最低；映恩生物发明专利（特指应用于主营业务并能够产业化的发明专利）数量最少。
+俄方呼吁各方保持克制，确保海湾地区商业航行的自由，这不仅对海湾国家至关重要，对世界其他地区也都至关重要。
 
-其中，深圳市好盈科技股份有限公司（好盈科技）的研发人员数量占比略高于中图科技，在50家企业中排名倒数第二。
+另据俄罗斯卫星网15日报道， 俄罗斯外长拉夫罗夫表示，俄方愿在解决伊朗浓缩铀问题上发挥作用，以使之对于伊朗来说尽可能接受。
 
-报告期内，好盈科技研发人员连续大幅增长，使得研发人员数量占比始终超过10%的及格线。
+对此，伊朗外交部发言人巴加埃表示，伊朗感谢俄罗斯愿为通过外交途径解决伊朗核问题提供协助。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 01:12 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 01:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 01:28 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 01:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 01:34 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 01:29 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 01:17 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 01:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 01:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 01:27 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 01:29 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:37 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:21 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 01:25 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 01:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 01:20 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 01:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 01:15 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 01:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 01:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 01:34 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 01:34 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 01:34 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/75296.shtml)
-- 2026-06-30 01:10 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/9181604.shtml)
-- 2026-06-30 01:25 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/94440103.shtml)
-- 2026-06-30 01:27 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/365428121.shtml)
-- 2026-06-30 01:15 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/429126727342.shtml)
-- 2026-06-30 01:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/4727034.shtml)
-- 2026-06-30 01:25 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/797003290.shtml)
-- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/5831075630.shtml)
-- 2026-06-30 01:25 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/256614.shtml)
-- 2026-06-30 01:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/624275.shtml)
-- 2026-06-30 01:24 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/11590456.shtml)
-- 2026-06-30 01:20 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/0899187.shtml)
-- 2026-06-30 01:09 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/00303922.shtml)
-- 2026-06-30 01:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/97518255.shtml)
-- 2026-06-30 01:15 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/95843.shtml)
+- 2026-06-30 01:30 - [刘念回应](http://www.share.minike.top/Article/details/29377702185.shtml)
+- 2026-06-30 01:26 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/380703.shtml)
+- 2026-06-30 01:33 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/133387852.shtml)
+- 2026-06-30 01:28 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/1393707206.shtml)
+- 2026-06-30 01:15 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/76564848025.shtml)
+- 2026-06-30 01:36 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/7854485.shtml)
+- 2026-06-30 01:13 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/18383047.shtml)
+- 2026-06-30 01:15 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/84908365579.shtml)
+- 2026-06-30 01:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/275579408.shtml)
+- 2026-06-30 01:17 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/43074365.shtml)
+- 2026-06-30 01:20 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/965478793.shtml)
+- 2026-06-30 01:19 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/0692696293.shtml)
+- 2026-06-30 01:29 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/21712538703.shtml)
+- 2026-06-30 01:18 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/439831823484.shtml)
+- 2026-06-30 01:19 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/984600896167.shtml)

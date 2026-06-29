@@ -1,60 +1,61 @@
-# 资讯｜居民存款暴跌，老百姓的钱都去哪了？
+# 香港青少年探馆消博会：遇见全球精品，点赞前沿科技
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-*本文为「三联生活周刊」原创内容文｜邢海洋马斯克的“骗局争议”2026年6月12日，SpaceX 正式纳斯达克上市，马斯克身家短暂突破1万亿美元。当天，2008 年诺贝尔经济学奖得主保罗・克鲁格曼在 Substack 发布专栏文章，标题为《Elon Musk, Human Ponzi Scheme》（埃隆・马斯克：真人版庞氏骗局），引发全球舆论热议。克鲁格曼的核心观点是，投资者
+中新网海口4月16日电(记者 符宇群)“消博会上的精品非常多，让人眼花缭乱，我非常想探知每位观众满满的手提包里都装着什么好物。”首次走进消博会的香港青少年石旭嘉受访时表示，第六届中国国际消费品博览会(简称“消博会”)就像一个连接世界的窗口，让大家看到中国对外开放的成果，也看到了国家发展的广阔平台。 由海南省政府港澳事务办公室主办、海南港澳青年创新创业服务中心承办的2026年港澳
 
 ## 正文
 
-*本文为「三联生活周刊」原创内容文｜邢海洋马斯克的“骗局争议”2026年6月12日，SpaceX 正式纳斯达克上市，马斯克身家短暂突破1万亿美元。
+中新网海口4月16日电(记者 符宇群)“消博会上的精品非常多，让人眼花缭乱，我非常想探知每位观众满满的手提包里都装着什么好物。
 
-当天，2008 年诺贝尔经济学奖得主保罗・克鲁格曼在 Substack 发布专栏文章，标题为《Elon Musk, Human Ponzi Scheme》（埃隆・马斯克：真人版庞氏骗局），引发全球舆论热议。
+”首次走进消博会的香港青少年石旭嘉受访时表示，第六届中国国际消费品博览会(简称“消博会”)就像一个连接世界的窗口，让大家看到中国对外开放的成果，也看到了国家发展的广阔平台。
 
-克鲁格曼的核心观点是，投资者因相信马斯克 “科技先知” 人设买入旗下公司股票→股价暴涨进一步印证其天才标签→吸引更多新资本入场推高估值，形成叙事驱动的反身性泡沫循环；特斯拉、星链的实际盈利能力，完全无法支撑SpaceX上市后近2万亿美元的天价估值。
+由海南省政府港澳事务办公室主办、海南港澳青年创新创业服务中心承办的2026年港澳青年体验官暨青少年志愿者交流项目14日在海口启动，来自深圳香港培侨书院龙华信义学校、香港科技大学、深圳大学的30余名香港青少年，首站走进消博会，在60多个国家和地区超过3400个品牌构筑的消费盛宴中，沉浸式感受全球精品魅力与前沿科技活力，见证国家开放发展的蓬勃气象。
 
-偏航的冷藏车据《九派新闻》和《极目新闻》等媒体报道，2025年7月至2026年1月的半年时间里，来自全国10个省市的21辆冷冻肉品货车，原本目的地在南方地区，却全部“偏航”千里开到河南泌阳，随即被当地市场监管局以“涉嫌未经检验检疫”为由查扣。
+前沿科技展区成为香港青少年的“打卡热点”。
 
-这场充满蹊跷的执法风波持续发酵、引发全网关注后，终于迎来关键转折。
+15岁的彭怡可在国货精品展区里近距离观察仿生鱼，眼神里满是惊喜。
 
-河南泌阳县联合调查组发布情况说明，已对县市场监督管理局、县市场监督管理局综合行政执法大队等相关人员采取留置措施，正在审理中。
+“我以为是一条真的鱼在游！
 
-社零转负5月社会消费品零售总额同比下降0.6%，增速低于上月0.8个百分点，为2023年以来首次为负。
+以前我对AI科技的应用还停留在算法数据分析的印象里，没想到国内的AI科技已经可以活灵活现地应用到生物多样性中。
 
-其中，汽车类消费大幅下降16.1%（部分口径达22%），成为最大拖累项。
+”彭怡可说，展会上的科技产品不仅智能还很实用，更让他看到未来生活的样子。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 01:29 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 01:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 01:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 01:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 01:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 01:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 01:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 01:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 01:13 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 01:24 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 01:15 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 01:20 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 01:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 01:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 01:24 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 01:17 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 01:21 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 01:26 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 01:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 01:17 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 01:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 01:25 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 01:25 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 01:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 01:32 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 01:36 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 01:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 01:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/4767822.shtml)
-- 2026-06-30 01:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/307516924.shtml)
-- 2026-06-30 01:16 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/377051915120.shtml)
-- 2026-06-30 01:35 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/4736371.shtml)
-- 2026-06-30 01:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/01312271876.shtml)
-- 2026-06-30 01:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/2136407.shtml)
-- 2026-06-30 01:08 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/959810561962.shtml)
-- 2026-06-30 01:26 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/13502.shtml)
-- 2026-06-30 01:25 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/856026556.shtml)
-- 2026-06-30 01:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/317321.shtml)
-- 2026-06-30 01:06 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/42815.shtml)
-- 2026-06-30 01:15 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/042625857527.shtml)
-- 2026-06-30 01:14 - [恋与深空回应争议](https://www.share.minike.top/Article/details/503955717631.shtml)
-- 2026-06-30 01:32 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/777745776.shtml)
-- 2026-06-30 01:30 - [毒液2](https://www.share.minike.top/Article/details/9811045.shtml)
+- 2026-06-30 01:33 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/865587.shtml)
+- 2026-06-30 01:40 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/3623530790.shtml)
+- 2026-06-30 01:40 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/659730.shtml)
+- 2026-06-30 01:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/63867630531.shtml)
+- 2026-06-30 01:39 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/0689202604.shtml)
+- 2026-06-30 01:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/4778302.shtml)
+- 2026-06-30 01:32 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/369378.shtml)
+- 2026-06-30 01:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/681926621504.shtml)
+- 2026-06-30 01:34 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/09946.shtml)
+- 2026-06-30 01:33 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/41252600.shtml)
+- 2026-06-30 01:19 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7416388432.shtml)
+- 2026-06-30 01:25 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/5734767393.shtml)
+- 2026-06-30 01:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/184330756.shtml)
+- 2026-06-30 01:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/6616476.shtml)
+- 2026-06-30 01:18 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/516857277.shtml)

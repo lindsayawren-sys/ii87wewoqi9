@@ -1,60 +1,61 @@
-# 首届上海“街超”将启幕 外籍球员也可同场竞技
+# 投资SpaceX有望为Alphabet带来1000亿美元回报
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网上海6月17日电 (记者 缪璐)2026上海市街镇足球超级联赛(以下简称“街超”)发布会17日举行。据悉，该赛事是上海首个以街镇为基本参赛单元的社会足球赛事，将于6月23日在虹口足球场开幕。 本届“街超”赛事覆盖全市16个行政区、218个街镇，预计总场次超过600场，参赛球员、教练、裁判及工作人员总数超过10000人，是上海社会足球历史上规模最大、参与面最广的盛会之一。
+最新文件显示，一项对SpaceX的早期投资，有望给Alphabet带来千亿美元回报。 根据SpaceX本周在阿拉斯加提交的一份新披露文件，截至2025年底，谷歌持有马斯克这家公司6.11%的股份。在阿拉斯加，公司必须披露持股比例达到或超过5%的股东。SpaceX希望以逾2万亿美元估值进行首次公开募股（IPO），若按2万亿美元计算，这一持股价值将达1220亿美元。 继2月Spac
 
 ## 正文
 
-中新网上海6月17日电 (记者 缪璐)2026上海市街镇足球超级联赛(以下简称“街超”)发布会17日举行。
+最新文件显示，一项对SpaceX的早期投资，有望给Alphabet带来千亿美元回报。
 
-据悉，该赛事是上海首个以街镇为基本参赛单元的社会足球赛事，将于6月23日在虹口足球场开幕。
+根据SpaceX本周在阿拉斯加提交的一份新披露文件，截至2025年底，谷歌持有马斯克这家公司6.11%的股份。
 
-本届“街超”赛事覆盖全市16个行政区、218个街镇，预计总场次超过600场，参赛球员、教练、裁判及工作人员总数超过10000人，是上海社会足球历史上规模最大、参与面最广的盛会之一。
+在阿拉斯加，公司必须披露持股比例达到或超过5%的股东。
 
-本届“街超”采用8人制赛制，上下半场各25分钟，中场休息10分钟，场地更小、节奏更快。
+SpaceX希望以逾2万亿美元估值进行首次公开募股（IPO），若按2万亿美元计算，这一持股价值将达1220亿美元。
 
-赛事实行“街道预选赛+区级预赛+市级总决赛”三级赛制。
+继2月SpaceX与马斯克旗下人工智能与社交媒体公司xAI合并后，谷歌的持股比例可能已被稀释。
 
-各街镇因地制宜、广泛动员，通过体能测试、内部对抗、队伍整合等方式，精准遴选社区足球佼佼者。
+通过计算可知，交易完成后谷歌持股比例可能约在5%，按2万亿美元IPO估值计，对应价值在1000亿美元。
 
-区级预赛将于6月至9月在各行政区展开，各街镇以小组赛加淘汰赛方式决出各区冠亚军，全市预赛场次预计超过400场。
+虽然谷歌此前曾披露其持有SpaceX的股份，但未披露具体规模。
 
-市级总决赛将于10月至11月举行，32支区级冠亚军队伍晋级总决赛，采用小组赛双败淘汰制及淘汰赛，最终决出全市总冠军，总决赛阶段预计进行60场比赛。
+根据该文件，谷歌以及马斯克本人——持股约40%——是仅有的需披露持股情况的主体，不过其他多名个人和公司也有望从此次上市中获得数十亿美元收益。
 
 ## 相关推荐
 
-- 2026-06-30 01:24 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 01:07 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 01:16 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 01:25 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 01:07 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 01:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 01:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 01:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 01:08 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 01:15 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 01:26 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:21 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 01:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:22 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 01:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 01:13 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 01:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 01:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 01:24 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 01:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 01:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 01:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 01:31 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 01:34 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 01:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 01:20 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 01:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/96114539871.shtml)
-- 2026-06-30 01:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/4886782.shtml)
-- 2026-06-30 01:17 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/353150296.shtml)
-- 2026-06-30 01:31 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/039038859.shtml)
-- 2026-06-30 01:27 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/6219242466.shtml)
-- 2026-06-30 01:13 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/48584.shtml)
-- 2026-06-30 01:07 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/99488005649.shtml)
-- 2026-06-30 01:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/5487182927.shtml)
-- 2026-06-30 01:16 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/62976496.shtml)
-- 2026-06-30 01:09 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/8597271.shtml)
-- 2026-06-30 01:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/588486141262.shtml)
-- 2026-06-30 01:34 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/70645336668.shtml)
-- 2026-06-30 01:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/824903.shtml)
-- 2026-06-30 01:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/9714125185.shtml)
-- 2026-06-30 01:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/75093359.shtml)
+- 2026-06-30 01:33 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/675473.shtml)
+- 2026-06-30 01:34 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/0910239.shtml)
+- 2026-06-30 01:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/87086659.shtml)
+- 2026-06-30 01:33 - [美人鱼](http://www.share.kurohicncr.top/Article/details/716427602.shtml)
+- 2026-06-30 01:30 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/543861314.shtml)
+- 2026-06-30 01:30 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/14728943.shtml)
+- 2026-06-30 01:19 - [一见倾心](http://www.share.kurohicncr.top/Article/details/979081179.shtml)
+- 2026-06-30 01:15 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/233150838274.shtml)
+- 2026-06-30 01:24 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/926928.shtml)
+- 2026-06-30 01:27 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/762500249732.shtml)
+- 2026-06-30 01:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/92229779.shtml)
+- 2026-06-30 01:21 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/5398260.shtml)
+- 2026-06-30 01:34 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/1759357442.shtml)
+- 2026-06-30 01:12 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/93703539089.shtml)
+- 2026-06-30 01:37 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/2934194.shtml)

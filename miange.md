@@ -1,60 +1,56 @@
-# 美联储按兵不动但释放鹰派信号 年内利率变化预期由降息变加息
+# 去年预亏超11亿元，股价两日暴涨偏离20%！法院尚未受理天邦食品重整，需警惕其终止上市风险
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-来源：财联社 北京时间周四（6月18日）凌晨，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变，符合市场预期。 这一决定是美联储连续第四次维持利率不变，上一次降息还要追溯到2025年12月。 声明写道，联邦公开市场委员会（FOMC）以12票赞成、0票反对的投票结果决定将联邦基金利率目标区间维持在3.5%至3.75%，以支持央行实现促进充分就业和稳定物价的双重使
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|彭斐 每经编辑|黄博文 4月15日晚间，天邦食品（SZ002124，股价3.14元，市值69.77亿元）发布异动公告，该公司在2026年4月14日、4月15日连续2个交易日收盘价格涨幅偏离值
 
 ## 正文
 
-来源：财联社 北京时间周四（6月18日）凌晨，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间不变，符合市场预期。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：四路增量资金入场 A股短期均衡、中期看好成长与周期 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这一决定是美联储连续第四次维持利率不变，上一次降息还要追溯到2025年12月。
+每经记者|彭斐 每经编辑|黄博文 4月15日晚间，天邦食品（SZ002124，股价3.14元，市值69.77亿元）发布异动公告，该公司在2026年4月14日、4月15日连续2个交易日收盘价格涨幅偏离值累计超过20%。
 
-声明写道，联邦公开市场委员会（FOMC）以12票赞成、0票反对的投票结果决定将联邦基金利率目标区间维持在3.5%至3.75%，以支持央行实现促进充分就业和稳定物价的双重使命。
+然而，《每日经济新闻》记者注意到，天邦食品预计2025年度归属于上市公司股东的净利润为亏损11.1亿元至13.1亿元，商品猪销售均价同比下跌17.85%。
 
-FOMC重申，将继续维持银行体系中充裕的准备金水平。
+此外，自2024年8月法院决定对天邦食品进行预重整以来，期限已历经多次延长，最新被延至2026年5月9日，且法院至今尚未正式受理其重整申请。
 
-尽管中东冲突等因素导致不确定性加剧，美国经济活动仍以稳健步伐扩张。
+根据天邦食品发布的股票交易异常波动公告，公司股票在2026年4月14日、2026年4月15日收盘价格涨幅偏离值累计超过20%。
 
-生产率增长和资本投资表现强劲。
+这一异动迅速引发市场关注，根据《深圳证券交易所交易规则》的相关规定，此情形已属于股票交易异常波动。
 
-就业增长与劳动力规模保持同步，失业率变化不大。
+面对股价的逆势拉涨，天邦食品在公告中提醒广大投资者注意二级市场交易风险，理性决策，审慎投资。
 
-声明写道，通胀水平仍高于委员会设定的2%目标，部分原因是供应冲击推高了部分行业的价格，包括能源领域，FOMC将致力于实现物价稳定。
+针对公司股票交易异常波动，公司董事会对有关事项进行了核查，并向控股股东、实际控制人书面发函查证，确认近期公司主营业务未发生重大变化，经营情况正常，且不存在其他应披露而未披露的重大事项。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 01:26 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 01:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 01:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 01:28 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 01:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 01:08 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 01:09 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 01:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:09 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 01:08 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:19 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 01:21 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 01:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 01:22 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 01:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 01:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 01:12 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 01:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 01:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 01:14 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 01:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 01:26 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 01:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/14326057.shtml)
-- 2026-06-30 01:12 - [扬名立万](https://www.share.minike.top/Article/details/649029810.shtml)
-- 2026-06-30 01:14 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/36955797298.shtml)
-- 2026-06-30 01:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4736298.shtml)
-- 2026-06-30 01:10 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/486619610.shtml)
-- 2026-06-30 01:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/621685940715.shtml)
-- 2026-06-30 01:15 - [扬名立万](https://www.share.minike.top/Article/details/64885.shtml)
-- 2026-06-30 01:06 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7235572.shtml)
-- 2026-06-30 01:10 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/240194.shtml)
-- 2026-06-30 01:08 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/373417.shtml)
-- 2026-06-30 01:12 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/80540268333.shtml)
-- 2026-06-30 01:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/0696148467.shtml)
-- 2026-06-30 01:30 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/389687790190.shtml)
-- 2026-06-30 01:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/50109.shtml)
-- 2026-06-30 01:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/02795812239.shtml)
+- 2026-06-30 01:30 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/175747533078.shtml)
+- 2026-06-30 01:17 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/6866214.shtml)
+- 2026-06-30 01:33 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/2328827087.shtml)
+- 2026-06-30 01:17 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0865288.shtml)
+- 2026-06-30 01:30 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/40841.shtml)
+- 2026-06-30 01:13 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/86095.shtml)
+- 2026-06-30 01:33 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/621422782879.shtml)
+- 2026-06-30 01:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/07056.shtml)
+- 2026-06-30 01:31 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/371587760.shtml)
+- 2026-06-30 01:20 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/911438.shtml)
+- 2026-06-30 01:17 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/577108892.shtml)
+- 2026-06-30 01:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/433134665133.shtml)
+- 2026-06-30 01:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/3907566356.shtml)
+- 2026-06-30 01:41 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/76612.shtml)
+- 2026-06-30 01:41 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/3723856065.shtml)

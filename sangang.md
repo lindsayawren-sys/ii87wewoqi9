@@ -1,43 +1,46 @@
-# 通化东宝：公司聘任李佳鸿先生为总裁
+# 翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-证券日报网讯6月17日，通化东宝发布公告称，公司聘任李佳鸿先生为总裁。
+翰思艾泰-B（03378）公布，2026年4月15日耗资约61.99万港元回购2.15万股股份。责任编辑：卢昱君
 
 ## 正文
 
-证券日报网讯6月17日，通化东宝发布公告称，公司聘任李佳鸿先生为总裁。
+翰思艾泰-B（03378）公布，2026年4月15日耗资约61.99万港元回购2.15万股股份。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 01:17 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 01:26 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 01:17 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 01:26 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 01:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 01:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 01:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 01:13 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 01:33 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 01:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 01:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:20 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 01:14 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 01:18 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 01:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 01:23 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 01:33 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 01:38 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 01:22 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 01:17 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/518764633.shtml)
-- 2026-06-30 01:25 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/15185229084.shtml)
-- 2026-06-30 01:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/2404789.shtml)
-- 2026-06-30 01:07 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/14273963.shtml)
-- 2026-06-30 01:29 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/66369657.shtml)
-- 2026-06-30 01:28 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/0386306.shtml)
-- 2026-06-30 01:15 - [田曦薇没招了](https://www.blog.minike.top/Article/details/659271859530.shtml)
-- 2026-06-30 01:29 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/67389887749.shtml)
-- 2026-06-30 01:13 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/402232311140.shtml)
-- 2026-06-30 01:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/0085422.shtml)
-- 2026-06-30 01:16 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/2575215.shtml)
-- 2026-06-30 01:26 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/590386331.shtml)
-- 2026-06-30 01:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/247715353.shtml)
-- 2026-06-30 01:12 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/3865988.shtml)
-- 2026-06-30 01:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/240887.shtml)
+- 2026-06-30 01:29 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/3907624.shtml)
+- 2026-06-30 01:36 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/5616445.shtml)
+- 2026-06-30 01:16 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/516298994.shtml)
+- 2026-06-30 01:21 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/62115406.shtml)
+- 2026-06-30 01:34 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/8764812949.shtml)
+- 2026-06-30 01:30 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/05743881.shtml)
+- 2026-06-30 01:34 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/691288044012.shtml)
+- 2026-06-30 01:38 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/8985654.shtml)
+- 2026-06-30 01:35 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/1206671642.shtml)
+- 2026-06-30 01:37 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/6225087.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/57408144.shtml)
+- 2026-06-30 01:28 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/466808955523.shtml)
+- 2026-06-30 01:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/05258772987.shtml)
+- 2026-06-30 01:26 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/004260835990.shtml)
+- 2026-06-30 01:18 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/63087068.shtml)

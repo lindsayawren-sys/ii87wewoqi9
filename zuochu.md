@@ -1,44 +1,56 @@
-# 中天策略:6月17日市场分析
+# 国家体育总局武术中心：未来三年将系统性支持海南武术发展
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-责任编辑：陈平
+中新网海口4月17日电(记者 王晓斌)17日在海口召开的第四届武术套路世界杯新闻发布会上，国家体育总局武术运动管理中心副主任、中国武术协会副主席陈冲表示，未来三年将系统性支持海南武术事业发展，大力支持海南打造“运动员、教练员、裁判员、管理干部、医科保障‘五位一体’的人才体系”。陈冲介绍，《海南省武术发展三年行动计划(2024—2026)》已出台实施，为项目普及与提升提供了坚实的
 
 ## 正文
 
-责任编辑：陈平
+中新网海口4月17日电(记者 王晓斌)17日在海口召开的第四届武术套路世界杯新闻发布会上，国家体育总局武术运动管理中心副主任、中国武术协会副主席陈冲表示，未来三年将系统性支持海南武术事业发展，大力支持海南打造“运动员、教练员、裁判员、管理干部、医科保障‘五位一体’的人才体系”。
+
+陈冲介绍，《海南省武术发展三年行动计划(2024—2026)》已出台实施，为项目普及与提升提供了坚实的政策保障。
+
+同时，海南自贸港建设的澎湃动能与区位优势相互叠加，为举办高水平国际武术赛事、深化武术文化交流创造了得天独厚的条件。
+
+在人才根基方面，体育总局武术中心和中国武协将支持海南组建专业武术队，深化“名校联培”机制提升竞技实力；支持引进国内外顶尖教练与优秀管理人才，加强本土骨干裁判培养；支持组建复合型医科保障团队，为科学化训练与参赛提供坚实支撑。
+
+品牌打造方面，中国武协将支持海南构建涵盖专业竞技、社会武术、青少年交流、商业赛事于一体的多元化赛事体系，积极推动更多武术套路、散打、短兵、搏击类高水平赛事落户海南，持续扶持海南国际武术大赛等品牌做大做强。
+
+陈冲透露，《中国武术王中王》赛事真人秀第二季已落户海南，节目上线四个月，全网曝光量突破30亿次，成为探索“武旅融合”新业态的前瞻性实践。
+
+文化传播方面，对内将支持海南深入挖掘、整理、规范本土传统武术资源，大力推动武术进学校、进社区、进机关、进企业、进乡村、进商圈、进景区；对外将支持海南依托自贸港开放平台，创新武术国际传播路径，坚持“请进来”与“走出去”相结合，充分利用“博鳌亚洲论坛”等高端平台，深化国际武术交流合作。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 01:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 01:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 01:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 01:30 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 01:14 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 01:13 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 01:29 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 01:10 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 01:09 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 01:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 01:35 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:21 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 01:13 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 01:36 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 01:35 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:17 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 01:30 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 01:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 01:24 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 01:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/150579.shtml)
-- 2026-06-30 01:20 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/43197721769.shtml)
-- 2026-06-30 01:08 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/283340046774.shtml)
-- 2026-06-30 01:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/119444225.shtml)
-- 2026-06-30 01:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/7238374621.shtml)
-- 2026-06-30 01:14 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/998167387209.shtml)
-- 2026-06-30 01:33 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/93581.shtml)
-- 2026-06-30 01:11 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/198933688349.shtml)
-- 2026-06-30 01:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/735325709114.shtml)
-- 2026-06-30 01:15 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/90755145928.shtml)
-- 2026-06-30 01:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/9395193923.shtml)
-- 2026-06-30 01:20 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/78467653.shtml)
-- 2026-06-30 01:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/1087092.shtml)
-- 2026-06-30 01:07 - [送你一朵小红花](http://www.blog.minike.top/Article/details/11153172588.shtml)
-- 2026-06-30 01:13 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/2797359.shtml)
+- 2026-06-30 01:25 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/345104814789.shtml)
+- 2026-06-30 01:25 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/74547.shtml)
+- 2026-06-30 01:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/23307.shtml)
+- 2026-06-30 01:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/315192.shtml)
+- 2026-06-30 01:12 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/31191.shtml)
+- 2026-06-30 01:23 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/981679500.shtml)
+- 2026-06-30 01:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/5623058497.shtml)
+- 2026-06-30 01:18 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/385789.shtml)
+- 2026-06-30 01:37 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/4842597822.shtml)
+- 2026-06-30 01:34 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/7105388.shtml)
+- 2026-06-30 01:39 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/061059826.shtml)
+- 2026-06-30 01:35 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/565863.shtml)
+- 2026-06-30 01:30 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/7051385.shtml)
+- 2026-06-30 01:19 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2104987.shtml)
+- 2026-06-30 01:23 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/559007355381.shtml)

@@ -1,61 +1,57 @@
-# 第三十二届北京图博会“中国作家馆”开馆
+# 健康观察：免疫规划有了智能体，如何让打疫苗更智慧？
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。这是中国作家馆在北京图博会的第16次亮相。 中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬
+中新网义乌4月16日电(张煜欢)“真没想到，人在家里就能知道今天能不能打针，不用白跑一趟了！”16日，义乌市民陈女士(化名)通过“浙里办”APP进入“浙里接种”界面预约疫苗时，系统在提交申请后自动弹出橙色的“暂缓接种”温馨提示。 这一“前置辅助预检”功能，让陈女士及时掌握了健康风险，避免了既往带着孩子在门诊排队，终于轮到时却因医生现场预检发现“禁忌症”不能接种的麻烦。 当日，浙
 
 ## 正文
 
-中新网北京6月17日电 (记者 高凯)17日，第三十二届北京国际图书博览会(BIBF)开幕当日，由中国作家协会主办，中国作家出版集团、作家出版社承办的中国作家馆在北京国家会议中心开馆。
+中新网义乌4月16日电(张煜欢)“真没想到，人在家里就能知道今天能不能打针，不用白跑一趟了！
 
-这是中国作家馆在北京图博会的第16次亮相。
+”16日，义乌市民陈女士(化名)通过“浙里办”APP进入“浙里接种”界面预约疫苗时，系统在提交申请后自动弹出橙色的“暂缓接种”温馨提示。
 
-中国作协党组成员、副主席吴义勤在致辞中表示，今年是中国工农红军长征胜利90周年。
+这一“前置辅助预检”功能，让陈女士及时掌握了健康风险，避免了既往带着孩子在门诊排队，终于轮到时却因医生现场预检发现“禁忌症”不能接种的麻烦。
 
-中国作家馆特别聚焦这一伟大主题，展出精品力作，以文学的方式回望历史、致敬先辈，凝聚民族复兴的强大精神力量。
+当日，浙江省疾病预防控制局、浙江省疾病预防控制中心、义乌市人民政府在义乌联合发布国内首个基于数据互通和垂类模型的浙江省免疫规划综合智能体“疫小盾”——智能辅助预检应用。
 
-作为本届图博会中国作家馆的首场活动，《新时代文学研究丛书》新书发布会在开馆仪式后举行。
+作为省-县共建模式下的又一创新成果，该应用的正式推出，标志着浙江在“人工智能+免疫规划”领域迈出了坚实步伐，也为全国免疫规划服务的智能化转型提供了鲜活的浙江探索经验。
 
-活动由中国作协新时代文学研究中心、中国作家出版集团、作家出版社共同主办。
+多年来，浙江坚持以数字化改革为引领，从2022年发布全国首张电子预防接种证，到2024年创新“七码合一”疫苗身份证，再到2025年浙江全省智慧接种门诊全面升级、“浙里接种”掌上应用走进千家万户、外籍人员电子预防接种证发布……每一步都在探索数字赋能免疫规划的全新路径。
 
-中国作协副主席阎晶明表示，《新时代文学研究丛书》由中国作家协会新时代文学研究中心联合高校研究力量共同编撰，是作协系统与学术界协同合作的成果，体现了文学研究领域的重要整合与创新，具有重要意义。
+2025年以来，在浙江省疾病预防控制局领导下，浙江省疾病预防控制中心与义乌市卫健局联合组建专班，依托浙江全省免疫规划大数据和义乌市的区域健康信息平台，对海量多源数据进行清洗与打通，逐层搭建起知识库与知识图谱。
 
-丛书既有整体性的理论思潮现象研究，又有不同体裁的文学作品研究，宏观与微观相结合，系统梳理了新时代文学创作与研究的突出成就，见证了中国文学从高原迈向高峰的实践进程。
+经过200多个日夜的合力攻坚，多智能体协同运行的综合智能体——“疫小盾”正式建成。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 01:20 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 01:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 01:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 01:07 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 01:30 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:12 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 01:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 01:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 01:34 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 01:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:19 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 01:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 01:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 01:38 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 01:40 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 01:40 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 01:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 01:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 01:21 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 01:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 01:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 01:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 01:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/514940.shtml)
-- 2026-06-30 01:12 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/352526.shtml)
-- 2026-06-30 01:14 - [美人鱼](https://www.share.minike.top/Article/details/47935404.shtml)
-- 2026-06-30 01:31 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/12418756.shtml)
-- 2026-06-30 01:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/087552309.shtml)
-- 2026-06-30 01:24 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4281086.shtml)
-- 2026-06-30 01:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/5830640.shtml)
-- 2026-06-30 01:06 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/74706281.shtml)
-- 2026-06-30 01:11 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/19238286708.shtml)
-- 2026-06-30 01:34 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/83117.shtml)
-- 2026-06-30 01:15 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/2869886061.shtml)
-- 2026-06-30 01:19 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/81571.shtml)
-- 2026-06-30 01:12 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/638478019265.shtml)
-- 2026-06-30 01:17 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/49863297860.shtml)
-- 2026-06-30 01:06 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/9767871500.shtml)
+- 2026-06-30 01:21 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/44472290.shtml)
+- 2026-06-30 01:32 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/115830.shtml)
+- 2026-06-30 01:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/3444566.shtml)
+- 2026-06-30 01:37 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/50698454908.shtml)
+- 2026-06-30 01:40 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/783718475.shtml)
+- 2026-06-30 01:12 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/319729.shtml)
+- 2026-06-30 01:23 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/6856806771.shtml)
+- 2026-06-30 01:21 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/180254723402.shtml)
+- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/33290.shtml)
+- 2026-06-30 01:14 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/869087673.shtml)
+- 2026-06-30 01:20 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/640085075943.shtml)
+- 2026-06-30 01:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/2317458.shtml)
+- 2026-06-30 01:21 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/385710.shtml)
+- 2026-06-30 01:36 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/599970.shtml)
+- 2026-06-30 01:29 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/1084113.shtml)

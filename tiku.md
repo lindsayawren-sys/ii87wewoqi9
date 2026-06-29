@@ -1,60 +1,56 @@
-# 央行流动性调控双升级：临时隔夜正逆回购规则调整，人民币FIMA工具正式亮相
+# 阿里、腾讯、百度集体调价，Token第一股年内狂飙547%，算力涨价潮来了
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-华夏时报记者 刘佳 北京报道 央行双管齐下优化流动性调控工具。 6月17日，在2026陆家嘴论坛上，央行同步公布两项公开市场操作机制优化方案：一方面优化公开市场临时隔夜正、逆回购操作机制，降低市场利率异常波动风险；另一方面创设境外央行类机构回购工具，便利境外央行类机构人民币流动性管理。 两项举措均为公开市场操作机制性完善，不涉及存贷款基准利率调整，也未推出降准、降息等总量宽松货
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨雷晨 编辑丨倪雨晴 金珊 江佩霞 朱益民 国内云计算进入“算力通胀”时代。 4月15日，阿里云宣布自7月15日起，DDoS高防（中国内地）弹性95费用上调50%（从每兆瓦月100元涨至150元），这是阿里云一个月内第三次调价。 这一轮全球涨价潮由海外率先引爆——亚马逊AWS年初率先上调AI算力价格，谷
 
 ## 正文
 
-华夏时报记者 刘佳 北京报道 央行双管齐下优化流动性调控工具。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月17日，在2026陆家嘴论坛上，央行同步公布两项公开市场操作机制优化方案：一方面优化公开市场临时隔夜正、逆回购操作机制，降低市场利率异常波动风险；另一方面创设境外央行类机构回购工具，便利境外央行类机构人民币流动性管理。
+记者丨雷晨 编辑丨倪雨晴 金珊 江佩霞 朱益民 国内云计算进入“算力通胀”时代。
 
-两项举措均为公开市场操作机制性完善，不涉及存贷款基准利率调整，也未推出降准、降息等总量宽松货币政策，核心发力点聚焦利率市场化纵深推进，以及人民币国际化配套基础设施完善。
+4月15日，阿里云宣布自7月15日起，DDoS高防（中国内地）弹性95费用上调50%（从每兆瓦月100元涨至150元），这是阿里云一个月内第三次调价。
 
-在邮政储蓄银行研究员娄飞鹏看来，此次央行同步落地两项政策既提升了人民币作为国际储备货币的吸引力，又增强了国内货币政策的独立性与有效性，标志着中国央行流动性管理框架向现代化、国际化迈出关键一步。
+这一轮全球涨价潮由海外率先引爆——亚马逊AWS年初率先上调AI算力价格，谷歌云随后跟进，最高涨幅达100%。
 
-隔夜回购机制全面优化 本次临时隔夜正、逆回购机制调整，是该工具自2024年7月落地运行近两年后，央行结合市场实际运行情况做出的系统性修正。
+腾讯云、百度智能云也同步跟进。
 
-6月17日，央行公告称，为灵活高效运用公开市场临时隔夜正、逆回购工具，即日起优化操作要素，将操作时间调整为工作日15：00-15：30，操作利率分别调整为公开市场7天期逆回购操作利率减点25bp和加点25bp。
+腾讯云4月9日宣布AI算力、容器、EMR全线上调5%；百度智能云AI算力与存储上调5%~30%。
 
-央行还在公告中进一步明确了工具使用规则：当银行间市场隔夜利率（DR001）持续低于或高于相应工具操作利率时，央行将结合一级交易商（即与央行直接进行交易的金融机构）需求，启动相应操作。
+涨价背后最根本的驱动力，是Token消耗的爆发式增长。
 
-浙商证券宏观研究李超团队研报中指出，临时隔夜正、逆回购工具本质上是围绕隔夜资金利率构建上下限更加清晰的短端利率走廊。
+国家数据局局长刘烈宏在3月24日的国新办新闻发布会上披露：“到今年3月，我国日均Token的调用量已超过140万亿，相比2024年初的1000亿增长了1000多倍，相比2024年底的100万亿，三个月时间又增长了40%多。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 01:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 01:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:18 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 01:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:17 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:35 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 01:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 01:25 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 01:21 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 01:34 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:18 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 01:16 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 01:36 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 01:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 01:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 01:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 01:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 01:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 01:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 01:38 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 01:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/53584968617.shtml)
-- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8231869.shtml)
-- 2026-06-30 01:06 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/47571508.shtml)
-- 2026-06-30 01:23 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/8759428803.shtml)
-- 2026-06-30 01:10 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/71202.shtml)
-- 2026-06-30 01:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/287139422886.shtml)
-- 2026-06-30 01:27 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/84397872856.shtml)
-- 2026-06-30 01:09 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/1116714845.shtml)
-- 2026-06-30 01:31 - [天道](http://www.blog.kurohicncr.top/Article/details/713013.shtml)
-- 2026-06-30 01:14 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/521735.shtml)
-- 2026-06-30 01:32 - [流金岁月](https://www.share.kurohicncr.top/Article/details/859477369.shtml)
-- 2026-06-30 01:18 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/95453702.shtml)
-- 2026-06-30 01:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/9608183.shtml)
-- 2026-06-30 01:17 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/703773603.shtml)
-- 2026-06-30 01:23 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/304853.shtml)
+- 2026-06-30 01:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/3111562618.shtml)
+- 2026-06-30 01:20 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/79537431.shtml)
+- 2026-06-30 01:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/876627739.shtml)
+- 2026-06-30 01:33 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/859065084.shtml)
+- 2026-06-30 01:35 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/88863325.shtml)
+- 2026-06-30 01:22 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/126068.shtml)
+- 2026-06-30 01:13 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/682571.shtml)
+- 2026-06-30 01:20 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/698222018246.shtml)
+- 2026-06-30 01:32 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/09061491194.shtml)
+- 2026-06-30 01:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/107580.shtml)
+- 2026-06-30 01:25 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/43733581.shtml)
+- 2026-06-30 01:21 - [沙丘](https://www.blog.minike.top/Article/details/110739666573.shtml)
+- 2026-06-30 01:32 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/5297706643.shtml)
+- 2026-06-30 01:33 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/340812648.shtml)
+- 2026-06-30 01:30 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/628774752.shtml)

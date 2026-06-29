@@ -1,61 +1,56 @@
-# 穿越周期的超额收益：这只基金如何做到持续多年领跑同类？
+# 广交会观察：张雪机车夺冠推动中国摩托车出口热
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-来源：中国网财经 中国网财经6月15日讯（记者 张明江）在震荡起伏的固收市场中，偏债混合基金凭借稳健打底、适度增厚收益的产品定位，或成为众多稳健增强型投资者的配置首选，不过此类产品业绩分化加剧，多数产品难以持续跑出超额回报。在此背景下，工银瑞信基金旗下的工银新得利，长期业绩领跑全市场同类产品，凭借连续多年亮眼的净值表现成为偏债混合赛道的绩优产品。 截至2026年5月30日，工银
+中新社广州4月17日电 (记者 张璐)第139届中国进出口商品交易会(简称“广交会”)正在广州举行。随着重庆张雪机车工业有限公司(简称“张雪机车”)在世界超级摩托车锦标赛(WSBK)葡萄牙站包揽两回合冠军，中国摩托车受到境外采购商青睐，海外订单持续走高。 在本届广交会上，张雪机车推出了多款自主研发的摩托车。“公司近期新增的国内订单已经超过20000辆，海外订单也突破1000辆，
 
 ## 正文
 
-来源：中国网财经 中国网财经6月15日讯（记者 张明江）在震荡起伏的固收市场中，偏债混合基金凭借稳健打底、适度增厚收益的产品定位，或成为众多稳健增强型投资者的配置首选，不过此类产品业绩分化加剧，多数产品难以持续跑出超额回报。
+中新社广州4月17日电 (记者 张璐)第139届中国进出口商品交易会(简称“广交会”)正在广州举行。
 
-在此背景下，工银瑞信基金旗下的工银新得利，长期业绩领跑全市场同类产品，凭借连续多年亮眼的净值表现成为偏债混合赛道的绩优产品。
+随着重庆张雪机车工业有限公司(简称“张雪机车”)在世界超级摩托车锦标赛(WSBK)葡萄牙站包揽两回合冠军，中国摩托车受到境外采购商青睐，海外订单持续走高。
 
-截至2026年5月30日，工银新得利过去一年净值增长率为34.15%，跑赢业绩比较基准收益率24.9个百分点；过去三年、过去五年的净值增长率分别为46.40%、36.14%，同样大幅跑赢同期业绩比较基准收益率，展现出穿越市场周期的持续超额收益能力。
+在本届广交会上，张雪机车推出了多款自主研发的摩托车。
 
-根据晨星数据，截至1季度末，工银新得利三年期、五年期同类排名分别为44/1098、67/742，持续领跑同类（同类指混合型基金-保守混合），更是获得晨星三年期五星评级。
+“公司近期新增的国内订单已经超过20000辆，海外订单也突破1000辆，订单已排期至今年9月。
 
-业内人士称，工银新得利出色的长期收益表现，离不开基金经理成熟的投研框架与系统化的投资打法。
+”该公司展位负责人黄秦说，先进的技术、独特的外观和严格的质量把控，是公司产品得以脱颖而出的原因之一。
 
-深耕转债投研 独立突围 工银新得利目前由基金经理黄杨荔独立管理。
+“未来，我们将聚焦欧洲市场，同时进一步开拓东南亚和南美市场。
 
-作为工银瑞信基金内部自主培养的基金经理，黄杨荔自2017年应届入职公司固收部，从宏观研究起步，2020年起深耕可转债研究领域，完整走过从产业研究、个券跟踪到基金管理的职业路径，多年的研究历练搭建起完整的转债投研能力框架。
+” 记者在广交会展馆采访发现，中国摩托车企业目前正以“技术+品牌”双轮驱动，从“规模扩张”向“价值提升”加速转型。
 
-2023年10月20日，黄杨荔开始受聘共同管理工银新得利，之后独立执掌这只产品。
+走进杭州土星动力科技有限公司展位，数十名境外采购商正排队体验摩托车，不少采购商拿出手机“直播带货”。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 01:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 01:33 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 01:09 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 01:14 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:20 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 01:23 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 01:10 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 01:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 01:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 01:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 01:14 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 01:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 01:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 01:32 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 01:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 01:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 01:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:19 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 01:12 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 01:22 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 01:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 01:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 01:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 01:32 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [田曦薇没招了](http://www.share.minike.top/Article/details/16749.shtml)
-- 2026-06-30 01:28 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/46926349.shtml)
-- 2026-06-30 01:18 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/49341.shtml)
-- 2026-06-30 01:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/013058.shtml)
-- 2026-06-30 01:24 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/429519.shtml)
-- 2026-06-30 01:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2760557.shtml)
-- 2026-06-30 01:24 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/98341014.shtml)
-- 2026-06-30 01:11 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/200553351.shtml)
-- 2026-06-30 01:28 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/28181425.shtml)
-- 2026-06-30 01:18 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/9471675.shtml)
-- 2026-06-30 01:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/130030710022.shtml)
-- 2026-06-30 01:27 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/56360.shtml)
-- 2026-06-30 01:32 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/222852156561.shtml)
-- 2026-06-30 01:22 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/57962.shtml)
-- 2026-06-30 01:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/8006248.shtml)
+- 2026-06-30 01:12 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/7931861.shtml)
+- 2026-06-30 01:27 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/899840909.shtml)
+- 2026-06-30 01:26 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/3632505167.shtml)
+- 2026-06-30 01:17 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/569954628010.shtml)
+- 2026-06-30 01:41 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/893168.shtml)
+- 2026-06-30 01:27 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/1749877.shtml)
+- 2026-06-30 01:21 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/971738.shtml)
+- 2026-06-30 01:27 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/869126586762.shtml)
+- 2026-06-30 01:40 - [第一炉香](https://www.share.kurohicncr.top/Article/details/607374.shtml)
+- 2026-06-30 01:31 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/1292690415.shtml)
+- 2026-06-30 01:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/9128645.shtml)
+- 2026-06-30 01:28 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/65848307277.shtml)
+- 2026-06-30 01:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/245321277945.shtml)
+- 2026-06-30 01:13 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/82513156213.shtml)
+- 2026-06-30 01:37 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/919871364.shtml)

@@ -1,58 +1,58 @@
-# 一条连廊连起产学研 北京打造全链条创新生态
+# 刚刚，A股“科技王”，关键突破！
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-原标题：活力中国调研行丨一条连廊连起产学研 北京打造全链条创新生态 北京拥有着丰富的教育、科技、人才资源,如何将这种创新优势更好转化为产业优势? 记者来到北京中关村AI北纬社区时看到,100多个“人工智能+”创业项目正在这里加速落地。 眼前这个机器人,正学习如何抓取试管、精准滴取溶液。这是一家初创企业为实验室应用研发的新产品。陈凯是企业的负责人,也是一名导师。而企业的技术人员,
+宁德时代迈入2万亿元市值时代。 宁德时代股价创历史新高 今日（4月16日）上午，宁德时代A股、H股双双大涨，盘中均创下历史新高。截至上午收盘，宁德时代A股涨4.44%，H股大涨超10%，A股总市值再次突破2万亿元大关。如果下午没有出现较大回撤，宁德时代今天收盘将历史性地站上2万亿元市值大关。这是A股历史上首次有科技公司市值站上2万亿元。 在市值迎来关键突破的同时，宁德时代的业绩
 
 ## 正文
 
-原标题：活力中国调研行丨一条连廊连起产学研 北京打造全链条创新生态 北京拥有着丰富的教育、科技、人才资源,如何将这种创新优势更好转化为产业优势?
+宁德时代迈入2万亿元市值时代。
 
-记者来到北京中关村AI北纬社区时看到,100多个“人工智能+”创业项目正在这里加速落地。
+宁德时代股价创历史新高 今日（4月16日）上午，宁德时代A股、H股双双大涨，盘中均创下历史新高。
 
-眼前这个机器人,正学习如何抓取试管、精准滴取溶液。
+截至上午收盘，宁德时代A股涨4.44%，H股大涨超10%，A股总市值再次突破2万亿元大关。
 
-这是一家初创企业为实验室应用研发的新产品。
+如果下午没有出现较大回撤，宁德时代今天收盘将历史性地站上2万亿元市值大关。
 
-陈凯是企业的负责人,也是一名导师。
+这是A股历史上首次有科技公司市值站上2万亿元。
 
-而企业的技术人员,近一半是他的学生。
+在市值迎来关键突破的同时，宁德时代的业绩也持续飙升。
 
-在企业工作,既是产品研发,也是科研教学。
+宁德时代在4月15日晚披露一季报，2026年第一季度实现营业收入1291.31亿元，同比增长52.45%；归母净利润为207.38亿元，同比增长48.52%。
 
-北京中关村学院导师 陈凯:同学们入学的第一天就让他们进入到项目里面,去发现自己应该去学什么事情,就会主动地去寻找要学的知识。
+公司2025年业绩也非常亮眼，营收同比增长超17%，归母净利同比增长超42%。
 
 ## 相关推荐
 
-- 2026-06-30 01:35 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 01:36 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 01:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 01:16 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 01:30 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 01:21 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 01:25 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 01:26 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 01:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 01:33 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 01:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 01:18 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 01:22 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 01:18 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 01:20 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 01:26 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 01:14 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 01:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 01:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 01:18 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 01:24 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/307330.shtml)
-- 2026-06-30 01:14 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/84841962139.shtml)
-- 2026-06-30 01:28 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/17149.shtml)
-- 2026-06-30 01:26 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/24542.shtml)
-- 2026-06-30 01:35 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/88878.shtml)
-- 2026-06-30 01:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/9486480.shtml)
-- 2026-06-30 01:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/536736.shtml)
-- 2026-06-30 01:13 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/5806490181.shtml)
-- 2026-06-30 01:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/3805487.shtml)
-- 2026-06-30 01:08 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/14456166.shtml)
-- 2026-06-30 01:18 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0098001.shtml)
-- 2026-06-30 01:26 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/32318514301.shtml)
-- 2026-06-30 01:28 - [斗破苍穹](http://www.share.minike.top/Article/details/43580.shtml)
-- 2026-06-30 01:31 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/9035972.shtml)
-- 2026-06-30 01:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/928817.shtml)
+- 2026-06-30 01:36 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/6563384.shtml)
+- 2026-06-30 01:29 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/39438.shtml)
+- 2026-06-30 01:35 - [小娘惹](https://www.share.minike.top/Article/details/637197872.shtml)
+- 2026-06-30 01:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/26757.shtml)
+- 2026-06-30 01:23 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7385100.shtml)
+- 2026-06-30 01:24 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/57487.shtml)
+- 2026-06-30 01:26 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/867233949.shtml)
+- 2026-06-30 01:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/388822251.shtml)
+- 2026-06-30 01:37 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/929497018.shtml)
+- 2026-06-30 01:34 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/272518.shtml)
+- 2026-06-30 01:14 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/1481437401.shtml)
+- 2026-06-30 01:40 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/02206262.shtml)
+- 2026-06-30 01:41 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/6891055.shtml)
+- 2026-06-30 01:27 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/127344718308.shtml)
+- 2026-06-30 01:22 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/568549527672.shtml)

@@ -1,60 +1,60 @@
-# （活力中国调研行）探访全球首个“智慧零碳”码头：机器人挑重担 “从头到脚”高智商
+# A股3家公司集体跌停，超10万股民可索赔
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新社天津6月17日电 题：探访全球首个“智慧零碳”码头：机器人挑重担 “从头到脚”高智商 中新社记者 王梦瑶 王恩博 位于天津滨海新区的天津港，与全球180多个国家和地区的500多个港口保持航运贸易往来，但繁忙的码头却鲜少见到工作人员。 天津港北疆港区C段智能化集装箱码头，是全球首个“智慧零碳”码头。记者来到这里，看到水岸停靠着两艘巨大的集装箱船舶，码头的彩色岸桥不断卸货，随
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李山 编辑丨张颖国 2026年4月16日晚，A股市场再爆连环雷。实达集团（维权）（600734）、网达软件（维权）（603189）与GQY视讯（维权）（300076）相继发布业绩预告更正公告，因大幅下修2025年年度业绩，齐齐触发退市风险警示（*ST）
 
 ## 正文
 
-中新社天津6月17日电 题：探访全球首个“智慧零碳”码头：机器人挑重担 “从头到脚”高智商 中新社记者 王梦瑶 王恩博 位于天津滨海新区的天津港，与全球180多个国家和地区的500多个港口保持航运贸易往来，但繁忙的码头却鲜少见到工作人员。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-天津港北疆港区C段智能化集装箱码头，是全球首个“智慧零碳”码头。
+记者丨李山 编辑丨张颖国 2026年4月16日晚，A股市场再爆连环雷。
 
-记者来到这里，看到水岸停靠着两艘巨大的集装箱船舶，码头的彩色岸桥不断卸货，随后交给岸边来回往返的人工智能运输机器人(ART)。
+实达集团（维权）（600734）、网达软件（维权）（603189）与GQY视讯（维权）（300076）相继发布业绩预告更正公告，因大幅下修2025年年度业绩，齐齐触发退市风险警示（*ST）标准。
 
-据介绍，码头融合5G专网、北斗精准定位、人工智能等前沿技术，安装了超过10万个传感器，实现全流程集装箱作业的无人化与智能化。
+受利空消息影响，实达集团、网达软件17日开盘跌停，GQY视讯更遭遇20CM跌停，合计超10万名投资者遭遇“黑天鹅”。
 
-其中最令人瞩目的，莫过于这支具有L4级自动驾驶技术的智能水平运输“军团”——ART，这些机器人是码头有智慧的“双脚”。
+此类业绩“变脸”不仅出反映公司基本面崩塌，更可能隐藏信息披露违规的法律风险，受损投资者有权提起索赔诉讼。
 
-会让行，能错车，遇到紧急任务还会“加塞”，这些机器人搭载了激光雷达、视觉摄像头、毫米波雷达等多种传感器，解除了刻板路线的束缚，可以自主决策。
+符合下文条件的股民，可关注“投资快报”公众号，通过右侧“股民索赔”菜单栏挽回损失。
 
-天津港第一港埠有限公司拖头队副队长成卫东是这些机器人的“师傅”。
+网达软件：盈利变亏损，6100万元收入被砍 4月16日晚间，网达软件发布2025年年度业绩预告更正公告，大幅下修全年营收及净利润预期。
 
-他说，这些机器人正变得越来越聪明。
+修正后，公司预计2025年扣非净利润为亏损250万元至100万元（此前预计盈利360万元至600万元），且营业收入确认金额低于3亿元，触及*ST标准。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 01:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 01:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 01:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 01:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 01:24 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 01:29 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 01:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 01:14 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 01:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 01:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 01:31 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 01:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 01:11 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 01:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 01:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 01:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 01:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 01:27 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 01:17 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 01:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 01:39 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 01:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 01:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 01:38 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 01:29 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 01:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/1606222120.shtml)
-- 2026-06-30 01:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/183839221676.shtml)
-- 2026-06-30 01:19 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/1891345.shtml)
-- 2026-06-30 01:21 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/12101956925.shtml)
-- 2026-06-30 01:24 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/76324.shtml)
-- 2026-06-30 01:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/827101910177.shtml)
-- 2026-06-30 01:28 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/668408155.shtml)
-- 2026-06-30 01:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/93768935911.shtml)
-- 2026-06-30 01:25 - [这一刀 会很帅](https://www.share.minike.top/Article/details/05879797340.shtml)
-- 2026-06-30 01:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/09264247.shtml)
-- 2026-06-30 01:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/75210504144.shtml)
-- 2026-06-30 01:22 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/9904819148.shtml)
-- 2026-06-30 01:32 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/017560397.shtml)
-- 2026-06-30 01:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/1947231676.shtml)
-- 2026-06-30 01:12 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/36475592900.shtml)
+- 2026-06-30 01:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/969955.shtml)
+- 2026-06-30 01:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/2208998312.shtml)
+- 2026-06-30 01:38 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/40878938402.shtml)
+- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/51510751149.shtml)
+- 2026-06-30 01:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/22233.shtml)
+- 2026-06-30 01:37 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/1362705.shtml)
+- 2026-06-30 01:37 - [极限挑战第一季](https://www.share.minike.top/Article/details/49045526018.shtml)
+- 2026-06-30 01:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/980116.shtml)
+- 2026-06-30 01:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/031706.shtml)
+- 2026-06-30 01:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/931981945.shtml)
+- 2026-06-30 01:30 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/38736470855.shtml)
+- 2026-06-30 01:12 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/263581620.shtml)
+- 2026-06-30 01:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/821328067.shtml)
+- 2026-06-30 01:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/09171.shtml)
+- 2026-06-30 01:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/9120610340.shtml)

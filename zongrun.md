@@ -1,59 +1,50 @@
-# “十四五”期间广西石漠化土地面积减少4.4%
+# 黄晓明：微短剧出现得非常是时候 创新形式与长剧互补
 
-> 更新时间：2026-06-30 01:36:02 UTC+8
+> 更新时间：2026-06-30 01:42:03 UTC+8
 
 ## 摘要
 
-中新网南宁6月17日电(黄令妍 张庆观 覃志伟)广西壮族自治区林业局17日介绍，“十四五”期间，广西石漠化土地面积减少4.4%，沙化扩展势头得到有效遏制，昔日“乱石荒山”变身“连片绿洲”，滨海荒沙筑起绿色海岸屏障。 第32个“世界防治荒漠化和干旱日”广西现场宣传活动当天在崇左市举行。活动以“人人参与治沙，代代共享绿色”为主题，集中展示广西荒漠化防治成效，广泛凝聚全社会参与共识，
+发布时间：2026年04月16日 08:38 来源：中国新闻网 4月15日，第十一届中国网络视听大会在四川成都开幕。在当天下午举办的微短剧高质量发展论坛上，中国电影家协会副主席黄晓明表示，微短剧的出现恰逢其时，在整个行业面临困境的阶段，微短剧为更多年轻创业者提供了发展机遇，长剧跟短剧应该相互结合、相互促进。(记者 吕杨） 责任编辑：【苏亦瑜】
 
 ## 正文
 
-中新网南宁6月17日电(黄令妍 张庆观 覃志伟)广西壮族自治区林业局17日介绍，“十四五”期间，广西石漠化土地面积减少4.4%，沙化扩展势头得到有效遏制，昔日“乱石荒山”变身“连片绿洲”，滨海荒沙筑起绿色海岸屏障。
+发布时间：2026年04月16日 08:38 来源：中国新闻网 4月15日，第十一届中国网络视听大会在四川成都开幕。
 
-第32个“世界防治荒漠化和干旱日”广西现场宣传活动当天在崇左市举行。
+在当天下午举办的微短剧高质量发展论坛上，中国电影家协会副主席黄晓明表示，微短剧的出现恰逢其时，在整个行业面临困境的阶段，微短剧为更多年轻创业者提供了发展机遇，长剧跟短剧应该相互结合、相互促进。
 
-活动以“人人参与治沙，代代共享绿色”为主题，集中展示广西荒漠化防治成效，广泛凝聚全社会参与共识，助力筑牢南方生态安全屏障。
-
-活动指出，土地荒漠化是全球性生态难题，广西作为祖国南疆生态屏障，呈现石山地区石漠化、沿海地区沙化两大典型形态，全区石漠化土地面积居全国第三，治理成效事关生态稳固与民生福祉。
-
-近年来，广西坚持山水林田湖草沙系统治理，依托重大生态修复工程，统筹推进人工造林种草、封山育林育草，联动科研力量破解技术难题，推动荒漠化防治与乡村振兴深度融合，走出一条生态富民协同的特色治荒之路。
-
-下一步，广西将夯实科技支撑根基，加大林业先进技术研发与示范推广力度；深化生态产业融合发展，持续拓宽“林草+”多元发展路径，以生态产业带动民众稳定增收致富。
-
-(完)
+(记者 吕杨） 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 01:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 01:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 01:15 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 01:17 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 01:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 01:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 01:25 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 01:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 01:29 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 01:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 01:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:35 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:27 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 01:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 01:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 01:26 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:31 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 01:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 01:28 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 01:38 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 01:27 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 01:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 01:26 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 01:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 01:28 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 01:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 01:12 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/7277155.shtml)
-- 2026-06-30 01:08 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/7575777.shtml)
-- 2026-06-30 01:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/41381.shtml)
-- 2026-06-30 01:35 - [急先锋](http://www.blog.minike.top/Article/details/336069.shtml)
-- 2026-06-30 01:07 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/6122993.shtml)
-- 2026-06-30 01:34 - [啊啊啊](https://www.blog.minike.top/Article/details/95834575.shtml)
-- 2026-06-30 01:33 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/00091.shtml)
-- 2026-06-30 01:32 - [内马尔替补](https://www.share.minike.top/Article/details/61093179678.shtml)
-- 2026-06-30 01:14 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/6216232.shtml)
-- 2026-06-30 01:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/271692.shtml)
-- 2026-06-30 01:24 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/024324638.shtml)
-- 2026-06-30 01:22 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/653068.shtml)
-- 2026-06-30 01:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/62956208459.shtml)
-- 2026-06-30 01:26 - [扬名立万](https://www.share.kurohicncr.top/Article/details/71509215.shtml)
-- 2026-06-30 01:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/46082025222.shtml)
+- 2026-06-30 01:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/991212.shtml)
+- 2026-06-30 01:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/844335.shtml)
+- 2026-06-30 01:12 - [日本16强魔咒](https://www.share.minike.top/Article/details/856539.shtml)
+- 2026-06-30 01:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/4163991.shtml)
+- 2026-06-30 01:41 - [一见倾心](http://www.blog.minike.top/Article/details/159592605.shtml)
+- 2026-06-30 01:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/94085574317.shtml)
+- 2026-06-30 01:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3248425.shtml)
+- 2026-06-30 01:36 - [流金岁月](http://www.share.minike.top/Article/details/60455473.shtml)
+- 2026-06-30 01:33 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/10113526453.shtml)
+- 2026-06-30 01:37 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/844987311183.shtml)
+- 2026-06-30 01:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/5351250.shtml)
+- 2026-06-30 01:36 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/04479910.shtml)
+- 2026-06-30 01:21 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/831415.shtml)
+- 2026-06-30 01:36 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/3933278.shtml)
+- 2026-06-30 01:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/07686294212.shtml)
