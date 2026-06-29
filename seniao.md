@@ -1,55 +1,54 @@
-# 美伊协议缓和地缘局势，现货黄金重返4300美元
+# 时习之丨以自然之道 养万物之生
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-2026年6月16日，受美国和伊朗达成协议，恢复霍尔木兹海峡通行消息催化，今日现货黄金重拾4300美元关口，现报4319美元/盎司。 在美伊局势缓和背景下，黄金市场进入震荡等待阶段，短期核心驱动仍围绕地缘进展、油价传导、通胀预期及美联储政策路径展开。宝城期货指出，本周美联储议息会议表述将成为关键观察点，若释放边际宽松信号，或推动金价延续震荡偏强走势；反之则可能压制反弹空间。 国
+5月22日是国际生物多样性日。 “生物多样性使地球充满生机，也是人类生存和发展的基础。”中共中央总书记、国家主席、中央军委主席习近平多次围绕生物多样性治理和生态文明建设发表重要论述，为共同构建地球生命共同体提出大国倡议。 作为最早签署和批准《生物多样性公约》的缔约方之一，中国一贯高度重视生物多样性保护，不断推进生物多样性保护与时俱进、创新发展，取得显著成效，走出了一条中国特色生
 
 ## 正文
 
-2026年6月16日，受美国和伊朗达成协议，恢复霍尔木兹海峡通行消息催化，今日现货黄金重拾4300美元关口，现报4319美元/盎司。
+5月22日是国际生物多样性日。
 
-在美伊局势缓和背景下，黄金市场进入震荡等待阶段，短期核心驱动仍围绕地缘进展、油价传导、通胀预期及美联储政策路径展开。
+“生物多样性使地球充满生机，也是人类生存和发展的基础。
 
-宝城期货指出，本周美联储议息会议表述将成为关键观察点，若释放边际宽松信号，或推动金价延续震荡偏强走势；反之则可能压制反弹空间。
+”中共中央总书记、国家主席、中央军委主席习近平多次围绕生物多样性治理和生态文明建设发表重要论述，为共同构建地球生命共同体提出大国倡议。
 
-国新证券分析认为，尽管近期国际金价承压于高位实际利率与强势美元，呈现弱势震荡格局，但A股黄金板块已率先出现超跌修复迹象。
+作为最早签署和批准《生物多样性公约》的缔约方之一，中国一贯高度重视生物多样性保护，不断推进生物多样性保护与时俱进、创新发展，取得显著成效，走出了一条中国特色生物多样性保护之路。
 
-黄金股作为权益资产，其定价锚定企业盈利与远期金价预期，当前板块估值处于历史低位，悲观情绪充分释放，叠加全球央行持续购金筑牢行业基本面，即便现货短期波动，企业盈利安全垫仍具韧性，修复行情具备结构性支撑。
-
-责任编辑：朱赫楠
+制作丨谭宇 统筹丨任一林 设计丨王潇潇
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 13:01 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 13:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 13:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 13:06 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 13:00 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 13:15 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 13:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 13:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 13:02 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 13:24 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 13:29 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 13:10 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 13:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 13:32 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 13:23 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 13:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 13:23 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 13:19 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 13:24 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 13:30 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 13:08 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 13:08 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 13:18 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 13:27 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 13:15 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 13:12 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/171496620.shtml)
-- 2026-06-29 13:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/788782362.shtml)
-- 2026-06-29 13:27 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/22921542.shtml)
-- 2026-06-29 13:19 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/76568038.shtml)
-- 2026-06-29 13:18 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/900825647283.shtml)
-- 2026-06-29 13:13 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/766666340.shtml)
-- 2026-06-29 13:24 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/566025.shtml)
-- 2026-06-29 13:10 - [陈露发声引舆论反转](http://www.share.minike.top/Article/details/026627.shtml)
-- 2026-06-29 13:24 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/252729599.shtml)
-- 2026-06-29 13:08 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/3626310962.shtml)
-- 2026-06-29 13:23 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/22334378828.shtml)
-- 2026-06-29 13:27 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/5292256645.shtml)
-- 2026-06-29 13:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/8979113472.shtml)
-- 2026-06-29 13:10 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/774839557.shtml)
-- 2026-06-29 13:28 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/452515043450.shtml)
+- 2026-06-29 13:34 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/4537615054.shtml)
+- 2026-06-29 13:09 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/681938.shtml)
+- 2026-06-29 13:32 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/85893.shtml)
+- 2026-06-29 13:34 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/856902.shtml)
+- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/41926483797.shtml)
+- 2026-06-29 13:29 - [急先锋](https://www.share.minike.top/Article/details/0071267.shtml)
+- 2026-06-29 13:33 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/060217623829.shtml)
+- 2026-06-29 13:19 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/825855639.shtml)
+- 2026-06-29 13:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/6322677.shtml)
+- 2026-06-29 13:27 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/8692680868.shtml)
+- 2026-06-29 13:07 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/662372.shtml)
+- 2026-06-29 13:18 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/314851845939.shtml)
+- 2026-06-29 13:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/000443.shtml)
+- 2026-06-29 13:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/4496546895.shtml)
+- 2026-06-29 13:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/96452.shtml)

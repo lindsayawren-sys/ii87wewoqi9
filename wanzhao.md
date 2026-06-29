@@ -1,53 +1,61 @@
-# 迈威生物-B午前涨逾3% 旗下迈威视与维眸生物达成战略合作
+# 三年四赴国际舞台，海南雨林童声与世界“对唱”
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-迈威生物-B（02493）盘中涨超3%，截至发稿，股价上涨2.64%，现报26.46港元，成交额696.10万港元。 6月16日，据迈威生物官微消息，公司宣布其控股子公司迈威视与国内领先的眼科小分子药物研发企业维眸生物达成战略合作。双方将聚焦眼科炎症及眼免疫两大核心方向的未满足临床需求开展全方位深度协作。 据介绍，迈威生物视拥多款眼底产品，包括9MW0211抗VEGF单抗创新药
+中新社海南五指山5月24日电 题：三年四赴国际舞台，海南雨林童声与世界“对唱” 作者 张月和 今年国际茶日(5月21日)，一群身着海南黎族、苗族盛装的孩子，在位于意大利罗马的联合国粮食及农业组织总部，唱响黎族原创歌曲《黎山茶歌》和意大利民歌《桑塔露琪亚》，清亮的童声和欢快的节奏充满感染力，现场的外国友人跟着打起节拍，鼓掌喝彩。 这是五指山雨林童声合唱团(下称“合唱团”)三年来第
 
 ## 正文
 
-迈威生物-B（02493）盘中涨超3%，截至发稿，股价上涨2.64%，现报26.46港元，成交额696.10万港元。
+中新社海南五指山5月24日电 题：三年四赴国际舞台，海南雨林童声与世界“对唱” 作者 张月和 今年国际茶日(5月21日)，一群身着海南黎族、苗族盛装的孩子，在位于意大利罗马的联合国粮食及农业组织总部，唱响黎族原创歌曲《黎山茶歌》和意大利民歌《桑塔露琪亚》，清亮的童声和欢快的节奏充满感染力，现场的外国友人跟着打起节拍，鼓掌喝彩。
 
-6月16日，据迈威生物官微消息，公司宣布其控股子公司迈威视与国内领先的眼科小分子药物研发企业维眸生物达成战略合作。
+这是五指山雨林童声合唱团(下称“合唱团”)三年来第四次踏上国际舞台与世界对唱。
 
-双方将聚焦眼科炎症及眼免疫两大核心方向的未满足临床需求开展全方位深度协作。
+这个合唱团来自海南热带雨林深处，由一群黎族、苗族、汉族小学生组成。
 
-据介绍，迈威生物视拥多款眼底产品，包括9MW0211抗VEGF单抗创新药、阿达木单抗生物类似药、阿柏西普生物类似药，并覆盖眼免疫药物、眼底病药物、以及干眼和眼表等领域的成熟药物。
+2024年，他们先后在法国、韩国唱响黎音苗韵；2025年他们再度赴法，与巴黎宝丽声童声合唱团接续友谊。
 
-维眸生物是专注于眼科治疗领域的临床阶段创新药公司，已经建立起独特的眼科创新药研发平台，自主研发的多个创新药产品已经进入临床阶段。
+“今年合唱团规模扩大了，来自不同乡镇的孩子们都参与了进来，有接近80名成员。
 
-责任编辑：卢昱君
+”合唱团指挥兼艺术指导刘旻24日受访时说，此次前往罗马的18个孩子中，既有参与过此前出访交流活动的，也有第一次出国表演的，“孩子们很激动，整体演出效果非常好”。
+
+为了呼应国际茶日的主题，合唱团排练了黎族原创歌曲《黎山茶歌》，将五指山特有的雨林大叶茶以歌唱的形式介绍给外国友人。
+
+此外，孩子们还特地练习了几首意大利语歌曲，有《桑塔露琪亚》，也有米兰冬奥会的主题曲《直到黎明》。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 13:16 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 13:14 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 13:21 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 13:25 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 13:10 - [医护人员观影《四渡》传承长征精神](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 13:19 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 13:20 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 13:21 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 13:04 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 13:12 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 13:14 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 13:06 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 13:35 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:17 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 13:07 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 13:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 13:25 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 13:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 13:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 13:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:33 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 13:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 13:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 13:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [白玉兰最佳女主角提名片段](http://www.share.kurohicncr.top/Article/details/790798970.shtml)
-- 2026-06-29 13:23 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/172968739.shtml)
-- 2026-06-29 13:13 - [多家银行收紧个人贵金属业务](https://www.share.kurohicncr.top/Article/details/18699065.shtml)
-- 2026-06-29 13:20 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/195025338.shtml)
-- 2026-06-29 13:19 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/97804267.shtml)
-- 2026-06-29 13:27 - [DeepSeek联合北京大学发布论文](http://www.share.kurohicncr.top/Article/details/11905066.shtml)
-- 2026-06-29 13:15 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/272470662489.shtml)
-- 2026-06-29 13:13 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/69865.shtml)
-- 2026-06-29 13:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/4264151773.shtml)
-- 2026-06-29 13:11 - [杨紫《生命树》播放量破百亿](https://www.share.kurohicncr.top/Article/details/87236.shtml)
-- 2026-06-29 13:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4542824.shtml)
-- 2026-06-29 13:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/4649001625.shtml)
-- 2026-06-29 13:17 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/32939176.shtml)
-- 2026-06-29 13:18 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/807401.shtml)
-- 2026-06-29 13:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/657775.shtml)
+- 2026-06-29 13:34 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/6275653975.shtml)
+- 2026-06-29 13:26 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/16531769.shtml)
+- 2026-06-29 13:10 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/97936002.shtml)
+- 2026-06-29 13:06 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/272031083076.shtml)
+- 2026-06-29 13:07 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/9783243913.shtml)
+- 2026-06-29 13:29 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/07926902.shtml)
+- 2026-06-29 13:10 - [向佑说向佐是一生依靠](https://www.blog.minike.top/Article/details/765605660652.shtml)
+- 2026-06-29 13:31 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/6074296.shtml)
+- 2026-06-29 13:12 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/6597455851.shtml)
+- 2026-06-29 13:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/9134880.shtml)
+- 2026-06-29 13:29 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/2130352.shtml)
+- 2026-06-29 13:23 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/113077283479.shtml)
+- 2026-06-29 13:34 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/3427290.shtml)
+- 2026-06-29 13:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/1754742255.shtml)
+- 2026-06-29 13:19 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/23317175.shtml)

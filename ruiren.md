@@ -1,59 +1,56 @@
-# 城堡证券认为美联储9月开始加息的概率上升
+# 上海探索未来产业崛起路径 以“耐心”与“场景”破局“死亡之谷”
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-专题：美联储决议前瞻：预计按兵不动 关注沃什首秀及会后声明 城堡证券表示，随着通胀变得更加持续而广泛，美联储最早从9月开始启动一系列加息的概率正在上升。 该公司宏观策略主管Frank Flight在给客户的一份报告中写道，尽管在美国和伊朗宣布达成结束冲突的临时和平协议后，油价有所回落，但战争期间通胀压力却日益根深蒂固。 他表示，宽松的金融环境、持续的供应链扰动、劳动力市场重新加
+中新网上海5月23日电 (谢梦圆)未来产业是全球经济竞争的战略制高点，也是培育新质生产力、塑造发展新优势的关键领域。上海作为中国科技创新的排头兵与未来产业的策源地，如何从原始创新突破和前沿成果转化，推动未来产业成为智能经济新形态的未来“主力军”？这些问题已成为上海在“十五五”时期抢占未来发展制高点、赢得全球竞争先机的核心议题，亟待政产学研各界深入探讨与系统谋划。 以“科创中心：
 
 ## 正文
 
-专题：美联储决议前瞻：预计按兵不动 关注沃什首秀及会后声明 城堡证券表示，随着通胀变得更加持续而广泛，美联储最早从9月开始启动一系列加息的概率正在上升。
+中新网上海5月23日电 (谢梦圆)未来产业是全球经济竞争的战略制高点，也是培育新质生产力、塑造发展新优势的关键领域。
 
-该公司宏观策略主管Frank Flight在给客户的一份报告中写道，尽管在美国和伊朗宣布达成结束冲突的临时和平协议后，油价有所回落，但战争期间通胀压力却日益根深蒂固。
+上海作为中国科技创新的排头兵与未来产业的策源地，如何从原始创新突破和前沿成果转化，推动未来产业成为智能经济新形态的未来“主力军”？
 
-他表示，宽松的金融环境、持续的供应链扰动、劳动力市场重新加速增长以及人工智能投资激增等因素共同作用，导致价格压力持续存在。
+这些问题已成为上海在“十五五”时期抢占未来发展制高点、赢得全球竞争先机的核心议题，亟待政产学研各界深入探讨与系统谋划。
 
-Flight预测，在此背景下，美联储主席凯文·沃什在周三他主持的首次政策会议上可能会采取更为鹰派的立场，导致在9月、12月和2027年3月加息的风险不断攀升。
+以“科创中心：科技赋能产业新跃迁”为主题的第六期“中新·申见”前沿圆桌访谈于22日下午在上海财经大学金融科技园举办。
 
-这一预期远比当前市场定价更为激进，利率互换合约对应的9月加息可能性仅为三分之一左右。
+上海财经大学科研处副处长(挂职)牛志勇主持以“智能经济新形态如何力引未来产业塑优势、赢先机？
 
-“证据表明，政策应该朝着明显鹰派的方向发展，我们认为沃什会选择维护通胀方面的可信度，而不是去验证市场此前的鸽派预期，”Flight写道。
+”为主题的圆桌研讨，与会专家围绕这一核心议题深入交流。
 
-Flight预计，政策制定者将在周三政策会议上公布一系列更为鹰派的预测，以为未来的加息提供支撑。
+当前，人形机器人、自主智能体、量子计算等未来产业赛道正加速从技术验证阶段迈向规模化落地应用。
 
-他表示，至少有五位官员可能会预计加息，同时预测2026年核心通胀率高于3%，且失业率略有下降。
+上海锚定低空经济、商业航天、具身智能、生物制造、智能终端五大新兴增长方向，配套推出一系列前沿技术创新与未来产业培育扶持政策，全力厚植未来产业发展动能。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 13:16 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 13:09 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 13:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 13:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 13:09 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 13:15 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 13:20 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 13:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 13:25 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 13:14 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 13:17 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 13:19 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 13:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:10 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 13:08 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 13:22 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 13:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 13:30 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 13:35 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 13:06 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 13:20 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0940386630.shtml)
-- 2026-06-29 13:05 - [委内瑞拉强震致中国公民8遇难1失联](http://www.blog.minike.top/Article/details/467749.shtml)
-- 2026-06-29 13:17 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/73145.shtml)
-- 2026-06-29 13:08 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/498944764520.shtml)
-- 2026-06-29 13:11 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/0060104.shtml)
-- 2026-06-29 13:24 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/44729463.shtml)
-- 2026-06-29 13:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/740742506.shtml)
-- 2026-06-29 13:09 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/6280257165.shtml)
-- 2026-06-29 13:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/5680544.shtml)
-- 2026-06-29 13:06 - [张一山说杨紫早该拿奖了](https://www.blog.minike.top/Article/details/4541008689.shtml)
-- 2026-06-29 13:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/17642250800.shtml)
-- 2026-06-29 13:08 - [詹姆斯下赛季会在哪里](http://www.blog.minike.top/Article/details/59763.shtml)
-- 2026-06-29 13:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/38165.shtml)
-- 2026-06-29 13:21 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/905628.shtml)
-- 2026-06-29 13:16 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/196448.shtml)
+- 2026-06-29 13:11 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/14577947077.shtml)
+- 2026-06-29 13:06 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/59782820.shtml)
+- 2026-06-29 13:25 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/6390751.shtml)
+- 2026-06-29 13:18 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/7341313097.shtml)
+- 2026-06-29 13:19 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/72716.shtml)
+- 2026-06-29 13:14 - [千与千寻](http://www.blog.minike.top/Article/details/43501570.shtml)
+- 2026-06-29 13:09 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/937540237.shtml)
+- 2026-06-29 13:07 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/6711186.shtml)
+- 2026-06-29 13:33 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/29038665.shtml)
+- 2026-06-29 13:29 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/524843.shtml)
+- 2026-06-29 13:29 - [欧洲超1300例超额死亡与高温有关](http://www.blog.kurohicncr.top/Article/details/77636366467.shtml)
+- 2026-06-29 13:19 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/5013980.shtml)
+- 2026-06-29 13:34 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/55619986.shtml)
+- 2026-06-29 13:24 - [广州某高校辟谣禁止小米汽车入校](http://www.share.minike.top/Article/details/51942964448.shtml)
+- 2026-06-29 13:23 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/773633302915.shtml)

@@ -1,56 +1,61 @@
-# 暴涨超1955%！两位大佬，突然出手！背后有何大动作？
+# PCB板块上演涨停潮：关注资金大举扫货PCB关键赛道AOI
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-股票大涨有时候本不需要“光”！ 6月16日，港股浦江中国今日复牌，一度暴涨近120%。该股过去22个交易日，最大涨幅超1955%。那么，究竟发生了什么？ 据公司公告，Yomi.sun Holding Limited以总代价1.16亿港元购买合高控股有限公司（下称“合高控股”）持有的公司2.23亿股股份，约占公司已发行股本的55.03%。同时，Lucky Yang Limited
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金网 摘要：PCB板块全线爆发上演涨停潮，市场人士解析，资金瞄准PCB产业链这一关键细分赛道——自动光学检测（AOI），相关上市公司值得关注。近日，英伟达单机柜“物料成本拆解图”刷屏，摩根士丹利对英伟达下一代Rubin机架进行了全面的物料清单（BOM）拆解，在其覆盖的下游零部件中，PCB内容价值
 
 ## 正文
 
-股票大涨有时候本不需要“光”！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月16日，港股浦江中国今日复牌，一度暴涨近120%。
+来源：中国基金网 摘要：PCB板块全线爆发上演涨停潮，市场人士解析，资金瞄准PCB产业链这一关键细分赛道——自动光学检测（AOI），相关上市公司值得关注。
 
-该股过去22个交易日，最大涨幅超1955%。
+近日，英伟达单机柜“物料成本拆解图”刷屏，摩根士丹利对英伟达下一代Rubin机架进行了全面的物料清单（BOM）拆解，在其覆盖的下游零部件中，PCB内容价值增幅最为显著，较GB300大涨233%。
 
-那么，究竟发生了什么？
+由此，PCB 板块在各路大资金关注下成为热点，周五A股的个股涨幅榜前列随处可见PCB概念股的身影。
 
-据公司公告，Yomi.sun Holding Limited以总代价1.16亿港元购买合高控股有限公司（下称“合高控股”）持有的公司2.23亿股股份，约占公司已发行股本的55.03%。
+随着PCB行业进入扩产周期，在这样的大背景下，自动光学检测（AOI）作为PCB产业链中的关键细分赛道，首当其冲将成为各路资金关注的主要目标。
 
-同时，Lucky Yang Limited以4007万港元收购合高控股所持7728万股公司股份，约占公司已发行股本总额的19.08%。
+在经历了周四的下跌之后，本周五的A股市场出现了明显的回暖，英伟达带动的AI产业链相关板块包括PCB、MLCC、电子布、CCL、培育钻石、CPO、铜缆高速连接、HBM等在内纷纷大涨，尤其是PCB板块的表现最为抢眼。
 
-这两大买家背后，涉及两位大佬：前者涉及微盟（Weimob Inc．）的孙涛勇，后者涉及壹米滴答的杨兴运。
+从盘面来看，PCB板块可谓是全线大爆发，鹏鼎控股（002938）、宝鼎科技（002552）、卓郎智能（600545）、景旺电子（603228）、生益科技（600183）、深南电路（002916）、沪电股份（002463）、宏和科技（603256）、博敏电子（603936）、方正科技（600601）、天承科技（688603）、强达电路（301628）、方邦股份（688020）、福斯特（603806）、中材科技（002080）、红板科技（603459）、中钨高新（000657）、山东玻纤（605006）、光华科技（002741）、瑞丰高材（300243）、鼎泰高科（301377）、民爆光电（301362）、利和兴（301013）、铜陵有色（000630）、东材科技（601208）、华正新材（603186）、洪田股份（603800）、大连热电（600719
 
-浦江中国涨超1955% 浦江中国今日复牌一度大涨近120%，自5月13日后的22个交易日，该股暴涨超1955%，股价从0.2港元/股涨至最高4.11港元/股。
+根据消息面的最新报道，摩根士丹利对英伟达下一代Rubin机架进行了全面的物料清单（BOM）拆解，在其覆盖的下游零部件中，PCB内容价值增幅最为显著，较GB300大涨233%。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 13:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 13:00 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 13:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 13:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 13:04 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 13:26 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 13:11 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 13:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 13:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 13:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 13:15 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 13:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:10 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 13:14 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 13:19 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:19 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 13:32 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 13:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 13:32 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 13:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 13:10 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 13:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 13:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 13:17 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/64910145328.shtml)
-- 2026-06-29 13:04 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/35828.shtml)
-- 2026-06-29 13:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.kurohicncr.top/Article/details/45440969758.shtml)
-- 2026-06-29 13:21 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/6270858646.shtml)
-- 2026-06-29 13:00 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/809070255851.shtml)
-- 2026-06-29 13:18 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/37340.shtml)
-- 2026-06-29 13:17 - [周生如故](http://www.share.kurohicncr.top/Article/details/137528797.shtml)
-- 2026-06-29 13:10 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/304025854935.shtml)
-- 2026-06-29 13:00 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/690752772014.shtml)
-- 2026-06-29 13:10 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/83662088.shtml)
-- 2026-06-29 13:27 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/383119.shtml)
-- 2026-06-29 13:04 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.kurohicncr.top/Article/details/23650653.shtml)
-- 2026-06-29 13:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/38049414645.shtml)
-- 2026-06-29 13:15 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/347669586230.shtml)
-- 2026-06-29 13:05 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/647438447831.shtml)
+- 2026-06-29 13:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/27715274216.shtml)
+- 2026-06-29 13:33 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/62938305070.shtml)
+- 2026-06-29 13:09 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/814269282.shtml)
+- 2026-06-29 13:14 - [起风了](http://www.blog.kurohicncr.top/Article/details/793145292210.shtml)
+- 2026-06-29 13:12 - [爱很美味](https://www.blog.minike.top/Article/details/67722.shtml)
+- 2026-06-29 13:35 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/149491.shtml)
+- 2026-06-29 13:14 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/404762505.shtml)
+- 2026-06-29 13:31 - [千与千寻](https://www.blog.minike.top/Article/details/928327.shtml)
+- 2026-06-29 13:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/0286512.shtml)
+- 2026-06-29 13:08 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/40427757130.shtml)
+- 2026-06-29 13:28 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/8412021.shtml)
+- 2026-06-29 13:11 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/32058886.shtml)
+- 2026-06-29 13:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/21375012417.shtml)
+- 2026-06-29 13:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/693636263400.shtml)
+- 2026-06-29 13:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/5270044.shtml)

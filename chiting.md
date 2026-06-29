@@ -1,61 +1,58 @@
-# 各地端午民俗活动轮番上演打造消费“盛宴” “文体旅”融合成为新亮点
+# 5月23日收盘：道指再创新高 标普500指数连续第八周上涨
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。 龙舟竞渡是活动的重头戏。在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。队员们奋臂挥桨，动作整齐划一、向前飞驰。 此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17
+北京时间5月23日凌晨，美股周五收高，道指再创历史新高。三大指数本周均录得涨幅。投资者正在密切关注美伊谈判进展。凯文沃什宣誓就任美联储主席。 道指涨294.04点，涨幅为0.58%，报50579.70点；纳指涨50.87点，涨幅为0.19%，报26343.97点；标普500指数涨27.73点，涨幅为0.37%，报7473.45点。 本周标普500指数上涨0.88%，录得连续第八
 
 ## 正文
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。
+北京时间5月23日凌晨，美股周五收高，道指再创历史新高。
 
-龙舟竞渡是活动的重头戏。
+三大指数本周均录得涨幅。
 
-在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。
+投资者正在密切关注美伊谈判进展。
 
-队员们奋臂挥桨，动作整齐划一、向前飞驰。
+凯文沃什宣誓就任美联储主席。
 
-此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17村的特色资源，现场设置了绿色养生、文创村礼、乡村旅游等五大市集板块，还以端午民俗体验为主线，设置了趣味游戏及风俗展示活动，吸引村民游客打卡体验、休闲逛游。
+道指涨294.04点，涨幅为0.58%，报50579.70点；纳指涨50.87点，涨幅为0.19%，报26343.97点；标普500指数涨27.73点，涨幅为0.37%，报7473.45点。
 
-潞村的钱山漾遗址被誉为“世界丝绸之源”，荻港村拥有全球重要农业文化遗产——桑基鱼塘系统，今年，湖州市谋划了“潞村—荻港”跨区域片区组团发展的蓝图。
+本周标普500指数上涨0.88%，录得连续第八周收涨，创2023年末结束的九周连涨以来最长的周度连涨纪录。
 
-湖州市委宣传部副部长钱振宇介绍，今年在民当村的活动，集聚了片区里3个乡镇17个村的文化资源以及旅游资源，通过“潞荻集市”把这些资源展示出来。
+道指本周上涨2.1%，实现四周内第三次周度收涨。
 
-一方面，主要考虑让民俗文化活动能进一步得到振兴。
+纳斯达克综合指数上涨0.45%，该指数在过去八周中第七次周度上涨。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 13:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 13:24 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:05 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 13:29 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 13:27 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 13:27 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 13:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:10 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 13:23 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 13:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 13:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:19 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 13:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 13:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 13:10 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 13:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 13:15 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 13:23 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 13:28 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 13:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 13:15 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 13:15 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 13:34 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/64081620.shtml)
-- 2026-06-29 13:20 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/04763.shtml)
-- 2026-06-29 13:07 - [这一刀 会很帅](https://www.share.minike.top/Article/details/2160529066.shtml)
-- 2026-06-29 13:07 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/932405452979.shtml)
-- 2026-06-29 13:18 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/46802.shtml)
-- 2026-06-29 13:29 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/6963095886.shtml)
-- 2026-06-29 13:07 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/97603479612.shtml)
-- 2026-06-29 13:11 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/279292330755.shtml)
-- 2026-06-29 13:11 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/22266305512.shtml)
-- 2026-06-29 13:27 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/001883750.shtml)
-- 2026-06-29 13:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/28161.shtml)
-- 2026-06-29 13:02 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/179069559025.shtml)
-- 2026-06-29 13:08 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/865293277593.shtml)
-- 2026-06-29 13:08 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/6307927264.shtml)
-- 2026-06-29 13:22 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/115428892922.shtml)
+- 2026-06-29 13:13 - [欧洲极端高温东扩](http://www.blog.minike.top/Article/details/61247.shtml)
+- 2026-06-29 13:18 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/04908.shtml)
+- 2026-06-29 13:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/124825.shtml)
+- 2026-06-29 13:25 - [A股](http://www.share.minike.top/Article/details/532431533.shtml)
+- 2026-06-29 13:15 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/620695153081.shtml)
+- 2026-06-29 13:08 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/551874.shtml)
+- 2026-06-29 13:16 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/2838188.shtml)
+- 2026-06-29 13:31 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/40149729285.shtml)
+- 2026-06-29 13:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/796498440.shtml)
+- 2026-06-29 13:06 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/1797751.shtml)
+- 2026-06-29 13:10 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/334352849.shtml)
+- 2026-06-29 13:25 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/05268.shtml)
+- 2026-06-29 13:35 - [沙丘](https://www.blog.kurohicncr.top/Article/details/41897618016.shtml)
+- 2026-06-29 13:22 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/449011.shtml)
+- 2026-06-29 13:09 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/773147.shtml)

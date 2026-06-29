@@ -1,59 +1,57 @@
-# 美官员：美伊协议已电子签署 19日将正式签署
+# 好事达宣布普通股季度派息1.08美元
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿6月15日电(记者黄强 颜亮)美国政府一名高级官员15日表示，美国和伊朗已通过电子方式签署了谅解备忘录，但双方仍将于19日举行正式签署仪式。 该官员在一场记者简报会上说，美国总统特朗普和副总统万斯签署了这份谅解备忘录，伊朗伊斯兰议会议长卡利巴夫代表伊朗方面签署了该文件，预计万斯以及特朗普的特使威特科夫和女婿库什纳将出席19日的仪式。万斯随后将带领美方进入下一阶段谈判
+好事达公司于5月22日宣布，董事会已批准派发每股1.08美元的季度现金股息，与上一季度持平。按年计算，年度股息为4.32美元，按5月22日收盘价计算，远期收益率约为2.0%。 此次普通股股息将于7月1日支付，股权登记日为6月1日，除息日同样为6月1日。这一派息水平自2026年3月从1.00美元上调至1.08美元后已连续第二个季度维持在该水平，增幅为8%。 好事达公司是美国最大的
 
 ## 正文
 
-新华社华盛顿6月15日电(记者黄强 颜亮)美国政府一名高级官员15日表示，美国和伊朗已通过电子方式签署了谅解备忘录，但双方仍将于19日举行正式签署仪式。
+好事达公司于5月22日宣布，董事会已批准派发每股1.08美元的季度现金股息，与上一季度持平。
 
-该官员在一场记者简报会上说，美国总统特朗普和副总统万斯签署了这份谅解备忘录，伊朗伊斯兰议会议长卡利巴夫代表伊朗方面签署了该文件，预计万斯以及特朗普的特使威特科夫和女婿库什纳将出席19日的仪式。
+按年计算，年度股息为4.32美元，按5月22日收盘价计算，远期收益率约为2.0%。
 
-万斯随后将带领美方进入下一阶段谈判。
+此次普通股股息将于7月1日支付，股权登记日为6月1日，除息日同样为6月1日。
 
-该官员说，谅解备忘录将在未来24至48小时内公开发布。
+这一派息水平自2026年3月从1.00美元上调至1.08美元后已连续第二个季度维持在该水平，增幅为8%。
 
-不过，特朗普当天在法国出席七国集团峰会期间表示，谅解备忘录将在正式签署仪式之后公布。
+好事达公司是美国最大的财产保险和意外伤害保险公司之一，总部位于伊利诺伊州诺斯布鲁克。
 
-美官员表示，在美伊技术性谈判期间，美国将维持在中东现有的兵力部署；若最终达成协议，美国则将减少在中东地区的兵力。
+该公司长期致力于通过稳定的股息政策回馈股东，其普通股已连续超过25年保持股息持续增长。
 
-关于霍尔木兹海峡，美官员表示，该海峡的交通将很快恢复正常，“肯定会在30天内恢复，但前提是伊朗承诺清除所有水雷”。
+除普通股外，好事达同日还宣布了多只优先股的季度股息分配方案，包括H系列、I系列、J系列存托优先股，派息金额分别为0.31875美元、0.296875美元和0.4609375美元，支付日为7月15日。
 
-美国“目前掌握所有水雷的位置”，实际上也能协助进行处置工作。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 13:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 13:00 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 13:01 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 13:13 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 13:12 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 13:10 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 13:03 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 13:13 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 13:03 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 13:17 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 13:15 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 13:12 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 13:08 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 13:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 13:25 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 13:10 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 13:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 13:23 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 13:13 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 13:32 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 13:34 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 13:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/41124133.shtml)
-- 2026-06-29 13:17 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/61876100.shtml)
-- 2026-06-29 13:27 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/687711711193.shtml)
-- 2026-06-29 13:29 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/0411889469.shtml)
-- 2026-06-29 13:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/6517354732.shtml)
-- 2026-06-29 13:17 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/186569.shtml)
-- 2026-06-29 13:00 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/212090980.shtml)
-- 2026-06-29 13:25 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/823397.shtml)
-- 2026-06-29 13:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/440944.shtml)
-- 2026-06-29 13:07 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/30107582.shtml)
-- 2026-06-29 13:29 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/333982389.shtml)
-- 2026-06-29 13:16 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/282406741441.shtml)
-- 2026-06-29 13:09 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/3125300982.shtml)
-- 2026-06-29 13:25 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/672374.shtml)
-- 2026-06-29 13:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/00820330.shtml)
+- 2026-06-29 13:31 - [沙特足协主席发布声明主动请辞](https://www.blog.kurohicncr.top/Article/details/47363.shtml)
+- 2026-06-29 13:07 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/858569.shtml)
+- 2026-06-29 13:08 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/608092807945.shtml)
+- 2026-06-29 13:12 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/344938535.shtml)
+- 2026-06-29 13:16 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/62117182.shtml)
+- 2026-06-29 13:35 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/291197200063.shtml)
+- 2026-06-29 13:08 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/377846.shtml)
+- 2026-06-29 13:08 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/815473674.shtml)
+- 2026-06-29 13:29 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/071356358202.shtml)
+- 2026-06-29 13:18 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/8156223028.shtml)
+- 2026-06-29 13:26 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/29962956937.shtml)
+- 2026-06-29 13:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/522840.shtml)
+- 2026-06-29 13:34 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/4510606719.shtml)
+- 2026-06-29 13:20 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/80011140172.shtml)
+- 2026-06-29 13:14 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.minike.top/Article/details/2222483.shtml)

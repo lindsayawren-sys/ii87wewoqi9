@@ -1,51 +1,58 @@
-# 高盛下调布伦特原油价格预测 预计波斯湾原油出口7月末恢复至战前水平
+# 盘前：纳指期货涨0.24% 华尔街唱多声浪持续高涨
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-在美伊达成临时协议以重开霍尔木兹海峡之后，高盛将布伦特原油2026年第四季度的价格预测从每桶90美元下调至80美元。 高盛分析师在6月15日的报告中表示，波斯湾原油出口预计将不晚于7月底恢复至战前水平，比此前预期提前一个月。 高盛将布伦特原油2027年平均价格预测下调5美元，至每桶75美元。责任编辑：于健 SF069
+周五全球股市上涨，美元徘徊在逾六周高位附近，油价小幅走高，美股期货反弹，标普500指数有望创下自2023年以来最长的周线连涨纪录。市场押注美国与伊朗正接近达成和平协议，加之人工智能热潮持续不退，继续推动股市走高。 截至发稿，道指期货涨0.40%，标普500指数期货涨0.25%，纳指期货涨0.24%。 在道指周四收于历史新高之后，科技股带动的涨势推动亚洲和欧洲股市走高。随着中东和
 
 ## 正文
 
-在美伊达成临时协议以重开霍尔木兹海峡之后，高盛将布伦特原油2026年第四季度的价格预测从每桶90美元下调至80美元。
+周五全球股市上涨，美元徘徊在逾六周高位附近，油价小幅走高，美股期货反弹，标普500指数有望创下自2023年以来最长的周线连涨纪录。
 
-高盛分析师在6月15日的报告中表示，波斯湾原油出口预计将不晚于7月底恢复至战前水平，比此前预期提前一个月。
+市场押注美国与伊朗正接近达成和平协议，加之人工智能热潮持续不退，继续推动股市走高。
 
-高盛将布伦特原油2027年平均价格预测下调5美元，至每桶75美元。
+截至发稿，道指期货涨0.40%，标普500指数期货涨0.25%，纳指期货涨0.24%。
 
-责任编辑：于健 SF069
+在道指周四收于历史新高之后，科技股带动的涨势推动亚洲和欧洲股市走高。
+
+随着中东和平协议出现初步希望，全球政府债券收益率普遍回落。
+
+欧洲方面，斯托克600指数连续第五个交易日上涨，涨幅为0.6%。
+
+与半导体相关的股票领涨。
+
+荷兰AEX指数上涨0.8%；以工业股为主的德国DAX指数上涨0.7%；意法半导体上涨3.6%，带动法国CAC 40指数上涨0.6%；伦敦富时100指数上涨0.4%；意大利富时MIB指数上涨0.55%；西班牙IBEX 35指数上涨0.5%。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 13:04 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 13:10 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 13:06 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 13:03 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 13:22 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 13:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 13:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 13:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 13:20 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 13:19 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 13:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 13:06 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 13:14 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 13:14 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 13:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 13:20 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 13:06 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 13:10 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 13:33 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 13:29 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 13:22 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 13:22 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 13:16 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/846855873.shtml)
-- 2026-06-29 13:29 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/85827302724.shtml)
-- 2026-06-29 13:29 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/374216603.shtml)
-- 2026-06-29 13:03 - [我们注定是一撮县城葱姜蒜](https://www.blog.kurohicncr.top/Article/details/25500.shtml)
-- 2026-06-29 13:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/181354108795.shtml)
-- 2026-06-29 13:29 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/02556578307.shtml)
-- 2026-06-29 13:26 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/85058.shtml)
-- 2026-06-29 13:25 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/612888402097.shtml)
-- 2026-06-29 13:14 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/5904542350.shtml)
-- 2026-06-29 13:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/564215.shtml)
-- 2026-06-29 13:16 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/52801688705.shtml)
-- 2026-06-29 13:10 - [双高胎](http://www.share.kurohicncr.top/Article/details/46761.shtml)
-- 2026-06-29 13:18 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/756375.shtml)
-- 2026-06-29 13:19 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/30867698.shtml)
-- 2026-06-29 13:20 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/309560.shtml)
+- 2026-06-29 13:13 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/55412073.shtml)
+- 2026-06-29 13:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/79793520.shtml)
+- 2026-06-29 13:18 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.minike.top/Article/details/436498794562.shtml)
+- 2026-06-29 13:22 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/1520869619.shtml)
+- 2026-06-29 13:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/58758011326.shtml)
+- 2026-06-29 13:19 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/2676913.shtml)
+- 2026-06-29 13:34 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/46237666.shtml)
+- 2026-06-29 13:07 - [初心如磐 红色足迹](http://www.share.kurohicncr.top/Article/details/79134675351.shtml)
+- 2026-06-29 13:32 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/070805205204.shtml)
+- 2026-06-29 13:21 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/60084.shtml)
+- 2026-06-29 13:07 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/0187236260.shtml)
+- 2026-06-29 13:28 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/38665639175.shtml)
+- 2026-06-29 13:09 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/32746082.shtml)
+- 2026-06-29 13:32 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/98814965186.shtml)
+- 2026-06-29 13:21 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/4396274.shtml)

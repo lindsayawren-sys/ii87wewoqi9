@@ -1,58 +1,44 @@
-# 鲍师傅9.9元标价暗藏玄机，消费前“瞄一眼”帮你避开这些坑
+# 1,2-丙二胺商品报价动态（2026-05-24）
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。 这种“大价小字”的标价方式，并非鲍师傅一家独有。从零食连锁店到生鲜超市
+生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 （文章来源：生意社）责任编辑：陈平
 
 ## 正文
 
-近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。
-
-不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。
-
-品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。
-
-这种“大价小字”的标价方式，并非鲍师傅一家独有。
-
-从零食连锁店到生鲜超市，从餐饮门店到线上电商，“价格误导”已经成为消费场景中最常见的套路之一。
-
-消费者在快速决策时，往往只注意到醒目的数字，而忽略了旁边被刻意弱化的计量单位。
-
-除了价格误导，生活中还有哪些常见的消费陷阱？
-
-一是“先涨后降”。
+生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 （文章来源：生意社）责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 13:28 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 13:22 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 13:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 13:02 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 13:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:25 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 13:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 13:13 - [天津打雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 13:01 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 13:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 13:18 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 13:26 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 13:27 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 13:31 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 13:09 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 13:33 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 13:20 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 13:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 13:35 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 13:33 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:18 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:17 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:30 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/588898460618.shtml)
-- 2026-06-29 13:09 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/146320.shtml)
-- 2026-06-29 13:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/1450301.shtml)
-- 2026-06-29 13:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/600839440.shtml)
-- 2026-06-29 13:13 - [多家银行收紧个人贵金属业务](https://www.share.kurohicncr.top/Article/details/1956893.shtml)
-- 2026-06-29 13:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/538846214.shtml)
-- 2026-06-29 13:13 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/21543.shtml)
-- 2026-06-29 13:18 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/410644.shtml)
-- 2026-06-29 13:20 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/63992851438.shtml)
-- 2026-06-29 13:12 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/77659168986.shtml)
-- 2026-06-29 13:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/98336121.shtml)
-- 2026-06-29 13:24 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/5359733960.shtml)
-- 2026-06-29 13:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/4912684.shtml)
-- 2026-06-29 13:00 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/58451219239.shtml)
-- 2026-06-29 13:27 - [王楚钦3比0周启豪](https://www.share.minike.top/Article/details/1907927466.shtml)
+- 2026-06-29 13:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/408203437.shtml)
+- 2026-06-29 13:30 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/13780221.shtml)
+- 2026-06-29 13:28 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/620108139730.shtml)
+- 2026-06-29 13:20 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/746909.shtml)
+- 2026-06-29 13:34 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/031200324293.shtml)
+- 2026-06-29 13:28 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/190962622.shtml)
+- 2026-06-29 13:32 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/008183382.shtml)
+- 2026-06-29 13:15 - [BW2026游览指南](https://www.blog.minike.top/Article/details/59476022.shtml)
+- 2026-06-29 13:25 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/6000622.shtml)
+- 2026-06-29 13:23 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/273908041722.shtml)
+- 2026-06-29 13:13 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/66201485117.shtml)
+- 2026-06-29 13:14 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/0003448.shtml)
+- 2026-06-29 13:12 - [马杜罗社交媒体账号再发文](https://www.blog.kurohicncr.top/Article/details/3288463390.shtml)
+- 2026-06-29 13:32 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/8069716806.shtml)
+- 2026-06-29 13:22 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/190614911.shtml)

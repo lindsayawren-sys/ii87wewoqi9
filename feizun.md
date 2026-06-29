@@ -1,57 +1,57 @@
-# 黄金三连涨，最坏时刻已过去？
+# 港股大模型概念股日报（2026-05-22）
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金三天连涨，重返4300美元上方，正站在关键转折点上。 6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出“是时候增加黄金敞口”，后者则将3个月金价目标价从4000美元/盎司上调至4500美元/盎司。两家机构的共同判断：此轮调整更像是一次价格重
+一、行业观察 Wind数据显示，2026年5月22日，港股震荡反弹，恒生指数收涨0.86%报25606.03点，恒生科技指数大涨2.11%报4869.57点，恒生国企指数涨0.89%报8550.87点。全日成交额2812.98亿港元，较前日缩减；南向资金净卖出64.94亿港元。 AI产业链成领涨主线。智谱涨近27%，MINIMAX涨超15%；联想集团暴涨19.8%，2025/2
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+一、行业观察 Wind数据显示，2026年5月22日，港股震荡反弹，恒生指数收涨0.86%报25606.03点，恒生科技指数大涨2.11%报4869.57点，恒生国企指数涨0.89%报8550.87点。
 
-在经历长达2.5个月、幅度高达20%至25%的深度回调后，黄金三天连涨，重返4300美元上方，正站在关键转折点上。
+全日成交额2812.98亿港元，较前日缩减；南向资金净卖出64.94亿港元。
 
-6月15日，巴克莱与花旗两大机构同日发声，前者明确喊出“是时候增加黄金敞口”，后者则将3个月金价目标价从4000美元/盎司上调至4500美元/盎司。
+AI产业链成领涨主线。
 
-两家机构的共同判断：此轮调整更像是一次价格重置，而非牛市终结。
+智谱涨近27%，MINIMAX涨超15%；联想集团暴涨19.8%，2025/26财年营收831亿美元创历史新高，CEO杨元庆放言两年内冲刺千亿美元营收；五一视界飙升28.9%，智驾物理AI迎催化，51World Model已覆盖多重AI应用场景；佑驾创新大涨23.8%，获200台无人物流车订单并再获头部自主品牌定点。
 
-触发这一轮乐观预判的核心催化剂，是美伊两国宣布将于本周五正式签署谅解备忘录（MoU）。
+算力基建方面，建滔积层板涨15.1%，PCB及覆铜板价格持续上行；中芯国际涨7.6%。
 
-据花旗研究，这一事件有望推动霍尔木兹海峡贸易流于7月中下旬基本恢复正常，油市将重新聚焦疲软的供需基本面——花旗将2026年三季度至2027年布伦特原油预测分别下调至75美元、70美元和65美元/桶（此前预测为110美元、90美元和80美元/桶）。
+网易-S涨5.7%，一季度净收入306亿元。
 
-花旗认为，地缘政治紧张缓解后，通胀压力将趋于减轻，此前拖累金价的关键宏观逆风或将逐步消退。
+二、大模型概念股盘面表现数据来源：港交所，不构成投资建议，截至2026年5月22日收盘三、大模型行业与企业动态1、国际巨头方面，有报道称，OpenAI正与高盛、摩根士丹利合作准备IPO招股书草案，最快本周秘密递交SEC，目标最早于2026年9月具备上市条件。
 
-花旗同时维持6至12个月5000美元/盎司的看涨预测，但提示金价仍面临较大波动风险。
+5月22日，还有消息称，OpenAI在第一季度创造了约57亿美元的收入，这比Anthropic同期收入高出近10亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:28 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:04 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 13:15 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 13:20 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 13:03 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 13:13 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:22 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 13:19 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 13:06 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 13:10 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 13:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 13:12 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 13:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:21 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:27 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 13:14 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 13:12 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 13:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 13:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 13:14 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 13:32 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [复盘葡萄牙逼平哥伦比亚](https://www.share.kurohicncr.top/Article/details/2676339.shtml)
-- 2026-06-29 13:19 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/7833169777.shtml)
-- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/932196492164.shtml)
-- 2026-06-29 13:22 - [金刚川](https://www.blog.minike.top/Article/details/39059.shtml)
-- 2026-06-29 13:01 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/117916576.shtml)
-- 2026-06-29 13:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/724039612974.shtml)
-- 2026-06-29 13:02 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/8146115893.shtml)
-- 2026-06-29 13:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/4516281.shtml)
-- 2026-06-29 13:02 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/89747914.shtml)
-- 2026-06-29 13:27 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/41711255.shtml)
-- 2026-06-29 13:19 - [网友偶遇胡军和李乃文](http://www.blog.kurohicncr.top/Article/details/217355382.shtml)
-- 2026-06-29 13:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/783928372.shtml)
-- 2026-06-29 13:04 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/299642717454.shtml)
-- 2026-06-29 13:18 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/50280976.shtml)
-- 2026-06-29 13:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/740669.shtml)
+- 2026-06-29 13:28 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/6018216.shtml)
+- 2026-06-29 13:29 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/98740500202.shtml)
+- 2026-06-29 13:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/03672330106.shtml)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/73498239.shtml)
+- 2026-06-29 13:24 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/00595462.shtml)
+- 2026-06-29 13:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7317573.shtml)
+- 2026-06-29 13:16 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/558558.shtml)
+- 2026-06-29 13:07 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/41583.shtml)
+- 2026-06-29 13:27 - [沙丘](http://www.share.minike.top/Article/details/97276.shtml)
+- 2026-06-29 13:35 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/223984997299.shtml)
+- 2026-06-29 13:21 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/33548159.shtml)
+- 2026-06-29 13:33 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/011062.shtml)
+- 2026-06-29 13:22 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/54063148990.shtml)
+- 2026-06-29 13:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/213870781.shtml)
+- 2026-06-29 13:20 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/98571996.shtml)

@@ -1,58 +1,45 @@
-# 北京高考评卷预计6月24日结束 专家组：数学成绩分布较为合理
+# 学习·故事丨总书记牵挂的边陲小镇蝶变
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 徐婧 陈杭)北京市2026年高考评卷工作正在进行。记者从北京教育考试院获悉，当前1714名评卷员在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学等6个评卷点进行评阅。预计6月24日评卷工作全部结束。 北京教育考试院副院长周玉玲介绍，今年的评卷工作遵循“公平、安全、科学、规范、准确”的原则，确保评卷成绩“万无一失”
+发布时间：2026年05月24日 15:11 来源：人民网-中国共产党新闻网 责任编辑：【姜媛媛】
 
 ## 正文
 
-中新网北京6月17日电 (记者 徐婧 陈杭)北京市2026年高考评卷工作正在进行。
-
-记者从北京教育考试院获悉，当前1714名评卷员在北京大学、清华大学、北京师范大学、首都师范大学、北京第二外国语学院、北京工业大学等6个评卷点进行评阅。
-
-预计6月24日评卷工作全部结束。
-
-北京教育考试院副院长周玉玲介绍，今年的评卷工作遵循“公平、安全、科学、规范、准确”的原则，确保评卷成绩“万无一失”。
-
-评卷工作领导组制定高考评卷教师遴选工作文件，细化选聘标准和任职资格，选派思想政治素质高、学科业务能力扎实、安全保密意识强，且评卷经验丰富的高校教师、区教研员和中学教师参加评卷工作。
-
-与此同时，评卷场所实行封闭管理，设置智能安检门、金属探测器、信号屏蔽仪等设备，所有人员凭有效证件入场，进出阅卷场地均需接受安检。
-
-公安人员在评卷场所全程值守，昼夜值班。
-
-评卷场所的系统设备、网络环境全部与外网物理隔离。
+发布时间：2026年05月24日 15:11 来源：人民网-中国共产党新闻网 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:28 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 13:14 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 13:01 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:17 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 13:07 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 13:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 13:15 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 13:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 13:20 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 13:26 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:02 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 13:35 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 13:13 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 13:13 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 13:26 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 13:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:23 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 13:22 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 13:28 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 13:12 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 13:12 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 13:33 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 13:19 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [扫黑风暴](http://www.blog.minike.top/Article/details/6708178160.shtml)
-- 2026-06-29 13:09 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/2844240.shtml)
-- 2026-06-29 13:29 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/49120850.shtml)
-- 2026-06-29 13:05 - [多家银行收紧个人贵金属业务](https://www.blog.kurohicncr.top/Article/details/2823945497.shtml)
-- 2026-06-29 13:09 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/419769313.shtml)
-- 2026-06-29 13:05 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/315754479099.shtml)
-- 2026-06-29 13:01 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.minike.top/Article/details/176327.shtml)
-- 2026-06-29 13:22 - [岭南电影为何迎来“南方热”](http://www.share.minike.top/Article/details/18684077.shtml)
-- 2026-06-29 13:22 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.minike.top/Article/details/274795.shtml)
-- 2026-06-29 13:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/11821869265.shtml)
-- 2026-06-29 13:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/24838483980.shtml)
-- 2026-06-29 13:13 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0278456545.shtml)
-- 2026-06-29 13:11 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/96333267.shtml)
-- 2026-06-29 13:07 - [A股限售股解禁一览](https://www.share.kurohicncr.top/Article/details/3029920.shtml)
-- 2026-06-29 13:18 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/380810005.shtml)
+- 2026-06-29 13:31 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/03801226.shtml)
+- 2026-06-29 13:29 - [医护人员观影《四渡》传承长征精神](http://www.share.kurohicncr.top/Article/details/372854979.shtml)
+- 2026-06-29 13:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/39636399459.shtml)
+- 2026-06-29 13:11 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/467964.shtml)
+- 2026-06-29 13:24 - [金刚川](https://www.blog.kurohicncr.top/Article/details/02488181.shtml)
+- 2026-06-29 13:07 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/6613922.shtml)
+- 2026-06-29 13:09 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/485810891181.shtml)
+- 2026-06-29 13:34 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/409336723097.shtml)
+- 2026-06-29 13:16 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/63977120.shtml)
+- 2026-06-29 13:09 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/07095468951.shtml)
+- 2026-06-29 13:30 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/868796.shtml)
+- 2026-06-29 13:19 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/54778194287.shtml)
+- 2026-06-29 13:08 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/530605453739.shtml)
+- 2026-06-29 13:06 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/803848.shtml)
+- 2026-06-29 13:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/048878710306.shtml)

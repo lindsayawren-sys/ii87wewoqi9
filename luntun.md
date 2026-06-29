@@ -1,61 +1,42 @@
-# 昨天尾盘涨停，今天跌超10%
+# 留神峪煤矿事故企业负责人被控制
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！01 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块走强，锂电龙头亿纬锂能（维权）大涨13.80%，带动多只电池主题ETF涨超4%。 02 昨日尾盘被资金拉升涨停的创业板ETF富国，今日开市后停牌一小时，复牌后估值迅速回落，收盘跌超10%，溢价率由昨日的14.18%大幅回落至0.13%。 03 在昨日
+记者从山西通洲集团留神峪煤矿瓦斯爆炸事故救援指挥部了解到，涉事企业负责人已被依法采取控制措施。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-01 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块走强，锂电龙头亿纬锂能（维权）大涨13.80%，带动多只电池主题ETF涨超4%。
-
-02 昨日尾盘被资金拉升涨停的创业板ETF富国，今日开市后停牌一小时，复牌后估值迅速回落，收盘跌超10%，溢价率由昨日的14.18%大幅回落至0.13%。
-
-03 在昨日科技、有色等板块大涨的情况下，有色金属ETF南方、工业有色ETF万家合计净流入超20亿元；宽基ETF资金流向出现分歧，中证500ETF南方净流入超20亿元，四大沪深300ETF合计净流出超90亿元。
-
-锂电龙头股强势拉升 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块表现活跃。
-
-G60创新ETF申万菱信大涨5.7%，标的指数权重股中，光纤龙头亨通光电、玻纤龙头中国巨石双双涨超8%。
-
-此外，电池产业链今日走强，多只电池主题ETF涨超4%；另有多只稀土、电网设备、通信等主题ETF涨超3%。
-
-消息面上，锂电龙头亿纬锂能6月15日晚间发布2026年半年度业绩预告显示，预计2026年上半年公司归母净利润为31.30亿元—33.71亿元，同比增长95%—110%。
+记者从山西通洲集团留神峪煤矿瓦斯爆炸事故救援指挥部了解到，涉事企业负责人已被依法采取控制措施。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:19 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 13:06 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 13:19 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 13:26 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 13:03 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:16 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 13:22 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:03 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 13:11 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:03 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 13:19 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 13:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 13:01 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 13:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:19 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 13:20 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 13:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 13:15 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 13:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 13:18 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:16 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 13:27 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:23 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/064660.shtml)
-- 2026-06-29 13:23 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/7025944.shtml)
-- 2026-06-29 13:19 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/559148370312.shtml)
-- 2026-06-29 13:19 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/6884109.shtml)
-- 2026-06-29 13:17 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/698722378213.shtml)
-- 2026-06-29 13:19 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/78079.shtml)
-- 2026-06-29 13:07 - [林诗栋晋级WTT美国大满贯男单32强](https://www.blog.minike.top/Article/details/03119.shtml)
-- 2026-06-29 13:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/461014317.shtml)
-- 2026-06-29 13:20 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/6630739.shtml)
-- 2026-06-29 13:03 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/24693893641.shtml)
-- 2026-06-29 13:14 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/410058.shtml)
-- 2026-06-29 13:26 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/216938625023.shtml)
-- 2026-06-29 13:18 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/86218926599.shtml)
-- 2026-06-29 13:15 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/027589.shtml)
-- 2026-06-29 13:23 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/423841989.shtml)
+- 2026-06-29 13:20 - [刘仲华院士愿当贺永辉导师](http://www.share.kurohicncr.top/Article/details/009256671794.shtml)
+- 2026-06-29 13:17 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/56506.shtml)
+- 2026-06-29 13:32 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/46914254655.shtml)
+- 2026-06-29 13:10 - [宜宾地震致13人受轻微伤](http://www.blog.minike.top/Article/details/342010348.shtml)
+- 2026-06-29 13:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/329723.shtml)
+- 2026-06-29 13:11 - [NBA交易](https://www.share.minike.top/Article/details/567299244.shtml)
+- 2026-06-29 13:09 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/88084.shtml)
+- 2026-06-29 13:33 - [房屋抵押权与租赁权如何协调](http://www.blog.kurohicncr.top/Article/details/33807991098.shtml)
+- 2026-06-29 13:08 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/675028503.shtml)
+- 2026-06-29 13:18 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/341637886.shtml)
+- 2026-06-29 13:18 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/40226804.shtml)
+- 2026-06-29 13:35 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/1930114.shtml)
+- 2026-06-29 13:29 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/794675165948.shtml)
+- 2026-06-29 13:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/51331936.shtml)
+- 2026-06-29 13:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/602410144009.shtml)

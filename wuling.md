@@ -1,58 +1,61 @@
-# 2026国际会展业CEO上海大会在沪举办
+# 中国证监会有关部门负责人就《综合整治非法跨境证券期货基金经营活动实施方案》答记者问
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网上海6月16日电 (记者 姜煜)2026国际会展业CEO上海大会16日在国家会展中心(上海)举办。 上海市人民政府副秘书长朱民在大会上表示，会展业是现代服务业的明珠，更是城市经济发展的晴雨表。今年是“十五五”的开局之年，也是上海全面深化国际会展之都建设、全力提升城市会展能级的关键一年，面对数字化、绿色化、智能化的行业趋势，上海将始终坚持开放合作、创新引领、提质增效，全力推
+近日，经国务院同意，中国证监会、工业和信息化部、公安部、中国人民银行、市场监管总局、金融监管总局、国家网信办、国家外汇局等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》(以下简称《整治方案》)。中国证监会有关部门负责人就《整治方案》回答了记者提问。一、《整治方案》出台的背景是什么？ 境外证券期货基金经营机构(以下简称境外机构)未经批准，利用境内关联或合作主体在境
 
 ## 正文
 
-中新网上海6月16日电 (记者 姜煜)2026国际会展业CEO上海大会16日在国家会展中心(上海)举办。
+近日，经国务院同意，中国证监会、工业和信息化部、公安部、中国人民银行、市场监管总局、金融监管总局、国家网信办、国家外汇局等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》(以下简称《整治方案》)。
 
-上海市人民政府副秘书长朱民在大会上表示，会展业是现代服务业的明珠，更是城市经济发展的晴雨表。
+中国证监会有关部门负责人就《整治方案》回答了记者提问。
 
-今年是“十五五”的开局之年，也是上海全面深化国际会展之都建设、全力提升城市会展能级的关键一年，面对数字化、绿色化、智能化的行业趋势，上海将始终坚持开放合作、创新引领、提质增效，全力推动会展业从“规模”走向“价值”。
+一、《整治方案》出台的背景是什么？
 
-国际展览业协会(UFI)执行总经理兼首席执行官柯世祺(Chris Skeith)表示，中国拥有全球展览场馆承载力的30.9%，并占亚太地区总承载力的81.0%，中国已在全球展览市场占据主导地位。
+境外证券期货基金经营机构(以下简称境外机构)未经批准，利用境内关联或合作主体在境内招揽客户，并通过网站、应用程序(APP)向境内投资者提供境外股票等开户、交易服务，严重扰乱我国金融市场秩序，危害投资者合法权益。
 
-柯世祺说，截至2024年底，全球室内展览面积总量达到4430万平方米，亚太地区以1690万平方米居首，欧洲展览面积1610万平方米，位列第二。
+2022年12月30日，中国证监会依法开展对境外机构非法跨境经营的整治工作，禁止境外机构违法招揽境内投资者及为其开立新账户。
 
-场馆数量方面，欧洲最多，达520个，其次是亚太地区(449个)和北美地区(372个)。
+对整治中出现的个别境外机构规避整治要求、变相非法展业问题，中国证监会及时采取措施，遏制了相关风险蔓延势头。
 
-中国国际进口博览局副局长、国家会展中心(上海)董事长吴政平表示，根据有关机构统计，2025年中国经贸类展会的展览总面积接近1.6亿平方米，再创历史新高，中国的展会数量、展会总面积以及场馆的规模都稳居全球第一方阵。
+为建立健全防范和打击非法跨境证券期货基金经营活动长效机制，强化源头治理、标本兼治，切实维护金融市场秩序和投资者合法权益，中国证监会等八部门在总结前期整治工作经验的基础上制定了《整治方案》。
 
-依托超大规模市场的优势、完善的基础设施和持续深化的对外开放，中国将为全球会展业带来全新的发展机遇。
+与前期整治工作相比，本次整治更加突出全链条治理，取缔要求覆盖营销招揽、开户、处理交易指令、资金划转等各业务环节，严禁境外机构以任何形式在境内非法提供开户和交易服务，并设置2年集中整治期清理非法存量业务，坚决将此类非法跨境经营活动逐出境内市场。
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 13:29 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 13:00 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 13:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 13:07 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 13:06 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 13:25 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 13:12 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 13:01 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 13:10 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:20 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 13:19 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 13:23 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:28 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 13:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 13:08 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 13:15 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 13:28 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 13:15 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 13:08 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 13:26 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 13:07 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 13:10 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 13:32 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 13:31 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 13:25 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 13:26 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/211039138.shtml)
-- 2026-06-29 13:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/3560916.shtml)
-- 2026-06-29 13:03 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/60739.shtml)
-- 2026-06-29 13:25 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/70731.shtml)
-- 2026-06-29 13:22 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/207669532.shtml)
-- 2026-06-29 13:19 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/180943.shtml)
-- 2026-06-29 13:22 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/6036618.shtml)
-- 2026-06-29 13:18 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/584535102923.shtml)
-- 2026-06-29 13:08 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/18876.shtml)
-- 2026-06-29 13:08 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/4934206514.shtml)
-- 2026-06-29 13:19 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/7472797.shtml)
-- 2026-06-29 13:26 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/13906312.shtml)
-- 2026-06-29 13:28 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/6963941.shtml)
-- 2026-06-29 13:07 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/10176867.shtml)
-- 2026-06-29 13:06 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/80420.shtml)
+- 2026-06-29 13:27 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/93477252917.shtml)
+- 2026-06-29 13:11 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/931380494.shtml)
+- 2026-06-29 13:33 - [AG 钟意](https://www.blog.minike.top/Article/details/4826270739.shtml)
+- 2026-06-29 13:32 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/8008723054.shtml)
+- 2026-06-29 13:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/0951976.shtml)
+- 2026-06-29 13:20 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/686645429.shtml)
+- 2026-06-29 13:18 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/077250.shtml)
+- 2026-06-29 13:20 - [韩媒称韩国队遭中国网民嘲讽](https://www.blog.minike.top/Article/details/8582862.shtml)
+- 2026-06-29 13:19 - [双高胎](http://www.share.minike.top/Article/details/0967860.shtml)
+- 2026-06-29 13:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/485302701.shtml)
+- 2026-06-29 13:29 - [陈露发声引舆论反转](http://www.blog.kurohicncr.top/Article/details/604272901.shtml)
+- 2026-06-29 13:22 - [世界杯超牛补水广告出现了](http://www.blog.kurohicncr.top/Article/details/5148875.shtml)
+- 2026-06-29 13:17 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/8978057172.shtml)
+- 2026-06-29 13:19 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/2922441221.shtml)
+- 2026-06-29 13:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/945760.shtml)

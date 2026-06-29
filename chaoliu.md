@@ -1,61 +1,56 @@
-# 上市首日暴涨193% 溜溜梅惊险“上岸”：4冲IPO，对赌大限仅剩15天
+# 众安宠物险广告现女性私密部位，网友质疑低俗营销
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-“你没事吧？你没事吧？” 这一魔性广告词背后的溜溜梅，上市了。 6月15日，溜溜梅股份有限公司（以下简称“溜溜梅”，06658.HK）在港交所上市。 上市首日，溜溜梅股价暴涨193.71%，报收128港元。 值得注意的是，自2019年起，身负对赌协议的溜溜梅先后4次冲击IPO。在对赌协议之下，溜溜梅已花费1.35亿元回购，交出1.26亿元利息。 这约等于其两年的净利润：2023
+原标题：宠物险广告现女性私密部位，网友质疑低俗营销 来源：新黄河 记者：吕高凡 孙瑜 近日，一则投放于朋友圈的宠物保险广告引发网络热议。多名网友反映，该广告配图涉嫌将女性隐私部位P图至宠物犬身上，内容低俗，引发公众强烈不满。目前，该广告已下线。 根据社交平台发布的相关截图显示，该宠物险广告文案为：“妈妈给我买个宠物险吧，每月一瓶矿泉水，生病就多了一份保障”。文案配图的画面中，一
 
 ## 正文
 
-“你没事吧？
+原标题：宠物险广告现女性私密部位，网友质疑低俗营销 来源：新黄河 记者：吕高凡 孙瑜 近日，一则投放于朋友圈的宠物保险广告引发网络热议。
 
-你没事吧？
+多名网友反映，该广告配图涉嫌将女性隐私部位P图至宠物犬身上，内容低俗，引发公众强烈不满。
 
-” 这一魔性广告词背后的溜溜梅，上市了。
+目前，该广告已下线。
 
-6月15日，溜溜梅股份有限公司（以下简称“溜溜梅”，06658.HK）在港交所上市。
+根据社交平台发布的相关截图显示，该宠物险广告文案为：“妈妈给我买个宠物险吧，每月一瓶矿泉水，生病就多了一份保障”。
 
-上市首日，溜溜梅股价暴涨193.71%，报收128港元。
+文案配图的画面中，一只小狗呈四脚朝天姿态，但腹部区域疑似经过图像处理，拼接了女性私密部位。
 
-值得注意的是，自2019年起，身负对赌协议的溜溜梅先后4次冲击IPO。
+事件曝光后，迅速在网络引发讨论。
 
-在对赌协议之下，溜溜梅已花费1.35亿元回购，交出1.26亿元利息。
+大量网友认为该广告“低俗出格”“严重冒犯女性”，认为此类营销方式不仅违背公序良俗，也涉嫌触碰广告法底线。
 
-这约等于其两年的净利润：2023年至2025年，溜溜梅分别实现营收13.22亿元、16.16亿元、17.11亿元；实现净利润9923万元、1.48亿元及1.82亿元。
+相关话题持续升温，不少用户呼吁相关部门介入调查。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 13:11 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:13 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 13:08 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 13:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 13:03 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 13:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 13:05 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 13:18 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 13:29 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 13:18 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 13:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 13:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 13:13 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 13:07 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 13:10 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 13:11 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 13:24 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 13:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 13:12 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 13:12 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 13:17 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 13:08 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 13:18 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/99158455390.shtml)
-- 2026-06-29 13:28 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/364733.shtml)
-- 2026-06-29 13:19 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/45140372368.shtml)
-- 2026-06-29 13:10 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/038130295918.shtml)
-- 2026-06-29 13:27 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/365920323453.shtml)
-- 2026-06-29 13:03 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/517089348.shtml)
-- 2026-06-29 13:07 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/288588.shtml)
-- 2026-06-29 13:27 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/74473880221.shtml)
-- 2026-06-29 13:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3154431810.shtml)
-- 2026-06-29 13:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/28875.shtml)
-- 2026-06-29 13:27 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/130802190729.shtml)
-- 2026-06-29 13:09 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/44593.shtml)
-- 2026-06-29 13:05 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/846603430.shtml)
-- 2026-06-29 13:09 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/069427.shtml)
-- 2026-06-29 13:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/91103561407.shtml)
+- 2026-06-29 13:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/1970566516.shtml)
+- 2026-06-29 13:25 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/028273334.shtml)
+- 2026-06-29 13:19 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/06198.shtml)
+- 2026-06-29 13:23 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/498994716.shtml)
+- 2026-06-29 13:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/56667191.shtml)
+- 2026-06-29 13:15 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/90265208.shtml)
+- 2026-06-29 13:33 - [韩国拟将部分刑责年龄降至13岁](https://www.share.minike.top/Article/details/33631665.shtml)
+- 2026-06-29 13:22 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/529660784.shtml)
+- 2026-06-29 13:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/840300.shtml)
+- 2026-06-29 13:21 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/5531736.shtml)
+- 2026-06-29 13:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/70738909.shtml)
+- 2026-06-29 13:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/729279.shtml)
+- 2026-06-29 13:14 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/22938.shtml)
+- 2026-06-29 13:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/78537981288.shtml)
+- 2026-06-29 13:19 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/96785.shtml)

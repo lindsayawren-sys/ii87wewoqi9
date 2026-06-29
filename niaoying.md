@@ -1,58 +1,56 @@
-# 今年来发生20起较大火灾事故 国家消防救援局提醒：几个方面值得高度关注
+# 广西乡村工匠开展制茶竞技 以技论道传承千年茶工艺
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电(记者 邵萌)6月17日，国家消防救援局举行例行新闻发布会，记者从会上获悉，今年以来，全国消防安全形势总体平稳。截至6月14日，全国共接报火灾45.2万起，死亡886人，与去年同期相比，火灾起数和亡人数分别下降17.8%、14.8%。发生较大火灾事故20起，同比下降41.2%，未发生重大和特别重大事故。全国消防救援队伍共出动人员1199.6万人次、消防车辆
+中新网梧州5月23日电 (刘海文)展厅茶香四溢，数十台电炒锅、揉捻台整齐排布，身着工作服的工匠们围在操作台前，专注制茶……5月21日至22日，广西乡村工匠制茶技艺竞赛暨茶产业展示活动在梧州市苍梧县举行。 本次参赛乡村工匠共计76人，竞赛设置六堡茶、红茶、绿茶三大组别，来自广西各地的制茶能手们在此同台竞技。活动现场邀请了20名乡村工匠携带展品进行展示交流，搭建起技艺互通、产品互鉴
 
 ## 正文
 
-中新网北京6月17日电(记者 邵萌)6月17日，国家消防救援局举行例行新闻发布会，记者从会上获悉，今年以来，全国消防安全形势总体平稳。
+中新网梧州5月23日电 (刘海文)展厅茶香四溢，数十台电炒锅、揉捻台整齐排布，身着工作服的工匠们围在操作台前，专注制茶……5月21日至22日，广西乡村工匠制茶技艺竞赛暨茶产业展示活动在梧州市苍梧县举行。
 
-截至6月14日，全国共接报火灾45.2万起，死亡886人，与去年同期相比，火灾起数和亡人数分别下降17.8%、14.8%。
+本次参赛乡村工匠共计76人，竞赛设置六堡茶、红茶、绿茶三大组别，来自广西各地的制茶能手们在此同台竞技。
 
-发生较大火灾事故20起，同比下降41.2%，未发生重大和特别重大事故。
+活动现场邀请了20名乡村工匠携带展品进行展示交流，搭建起技艺互通、产品互鉴、产业互联的优质平台。
 
-全国消防救援队伍共出动人员1199.6万人次、消防车辆219.3万辆次，营救被困人员8.8万人。
+活动全程秉持“尊重工艺差异、聚焦核心技艺”的原则，充分展示六堡茶、红茶、绿茶三种茶在制作时间、工序步骤上的不同，凸显各类茶的技艺特点。
 
-国家消防救援局新闻发言人、消防监督司副司长王天瑞介绍，对于较大以上火灾事故，国家消防救援局第一时间派出专家现场指导，查清起火原因、蔓延扩大原因和人员伤亡原因，组织专家审核调查报告，确保调查处理精准到位。
+“竞赛中选手完成杀青、揉捻、初步堆焖后，会进入复炒、反复堆焖环节，时间跨度从几小时到十几个小时不等，下半夜至次日才能完成全流程。
 
-王天瑞介绍，通过梳理分析今年较大事故的调查处理情况，有几个方面值得高度关注。
+”广西乡村工匠制茶技艺竞赛裁判长、广西职业技术学院正高级教授古能平受访时介绍。
 
-居民住宅火灾易发高发。
+本次竞赛总成绩由技能评比与综合评价构成。
 
-今年以来发生的20起较大火灾事故中，居民住宅占了14起，占比高达70%。
+技能评比涵盖现场操作规范、成品茶质量检测、茶叶感官审评三大维度，感官审评严格对标国家标准，从外形、汤色、香气、滋味、叶底五项指标综合评定。
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 13:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 13:25 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 13:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 13:16 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 13:11 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 13:12 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 13:00 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 13:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 13:09 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 13:32 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 13:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 13:28 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 13:33 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 13:10 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 13:35 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 13:13 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 13:15 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 13:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/52117985447.shtml)
-- 2026-06-29 13:29 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/0132830.shtml)
-- 2026-06-29 13:09 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/7087354494.shtml)
-- 2026-06-29 13:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/278115.shtml)
-- 2026-06-29 13:19 - [DeepSeek联合北京大学发布论文](https://www.blog.kurohicncr.top/Article/details/0547826459.shtml)
-- 2026-06-29 13:11 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/01194647.shtml)
-- 2026-06-29 13:18 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/39656667921.shtml)
-- 2026-06-29 13:14 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/34484676.shtml)
-- 2026-06-29 13:03 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/689360354525.shtml)
-- 2026-06-29 13:07 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/883693210380.shtml)
-- 2026-06-29 13:26 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/88737102.shtml)
-- 2026-06-29 13:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/31383800200.shtml)
-- 2026-06-29 13:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/21391977.shtml)
-- 2026-06-29 13:00 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/6616958384.shtml)
-- 2026-06-29 13:11 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/276188965.shtml)
+- 2026-06-29 13:26 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/36660052.shtml)
+- 2026-06-29 13:18 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/900237450.shtml)
+- 2026-06-29 13:24 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/569563623613.shtml)
+- 2026-06-29 13:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/6610740518.shtml)
+- 2026-06-29 13:24 - [明星大侦探第四季](https://www.share.minike.top/Article/details/245350919599.shtml)
+- 2026-06-29 13:31 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/181332211.shtml)
+- 2026-06-29 13:09 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/28648384.shtml)
+- 2026-06-29 13:12 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/171203.shtml)
+- 2026-06-29 13:25 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/1961203.shtml)
+- 2026-06-29 13:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/286856045859.shtml)
+- 2026-06-29 13:28 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/95442978665.shtml)
+- 2026-06-29 13:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/074513791417.shtml)
+- 2026-06-29 13:35 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/61171.shtml)
+- 2026-06-29 13:29 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/968726.shtml)
+- 2026-06-29 13:25 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.share.minike.top/Article/details/7114048062.shtml)

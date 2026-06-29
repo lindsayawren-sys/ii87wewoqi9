@@ -1,44 +1,57 @@
-# 2026年春招举办2.3万场招聘会
+# 香港首位航天员即将执飞，博导眼里的黎家盈：很有责任心、工作细心谨慎、关心同事
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:20 来源：央视综合 责任编辑：【王祎】
+5月23日，中国载人航天工程办公室公布，神舟二十三号载人飞行任务的航天员乘组中，有一名来自中国香港的女性航天员黎家盈。她将以载荷专家的身份，参与本次任务。黎家盈博士时期的导师、香港大学工程学院计算与数据科学学院名誉副教授邹锦沛在接受中新网记者采访时表示，黎家盈在生活中与工作中均很有责任心、工作细心谨慎、关心同事，给他留下了深刻的印象。 视频：黎家盈博士时期导师回忆：她工作谨慎、
 
 ## 正文
 
-发布时间：2026年06月16日 09:20 来源：央视综合 责任编辑：【王祎】
+5月23日，中国载人航天工程办公室公布，神舟二十三号载人飞行任务的航天员乘组中，有一名来自中国香港的女性航天员黎家盈。
+
+她将以载荷专家的身份，参与本次任务。
+
+黎家盈博士时期的导师、香港大学工程学院计算与数据科学学院名誉副教授邹锦沛在接受中新网记者采访时表示，黎家盈在生活中与工作中均很有责任心、工作细心谨慎、关心同事，给他留下了深刻的印象。
+
+视频：黎家盈博士时期导师回忆：她工作谨慎、关心同事，面对大量数据她会耐心分析来源：中国新闻网 邹锦沛介绍，黎家盈的本科、硕士及博士学位均在香港大学取得。
+
+硕士阶段，她主要从事密码学相关研究。
+
+博士阶段，她选择转向更具实用性的研究，加入邹锦沛组建的计算机法证研究团队。
+
+谈及带领黎家盈进行研究的日子，邹锦沛笑称，黎家盈是全日制学生，经常与他一同参与各种各样的国际会议。
+
+在每次出发之前，黎家盈经常会帮团队成员做好各项准备。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 13:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 13:23 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 13:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 13:20 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 13:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 13:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 13:08 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 13:18 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 13:10 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 13:09 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:32 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 13:17 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 13:23 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 13:34 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 13:20 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 13:15 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 13:23 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 13:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 13:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 13:27 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 13:29 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:25 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/20889.shtml)
-- 2026-06-29 13:26 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/886904902932.shtml)
-- 2026-06-29 13:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/18534792.shtml)
-- 2026-06-29 13:25 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/714210.shtml)
-- 2026-06-29 13:28 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/159221750642.shtml)
-- 2026-06-29 13:00 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/974759829695.shtml)
-- 2026-06-29 13:12 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/48294.shtml)
-- 2026-06-29 13:11 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/480223.shtml)
-- 2026-06-29 13:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/991337531.shtml)
-- 2026-06-29 13:06 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/66578.shtml)
-- 2026-06-29 13:22 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/448352.shtml)
-- 2026-06-29 13:05 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/2721999.shtml)
-- 2026-06-29 13:12 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/923755.shtml)
-- 2026-06-29 13:18 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/85063058916.shtml)
-- 2026-06-29 13:12 - [爱很美味](http://www.share.minike.top/Article/details/3556694.shtml)
+- 2026-06-29 13:22 - [《贺子珍》](https://www.blog.minike.top/Article/details/36049660282.shtml)
+- 2026-06-29 13:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/96899951548.shtml)
+- 2026-06-29 13:15 - [白鹿呵呵挽手比心](http://www.share.minike.top/Article/details/41735.shtml)
+- 2026-06-29 13:28 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/90334659.shtml)
+- 2026-06-29 13:10 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/8784510.shtml)
+- 2026-06-29 13:29 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/273154.shtml)
+- 2026-06-29 13:25 - [大罗力挺内马尔](https://www.blog.minike.top/Article/details/0262450.shtml)
+- 2026-06-29 13:22 - [马杜罗社交媒体账号再发文](https://www.blog.kurohicncr.top/Article/details/026040225.shtml)
+- 2026-06-29 13:11 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/72785100900.shtml)
+- 2026-06-29 13:13 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/78096.shtml)
+- 2026-06-29 13:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/01239812820.shtml)
+- 2026-06-29 13:07 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/3057280.shtml)
+- 2026-06-29 13:21 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/35322.shtml)
+- 2026-06-29 13:28 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/572494090.shtml)
+- 2026-06-29 13:07 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/55966.shtml)

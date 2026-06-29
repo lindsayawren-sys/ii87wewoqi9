@@ -1,60 +1,52 @@
-# 菲律宾7.8级强震后海床抬升2米 大片珊瑚礁裸露致海洋生物死亡
+# “天宫”将迎来首位来自香港的航天员
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据英国《卫报》报道，菲律宾环境部门14日表示，该国近期发生的7.8级强震导致近海海床抬升了2米，大片珊瑚裸露并开始危害海洋生物。 菲律宾国家减灾委员会15日通报，截至当日6时，菲南部棉兰老岛附近海域8日发生的7.8级地震已造成65人死亡、1447人受伤。 报道援引菲环境部门的消息称，地震两天后，居民首次报告了这种被称为“海岸抬升”的地质现象，该现象在某些地方
+中新网酒泉5月23日电 (记者 马帅莎)据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。这是我国首个由第三批和第四批航天员构成的乘组，乘组中有一名航天员将执行一年期飞行任务。朱杨柱是我国首位担任指令长的航天飞行工程师，也是我国首位担任
 
 ## 正文
 
-中新网6月17日电 据英国《卫报》报道，菲律宾环境部门14日表示，该国近期发生的7.8级强震导致近海海床抬升了2米，大片珊瑚裸露并开始危害海洋生物。
+中新网酒泉5月23日电 (记者 马帅莎)据中国载人航天工程办公室23日消息，经空间站应用与发展阶段飞行任务总指挥部研究决定，神舟二十三号航天员乘组由航天飞行工程师朱杨柱、航天驾驶员张志远、载荷专家黎家盈3名航天员组成，朱杨柱任指令长。
 
-菲律宾国家减灾委员会15日通报，截至当日6时，菲南部棉兰老岛附近海域8日发生的7.8级地震已造成65人死亡、1447人受伤。
+这是我国首个由第三批和第四批航天员构成的乘组，乘组中有一名航天员将执行一年期飞行任务。
 
-报道援引菲环境部门的消息称，地震两天后，居民首次报告了这种被称为“海岸抬升”的地质现象，该现象在某些地方使海岸线延伸了多达200米。
+朱杨柱是我国首位担任指令长的航天飞行工程师，也是我国首位担任指令长的第三批航天员，此前曾执行神舟十六号载人飞行任务。
 
-菲火山地震研究所表示，科塔巴托海沟的移动“将萨兰加尼省和西达沃省的部分海岸线向上推……使原本在水下的海床裸露出来。
+张志远为第三批航天员；黎家盈为我国首位执行飞行任务的第四批航天员，也是工程面向港澳地区选拔出的我国首位女性载荷专家，两人即将踏上个人首飞之旅。
 
-测绘到的抬升高度约为2米。
+5月23日，3名航天员将在酒泉卫星发射中心问天阁与中外媒体记者集体见面。
 
-”报道称，该海沟距离棉兰老岛南部海岸最近仅50公里，是地震活动频繁的区域，包括一月份记录到的数千次地震的“群震”。
-
-环境部门表示，派往该地区的团队“发现大段海岸线、珊瑚礁和海草床已经裸露出来”。
-
-一位该部门官员表示，由于需要调查的范围很大，他们尚无法确切说明受影响区域的具体面积。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 13:15 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 13:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 13:02 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 13:12 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 13:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 13:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 13:02 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 13:18 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 13:25 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 13:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 13:26 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 13:24 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:03 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:20 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 13:12 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 13:24 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 13:25 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 13:26 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 13:32 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 13:21 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 13:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 13:25 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 13:23 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/5279009.shtml)
-- 2026-06-29 13:16 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/02934152.shtml)
-- 2026-06-29 13:14 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/18865.shtml)
-- 2026-06-29 13:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/17388201.shtml)
-- 2026-06-29 13:28 - [AG 钟意](https://www.blog.kurohicncr.top/Article/details/711853870.shtml)
-- 2026-06-29 13:23 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/1657007119.shtml)
-- 2026-06-29 13:23 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/17635.shtml)
-- 2026-06-29 13:23 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/42233808587.shtml)
-- 2026-06-29 13:01 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/901230745.shtml)
-- 2026-06-29 13:16 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/84894188.shtml)
-- 2026-06-29 13:20 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/04352.shtml)
-- 2026-06-29 13:10 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/9637819.shtml)
-- 2026-06-29 13:12 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/2717213.shtml)
-- 2026-06-29 13:14 - [C罗关心罗德里戈伤情](http://www.share.kurohicncr.top/Article/details/77284.shtml)
-- 2026-06-29 13:08 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/45233897196.shtml)
+- 2026-06-29 13:29 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/25157.shtml)
+- 2026-06-29 13:30 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/2423251.shtml)
+- 2026-06-29 13:23 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/2529257.shtml)
+- 2026-06-29 13:19 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/379539.shtml)
+- 2026-06-29 13:35 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/314770592173.shtml)
+- 2026-06-29 13:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/217037.shtml)
+- 2026-06-29 13:32 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/870721511.shtml)
+- 2026-06-29 13:22 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/2220678201.shtml)
+- 2026-06-29 13:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/251879910.shtml)
+- 2026-06-29 13:19 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/9282782907.shtml)
+- 2026-06-29 13:09 - [NBA交易](https://www.share.minike.top/Article/details/7529193305.shtml)
+- 2026-06-29 13:29 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/2663320.shtml)
+- 2026-06-29 13:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/95572845838.shtml)
+- 2026-06-29 13:31 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/81126.shtml)
+- 2026-06-29 13:30 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/178161911.shtml)

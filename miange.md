@@ -1,59 +1,59 @@
-# 上海国际金融中心发展离岸金融行动方案：支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务
+# 美联储理事沃勒：通胀风险意味着美联储不应再释放降息信号
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》。方案提出，支持发展人民币离岸交易。支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务。支持外汇交易中心提升离岸外汇交易服务能力，推动人民币对非美货币直接交易发展。依托外汇交易中心平台，汇聚全球外币对、外币货
+美联储理事克里斯托弗·沃勒（Christopher Waller）周五表示，鉴于通胀风险日益增长，美联储根本不应再将进一步降息作为默认计划。而就在今年1月，沃勒还曾支持降息。 沃勒在法兰克福发表演讲时表示，随着中东冲突的持续，石油和其他大宗商品成本的上涨越来越有可能在经济中引发更广泛的持续性通胀。他称，因此，美联储是时候停止释放下一次行动最可能是再次降息的信号了。 沃勒表示，在
 
 ## 正文
 
-6月17日金融一线消息，近日，中国人民银行、国家发展改革委、金融监管总局、中国证监会、国家外汇局和上海市人民政府联合印发《上海国际金融中心发展离岸金融行动方案》。
+美联储理事克里斯托弗·沃勒（Christopher Waller）周五表示，鉴于通胀风险日益增长，美联储根本不应再将进一步降息作为默认计划。
 
-方案提出，支持发展人民币离岸交易。
+而就在今年1月，沃勒还曾支持降息。
 
-支持符合条件的商业银行开展上海自贸试验区离岸人民币外汇交易业务。
+沃勒在法兰克福发表演讲时表示，随着中东冲突的持续，石油和其他大宗商品成本的上涨越来越有可能在经济中引发更广泛的持续性通胀。
 
-支持外汇交易中心提升离岸外汇交易服务能力，推动人民币对非美货币直接交易发展。
+他称，因此，美联储是时候停止释放下一次行动最可能是再次降息的信号了。
 
-依托外汇交易中心平台，汇聚全球外币对、外币货币等外币市场流动性，增强国际资本配置功能。
+沃勒表示，在可预见的未来，将利率稳定在目前3.5%至3.75%的区间很可能是正确的做法。
 
-建立健全配套政策和人才服务机制，保障支持外汇交易中心离岸外汇业务发展。
+他补充说：“如果通胀不能很快减弱，我不能再排除未来加息的可能性。
 
-责任编辑：秦艺
+” 沃勒提出的这一既可能进一步降息也可能转向加息的前景，使他加入了越来越多认为美联储政策立场正处于一个拐点的官员行列。
+
+随着通胀从疫情后的高点回落，美联储从2024年底开始间歇性降息，大多数官员在进入今年时的计划都是至少会采取一些进一步的宽松措施。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 13:02 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 13:06 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 13:04 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 13:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 13:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 13:05 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 13:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 13:16 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 13:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 13:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:03 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 13:21 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 13:23 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 13:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 13:30 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 13:26 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 13:22 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 13:11 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 13:26 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 13:24 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 13:09 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 13:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 13:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 13:15 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 13:17 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 13:11 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 13:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/08781.shtml)
-- 2026-06-29 13:07 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/3490414.shtml)
-- 2026-06-29 13:29 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/95510.shtml)
-- 2026-06-29 13:00 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/388837358582.shtml)
-- 2026-06-29 13:13 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/774850227.shtml)
-- 2026-06-29 13:19 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/3148360800.shtml)
-- 2026-06-29 13:23 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/500204895301.shtml)
-- 2026-06-29 13:14 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/835657.shtml)
-- 2026-06-29 13:06 - [A股](https://www.blog.minike.top/Article/details/0266873.shtml)
-- 2026-06-29 13:22 - [多家银行收紧个人贵金属业务](http://www.share.minike.top/Article/details/30683103911.shtml)
-- 2026-06-29 13:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/521821957167.shtml)
-- 2026-06-29 13:13 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/74601771.shtml)
-- 2026-06-29 13:20 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.minike.top/Article/details/18588661.shtml)
-- 2026-06-29 13:18 - [医药股集体爆发](http://www.blog.minike.top/Article/details/5963522.shtml)
-- 2026-06-29 13:05 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/242828183.shtml)
+- 2026-06-29 13:28 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/02529274094.shtml)
+- 2026-06-29 13:22 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/47162.shtml)
+- 2026-06-29 13:32 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/6948916423.shtml)
+- 2026-06-29 13:32 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/8076480.shtml)
+- 2026-06-29 13:24 - [爱很美味](http://www.blog.minike.top/Article/details/511136.shtml)
+- 2026-06-29 13:34 - [大罗力挺内马尔](http://www.share.minike.top/Article/details/946470762519.shtml)
+- 2026-06-29 13:14 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/89883.shtml)
+- 2026-06-29 13:14 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/14893.shtml)
+- 2026-06-29 13:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/07187180049.shtml)
+- 2026-06-29 13:19 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/086652879210.shtml)
+- 2026-06-29 13:08 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/376074205426.shtml)
+- 2026-06-29 13:20 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/730536371525.shtml)
+- 2026-06-29 13:26 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/552483951660.shtml)
+- 2026-06-29 13:24 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/0663937.shtml)
+- 2026-06-29 13:18 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/15231.shtml)

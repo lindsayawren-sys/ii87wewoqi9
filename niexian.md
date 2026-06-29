@@ -1,60 +1,48 @@
-# 不再冲规模拼增速，小微信贷“无序竞争”到头了
+# 浙江杭州：年轻人奔赴“飞驰人生” 解锁别样休闲玩法
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。 作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。 这让杨琛第一次感受到，银行小微
+发布时间：2026年05月24日 12:20 来源：中国新闻网 如今户外运动备受青睐，在浙江杭州，有一处专业越野体验中心，让大众近距离感受驰骋乐趣，独特的户外驾驶体验吸引不少年轻游客前往打卡。这类小众休闲项目，不仅丰富了周边短途游玩形式，还带动餐饮、住宿等配套消费，为区域休闲生活增添了新的活力。(吴怡欣 毛佳仪 浙江杭州报道） 责任编辑：【王凯】
 
 ## 正文
 
-作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。
+发布时间：2026年05月24日 12:20 来源：中国新闻网 如今户外运动备受青睐，在浙江杭州，有一处专业越野体验中心，让大众近距离感受驰骋乐趣，独特的户外驾驶体验吸引不少年轻游客前往打卡。
 
-同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。
+这类小众休闲项目，不仅丰富了周边短途游玩形式，还带动餐饮、住宿等配套消费，为区域休闲生活增添了新的活力。
 
-作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。
-
-以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。
-
-这让杨琛第一次感受到，银行小微普惠信贷的业务逻辑开始发生明显变化。
-
-最近两周，他所在支行的领导不再强调小微普惠信贷“规模驱动、增速为王”，取而代之的是一句新口头禅：“质量优先、结构优化”。
-
-杨琛坦言，这种变化，源于国家金融监督管理总局（下称“金融监管总局”）在5月19日发布的《关于做好2026年小微企业金融服务工作的通知》（下称《通知》）。
-
-《通知》提出，推动小微企业金融服务“稳投放、优结构、提质量、可持续”。
+(吴怡欣 毛佳仪 浙江杭州报道） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 13:21 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 13:11 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 13:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 13:16 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 13:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 13:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 13:27 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:20 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 13:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 13:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 13:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 13:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 13:10 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 13:14 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 13:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 13:17 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:17 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 13:32 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 13:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 13:07 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 13:11 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 13:27 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 13:08 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 13:29 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 13:33 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/567278.shtml)
-- 2026-06-29 13:25 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/687726.shtml)
-- 2026-06-29 13:03 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/827686.shtml)
-- 2026-06-29 13:26 - [韩红携4000万物资抵呼和浩特](https://www.share.minike.top/Article/details/85936577.shtml)
-- 2026-06-29 13:12 - [金刚川](https://www.share.minike.top/Article/details/432000.shtml)
-- 2026-06-29 13:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/30248.shtml)
-- 2026-06-29 13:06 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/1110945665.shtml)
-- 2026-06-29 13:15 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/856042512.shtml)
-- 2026-06-29 13:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/285033303090.shtml)
-- 2026-06-29 13:21 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/36921484615.shtml)
-- 2026-06-29 13:10 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/311570691.shtml)
-- 2026-06-29 13:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/3778723.shtml)
-- 2026-06-29 13:18 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/2346950269.shtml)
-- 2026-06-29 13:14 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/3065189544.shtml)
-- 2026-06-29 13:04 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/05237860.shtml)
+- 2026-06-29 13:06 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/476488163525.shtml)
+- 2026-06-29 13:35 - [第一炉香](http://www.blog.minike.top/Article/details/4783907.shtml)
+- 2026-06-29 13:30 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/665223339303.shtml)
+- 2026-06-29 13:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/255549.shtml)
+- 2026-06-29 13:33 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.kurohicncr.top/Article/details/65918.shtml)
+- 2026-06-29 13:07 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/065241422604.shtml)
+- 2026-06-29 13:35 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/7342571638.shtml)
+- 2026-06-29 13:22 - [宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/0252807.shtml)
+- 2026-06-29 13:25 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/8129297.shtml)
+- 2026-06-29 13:09 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/485729773641.shtml)
+- 2026-06-29 13:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/8992180692.shtml)
+- 2026-06-29 13:31 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/143504416.shtml)
+- 2026-06-29 13:28 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/867789.shtml)
+- 2026-06-29 13:27 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/61915570187.shtml)
+- 2026-06-29 13:17 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/451367980.shtml)

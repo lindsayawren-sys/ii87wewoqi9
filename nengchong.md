@@ -1,57 +1,56 @@
-# 百余件“神秘古国”西夏文物山西展出
+# 中国珍稀物种数量持续回升
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网太原6月16日电 (记者 胡健)“贺兰怀古——西夏陵出土文物展”16日在山西博物院开展，120余件(组)珍贵文物系统呈现西夏王朝的历史面貌与多元文化交融。 本次展览共分为“大夏寻踪”与“大夏陵寝”两大单元，依托历年来对西夏陵、宏佛塔、闽宁村墓地等遗址的考古成果，梳理党项东迁、西夏立国、蕃汉分治、陵寝制度与建筑艺术等主题。 山西博物院讲解员刘琳介绍，本次展出的红陶迦陵频伽源
+中新社北京5月22日电 (记者 陈溯)5月22日是国际生物多样性日。记者当天从中国国家林业和草原局获悉，中国珍稀物种野外种群数量持续回升，全国200多种珍稀濒危野生动物进入恢复性增长阶段，100余种濒危野生植物得到抢救性保护。中国是世界上生物多样性最丰富的国家之一，已记录陆生脊椎动物约3100种，高等植物3.9万余种，均居全球前列。 近年来，中国持续加强野生动植物及其栖息地保护
 
 ## 正文
 
-中新网太原6月16日电 (记者 胡健)“贺兰怀古——西夏陵出土文物展”16日在山西博物院开展，120余件(组)珍贵文物系统呈现西夏王朝的历史面貌与多元文化交融。
+中新社北京5月22日电 (记者 陈溯)5月22日是国际生物多样性日。
 
-本次展览共分为“大夏寻踪”与“大夏陵寝”两大单元，依托历年来对西夏陵、宏佛塔、闽宁村墓地等遗址的考古成果，梳理党项东迁、西夏立国、蕃汉分治、陵寝制度与建筑艺术等主题。
+记者当天从中国国家林业和草原局获悉，中国珍稀物种野外种群数量持续回升，全国200多种珍稀濒危野生动物进入恢复性增长阶段，100余种濒危野生植物得到抢救性保护。
 
-山西博物院讲解员刘琳介绍，本次展出的红陶迦陵频伽源自印度教“妙音鸟”，融合中原文化后呈现出女性鸟身形象，是西夏文化中独特的一张名片。
+中国是世界上生物多样性最丰富的国家之一，已记录陆生脊椎动物约3100种，高等植物3.9万余种，均居全球前列。
 
-此外，重逾两吨的灰砂岩力士座出自碑亭遗址，因西夏铁矿多用于兵器，雕刻工具硬度有限，所以线条粗犷豪放。
+近年来，中国持续加强野生动植物及其栖息地保护，加快构建以国家公园为主体的自然保护地体系和国家植物园体系，实现重要生态系统生物多样性整体性保护。
 
-此外，本次展览通过“天盛三年首领”铜印、“内宿待命”铜牌等官印符牌，揭示西夏严密的军事与职官体系。
+国家重点保护陆生野生动物和野生植物种数保护率达到80%以上。
 
-展览中的天盛元宝、大安宝钱等钱币，见证西夏与宋、辽、金之间的经贸往来，宏佛塔出土的彩绘泥塑罗汉身像、水月观音图轴等，呈现西夏推崇佛教、汉藏结合的宗教艺术风貌。
+目前，中国珍贵、濒危野生动物野外种群总体呈现恢复增长良好态势。
 
-“大夏陵寝”单元聚焦西夏陵的陵寝制度、建筑遗存与考古发现，通过帝陵分布图、平面布局示意图与考古发掘成果，系统介绍1号陵至9号陵的形制特征。
+2025年海南长臂猿新出生3只幼猿，种群数量增长到7群44只，成为全球长臂猿中唯一持续增长的种群。
 
-展览中的建筑构件造型独特，体现了中原文化、西夏文化与佛教文化的有机结合。
+东北虎豹国家公园拍摄到一只雌虎带领5只幼崽画面，“一胎五崽”刷新了中国野生东北虎繁殖数量的最高纪录。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 13:03 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 13:16 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 13:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 13:10 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 13:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 13:10 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 13:10 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 13:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 13:26 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 13:08 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 13:09 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 13:07 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 13:11 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:33 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:08 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 13:19 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 13:14 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 13:21 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 13:23 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/77205424257.shtml)
-- 2026-06-29 13:23 - [速度与激情9](http://www.share.minike.top/Article/details/4087108.shtml)
-- 2026-06-29 13:28 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.share.minike.top/Article/details/797998917796.shtml)
-- 2026-06-29 13:05 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/80975091192.shtml)
-- 2026-06-29 13:19 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/98614880.shtml)
-- 2026-06-29 13:20 - [扬名立万](https://www.share.minike.top/Article/details/47277229.shtml)
-- 2026-06-29 13:25 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/767643.shtml)
-- 2026-06-29 13:11 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/15808065.shtml)
-- 2026-06-29 13:15 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/725821812711.shtml)
-- 2026-06-29 13:17 - [一生一世](http://www.blog.minike.top/Article/details/29955209.shtml)
-- 2026-06-29 13:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/560830.shtml)
-- 2026-06-29 13:29 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/4788254067.shtml)
-- 2026-06-29 13:03 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/39418.shtml)
-- 2026-06-29 13:05 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/716950635.shtml)
-- 2026-06-29 13:27 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/97375826.shtml)
+- 2026-06-29 13:09 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/8569208.shtml)
+- 2026-06-29 13:12 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/64632.shtml)
+- 2026-06-29 13:09 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/32251364.shtml)
+- 2026-06-29 13:11 - [啊啊啊](https://www.blog.minike.top/Article/details/66751.shtml)
+- 2026-06-29 13:18 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/79712835336.shtml)
+- 2026-06-29 13:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/130224318029.shtml)
+- 2026-06-29 13:31 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/90875.shtml)
+- 2026-06-29 13:31 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/1331298810.shtml)
+- 2026-06-29 13:31 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/97897582400.shtml)
+- 2026-06-29 13:09 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/25285657531.shtml)
+- 2026-06-29 13:20 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/644311.shtml)
+- 2026-06-29 13:09 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/808581249.shtml)
+- 2026-06-29 13:17 - [房屋抵押权与租赁权如何协调](https://www.share.kurohicncr.top/Article/details/577195838068.shtml)
+- 2026-06-29 13:32 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/1459361.shtml)
+- 2026-06-29 13:16 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/96199515521.shtml)

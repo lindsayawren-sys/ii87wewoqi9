@@ -1,57 +1,50 @@
-# 金价“跌跌不休”，老铺黄金坐不住了？
+# 国务院印发《关于推行常住地提供基本公共服务的实施意见》
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。 近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。 无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精
+为推行常住地提供基本公共服务，促进基本公共服务均等化水平明显提升，有力支撑深入实施以人为本的新型城镇化战略，国务院日前印发《关于推行常住地提供基本公共服务的实施意见》。 意见强调，由常住地提供基本公共服务，促进未落户常住人口与户籍人口同等享有基本公共服务，有利于满足人民日益增长的美好生活需要，对提升城镇化质量、释放国内需求潜力、构建新发展格局具有重要意义。 意见提出，要加强随迁
 
 ## 正文
 
-文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。
+为推行常住地提供基本公共服务，促进基本公共服务均等化水平明显提升，有力支撑深入实施以人为本的新型城镇化战略，国务院日前印发《关于推行常住地提供基本公共服务的实施意见》。
 
-近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。
+意见强调，由常住地提供基本公共服务，促进未落户常住人口与户籍人口同等享有基本公共服务，有利于满足人民日益增长的美好生活需要，对提升城镇化质量、释放国内需求潜力、构建新发展格局具有重要意义。
 
-跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。
+意见提出，要加强随迁子女教育保障，推动更多城市将稳定就业居住的未落户常住人口家庭纳入公租房保障范围，全面取消在就业地参加职工社会保险的户籍限制，加强常住地基本医疗保障，强化就业基本公共服务，逐步将未落户常住人口纳入常住地儿童关爱、养老助老、社会救助、扶残助残等基本公共服务范围。
 
-无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精心打造的顶奢滤镜，在如今波及全球的下行周期中，它的好日子真的要到头了吗？
-
-|金价波动，成“最后一根稻草” 单看账面数据，老铺黄金2025年交出的成绩单绝对是业内佼佼者。
-
-其全年营收超过273亿元人民币，同比暴增221%；净利润逼近50.3亿元，增幅更是高达234.9%。
-
-一家金饰公司一年能净赚50个小目标，老板做梦都该笑醒了。
-
-可辉煌之下，导致如今股价暴跌的隐患也十分明显，截至2025年底，老铺黄金的经营性现金流已流出68.48亿元。
+记者：魏玉坤、戴锦镕 海报制作：吴彬尔 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 13:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 13:11 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 13:17 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 13:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 13:22 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 13:06 - [医护人员观影《四渡》传承长征精神](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 13:08 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 13:07 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 13:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 13:19 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 13:21 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 13:34 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 13:18 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 13:15 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:29 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 13:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:12 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 13:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 13:19 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 13:23 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 13:22 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 13:18 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/89084613.shtml)
-- 2026-06-29 13:05 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/7385440791.shtml)
-- 2026-06-29 13:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/454589968711.shtml)
-- 2026-06-29 13:06 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/356877456688.shtml)
-- 2026-06-29 13:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/0571960.shtml)
-- 2026-06-29 13:00 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.kurohicncr.top/Article/details/76286426496.shtml)
-- 2026-06-29 13:16 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/02989878652.shtml)
-- 2026-06-29 13:10 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/810180.shtml)
-- 2026-06-29 13:04 - [本周做什么都顺的星座](https://www.blog.kurohicncr.top/Article/details/18525.shtml)
-- 2026-06-29 13:20 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/54340212873.shtml)
-- 2026-06-29 13:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/150770917464.shtml)
-- 2026-06-29 13:19 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/55657214941.shtml)
-- 2026-06-29 13:26 - [天津打雷](https://www.blog.minike.top/Article/details/1259119.shtml)
-- 2026-06-29 13:28 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/177062978.shtml)
-- 2026-06-29 13:20 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.kurohicncr.top/Article/details/1355823.shtml)
+- 2026-06-29 13:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/198175.shtml)
+- 2026-06-29 13:07 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/016949.shtml)
+- 2026-06-29 13:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/67943223.shtml)
+- 2026-06-29 13:33 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/45791359171.shtml)
+- 2026-06-29 13:31 - [沙丘](https://www.blog.kurohicncr.top/Article/details/25411275.shtml)
+- 2026-06-29 13:10 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/44703429406.shtml)
+- 2026-06-29 13:34 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/1135958.shtml)
+- 2026-06-29 13:14 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/259162195.shtml)
+- 2026-06-29 13:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/58422086.shtml)
+- 2026-06-29 13:07 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/354079254651.shtml)
+- 2026-06-29 13:07 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/36515321.shtml)
+- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/85987.shtml)
+- 2026-06-29 13:19 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.share.kurohicncr.top/Article/details/2259259777.shtml)
+- 2026-06-29 13:15 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/086005909162.shtml)
+- 2026-06-29 13:17 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/723467012.shtml)

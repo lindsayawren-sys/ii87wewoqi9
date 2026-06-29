@@ -1,58 +1,55 @@
-# 青海：多项核心技术保护冬虫夏草种质资源
+# 以父之名书写家国史诗 作家彭学明长篇作品新推增订版
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。 “十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。 据介绍，青海省科研团队建立了冬虫夏草生态抚育
+中新网北京5月23日电 (记者 高凯)作家彭学明长篇小说《爹》最新增订版日前由作家出版社推出。 长篇小说《爹》通过爹及湘西父辈一个个跌宕起伏的人生故事，把长征、抗日战争、解放战争、湘西剿匪、抗美援朝、新中国建设、改革开放等历史事件和重大历史节点巧妙地融为一体，既状写国家和民族命运惊涛骇浪的宏阔，又细描个人和家族命运点滴涟漪的幽微。 据介绍，最新增订版《爹》近73万字，以儿子对父
 
 ## 正文
 
-中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。
+中新网北京5月23日电 (记者 高凯)作家彭学明长篇小说《爹》最新增订版日前由作家出版社推出。
 
-当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。
+长篇小说《爹》通过爹及湘西父辈一个个跌宕起伏的人生故事，把长征、抗日战争、解放战争、湘西剿匪、抗美援朝、新中国建设、改革开放等历史事件和重大历史节点巧妙地融为一体，既状写国家和民族命运惊涛骇浪的宏阔，又细描个人和家族命运点滴涟漪的幽微。
 
-“十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。
+据介绍，最新增订版《爹》近73万字，以儿子对父亲的漫长寻找为线索，不但钩沉出“爹”跌宕起伏的传奇人生和风骨，更辐射出一代中国父辈在时代洪流中的命运沉浮与精神图谱。
 
-据介绍，青海省科研团队建立了冬虫夏草生态抚育技术，在不破坏原有生态环境的前提下，通过冬虫夏草繁育所需环境的保护和恢复，增加“菌-虫-草”资源，从而增加野生环境中冬虫夏草数量，实现青海道地冬虫夏草资源抚育；同时突破了野生与人工冬虫夏草的鉴别技术，建立了覆盖“光谱学-化学-影像学-遗传学”的四维冬虫夏草鉴定方法，解决了野生与人工繁育冬虫夏草鉴定技术难题；还建立了冬虫夏草追溯码系统，研究开发了野生、野生抚版、人工3个版本的溯源码。
+作品中，“我”由于年幼时就父母离异，一直固执地认为是父亲抛弃了“我”，对父亲恨之入骨，拒而远之，直到偶然间看到家谱上记录着父亲曾参加过淞沪会战、常德保卫战、雪峰山保卫战以及抗美援朝战争，是英雄、功臣，才试图了解父亲，走近父亲。
 
-浙江、上海等地科研机构、企业在青海省畜牧兽医科学院、珠峰药业等成果基础上，通过优化培养基配方，实现了冬虫夏草菌菌丝体的高密度发酵，满足《中国药典》冬虫夏草腺苷含量最低要求。
-
-为守住技术与资源优势，青海省科技厅将进一步加强冬虫夏草菌虫品种保护研究和加快野生和人工冬虫夏草鉴别研究。
+当父亲跌宕起伏的人生命运与传奇，复杂多面而又美好卓越的人性品格，一章章、一节节地走进“我”的心灵时，“我”不仅完成了一场跨越数十年的情感回归与自我和解，也完成了对父亲、父爱和父辈的重新理解和认识，完成了对湘西、中国和人的灵魂感知和深切表达。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 13:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 13:23 - [韩红携4000万物资抵呼和浩特](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:24 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 13:06 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 13:12 - [乌拉圭出局之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 13:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 13:08 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 13:06 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 13:25 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 13:12 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:28 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 13:17 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 13:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 13:17 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 13:26 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 13:19 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 13:17 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 13:27 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 13:21 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 13:15 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 13:26 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 13:33 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 13:33 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 13:29 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 13:19 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/20960991.shtml)
-- 2026-06-29 13:10 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/0102948.shtml)
-- 2026-06-29 13:14 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/94271937414.shtml)
-- 2026-06-29 13:10 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/449894733.shtml)
-- 2026-06-29 13:22 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/034313.shtml)
-- 2026-06-29 13:28 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/57347687041.shtml)
-- 2026-06-29 13:25 - [国乒全主力参加美国大满贯](http://www.blog.minike.top/Article/details/478874201633.shtml)
-- 2026-06-29 13:07 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/32515603.shtml)
-- 2026-06-29 13:05 - [乔家的儿女](https://www.blog.minike.top/Article/details/70897.shtml)
-- 2026-06-29 13:00 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/22731151879.shtml)
-- 2026-06-29 13:01 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/422449.shtml)
-- 2026-06-29 13:15 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/280431747.shtml)
-- 2026-06-29 13:29 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/749114.shtml)
-- 2026-06-29 13:16 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/2839908.shtml)
-- 2026-06-29 13:06 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/706748372.shtml)
+- 2026-06-29 13:26 - [宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/33751328867.shtml)
+- 2026-06-29 13:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/095403.shtml)
+- 2026-06-29 13:18 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/364163027.shtml)
+- 2026-06-29 13:13 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/32106.shtml)
+- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/46012635231.shtml)
+- 2026-06-29 13:08 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/690005347.shtml)
+- 2026-06-29 13:30 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/9608185781.shtml)
+- 2026-06-29 13:07 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/05401.shtml)
+- 2026-06-29 13:31 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/21273803.shtml)
+- 2026-06-29 13:18 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/7310005852.shtml)
+- 2026-06-29 13:19 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/14884454409.shtml)
+- 2026-06-29 13:31 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/827793.shtml)
+- 2026-06-29 13:33 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/341993.shtml)
+- 2026-06-29 13:06 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/35974451.shtml)
+- 2026-06-29 13:09 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/70538646.shtml)

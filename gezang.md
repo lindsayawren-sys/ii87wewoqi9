@@ -1,58 +1,49 @@
-# 日本5月出口同比增长17%，创三年半以来最快增速
+# 05月22日镀锌板4220.00元/吨 90天上涨4.13%
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-日本政府周三公布的数据显示，日本5月份出口同比增长17%，创下2022年11月以来的最快增速，超出市场预期。 这一数字高于路透调查的经济学家预期的16.2%，也高于4月份的14.8%。 日本5月份进口同比增长12.5%，为2025年1月以来的最高增速，高于预期的12.8%。 这些数据公布的前一天，日本央行将政策利率上调25个基点至1%，创30多年来的新高，以应对不断攀升的通胀和
+镀锌板05月22日最新价格4220.00元/吨，最近90天上涨4.13%。相关生产商有：河钢股份(000709)本钢板材(000761)鞍钢股份(000898)华菱钢铁(000932)首钢股份(000959)宝钢股份(600019)酒钢宏兴(600307)*ST八钢（维权）(600581)马钢股份(600808)华达新材(605158)等。
 
 ## 正文
 
-日本政府周三公布的数据显示，日本5月份出口同比增长17%，创下2022年11月以来的最快增速，超出市场预期。
+镀锌板05月22日最新价格4220.00元/吨，最近90天上涨4.13%。
 
-这一数字高于路透调查的经济学家预期的16.2%，也高于4月份的14.8%。
-
-日本5月份进口同比增长12.5%，为2025年1月以来的最高增速，高于预期的12.8%。
-
-这些数据公布的前一天，日本央行将政策利率上调25个基点至1%，创30多年来的新高，以应对不断攀升的通胀和日元持续疲软的局面。
-
-日元疲软可能提振出口，但也会推高进口通胀，削弱购买力，从而引发国内担忧。
-
-数据公布后，日元汇率波动不大，报1美元兑160.4。
-
-尽管日本财务省动用11.7万亿日元来捍卫日元汇率，但日元仍徘徊在历史低位。
-
-责任编辑：于健 SF069
+相关生产商有：河钢股份(000709)本钢板材(000761)鞍钢股份(000898)华菱钢铁(000932)首钢股份(000959)宝钢股份(600019)酒钢宏兴(600307)*ST八钢（维权）(600581)马钢股份(600808)华达新材(605158)等。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 13:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 13:06 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 13:23 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 13:05 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 13:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 13:11 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:00 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 13:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 13:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 13:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 13:14 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:15 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 13:27 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 13:33 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 13:12 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:23 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 13:06 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:22 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 13:26 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 13:15 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 13:28 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:21 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 13:12 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 13:15 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 13:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 13:22 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/20017.shtml)
-- 2026-06-29 13:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/90179536862.shtml)
-- 2026-06-29 13:15 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/729120.shtml)
-- 2026-06-29 13:00 - [2026年Mac能玩游戏了吗](https://www.blog.minike.top/Article/details/939738448005.shtml)
-- 2026-06-29 13:29 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/914305.shtml)
-- 2026-06-29 13:17 - [沉睡花园](https://www.share.minike.top/Article/details/025552.shtml)
-- 2026-06-29 13:07 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/71849189.shtml)
-- 2026-06-29 13:03 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.kurohicncr.top/Article/details/7179182790.shtml)
-- 2026-06-29 13:14 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/837924.shtml)
-- 2026-06-29 13:28 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/83395254498.shtml)
-- 2026-06-29 13:15 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/75654638679.shtml)
-- 2026-06-29 13:25 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/10772.shtml)
-- 2026-06-29 13:13 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/74639810.shtml)
-- 2026-06-29 13:08 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/880166897.shtml)
-- 2026-06-29 13:01 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/79347328379.shtml)
+- 2026-06-29 13:12 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/02085485863.shtml)
+- 2026-06-29 13:30 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/68243575714.shtml)
+- 2026-06-29 13:18 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/964492631934.shtml)
+- 2026-06-29 13:07 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/69724009.shtml)
+- 2026-06-29 13:31 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/32924.shtml)
+- 2026-06-29 13:11 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/456647011956.shtml)
+- 2026-06-29 13:34 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/7614365261.shtml)
+- 2026-06-29 13:30 - [世界杯打成了欧洲杯和美洲杯](https://www.blog.kurohicncr.top/Article/details/7212300.shtml)
+- 2026-06-29 13:12 - [BW2026游览指南](https://www.share.kurohicncr.top/Article/details/440744.shtml)
+- 2026-06-29 13:33 - [大罗力挺内马尔](http://www.share.kurohicncr.top/Article/details/113652822721.shtml)
+- 2026-06-29 13:18 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/20290068.shtml)
+- 2026-06-29 13:06 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/4877183620.shtml)
+- 2026-06-29 13:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/70824770.shtml)
+- 2026-06-29 13:34 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/7677982.shtml)
+- 2026-06-29 13:09 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/38274.shtml)

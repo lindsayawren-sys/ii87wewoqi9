@@ -1,57 +1,61 @@
-# 三佳科技（600520）股民索赔案已有胜诉倒计时四个月，鹏博士（600804）索赔案倒计时一个月
+# 院士专家齐聚广州南沙共商打造“钢筋铁骨”
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，文一科技（三佳科技（维权），600520）虚假陈述引发的投资者索赔案已经进入最后四个月倒计时，“过期作废”。（许峰律师专栏） 律师提示，投资者起诉文一科技投资者索赔案已有投资者获得胜诉，目前该案尚在诉讼时效内，符合条件的投资者仍然具备索赔条件，提醒投资者注意。文一科技股票简称及公司名称的变更不影响投资者索赔。 2023年12月27日，文一
+中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。 据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。 开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。殷瑞钰在贺信中高度肯定了本
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，文一科技（三佳科技（维权），600520）虚假陈述引发的投资者索赔案已经进入最后四个月倒计时，“过期作废”。
+中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。
 
-（许峰律师专栏） 律师提示，投资者起诉文一科技投资者索赔案已有投资者获得胜诉，目前该案尚在诉讼时效内，符合条件的投资者仍然具备索赔条件，提醒投资者注意。
+大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。
 
-文一科技股票简称及公司名称的变更不影响投资者索赔。
+据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。
 
-2023年12月27日，文一科技公告收到证监会《行政处罚决定书》，许峰律师认为，在2023年8月7日到2023年10月24日之间买入文一科技股票，并且在2023年10月24日后卖出或继续持有股票的投资者，目前还可发起索赔，时效已经进入最后四个月倒计时。
+开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。
 
-（三佳科技维权入口） 除了文一科技投资者索赔案进入倒计时，2026年6月15日，许峰律师代理的鹏博士（600804）投资者索赔案再向法院提交立案。
+殷瑞钰在贺信中高度肯定了本次大会的重要意义，强调要以科技创新引领钢铁行业高端化、绿色化、智能化发展，将冶金流程学理念融入低碳实践，统筹推进氢冶金、电炉短流程等多元低碳路径探索。
 
-2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。
+本次大会邀请多位院士、行业专家及企业代表作主会场特邀报告，报告内容涵盖工业化后期先进钢铁材料发展、人工智能加速酸性电解水催化剂研发、钢铁行业形势分析与低碳进展、湛江钢铁绿色低碳发展实践、冶金智能化技术创新等多个热点领域，既有前沿理论探索，又有工程实践总结，为参会人员带来了一场精彩纷呈的学术与产业盛宴。
 
-鹏博士投资者索赔案已有投资者胜诉判决，律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+大会现场，《氢基竖炉—电炉紧凑型钢铁流程冶金》新书发布，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌，二者将进一步推动低碳冶金技术成果传播与落地，凝聚起先进金属材料全行业的智慧与力量，为行业高质量发展注入新动能。
 
-2024年8月16日晚，鹏博士公告收到证监会《行政处罚决定书》，专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决以及获赔案例，在2013年4月12日到2023年7月18日之间买入鹏博士股票，并且在2023年7月18日后卖出或持有股票的投资者，目前还可发起索赔。
+会议期间，与会嘉宾围绕低碳冶金技术创新、先进金属材料应用、产学研用协同攻关等主题发表见解。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 13:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 13:13 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 13:12 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 13:22 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 13:01 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 13:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 13:12 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 13:02 - [房屋抵押权与租赁权如何协调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 13:27 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 13:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 13:30 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:13 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 13:35 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 13:18 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 13:12 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 13:33 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 13:35 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 13:30 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 13:18 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 13:11 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 13:10 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 13:17 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 13:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 13:19 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:35 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/242918234805.shtml)
-- 2026-06-29 13:05 - [DSpark论文深度解读](https://www.blog.minike.top/Article/details/07738944303.shtml)
-- 2026-06-29 13:13 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/4893347147.shtml)
-- 2026-06-29 13:16 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/03577641218.shtml)
-- 2026-06-29 13:11 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/54611611.shtml)
-- 2026-06-29 13:10 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/702962.shtml)
-- 2026-06-29 13:09 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/5452373.shtml)
-- 2026-06-29 13:22 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/72510728.shtml)
-- 2026-06-29 13:03 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/6589878.shtml)
-- 2026-06-29 13:01 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.minike.top/Article/details/97335202456.shtml)
-- 2026-06-29 13:12 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/49038641.shtml)
-- 2026-06-29 13:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/46372930038.shtml)
-- 2026-06-29 13:07 - [《贺子珍》](http://www.share.minike.top/Article/details/96978186066.shtml)
-- 2026-06-29 13:19 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/80885487.shtml)
-- 2026-06-29 13:29 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/6253783390.shtml)
+- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.kurohicncr.top/Article/details/814869285278.shtml)
+- 2026-06-29 13:08 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/7355759.shtml)
+- 2026-06-29 13:30 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/60674365978.shtml)
+- 2026-06-29 13:22 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/5685652938.shtml)
+- 2026-06-29 13:32 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/563939171261.shtml)
+- 2026-06-29 13:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4863487324.shtml)
+- 2026-06-29 13:23 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/111235.shtml)
+- 2026-06-29 13:26 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/33895027660.shtml)
+- 2026-06-29 13:28 - [千与千寻](https://www.share.minike.top/Article/details/168908951969.shtml)
+- 2026-06-29 13:15 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/712913893247.shtml)
+- 2026-06-29 13:19 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/25842.shtml)
+- 2026-06-29 13:16 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/316680.shtml)
+- 2026-06-29 13:29 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/628737.shtml)
+- 2026-06-29 13:29 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/247156246722.shtml)
+- 2026-06-29 13:07 - [起风了](http://www.blog.kurohicncr.top/Article/details/5934247293.shtml)

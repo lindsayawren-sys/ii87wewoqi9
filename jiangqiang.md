@@ -1,57 +1,55 @@
-# 全球脑机接口×医保创新场景大赛启动 前沿技术赋能医疗
+# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月16日电(张煜欢)16日，全球脑机接口×医保创新场景大赛新闻发布会在杭州举行。该赛事由国家医疗保障局、浙江省人民政府联合主办，以“脑想事成 机联未来”为主题，即日起正式启动报名。赛事旨在以医保场景牵引脑机接口技术落地，推动前沿科技从实验室走向千家万户。 脑机接口作为前沿颠覆性突破技术，今年首次写入国务院政府工作报告，与量子科技、具身智能、6G等并列布局，被列入“十
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
 
 ## 正文
 
-中新网杭州6月16日电(张煜欢)16日，全球脑机接口×医保创新场景大赛新闻发布会在杭州举行。
+中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
 
-该赛事由国家医疗保障局、浙江省人民政府联合主办，以“脑想事成 机联未来”为主题，即日起正式启动报名。
+“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
 
-赛事旨在以医保场景牵引脑机接口技术落地，推动前沿科技从实验室走向千家万户。
+目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
 
-脑机接口作为前沿颠覆性突破技术，今年首次写入国务院政府工作报告，与量子科技、具身智能、6G等并列布局，被列入“十五五”规划的六大未来产业。
+“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
 
-当前，国家多部门密集出台多项政策，推动技术从基础研究迈向临床应用、从概念探索走向产业落地。
+在科普展演环节，各馆则带来科学与文化融合的科普课程。
 
-特别是医保部门，紧扣民生保障职能，充分发挥资源优势，携手各方搭建国际化平台，以医保场景牵引技术落地、赋能产业发展，让前沿技术普惠大众。
+中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
 
-国家医疗保障局大数据中心主任付超奇在发布会上介绍，本次大赛特色鲜明，主要体现在三个方面：锚定民生本源，拓展前沿技术普惠应用新场景；依托医保赋能，构建产学研用协同发展新生态；深化数智融合，探索医疗卫生事业高质量发展新路径。
-
-大赛重点聚焦非侵入式脑机接口主流技术路线，设置脑控无人机、脑控运动轮椅、脑控机械臂、脑控机器狗、脑控打字、虚拟任务等6大任务竞技类赛道，以及健康监测与早期预警、功能康复与智能照护2个场景应用类赛道，并专设前沿技术突破和创新创业项目展示。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 13:03 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 13:24 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 13:18 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 13:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 13:05 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 13:09 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 13:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 13:05 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 13:11 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 13:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 13:08 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 13:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 13:28 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:12 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 13:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:06 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 13:10 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 13:17 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 13:31 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 13:32 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 13:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/22973000.shtml)
-- 2026-06-29 13:06 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/182963.shtml)
-- 2026-06-29 13:11 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/8426266651.shtml)
-- 2026-06-29 13:03 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/0524390.shtml)
-- 2026-06-29 13:01 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/67135630413.shtml)
-- 2026-06-29 13:08 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/23717561.shtml)
-- 2026-06-29 13:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/133546.shtml)
-- 2026-06-29 13:19 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/41222.shtml)
-- 2026-06-29 13:26 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/89787298719.shtml)
-- 2026-06-29 13:19 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/02071.shtml)
-- 2026-06-29 13:21 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/152538112876.shtml)
-- 2026-06-29 13:20 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/982075393658.shtml)
-- 2026-06-29 13:07 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/698527790054.shtml)
-- 2026-06-29 13:11 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/22387.shtml)
-- 2026-06-29 13:26 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/19861455296.shtml)
+- 2026-06-29 13:14 - [女心理师](http://www.share.minike.top/Article/details/440157186.shtml)
+- 2026-06-29 13:11 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/45699703613.shtml)
+- 2026-06-29 13:08 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.minike.top/Article/details/331611.shtml)
+- 2026-06-29 13:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/95894241.shtml)
+- 2026-06-29 13:30 - [啊啊啊](https://www.blog.minike.top/Article/details/94409691.shtml)
+- 2026-06-29 13:13 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/741736349.shtml)
+- 2026-06-29 13:25 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/89297.shtml)
+- 2026-06-29 13:26 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/502467.shtml)
+- 2026-06-29 13:17 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/32860723294.shtml)
+- 2026-06-29 13:29 - [周生如故](https://www.blog.kurohicncr.top/Article/details/7680361419.shtml)
+- 2026-06-29 13:18 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/01734.shtml)
+- 2026-06-29 13:34 - [起风了](http://www.share.minike.top/Article/details/898079597289.shtml)
+- 2026-06-29 13:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/147208791218.shtml)
+- 2026-06-29 13:10 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/1133102010.shtml)
+- 2026-06-29 13:24 - [薛之谦演唱会](https://www.share.minike.top/Article/details/27308682616.shtml)

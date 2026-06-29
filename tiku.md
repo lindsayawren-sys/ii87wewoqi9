@@ -1,57 +1,61 @@
-# 美国法官驳回马斯克旗下xAI对OpenAI提出的商业窃密诉讼
+# 孙颖莎现身深圳 助力推动深港澳三地青少年乒乓球交流
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-美国一名联邦法官周一驳回了马斯克的人工智能公司xAI对竞争对手OpenAI提出的诉讼，该诉讼指控OpenAI窃取聊天机器人相关的商业机密。 旧金山联邦地区法官Rita Lin表示，xAI未能证明OpenAI诱导前xAI高级工程师Xuechen Li泄露与其Grok聊天机器人相关的机密信息，也未能证明OpenAI的工程师们知晓Xuechen Li可能已泄露了任何机密信息。 法官L
+中新网深圳5月24日电 (记者 郭军)奥运冠军孙颖莎23日现身深圳，助力推动深港澳三地青少年乒乓球交流。当日，乒超联赛深圳大学代表队2025赛季系列活动暨深圳市深大乒乓球俱乐部深港澳青少年交流项目在深圳南山区档案服务大厦启动。孙颖莎和年轻国手覃予萱来到现场，为这场以国球为纽带、厚植家国情怀的青春盛会助力。 据悉，在刚刚过去的2025赛季，由孙颖莎、蒯曼、覃予萱以及日本外援平野美
 
 ## 正文
 
-美国一名联邦法官周一驳回了马斯克的人工智能公司xAI对竞争对手OpenAI提出的诉讼，该诉讼指控OpenAI窃取聊天机器人相关的商业机密。
+中新网深圳5月24日电 (记者 郭军)奥运冠军孙颖莎23日现身深圳，助力推动深港澳三地青少年乒乓球交流。
 
-旧金山联邦地区法官Rita Lin表示，xAI未能证明OpenAI诱导前xAI高级工程师Xuechen Li泄露与其Grok聊天机器人相关的机密信息，也未能证明OpenAI的工程师们知晓Xuechen Li可能已泄露了任何机密信息。
+当日，乒超联赛深圳大学代表队2025赛季系列活动暨深圳市深大乒乓球俱乐部深港澳青少年交流项目在深圳南山区档案服务大厦启动。
 
-法官Lin驳回该诉讼并不可再诉，称继续审理将“徒劳无益”。
+孙颖莎和年轻国手覃予萱来到现场，为这场以国球为纽带、厚植家国情怀的青春盛会助力。
 
-她此前已于2月驳回该诉讼的早期版本。
+据悉，在刚刚过去的2025赛季，由孙颖莎、蒯曼、覃予萱以及日本外援平野美宇组成的深圳大学代表队，第三次夺得乒超联赛总冠军。
 
-这起最初于9月提起的诉讼，主要针对更广泛的涉嫌挪用机密信息（包括源代码），涉及xAI员工欲跳槽至OpenAI时的情况。
+活动现场，深大乒乓球俱乐部被授予“深圳市南山区港澳台青少年交流基地”牌匾，标志着一个以体育促认同、以国球聚人心的新平台正式落地。
 
-责任编辑：于健 SF069
+随后，孙颖莎和覃予萱为南山区校地统战工作联盟第二届“校地杯”乒乓球邀请赛的获奖选手颁奖。
+
+当日，参与活动的嘉宾共同为深大乒乓项目少年队队徽揭幕，标志着深大青少年乒乓人才培养体系迈出了新的一步。
+
+据了解，深大乒乓项目青少年体系自主打造了萌芽、青苗、培优、优选、精英五层十级体系，形成体教融合、层层衔接的人才梯队。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 13:07 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 13:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 13:00 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:17 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 13:15 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 13:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 13:17 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 13:28 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 13:16 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 13:17 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 13:12 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 13:29 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 13:22 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 13:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 13:35 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 13:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 13:32 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 13:30 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:21 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 13:33 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 13:22 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 13:26 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 13:12 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 13:22 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 13:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:12 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 13:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 13:27 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 13:16 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/407665276611.shtml)
-- 2026-06-29 13:27 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/73765.shtml)
-- 2026-06-29 13:22 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/457047118916.shtml)
-- 2026-06-29 13:10 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/261887879455.shtml)
-- 2026-06-29 13:28 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/63767742635.shtml)
-- 2026-06-29 13:21 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/0965407720.shtml)
-- 2026-06-29 13:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/85845886717.shtml)
-- 2026-06-29 13:12 - [双高胎](http://www.share.minike.top/Article/details/41304.shtml)
-- 2026-06-29 13:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/4235537360.shtml)
-- 2026-06-29 13:03 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/25499997007.shtml)
-- 2026-06-29 13:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/83455375536.shtml)
-- 2026-06-29 13:15 - [赵今麦客串电影版开端](https://www.blog.minike.top/Article/details/87723028498.shtml)
-- 2026-06-29 13:09 - [大罗力挺内马尔](http://www.share.minike.top/Article/details/3532866.shtml)
-- 2026-06-29 13:20 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.minike.top/Article/details/43999978.shtml)
-- 2026-06-29 13:26 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/282867563.shtml)
+- 2026-06-29 13:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/2085624174.shtml)
+- 2026-06-29 13:14 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/514345525.shtml)
+- 2026-06-29 13:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/393420835828.shtml)
+- 2026-06-29 13:34 - [为什么欧洲人不装空调](http://www.share.minike.top/Article/details/4733369988.shtml)
+- 2026-06-29 13:28 - [沙丘](https://www.blog.kurohicncr.top/Article/details/40351699.shtml)
+- 2026-06-29 13:24 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/332815228535.shtml)
+- 2026-06-29 13:07 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/170680103.shtml)
+- 2026-06-29 13:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/72481518766.shtml)
+- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/79756.shtml)
+- 2026-06-29 13:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/302951758102.shtml)
+- 2026-06-29 13:11 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/62925051.shtml)
+- 2026-06-29 13:29 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/497579585623.shtml)
+- 2026-06-29 13:32 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/517335577.shtml)
+- 2026-06-29 13:09 - [强⁶](http://www.share.kurohicncr.top/Article/details/293589395.shtml)
+- 2026-06-29 13:32 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/97856163.shtml)

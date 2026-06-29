@@ -1,57 +1,53 @@
-# 吴清：证监会打击违法违规跨境展业，支持投资者依法合规跨境投资活动
+# 大和：古茗目标价下降至32港元 重申“买入”评级
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 证监会主席吴清6月17日在2026陆家嘴论坛上表示，着力提升跨境监管协作力度。“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。我们打击的是违法违规跨境展业，对投资者依法合规的跨境投资活动是支持的。接下来将进一步推动健全跨境监管协调机制，强化日
+大和发布研报称，古茗（01364）股价在第二季至今累跌约18%，主要受两大因素影响，一是补贴战高基期下同店销售增长放缓的忧虑，二是新店开业速度低于预期。该行下调2026至28年每股盈利预测4%至5%，并将目标价由36港元下调至32港元，重申“买入”评级。根据“窄门餐眼”数据，古茗今年前四个月新开590家门店，开店速度明显慢于市场预期的2026年净增3，345家。责任编辑：卢昱君
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 证监会主席吴清6月17日在2026陆家嘴论坛上表示，着力提升跨境监管协作力度。
+大和发布研报称，古茗（01364）股价在第二季至今累跌约18%，主要受两大因素影响，一是补贴战高基期下同店销售增长放缓的忧虑，二是新店开业速度低于预期。
 
-“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。
+该行下调2026至28年每股盈利预测4%至5%，并将目标价由36港元下调至32港元，重申“买入”评级。
 
-持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。
+根据“窄门餐眼”数据，古茗今年前四个月新开590家门店，开店速度明显慢于市场预期的2026年净增3，345家。
 
-我们打击的是违法违规跨境展业，对投资者依法合规的跨境投资活动是支持的。
-
-接下来将进一步推动健全跨境监管协调机制，强化日常信息共享和市场沟通，开正门、堵偏门，既支持合法合规的跨境投融资活动，又依法打击各类跨境违法违规行为，切实维护市场正常秩序和投资者合法权益。
-
-”吴清说。
-
-责任编辑：刘万里 SF014
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 13:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 13:28 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 13:03 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 13:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 13:14 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 13:24 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 13:10 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 13:16 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 13:24 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 13:10 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 13:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 13:23 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 13:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 13:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 13:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 13:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:13 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 13:34 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:13 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 13:30 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 13:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 13:33 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 13:15 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 13:34 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 13:28 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 13:09 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [刘宇宁现偶我就不要了](http://www.blog.minike.top/Article/details/215941029700.shtml)
-- 2026-06-29 13:15 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.minike.top/Article/details/151837.shtml)
-- 2026-06-29 13:04 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/207537574.shtml)
-- 2026-06-29 13:19 - [C罗关心罗德里戈伤情](https://www.blog.kurohicncr.top/Article/details/6481408096.shtml)
-- 2026-06-29 13:17 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/072635750.shtml)
-- 2026-06-29 13:07 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/7358117.shtml)
-- 2026-06-29 13:29 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/1690480.shtml)
-- 2026-06-29 13:15 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/660898.shtml)
-- 2026-06-29 13:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/6403832.shtml)
-- 2026-06-29 13:29 - [请回答王牌2019](http://www.share.minike.top/Article/details/1837687.shtml)
-- 2026-06-29 13:13 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/8896535418.shtml)
-- 2026-06-29 13:04 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/0950138.shtml)
-- 2026-06-29 13:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/512323975.shtml)
-- 2026-06-29 13:00 - [游戏数据竟被用于军事目的](https://www.blog.kurohicncr.top/Article/details/87978806.shtml)
-- 2026-06-29 13:21 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/128797411362.shtml)
+- 2026-06-29 13:35 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/58470783.shtml)
+- 2026-06-29 13:21 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/04169236.shtml)
+- 2026-06-29 13:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/3966309.shtml)
+- 2026-06-29 13:30 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/48582.shtml)
+- 2026-06-29 13:35 - [灿如繁星定档](http://www.share.minike.top/Article/details/3497020.shtml)
+- 2026-06-29 13:31 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/8986813.shtml)
+- 2026-06-29 13:24 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/276067104100.shtml)
+- 2026-06-29 13:10 - [吴磊爱上回收了](http://www.blog.minike.top/Article/details/98765.shtml)
+- 2026-06-29 13:33 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/60769424.shtml)
+- 2026-06-29 13:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/7237686927.shtml)
+- 2026-06-29 13:18 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/135267.shtml)
+- 2026-06-29 13:14 - [啊啊啊](http://www.share.minike.top/Article/details/76045922326.shtml)
+- 2026-06-29 13:06 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/631150795.shtml)
+- 2026-06-29 13:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/458532961038.shtml)
+- 2026-06-29 13:25 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/279354021.shtml)

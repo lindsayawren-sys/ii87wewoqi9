@@ -1,60 +1,56 @@
-# 长江有色：节前消费疲弱叠加淡季累库压力 17日锌价或下跌
+# 李家超：希望黎家盈以最佳状态为国家续写航天事业辉煌篇章
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【ccmn.cn摘要】美股涨跌分化多头获利出逃施压，隔夜伦锌收跌0.64%；矿紧格局延续限制锌价下行空间，但节前消费疲弱叠加淡季累库压力，预今现锌下跌。 【ccmn.cn锌期货市场】隔夜伦锌震荡走软；开盘报3579.5美元/吨，高点报3599美元，低点报3539美元，尾盘收于3562美元，跌23美元，跌幅0.64%；成交量10367手增减少1348手，持仓量25
+发布时间：2026年05月24日 16:36 来源：中国新闻网 近日，香港特区行政长官李家超与神舟二十三号载人飞行任务乘组中的首位香港航天员黎家盈进行了视频对话。李家超对黎家盈以载荷专家身份参与国家载人航天飞行任务深感骄傲，并送上诚挚祝福。他亲切询问了黎家盈的训练与生活情况，勉励她以最佳状态为国家续写航天事业的辉煌篇章。 参与视频连线的还有香港特区政府创新科技及工业局局长孙东、
 
 ## 正文
 
-长江有色金属网 【ccmn.cn摘要】美股涨跌分化多头获利出逃施压，隔夜伦锌收跌0.64%；矿紧格局延续限制锌价下行空间，但节前消费疲弱叠加淡季累库压力，预今现锌下跌。
+发布时间：2026年05月24日 16:36 来源：中国新闻网 近日，香港特区行政长官李家超与神舟二十三号载人飞行任务乘组中的首位香港航天员黎家盈进行了视频对话。
 
-【ccmn.cn锌期货市场】隔夜伦锌震荡走软；开盘报3579.5美元/吨，高点报3599美元，低点报3539美元，尾盘收于3562美元，跌23美元，跌幅0.64%；成交量10367手增减少1348手，持仓量250002手增加3639手。
+李家超对黎家盈以载荷专家身份参与国家载人航天飞行任务深感骄傲，并送上诚挚祝福。
 
-晚间沪锌偏弱震荡；主力2607合约最新收盘价报24685元/吨，跌75元，跌幅0.30%。
+他亲切询问了黎家盈的训练与生活情况，勉励她以最佳状态为国家续写航天事业的辉煌篇章。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，美伊临时协议细节披露——将4月停火延长60天、霍尔木兹海峡重开、伊朗不得拥核条款明确，特朗普称完整协议近日公布并赞同提交国会审议。
+参与视频连线的还有香港特区政府创新科技及工业局局长孙东、香港特区政府公务员事务局局长杨何蓓茵，他们同样为黎家盈送上祝福。
 
-美股分化：道指续创历史新高（+0.64%至51999.67），纳指受科技股拖累跌1.15%。
+黎家盈在对话中表示，虽然训练过程艰苦，但她将全力以赴，确保圆满完成飞行任务。
 
-市场等待周三美联储议息（沃什首秀），普遍预期维持3.50%-3.75%不变，FedWatch显示12月加息概率约43%。
-
-日本央行加息25bp至1.0%（1995年以来最高），2027年4月起暂停缩减购债，全球流动性收紧预期增强。
-
-国内方面，5月规上工业增加值+4.5%（高技术制造业+15.1%），社零同比-0.6%，1-5月固投-4.1%（地产开发-16.2%），经济呈“生产端升级、消费端偏弱”格局。
+(记者 周圣昀 视频来源 香港特首办） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 13:19 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 13:22 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:05 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 13:09 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 13:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 13:18 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 13:26 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 13:18 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 13:14 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:28 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 13:27 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 13:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 13:15 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:12 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 13:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 13:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 13:31 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 13:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 13:27 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 13:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 13:32 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 13:30 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 13:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 13:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 13:08 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:21 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/74224.shtml)
-- 2026-06-29 13:27 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/632695.shtml)
-- 2026-06-29 13:13 - [医护人员观影《四渡》传承长征精神](https://www.blog.minike.top/Article/details/792686083415.shtml)
-- 2026-06-29 13:16 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/717704813.shtml)
-- 2026-06-29 13:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/939314.shtml)
-- 2026-06-29 13:28 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/648707.shtml)
-- 2026-06-29 13:20 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/6243169949.shtml)
-- 2026-06-29 13:05 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/359863.shtml)
-- 2026-06-29 13:21 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/84649.shtml)
-- 2026-06-29 13:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/109576921.shtml)
-- 2026-06-29 13:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/05518696.shtml)
-- 2026-06-29 13:22 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/773030814932.shtml)
-- 2026-06-29 13:17 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/457571.shtml)
-- 2026-06-29 13:05 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/03421037873.shtml)
-- 2026-06-29 13:11 - [BW2026游览指南](https://www.share.kurohicncr.top/Article/details/31286739.shtml)
+- 2026-06-29 13:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/07216680.shtml)
+- 2026-06-29 13:29 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/5346268770.shtml)
+- 2026-06-29 13:06 - [起风了](https://www.share.kurohicncr.top/Article/details/193632587.shtml)
+- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/312050.shtml)
+- 2026-06-29 13:10 - [加拿大92分钟绝杀](https://www.blog.minike.top/Article/details/8431913889.shtml)
+- 2026-06-29 13:33 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/1190868202.shtml)
+- 2026-06-29 13:12 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/04266.shtml)
+- 2026-06-29 13:26 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/2021679.shtml)
+- 2026-06-29 13:34 - [金刚川](https://www.blog.minike.top/Article/details/37065581.shtml)
+- 2026-06-29 13:25 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/3761381.shtml)
+- 2026-06-29 13:24 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/33659398103.shtml)
+- 2026-06-29 13:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/94870218.shtml)
+- 2026-06-29 13:31 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/66971.shtml)
+- 2026-06-29 13:11 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/02145779.shtml)
+- 2026-06-29 13:17 - [5万块的威力](https://www.share.minike.top/Article/details/2541572.shtml)

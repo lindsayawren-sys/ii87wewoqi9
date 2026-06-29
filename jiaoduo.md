@@ -1,57 +1,58 @@
-# 港股微幅低开 这家果汁饮料公司突然暴涨超70% 发生了什么？
+# 美国特勤局击中在白宫附近开枪的男子
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-每经记者|曾子建 每经编辑|袁东 今日（6月16日），港股市场微幅低开。 早间开盘，恒生指数报24826.19点，下跌16.48点，跌幅0.07%；恒生科技指数开盘报4765.49点，下跌0.09点。 焦点公司方面，安德利果汁（HK02218）早盘一度暴涨超70%，引发市场高度关注。今年以来，食品饮料类消费股一直不是市场热点，但安德利果汁年内累计涨幅近190%。 安德利果汁是A
+美国特勤局在一份声明中表示，周六一名男子在白宫附近持手枪开火后，被特勤局特工击中。 一名因调查敏感性而要求匿名的知情人士称，该男子此前在街道上徘徊了一段时间，随后接近一个警方检查点，从包中掏出手枪并开始无差别射击。 声明称，执法人员随即还击，击中嫌疑人。该男子随后被送往当地一家医院，随后死亡。 枪击事件中还有一名旁观者中弹。目前尚不清楚此人是被嫌疑人最初的枪击击中，还是在随后的
 
 ## 正文
 
-每经记者|曾子建 每经编辑|袁东 今日（6月16日），港股市场微幅低开。
+美国特勤局在一份声明中表示，周六一名男子在白宫附近持手枪开火后，被特勤局特工击中。
 
-早间开盘，恒生指数报24826.19点，下跌16.48点，跌幅0.07%；恒生科技指数开盘报4765.49点，下跌0.09点。
+一名因调查敏感性而要求匿名的知情人士称，该男子此前在街道上徘徊了一段时间，随后接近一个警方检查点，从包中掏出手枪并开始无差别射击。
 
-焦点公司方面，安德利果汁（HK02218）早盘一度暴涨超70%，引发市场高度关注。
+声明称，执法人员随即还击，击中嫌疑人。
 
-今年以来，食品饮料类消费股一直不是市场热点，但安德利果汁年内累计涨幅近190%。
+该男子随后被送往当地一家医院，随后死亡。
 
-安德利果汁是A+H上市公司，其A股为安德利（SH605198），今日早间也封死涨停，今年以来安德利累计涨幅达89%。
+枪击事件中还有一名旁观者中弹。
 
-基本面看，安德利果汁创建于1996年，是山东安德利集团的支柱企业，世界浓缩果汁主要生产与供应商之一。
+目前尚不清楚此人是被嫌疑人最初的枪击击中，还是在随后的交火中被击中。
 
-公司先后在山东、陕西、江苏、辽宁、山西、四川及新疆的原料果主产区建有11个现代化果汁加工基地，拥有22条先进的果汁、果浆生产线，公司产品以浓缩果汁为主，产品包含苹果汁、果浆、NFC果汁、梨汁、桃汁、山楂汁、番茄汁、柠檬汁、橙汁等，产品的出口比例约占70%。
+据知情人士透露，嫌疑人被确认为21岁的Nasire Best。
 
-引发公司股价近期暴涨的原因，是公司拟跨界收购一家集成电路材料公司。
+法庭记录显示，他曾于2025年7月在白宫附近与警方有过一次接触，当时他因擅闯行人检查站的限制区域而被捕。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:02 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 13:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 13:24 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 13:10 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 13:10 - [天津打雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 13:15 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 13:12 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:19 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 13:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 13:05 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 13:19 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 13:09 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 13:10 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 13:23 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 13:12 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 13:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 13:12 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 13:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 13:17 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 13:07 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 13:13 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 13:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/61273.shtml)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/864361.shtml)
-- 2026-06-29 13:25 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/1249462.shtml)
-- 2026-06-29 13:23 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/102290313.shtml)
-- 2026-06-29 13:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/12330.shtml)
-- 2026-06-29 13:16 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/08627240387.shtml)
-- 2026-06-29 13:11 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/89617422083.shtml)
-- 2026-06-29 13:29 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/9135941823.shtml)
-- 2026-06-29 13:07 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/11998893727.shtml)
-- 2026-06-29 13:19 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/2772901593.shtml)
-- 2026-06-29 13:01 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/1470384817.shtml)
-- 2026-06-29 13:23 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/140843384686.shtml)
-- 2026-06-29 13:08 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/558434448.shtml)
-- 2026-06-29 13:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/57911.shtml)
-- 2026-06-29 13:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/7846675132.shtml)
+- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/460560217161.shtml)
+- 2026-06-29 13:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/85274.shtml)
+- 2026-06-29 13:08 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/361898.shtml)
+- 2026-06-29 13:34 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/4011931036.shtml)
+- 2026-06-29 13:29 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/92085263922.shtml)
+- 2026-06-29 13:15 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/408018.shtml)
+- 2026-06-29 13:19 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/0989071546.shtml)
+- 2026-06-29 13:18 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/294616546.shtml)
+- 2026-06-29 13:26 - [沙特足协主席发布声明主动请辞](https://www.blog.kurohicncr.top/Article/details/32188.shtml)
+- 2026-06-29 13:14 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/79197.shtml)
+- 2026-06-29 13:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/6514189289.shtml)
+- 2026-06-29 13:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/2048046715.shtml)
+- 2026-06-29 13:31 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/57638035.shtml)
+- 2026-06-29 13:11 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/84428679987.shtml)
+- 2026-06-29 13:12 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/521038168.shtml)

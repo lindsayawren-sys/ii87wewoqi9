@@ -1,57 +1,60 @@
-# 频繁早醒，是不是病啊？这种情况千万别忽视
+# 重庆对14个区县启动市级防汛四级应急响应
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-突然，你又一次醒了。 你看了一下身边的手机，又是凌晨 3 点。你已经连续 2 个礼拜都在这个时间醒来，醒来后再也睡不着。 你以为过几天就好，现在看，似乎没有好转的迹象。你开始担心，甚至有点绝望…… 这种“凌晨三四点睡醒后睡不着”的场景，你是否经历过？这叫“早醒”，被定义为比预期起床的时间提前 30 分钟以上。 这里的预期时间，更多的是指你平时更多时间段的作息，而这里的 30 分
+中新网重庆5月23日电 (记者 刘相琳)记者23日从重庆市应急管理局获悉，23日夜间至27日夜间，重庆将有一次持续性降雨天气过程，重庆市防汛抗旱指挥部决定对14个区县启动市级防汛四级应急响应。 重庆市气象防御专委(重庆市气象局)发布的《重要气象信息专报》显示，此轮持续性降雨天气过程累计雨量局地可达220至240毫米，最大小时雨量50至80毫米。本轮降雨持续时间长，夜间降雨明显，
 
 ## 正文
 
-突然，你又一次醒了。
+中新网重庆5月23日电 (记者 刘相琳)记者23日从重庆市应急管理局获悉，23日夜间至27日夜间，重庆将有一次持续性降雨天气过程，重庆市防汛抗旱指挥部决定对14个区县启动市级防汛四级应急响应。
 
-你看了一下身边的手机，又是凌晨 3 点。
+重庆市气象防御专委(重庆市气象局)发布的《重要气象信息专报》显示，此轮持续性降雨天气过程累计雨量局地可达220至240毫米，最大小时雨量50至80毫米。
 
-你已经连续 2 个礼拜都在这个时间醒来，醒来后再也睡不着。
+本轮降雨持续时间长，夜间降雨明显，短时降雨偏强，单日落区不稳定，部分地区因前期强降雨导致土壤含水量趋于饱和，中小河流洪水、山洪、内涝和工程险情易发风险高。
 
-你以为过几天就好，现在看，似乎没有好转的迹象。
+按照《重庆市防汛抗旱应急预案》，经会商研判，重庆市防汛抗旱指挥部决定对綦江区、江津区、巴南区、万盛经开区、南川区、垫江县、梁平区、涪陵区、黔江区、武隆区、丰都县、石柱县、彭水县、酉阳县等14个区县启动市级防汛四级应急响应。
 
-你开始担心，甚至有点绝望…… 这种“凌晨三四点睡醒后睡不着”的场景，你是否经历过？
+5月23日3时至9时，渝西部分区县已降暴雨。
 
-这叫“早醒”，被定义为比预期起床的时间提前 30 分钟以上。
+据重庆市水文监测总站监测，重庆巴南区已有中小河流超警。
 
-这里的预期时间，更多的是指你平时更多时间段的作息，而这里的 30 分钟，是一个参考时间，人毕竟不是机器，你不需要卡着表对照自己的睡眠。
+根据气象部门预测，黔江区、涪陵区、巴南区、江津区、南川区、綦江区、梁平区、武隆区、丰都县、垫江县、石柱县、酉阳县、彭水县、万盛经开区等区县仍有大到暴雨。
 
-当一个人频繁出现早醒的情况，难免会开始焦虑，迫切地想要寻找解决方案。
+重庆市水利局针对黔江区、涪陵区、巴南区、江津区、南川区、綦江区、梁平区、武隆区、丰都县、垫江县、石柱县、酉阳县、彭水县、万盛经开区等14个区县已启动水旱灾害防御Ⅳ级应急响应。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 13:27 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 13:09 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:23 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 13:06 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 13:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 13:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 13:02 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 13:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 13:22 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 13:23 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 13:34 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 13:30 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 13:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 13:10 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 13:19 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 13:26 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 13:11 - [三轮车被自家狗“推”进池塘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 13:34 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 13:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 13:24 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 13:30 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 13:32 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:15 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/812598.shtml)
-- 2026-06-29 13:01 - [沉睡花园](http://www.share.minike.top/Article/details/7575110361.shtml)
-- 2026-06-29 13:27 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/936283371.shtml)
-- 2026-06-29 13:25 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/8924608.shtml)
-- 2026-06-29 13:24 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/350530893.shtml)
-- 2026-06-29 13:15 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/314558430.shtml)
-- 2026-06-29 13:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9431166668.shtml)
-- 2026-06-29 13:24 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/978938384231.shtml)
-- 2026-06-29 13:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/1374188.shtml)
-- 2026-06-29 13:20 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/9619564.shtml)
-- 2026-06-29 13:10 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/01916048.shtml)
-- 2026-06-29 13:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/86906036.shtml)
-- 2026-06-29 13:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/562518.shtml)
-- 2026-06-29 13:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/54532.shtml)
-- 2026-06-29 13:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/645496.shtml)
+- 2026-06-29 13:06 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/1591520.shtml)
+- 2026-06-29 13:23 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/17706257911.shtml)
+- 2026-06-29 13:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/106012633801.shtml)
+- 2026-06-29 13:26 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/36416292.shtml)
+- 2026-06-29 13:22 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/972300471251.shtml)
+- 2026-06-29 13:26 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/24181.shtml)
+- 2026-06-29 13:23 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/110846258.shtml)
+- 2026-06-29 13:17 - [《贺子珍》](https://www.blog.minike.top/Article/details/451185.shtml)
+- 2026-06-29 13:31 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/843488.shtml)
+- 2026-06-29 13:09 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/45219448324.shtml)
+- 2026-06-29 13:24 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.kurohicncr.top/Article/details/012265341.shtml)
+- 2026-06-29 13:17 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/1750271.shtml)
+- 2026-06-29 13:06 - [斗破苍穹](http://www.blog.minike.top/Article/details/65841791.shtml)
+- 2026-06-29 13:23 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/827734.shtml)
+- 2026-06-29 13:08 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/65114369710.shtml)

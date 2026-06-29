@@ -1,58 +1,46 @@
-# 美国高级官员：美伊已签署谅解备忘录
+# 生生不息的美好，何以常驻岭南大地？｜学习粤报
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。 当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。 该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。海峡内的交通量即刻起将大幅增加。 该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金
+统筹：李琳 杨格 策划：陈海敏 设计：汪婉莹 AI审核：杨格 校对：陈学德 AI工具：即梦 (南方网·粤学习)
 
 ## 正文
 
-据美国方面15日消息，美国总统特朗普和副总统万斯、伊朗伊斯兰议会议长卡利巴夫都已经以电子方式签署了美伊谅解备忘录。
-
-当日，一名美国高级官员表示，“我们与伊朗签署了一份谅解备忘录，特朗普和万斯已签署，卡利巴夫也已签署”。
-
-该官员表示，协议规定立即开放霍尔木兹海峡并解除美国对伊朗的封锁。
-
-海峡内的交通量即刻起将大幅增加。
-
-该官员还表示，备忘录细节将在未来24至48小时内公布，解冻资金与制裁减免将视履约情况而定。
-
-根据备忘录，美方计划在下一阶段谈判期间维持目前的军事态势，在达成最终协议后削减军事力量。
-
-美高级官员：伊朗议会议长已获最高领袖授权进行谈判并签署协议 该官员称，据美方了解，伊朗议会议长卡利巴夫已获最高领袖授权签署协议并开展谈判。
-
-此外，美国对阿曼在战前谈判期间的表现感到不满。
+统筹：李琳 杨格 策划：陈海敏 设计：汪婉莹 AI审核：杨格 校对：陈学德 AI工具：即梦 (南方网·粤学习)
 
 ## 相关推荐
 
-- 2026-06-29 13:20 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 13:12 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 13:05 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 13:16 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 13:23 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 13:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 13:03 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 13:09 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:28 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 13:21 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 13:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 13:28 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 13:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 13:23 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 13:06 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 13:29 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 13:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 13:20 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 13:29 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 13:08 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 13:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 13:30 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 13:13 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 13:20 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 13:12 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/731853575823.shtml)
-- 2026-06-29 13:22 - [刘宇宁现偶我就不要了](http://www.share.minike.top/Article/details/38688125.shtml)
-- 2026-06-29 13:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/740011118188.shtml)
-- 2026-06-29 13:18 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/925820353326.shtml)
-- 2026-06-29 13:14 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/7481072.shtml)
-- 2026-06-29 13:08 - [游戏数据竟被用于军事目的](https://www.blog.minike.top/Article/details/849794784.shtml)
-- 2026-06-29 13:09 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/372789638564.shtml)
-- 2026-06-29 13:10 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/658028398.shtml)
-- 2026-06-29 13:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/50525.shtml)
-- 2026-06-29 13:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/264953100862.shtml)
-- 2026-06-29 13:19 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/532676.shtml)
-- 2026-06-29 13:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/588513110.shtml)
-- 2026-06-29 13:00 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/82330362558.shtml)
-- 2026-06-29 13:12 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/49198.shtml)
-- 2026-06-29 13:28 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/62197549534.shtml)
+- 2026-06-29 13:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/195025346.shtml)
+- 2026-06-29 13:14 - [5万块的威力](https://www.share.minike.top/Article/details/651002877.shtml)
+- 2026-06-29 13:22 - [吴建豪老婆](http://www.share.minike.top/Article/details/63877.shtml)
+- 2026-06-29 13:07 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/6503564.shtml)
+- 2026-06-29 13:16 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.minike.top/Article/details/5387340800.shtml)
+- 2026-06-29 13:22 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/588399292.shtml)
+- 2026-06-29 13:17 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/563069.shtml)
+- 2026-06-29 13:13 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/436502010.shtml)
+- 2026-06-29 13:16 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/74976134184.shtml)
+- 2026-06-29 13:12 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/10847718.shtml)
+- 2026-06-29 13:07 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/31937308.shtml)
+- 2026-06-29 13:19 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/480155.shtml)
+- 2026-06-29 13:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8708636.shtml)
+- 2026-06-29 13:30 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/355356.shtml)
+- 2026-06-29 13:27 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/059342.shtml)

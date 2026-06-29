@@ -1,56 +1,59 @@
-# 专家称中国服务外包从“拼人力”转为“拼技术”
+# 云南“大香格里拉”户外赛迪庆启幕 2000余人参赛
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月16日电 (记者 武一力)第十五届中国国际服务外包交易博览会16日在武汉开幕。中国国际投资促进会会长房爱卿在开幕式上表示，在人工智能迅猛发展的今天，中国服务外包产业加速从“拼人力”跃升为“拼技术”。今年是中国服务外包“千百十”工程启动实施20周年。中国国际投资促进会数据显示，2006年至2025年，中国服务外包产业合同执行额从13.8亿美元激增至3032.4亿美元
+中新网迪庆5月22日电 (黄兴鸿)22日晚，为期5天的2026云南“大香格里拉”户外运动大赛在迪庆藏族自治州香格里拉市启幕。该活动设5项比赛及特色产品展销会、徒步体验等，吸引来自各地的2000余名户外运动爱好者参赛。 迪庆在藏语中意为“吉祥如意的地方”，位于云南省西北部，拥有“香格里拉”“三江并流”“梅里雪山”“茶马古道”四大世界级品牌，是名副其实的户外天堂、徒步圣地。 当晚的
 
 ## 正文
 
-中新网武汉6月16日电 (记者 武一力)第十五届中国国际服务外包交易博览会16日在武汉开幕。
+中新网迪庆5月22日电 (黄兴鸿)22日晚，为期5天的2026云南“大香格里拉”户外运动大赛在迪庆藏族自治州香格里拉市启幕。
 
-中国国际投资促进会会长房爱卿在开幕式上表示，在人工智能迅猛发展的今天，中国服务外包产业加速从“拼人力”跃升为“拼技术”。
+该活动设5项比赛及特色产品展销会、徒步体验等，吸引来自各地的2000余名户外运动爱好者参赛。
 
-今年是中国服务外包“千百十”工程启动实施20周年。
+迪庆在藏语中意为“吉祥如意的地方”，位于云南省西北部，拥有“香格里拉”“三江并流”“梅里雪山”“茶马古道”四大世界级品牌，是名副其实的户外天堂、徒步圣地。
 
-中国国际投资促进会数据显示，2006年至2025年，中国服务外包产业合同执行额从13.8亿美元激增至3032.4亿美元；市场主体从约500家扩容至9万余家；从业人员从不足6万人攀升至1765.5万人；业务范围覆盖近200个国家和地区。
+当晚的启动仪式在香格里拉市独克宗古城月光广场举行。
 
-房爱卿指出，中国服务外包产业已不单是帮助企业降本增效的“战术工具”，更是驱动企业智能转型、价值创造的引擎，呈现三大发展趋势：数智化推动业务向研发外包、工业设计等高附加值领域跃升；绿色化赋能全行业低碳转型，成为新的核心竞争力；融合化打破产业边界，“服务外包+”模式持续释放增长动能。
+中共迪庆州委副书记、州人民政府州长张卫东在致辞中介绍，近年来，该州以赛为媒、以体赋能，持续完善户外配套、优化赛事服务，推动“体育+文旅+生态”深度融合。
 
-中国宏观经济研究院研究员张燕生认为，中国发展人工智能服务外包具备独特优势：超大规模终端市场为人工智能应用提供了丰富的落地场景，完备的产业体系支撑人工智能解决方案快速迭代，产业化工程化能力突出。
+通过打造系列精品赛事，让香格里拉的自然风貌与人文底蕴广泛传播，全域旅游焕发新活力，户外运动正成为迪庆深化对外开放、推动高质量发展的亮丽名片。
 
-未来，企业应依托人工智能技术加快向知识密集、技术密集的高端服务升级，凭借“人工智能+产业”的差异化方案参与全球服务分工。
+本次大赛旨在推动体文旅商融合发展，促进各民族交往交流交融，进一步擦亮“有一种叫云南的生活——世界的‘香格里拉’”这一品牌。
 
-“未来5年至10年，中国服务外包产业有望完成从‘世界工厂’向高端‘世界办公室’的关键一跃。
+诚邀八方宾客畅游大香格里拉，感受迪庆生态之美、人文之美、和谐之美。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 13:02 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 13:12 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 13:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 13:25 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 13:00 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 13:02 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 13:17 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 13:23 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 13:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 13:07 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:12 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 13:08 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 13:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 13:09 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:11 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 13:31 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 13:06 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 13:24 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 13:24 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 13:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 13:29 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 13:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/20539575.shtml)
-- 2026-06-29 13:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/171406075.shtml)
-- 2026-06-29 13:28 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/1018202.shtml)
-- 2026-06-29 13:15 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/275393311.shtml)
-- 2026-06-29 13:16 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/5729576863.shtml)
-- 2026-06-29 13:24 - [乌拉圭出局之路](https://www.blog.minike.top/Article/details/682089.shtml)
-- 2026-06-29 13:17 - [普京称俄处于命运攸关之际](http://www.blog.minike.top/Article/details/53859810.shtml)
-- 2026-06-29 13:23 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/530717658685.shtml)
-- 2026-06-29 13:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/27523386567.shtml)
-- 2026-06-29 13:01 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/841843.shtml)
-- 2026-06-29 13:24 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/64254.shtml)
-- 2026-06-29 13:06 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/42664602256.shtml)
-- 2026-06-29 13:22 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/81588.shtml)
-- 2026-06-29 13:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/8109630.shtml)
-- 2026-06-29 13:08 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/6276072.shtml)
+- 2026-06-29 13:32 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/60801739630.shtml)
+- 2026-06-29 13:24 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/29581663.shtml)
+- 2026-06-29 13:36 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/7861612.shtml)
+- 2026-06-29 13:19 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/170966.shtml)
+- 2026-06-29 13:35 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/372926511666.shtml)
+- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/89552740236.shtml)
+- 2026-06-29 13:07 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/4020615780.shtml)
+- 2026-06-29 13:18 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/896776.shtml)
+- 2026-06-29 13:08 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/323992979406.shtml)
+- 2026-06-29 13:07 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/752668433945.shtml)
+- 2026-06-29 13:34 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/42373059754.shtml)
+- 2026-06-29 13:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/888073226306.shtml)
+- 2026-06-29 13:22 - [美人鱼](https://www.blog.minike.top/Article/details/38429037740.shtml)
+- 2026-06-29 13:24 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/08774.shtml)
+- 2026-06-29 13:12 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/7787819.shtml)

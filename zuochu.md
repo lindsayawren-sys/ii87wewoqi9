@@ -1,60 +1,59 @@
-# 金价跃升 美国和伊朗达成协议以恢复霍尔木兹海峡通行
+# Cuprina宣布1比8反向拆股，为保住纳斯达克上市资格做最后努力
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-金价和银价上涨，此前美国和伊朗达成临时协议，旨在结束敌对行动并恢复霍尔木兹海峡通行，这缓解了全球通胀担忧，可能降低市场对加息的预期。 现货金价一度跃升3.6%，接近每盎司4，370美元，白银一度上涨4.9%。油价下跌。美国总统特朗普周一声称，船只已经在通过该海峡，其中“许多满载石油”。华盛顿和德黑兰仍需就谅解备忘录相关的最后步骤作出决定，该备忘录定于周五在瑞士现场签署。 “这使
+新加坡生物医疗公司Cuprina Holdings于5月22日宣布，将对其A类和B类普通股实施1比8的反向拆股，预计于5月27日前后生效。此举旨在使公司股价重新达到纳斯达克的最低1美元竞价要求，从而维持上市地位。 公司首席执行官David Quek表示，此举是维持公司纳斯达克上市地位、增强长期财务灵活性的重要一步。根据合并方案，每8股面值0.001美元的普通股将合并为1股面值0
 
 ## 正文
 
-金价和银价上涨，此前美国和伊朗达成临时协议，旨在结束敌对行动并恢复霍尔木兹海峡通行，这缓解了全球通胀担忧，可能降低市场对加息的预期。
+新加坡生物医疗公司Cuprina Holdings于5月22日宣布，将对其A类和B类普通股实施1比8的反向拆股，预计于5月27日前后生效。
 
-现货金价一度跃升3.6%，接近每盎司4，370美元，白银一度上涨4.9%。
+此举旨在使公司股价重新达到纳斯达克的最低1美元竞价要求，从而维持上市地位。
 
-油价下跌。
+公司首席执行官David Quek表示，此举是维持公司纳斯达克上市地位、增强长期财务灵活性的重要一步。
 
-美国总统特朗普周一声称，船只已经在通过该海峡，其中“许多满载石油”。
+根据合并方案，每8股面值0.001美元的普通股将合并为1股面值0.008美元的股份。
 
-华盛顿和德黑兰仍需就谅解备忘录相关的最后步骤作出决定，该备忘录定于周五在瑞士现场签署。
+拆股后不会发行零碎股份，不足一股的部分将向上取整。
 
-“这使得黄金所处的宏观背景不再那么不利，”华侨银行外汇策略师Christopher Wong表示，“话虽如此，协议仍有待正式敲定，因此在此期间市场可能仍会波动较大。
+公司A类股将继续以代码CUPR交易，但将启用新的CUSIP编号。
 
-” 自2月底战争爆发以来，黄金走势大体与原油呈反向关系，因为能源价格上涨推高通胀，并促使各国央行在更长时间内维持高利率，削弱了无息贵金属的吸引力。
+根据2025年11月收到的纳斯达克通知，公司有180天合规期至2026年5月26日，以解决股价长期低于1美元的问题。
 
-冲突爆发以来，金价已下跌约18%，上周触及11月份以来最低。
+此次并股是解决合规问题的最终尝试。
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 13:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 13:05 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:29 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 13:04 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 13:14 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 13:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 13:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 13:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 13:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 13:27 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 13:27 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 13:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 13:16 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 13:16 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 13:35 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 13:12 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:32 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 13:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 13:15 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 13:27 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:06 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 13:08 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 13:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 13:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 13:13 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/167023679914.shtml)
-- 2026-06-29 13:14 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/2592481784.shtml)
-- 2026-06-29 13:10 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/5539489.shtml)
-- 2026-06-29 13:16 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/390269365.shtml)
-- 2026-06-29 13:00 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/45311630388.shtml)
-- 2026-06-29 13:27 - [黄金大跌带崩“黄金爱马仕”老铺黄金](http://www.blog.kurohicncr.top/Article/details/723232992466.shtml)
-- 2026-06-29 13:00 - [美人鱼](http://www.share.kurohicncr.top/Article/details/31906752.shtml)
-- 2026-06-29 13:07 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/1417829.shtml)
-- 2026-06-29 13:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/750064137049.shtml)
-- 2026-06-29 13:09 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/925494211.shtml)
-- 2026-06-29 13:28 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/7532919.shtml)
-- 2026-06-29 13:23 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/3118075.shtml)
-- 2026-06-29 13:23 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/69585830.shtml)
-- 2026-06-29 13:23 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/403054108476.shtml)
-- 2026-06-29 13:16 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/172563178965.shtml)
+- 2026-06-29 13:13 - [医护人员观影《四渡》传承长征精神](http://www.blog.kurohicncr.top/Article/details/912197569.shtml)
+- 2026-06-29 13:18 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/25936026424.shtml)
+- 2026-06-29 13:21 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/1008064538.shtml)
+- 2026-06-29 13:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/32156826996.shtml)
+- 2026-06-29 13:23 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/1093777134.shtml)
+- 2026-06-29 13:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/8767265.shtml)
+- 2026-06-29 13:23 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/179237.shtml)
+- 2026-06-29 13:27 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/0435893.shtml)
+- 2026-06-29 13:13 - [功率半导体缺货涨价](https://www.blog.minike.top/Article/details/921030791781.shtml)
+- 2026-06-29 13:14 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/70564483958.shtml)
+- 2026-06-29 13:29 - [扬名立万](https://www.blog.minike.top/Article/details/21182059.shtml)
+- 2026-06-29 13:21 - [双高胎](https://www.share.minike.top/Article/details/9281377696.shtml)
+- 2026-06-29 13:21 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/5396515.shtml)
+- 2026-06-29 13:22 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/01191.shtml)
+- 2026-06-29 13:30 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/395458300980.shtml)

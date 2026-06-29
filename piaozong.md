@@ -1,60 +1,53 @@
-# 王毅同巴基斯坦副总理兼外长达尔通电话
+# 第25届“汉语桥”世界大学生中文比赛柬埔寨赛区决赛举行
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-2026年6月16日晚，中共中央政治局委员、外交部长王毅同巴基斯坦副总理兼外长达尔通电话。 达尔通报了伊朗与美国达成第一阶段谅解备忘录情况，感谢中方在过去几个月同巴方保持密切沟通，对巴方斡旋努力予以宝贵支持。巴方期待同中方继续沟通协调，维持当前和谈势头，共同为实现地区持久和平稳定发挥积极作用。 王毅祝贺巴基斯坦推动伊美达成第一阶段谅解备忘录，强调为和平而努力是包括中巴在内所有国
+中新社金边5月23日电 第25届“汉语桥”世界大学生中文比赛柬埔寨赛区决赛22日在金边举行，经过激烈角逐，来自金边皇家大学的林明强荣获一等奖，他将代表柬埔寨赴华参加全球总决赛。 柬埔寨副首相兼教育青年体育部大臣韩春那洛和中国驻柬大使汪文斌等出席活动并致辞。 汪文斌表示，本届比赛参赛人数较上届增长55.7%，既是柬埔寨中文教学成果的生动展示，也预示着中柬互利合作的光明前景。相信随
 
 ## 正文
 
-2026年6月16日晚，中共中央政治局委员、外交部长王毅同巴基斯坦副总理兼外长达尔通电话。
+中新社金边5月23日电 第25届“汉语桥”世界大学生中文比赛柬埔寨赛区决赛22日在金边举行，经过激烈角逐，来自金边皇家大学的林明强荣获一等奖，他将代表柬埔寨赴华参加全球总决赛。
 
-达尔通报了伊朗与美国达成第一阶段谅解备忘录情况，感谢中方在过去几个月同巴方保持密切沟通，对巴方斡旋努力予以宝贵支持。
+柬埔寨副首相兼教育青年体育部大臣韩春那洛和中国驻柬大使汪文斌等出席活动并致辞。
 
-巴方期待同中方继续沟通协调，维持当前和谈势头，共同为实现地区持久和平稳定发挥积极作用。
+汪文斌表示，本届比赛参赛人数较上届增长55.7%，既是柬埔寨中文教学成果的生动展示，也预示着中柬互利合作的光明前景。
 
-王毅祝贺巴基斯坦推动伊美达成第一阶段谅解备忘录，强调为和平而努力是包括中巴在内所有国家应尽的国际责任。
+相信随着柬中文教育蓬勃发展，中柬各领域合作将拥有更加强劲的动力和更加广阔的空间。
 
-只要和平还有希望，就值得为此付出。
+韩春那洛表示，该赛事是推动柬埔寨中文教育发展、促进两国青年交流的重要平台，将为培养新一代青年力量、推动柬中友谊代代相传发挥积极作用。
 
-战事发生以来，中方同各方开展接触，积极止战促和，从一开始就力挺巴方，向各方强调巴是值得信赖的斡旋者，也以自己的方式分别做了伊朗和美国工作。
-
-王毅表示，行百里者半九十，目前的共识远非终点，而是新的起点，中东海湾地区持久和平仍需各方不懈努力。
-
-可以预见同第一阶段相比，第二阶段谈判的难度将更大。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:24 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 13:07 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 13:11 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 13:21 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 13:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 13:01 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 13:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 13:13 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 13:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 13:20 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 13:13 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 13:29 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 13:09 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 13:31 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 13:20 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 13:12 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 13:23 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 13:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 13:18 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 13:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 13:09 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 13:26 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 13:33 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/94971631359.shtml)
-- 2026-06-29 13:03 - [女心理师](https://www.share.minike.top/Article/details/89633158.shtml)
-- 2026-06-29 13:17 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/896657755.shtml)
-- 2026-06-29 13:06 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/980757999.shtml)
-- 2026-06-29 13:24 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/76897828075.shtml)
-- 2026-06-29 13:03 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/4192563.shtml)
-- 2026-06-29 13:08 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/8538567.shtml)
-- 2026-06-29 13:09 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/666081.shtml)
-- 2026-06-29 13:02 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/547595.shtml)
-- 2026-06-29 13:02 - [斛珠夫人](https://www.blog.minike.top/Article/details/904113.shtml)
-- 2026-06-29 13:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/55287389417.shtml)
-- 2026-06-29 13:18 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/036806141312.shtml)
-- 2026-06-29 13:22 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/635428114128.shtml)
-- 2026-06-29 13:20 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/0430347119.shtml)
-- 2026-06-29 13:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/60169194.shtml)
+- 2026-06-29 13:10 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/27109653398.shtml)
+- 2026-06-29 13:30 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/7697689.shtml)
+- 2026-06-29 13:29 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/67250.shtml)
+- 2026-06-29 13:13 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/16137642609.shtml)
+- 2026-06-29 13:19 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/28432318837.shtml)
+- 2026-06-29 13:18 - [本周做什么都顺的星座](http://www.share.kurohicncr.top/Article/details/64490790.shtml)
+- 2026-06-29 13:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/23226634763.shtml)
+- 2026-06-29 13:30 - [沙丘](https://www.blog.minike.top/Article/details/89175739119.shtml)
+- 2026-06-29 13:27 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/8621808.shtml)
+- 2026-06-29 13:28 - [恋与深空女玩家不该被冒犯](http://www.share.kurohicncr.top/Article/details/250069.shtml)
+- 2026-06-29 13:16 - [谢霆锋演唱会变大型呲水现场](http://www.blog.kurohicncr.top/Article/details/39333915440.shtml)
+- 2026-06-29 13:24 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/50439845.shtml)
+- 2026-06-29 13:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/6004400.shtml)
+- 2026-06-29 13:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/82802007156.shtml)
+- 2026-06-29 13:29 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/668215051356.shtml)

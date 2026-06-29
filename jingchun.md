@@ -1,59 +1,59 @@
-# 硬科技企业上市加速，券商科创业务或进入收获季
+# U17男足亚洲杯中国队2比3惜败日本队获亚军
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-今年以来，A股IPO市场热度稳步攀升，科创上市主体持续扩容，资本市场对国产自主创新的认可度大幅提升，全链条科创投融资生态进一步得到优化。在此背景下，券商投行、跟投、直投核心业务或迎来增量空间，科创服务正成为证券行业新的业绩增长极！（资料参考：中国财富网《金融业指引密集出台；硬科技引领IPO热潮》，2026.6.15） 券商科创收益或有望多点开花 当前，硬科技IPO已成A股融资主
+中新社北京5月23日电 当地时间22日在沙特阿拉伯吉达进行的2026亚足联U17男足亚洲杯决赛上，中国队在落后三球的情况下连扳两球，最终以2比3惜败日本队，获得本届赛事亚军。 中国队曾在1992年和2004年两次闯入U17男足亚洲杯决赛，均成功夺冠。这是中国队时隔22年再度进入该项赛事决赛，决赛对手为日本队，在此前的小组赛阶段，中国队以1比2负于日本队。 决赛中再度相遇，两支队
 
 ## 正文
 
-今年以来，A股IPO市场热度稳步攀升，科创上市主体持续扩容，资本市场对国产自主创新的认可度大幅提升，全链条科创投融资生态进一步得到优化。
+中新社北京5月23日电 当地时间22日在沙特阿拉伯吉达进行的2026亚足联U17男足亚洲杯决赛上，中国队在落后三球的情况下连扳两球，最终以2比3惜败日本队，获得本届赛事亚军。
 
-在此背景下，券商投行、跟投、直投核心业务或迎来增量空间，科创服务正成为证券行业新的业绩增长极！
+中国队曾在1992年和2004年两次闯入U17男足亚洲杯决赛，均成功夺冠。
 
-（资料参考：中国财富网《金融业指引密集出台；硬科技引领IPO热潮》，2026.6.15） 券商科创收益或有望多点开花 当前，硬科技IPO已成A股融资主力。
+这是中国队时隔22年再度进入该项赛事决赛，决赛对手为日本队，在此前的小组赛阶段，中国队以1比2负于日本队。
 
-Wind数据显示，截至6月14日，今年以来共有66家企业完成IPO，合计募资596.27亿元，上市数量、募资总额同比分别增长38%和66%。
+决赛中再度相遇，两支队伍阵容均发生变化，但依然是日本队率先占据上风，上半场便取得三球领先。
 
-其中，科创板与创业板共有19家企业上市，募资285.46亿元，占全市场募资总额的48%。
+易边再战，中国队换人调整，发动强势反击。
 
-（资料参考：中国财富网《包容性改革全链条护航 资本市场加力支持科技创新》，2026.6.15） 有分析称，科创企业IPO保荐承销手续费，是券商科创业务业绩增长的核心来源之一。
+第48分钟，帅惟浩横传送出助攻，万项禁区内得球后挑射破门，中国队扳回一球。
 
-资本市场对硬科技企业的扶持力度不断加大，大型科创IPO项目接连落地，或为券商投行业务带来可观收益。
+中国队前场不断施压收到成效，第79分钟，日本队球员解围时踢倒赵松源，赵松源主罚点球命中，双方分差缩小至一球。
 
-其中，头部券商凭借专业能力和项目储备，或持续领跑科创投行赛道。
+补时阶段中国队持续在对方禁区内制造险情，赵松源头球攻门险些扳平比分。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 13:18 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 13:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 13:06 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 13:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 13:01 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 13:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:21 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 13:10 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 13:29 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 13:13 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 13:28 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 13:24 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 13:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 13:32 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 13:30 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:21 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 13:17 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 13:06 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 13:10 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 13:14 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 13:06 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 13:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 13:13 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 13:16 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/696990.shtml)
-- 2026-06-29 13:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2373868969.shtml)
-- 2026-06-29 13:25 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/36622947701.shtml)
-- 2026-06-29 13:07 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/927812775855.shtml)
-- 2026-06-29 13:28 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/83965882.shtml)
-- 2026-06-29 13:25 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/0079416667.shtml)
-- 2026-06-29 13:26 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.share.minike.top/Article/details/8241788.shtml)
-- 2026-06-29 13:26 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/7179752083.shtml)
-- 2026-06-29 13:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8396912086.shtml)
-- 2026-06-29 13:12 - [金刚川](http://www.blog.kurohicncr.top/Article/details/99377.shtml)
-- 2026-06-29 13:24 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/4997423475.shtml)
-- 2026-06-29 13:10 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/9988763056.shtml)
-- 2026-06-29 13:21 - [恋与深空需直面玩家6大疑问](https://www.share.minike.top/Article/details/7009089.shtml)
-- 2026-06-29 13:16 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/411890802917.shtml)
-- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/84905569905.shtml)
+- 2026-06-29 13:12 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/822084.shtml)
+- 2026-06-29 13:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/6985726905.shtml)
+- 2026-06-29 13:14 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/250965324.shtml)
+- 2026-06-29 13:10 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/3513246.shtml)
+- 2026-06-29 13:07 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/241207.shtml)
+- 2026-06-29 13:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/798094623374.shtml)
+- 2026-06-29 13:22 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/80054703.shtml)
+- 2026-06-29 13:18 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/011455213.shtml)
+- 2026-06-29 13:29 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/96179.shtml)
+- 2026-06-29 13:22 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/32193141272.shtml)
+- 2026-06-29 13:17 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/03072.shtml)
+- 2026-06-29 13:19 - [起风了](https://www.blog.minike.top/Article/details/699554534.shtml)
+- 2026-06-29 13:06 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/540345473786.shtml)
+- 2026-06-29 13:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/963164.shtml)
+- 2026-06-29 13:35 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/495135720281.shtml)

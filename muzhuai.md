@@ -1,57 +1,60 @@
-# 官方指中国境内尚无埃博拉病毒病病例报告
+# 让世界爱上广西茶——2026年“非遗进景区”活动桂林启幕
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。据其介绍，中国境内尚无埃博拉病毒病病例报告。 近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。 此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告
+中新网桂林5月22日电(杨宗盛)5月22日，“让世界爱上广西茶——2026年‘非遗进景区’文化活动”在广西桂林市象山景区启幕。与以往节庆式展演不同，瑶族油茶、六堡茶等以体验方式落地景区，让非遗从名录走进中外游客的茶杯和行囊。 “过去游客来象鼻山，大多是拍张照就走，停留时间平均不到一小时。”象山景区管理处负责人说：“今天我们主动把非遗请进景区，就是想让游客在山水间坐下来喝杯茶，把
 
 ## 正文
 
-中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。
+中新网桂林5月22日电(杨宗盛)5月22日，“让世界爱上广西茶——2026年‘非遗进景区’文化活动”在广西桂林市象山景区启幕。
 
-据其介绍，中国境内尚无埃博拉病毒病病例报告。
+与以往节庆式展演不同，瑶族油茶、六堡茶等以体验方式落地景区，让非遗从名录走进中外游客的茶杯和行囊。
 
-近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。
+“过去游客来象鼻山，大多是拍张照就走，停留时间平均不到一小时。
 
-世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。
+”象山景区管理处负责人说：“今天我们主动把非遗请进景区，就是想让游客在山水间坐下来喝杯茶，把观光变为体验。
 
-此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告，根据中国传染病防治法等法律法规要求，埃博拉病毒病按照新发传染病管理。
+” 现场展示的茶礼盒，包装提取壮锦的云雷纹、太阳纹、凤栖梧等传统纹样。
 
-国家疾控局修订了《埃博拉病毒病防控方案(2026年版)》。
+广西非物质文化遗产研究院院长唐正柱表示：“这不是简单的‘贴标签’，而是将非遗从‘手艺’延伸到‘审美’和‘生活’。
 
-在加强病例发现和报告方面，《方案》要求各级医疗疾控机构和海关发现符合埃博拉病毒病留观、疑似或确诊病例时，应当及时报告相关信息。
+游客带走伴手礼，也带走了一份壮锦的视觉记忆和文化符号。
 
-留观病例、疑似病例和确诊病例应当在2小时内通过传染病报告信息管理系统进行网络直报。
+” 茶艺技能大师在古筝伴奏下展示六堡茶冲泡，茶香弥漫观景台。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 13:03 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 13:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 13:26 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 13:06 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 13:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 13:10 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 13:11 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 13:27 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 13:02 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 13:19 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 13:15 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 13:20 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 13:33 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 13:20 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 13:14 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 13:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 13:18 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 13:23 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 13:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 13:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 13:34 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 13:06 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 13:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 13:27 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/8410112582.shtml)
-- 2026-06-29 13:28 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/598447737882.shtml)
-- 2026-06-29 13:20 - [复盘葡萄牙逼平哥伦比亚](https://www.share.minike.top/Article/details/189224.shtml)
-- 2026-06-29 13:00 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/81732265.shtml)
-- 2026-06-29 13:00 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/132557733.shtml)
-- 2026-06-29 13:17 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/0444179071.shtml)
-- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/378735609313.shtml)
-- 2026-06-29 13:29 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/576202806.shtml)
-- 2026-06-29 13:18 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/691011897850.shtml)
-- 2026-06-29 13:14 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.kurohicncr.top/Article/details/383420.shtml)
-- 2026-06-29 13:29 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/043179950.shtml)
-- 2026-06-29 13:08 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/655943473.shtml)
-- 2026-06-29 13:23 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/8695128953.shtml)
-- 2026-06-29 13:04 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/091321.shtml)
-- 2026-06-29 13:13 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/981627.shtml)
+- 2026-06-29 13:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/73828991.shtml)
+- 2026-06-29 13:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/45182550543.shtml)
+- 2026-06-29 13:09 - [白鹿呵呵挽手比心](https://www.share.kurohicncr.top/Article/details/236044766.shtml)
+- 2026-06-29 13:06 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/49604480480.shtml)
+- 2026-06-29 13:06 - [乔家的儿女](http://www.blog.minike.top/Article/details/25644590472.shtml)
+- 2026-06-29 13:34 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/207799774.shtml)
+- 2026-06-29 13:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/08448957.shtml)
+- 2026-06-29 13:15 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/9778860915.shtml)
+- 2026-06-29 13:09 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/099220928199.shtml)
+- 2026-06-29 13:18 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/3556672.shtml)
+- 2026-06-29 13:12 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/02140716679.shtml)
+- 2026-06-29 13:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/113075918.shtml)
+- 2026-06-29 13:32 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/1880985.shtml)
+- 2026-06-29 13:25 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.minike.top/Article/details/4913078293.shtml)
+- 2026-06-29 13:29 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/461500.shtml)

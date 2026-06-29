@@ -1,60 +1,57 @@
-# 沈阳发布“十五五”规划纲要 锚定2030年经济总量破万亿
+# 山西沁源矿难救援队：负重约60斤搜救12小时没人喊苦喊累
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月16日电(杨茜茜)“开局起步‘十五五’奋力推动新时代辽宁全面振兴取得新突破”系列主题新闻发布会沈阳专场16日举行。沈阳市人民政府市长吕志成现场介绍《沈阳市国民经济和社会发展第十五个五年规划纲要》相关情况，明确未来五年振兴发展的任务书与施工图，提出加快建设东北亚国际化中心城市，谋划超480个重大项目，推动2030年经济总量迈入万亿元行列。 据介绍，沈阳市“十五五”规
+中新网长治5月24日电 题：山西沁源矿难救援队救援人员：负重约60斤井下徒步超5万步 作者 陆祁国 王惠琳 “连续高强度井下作业，腰背酸痛，咱们可否蹲下交流？”5月24日上午，面对中新网采访，国家矿山应急救援山西华阳队副总工程师洪宁波说。 连续两天的高强度救援，让这个救援老兵的身体发出了“抗议”。 沁源县留神峪煤矿瓦斯爆炸事故发生后，国家矿山应急救援山西华阳队作为应急管理部调派
 
 ## 正文
 
-中新网沈阳6月16日电(杨茜茜)“开局起步‘十五五’奋力推动新时代辽宁全面振兴取得新突破”系列主题新闻发布会沈阳专场16日举行。
+中新网长治5月24日电 题：山西沁源矿难救援队救援人员：负重约60斤井下徒步超5万步 作者 陆祁国 王惠琳 “连续高强度井下作业，腰背酸痛，咱们可否蹲下交流？
 
-沈阳市人民政府市长吕志成现场介绍《沈阳市国民经济和社会发展第十五个五年规划纲要》相关情况，明确未来五年振兴发展的任务书与施工图，提出加快建设东北亚国际化中心城市，谋划超480个重大项目，推动2030年经济总量迈入万亿元行列。
+”5月24日上午，面对中新网采访，国家矿山应急救援山西华阳队副总工程师洪宁波说。
 
-据介绍，沈阳市“十五五”规划纲要设置5类25项主要发展指标，部署15个领域重点任务，紧扣东北亚国际化中心城市定位，重点打造“四个中心、一个枢纽”。
+连续两天的高强度救援，让这个救援老兵的身体发出了“抗议”。
 
-建设具有国际竞争力的国家先进制造中心是核心抓手。
+沁源县留神峪煤矿瓦斯爆炸事故发生后，国家矿山应急救援山西华阳队作为应急管理部调派的六支救援队伍之一，火速集结，于23日凌晨紧急赶赴事故现场。
 
-作为全国重要先进制造业基地，沈阳将构建“3+4+3”现代化产业体系：推动汽车及零部件、装备制造、食品三大传统产业转型升级；培育壮大航空航天、生物医药及医疗装备、新一代信息技术、新能源四大战略性新兴产业；前瞻布局具身智能、未来材料、深地深海空天装备三大未来产业。
+凌晨时分：69人紧急出动 时间倒回至5月22日19时许，山西沁源县留神峪煤矿发生瓦斯爆炸事故，造成严重人员伤亡。
 
-同步推进数字沈阳建设，大力发展人工智能，力争2027年实现工业企业数字化改造应改尽改，打造更多大国重器。
+23日2时53分，一阵急促的电话铃声打破了深夜的宁静。
 
-其余三个中心与枢纽协同推进：建设具有全国影响力的区域科技创新中心，依托浑南科技城集聚创新资源，布局三大国家实验室基地，目标2030年科技型企业突破5万家；做强优质高效的东北现代服务业中心，推动生产性服务业向价值链高端延伸、生活性服务业提质升级，2030年全市服务业增加值突破7300亿元；塑造独具魅力的区域性文化中心，推动文旅体商深度融合，持续打响四季文旅品牌；全面提升国际化现代综合枢纽能级，实施“枢纽+开放”战略，推动交通、物流、信息三大枢纽扩容提质，“十五五”末期全市算力规模突破30000P。
+国家矿山应急救援山西华阳队接到出动命令。
 
-发布会上，相关负责人还就营商环境、城市建设、民生保障等热点问题回应媒体关切。
+国家矿山应急救援山西华阳队依托华阳新材料科技集团有限公司组建，是国家安全生产应急救援队伍，承担着山西省晋东、晋南地区，河北省中南部地区，京津雄安地区，河南省北部地区矿山事故及地震洪涝灾害等救援任务。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 13:10 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:10 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 13:12 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 13:07 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 13:22 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 13:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 13:25 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 13:00 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 13:17 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 13:21 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 13:06 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:26 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 13:08 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 13:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 13:17 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 13:23 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 13:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 13:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 13:30 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 13:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 13:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 13:27 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 13:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/229335686986.shtml)
-- 2026-06-29 13:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/33406.shtml)
-- 2026-06-29 13:26 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/43938441.shtml)
-- 2026-06-29 13:22 - [金牌调解](http://www.share.kurohicncr.top/Article/details/43965708.shtml)
-- 2026-06-29 13:08 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/673439723.shtml)
-- 2026-06-29 13:16 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/20528501.shtml)
-- 2026-06-29 13:15 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/32078072.shtml)
-- 2026-06-29 13:18 - [沙丘](http://www.blog.kurohicncr.top/Article/details/43521.shtml)
-- 2026-06-29 13:03 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/72194209564.shtml)
-- 2026-06-29 13:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/33434692.shtml)
-- 2026-06-29 13:22 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/338904792604.shtml)
-- 2026-06-29 13:29 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/084686112374.shtml)
-- 2026-06-29 13:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/2347148100.shtml)
-- 2026-06-29 13:00 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/26410.shtml)
-- 2026-06-29 13:12 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/5425174178.shtml)
+- 2026-06-29 13:34 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/132340.shtml)
+- 2026-06-29 13:22 - [本周做什么都顺的星座](http://www.share.kurohicncr.top/Article/details/6740116.shtml)
+- 2026-06-29 13:33 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/611712834442.shtml)
+- 2026-06-29 13:33 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/74481.shtml)
+- 2026-06-29 13:26 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/047371351.shtml)
+- 2026-06-29 13:09 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/066201062.shtml)
+- 2026-06-29 13:07 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/993140017.shtml)
+- 2026-06-29 13:33 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/553838343.shtml)
+- 2026-06-29 13:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/1574588.shtml)
+- 2026-06-29 13:25 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/02177457543.shtml)
+- 2026-06-29 13:15 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/6042865.shtml)
+- 2026-06-29 13:12 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/29213.shtml)
+- 2026-06-29 13:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/9896763184.shtml)
+- 2026-06-29 13:29 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/480959902.shtml)
+- 2026-06-29 13:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/978414.shtml)

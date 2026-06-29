@@ -1,57 +1,56 @@
-# “科技信仰式并购”浪潮的最新注脚：安德利果汁拟以6亿至8亿跨界收购半导体材料企业
+# 2025年我国北斗时空产业产值超1.3万亿元
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。 资本市场用三个涨停板给出了最直白的回应。6月12日、15日、16日，安德利A股连续三个交
+央视网消息(新闻联播)：《2026中国北斗时空产业发展白皮书》日前发布，数据显示，2025年我国北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。 产业规模稳步壮大的同时，北斗的应用场景也在不断丰富。如今，北斗已经全面融入通信、电力、交通运输等国家重要基础设施建设。在
 
 ## 正文
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。
+央视网消息(新闻联播)：《2026中国北斗时空产业发展白皮书》日前发布，数据显示，2025年我国北斗时空产业总体产值达到13323亿元。
 
-公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。
+其中，作为北斗时空产业基础的卫星导航产业总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
 
-一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。
+产业规模稳步壮大的同时，北斗的应用场景也在不断丰富。
 
-资本市场用三个涨停板给出了最直白的回应。
+如今，北斗已经全面融入通信、电力、交通运输等国家重要基础设施建设。
 
-6月12日、15日、16日，安德利A股连续三个交易日涨停，总市值累计上涨超60亿元；港股安德利果汁开盘更是一度暴涨80.44%。
+在通信领域，5G基站与北斗正融合升级为“通导感”一体化的新型数字基础设施，服务范围从地面扩展至低空与地下。
 
-然而，股价狂欢的另一面，是上交所当晚火速下发的监管工作函，涉及对象涵盖上市公司、董事、高级管理人员、控股股东及实际控制人。
-
-从果汁到半导体，安德利这一步跨得究竟有多大？
-
-果汁龙头的“舒适区”焦虑 安德利是国内最早涉足浓缩果汁加工的企业之一，自1996年成立以来，在原料果主产区建有10个加工基地、20条生产线，2003年和2020年先后在港股与A股上市，是国内首家果汁饮料类“A+H”双上市企业。
+而在大众消费领域，目前已有14亿部智能手机支持北斗定位功能，约占总量的98%；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 13:10 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 13:20 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 13:25 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 13:28 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 13:24 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 13:19 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 13:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 13:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 13:12 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 13:19 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 13:28 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 13:34 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 13:07 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 13:12 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 13:07 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 13:19 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 13:17 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 13:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:30 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 13:34 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 13:24 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 13:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 13:23 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/3108418.shtml)
-- 2026-06-29 13:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/267808646.shtml)
-- 2026-06-29 13:04 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/126422265168.shtml)
-- 2026-06-29 13:12 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/867444021.shtml)
-- 2026-06-29 13:15 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/656833190.shtml)
-- 2026-06-29 13:10 - [一见倾心](http://www.share.minike.top/Article/details/10285.shtml)
-- 2026-06-29 13:03 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.kurohicncr.top/Article/details/8177466403.shtml)
-- 2026-06-29 13:18 - [医护人员观影《四渡》传承长征精神](https://www.blog.minike.top/Article/details/6414268209.shtml)
-- 2026-06-29 13:19 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/2790308538.shtml)
-- 2026-06-29 13:15 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/29944890.shtml)
-- 2026-06-29 13:24 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/7012489.shtml)
-- 2026-06-29 13:25 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/6103799.shtml)
-- 2026-06-29 13:03 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/0935004852.shtml)
-- 2026-06-29 13:00 - [本周做什么都顺的星座](https://www.blog.kurohicncr.top/Article/details/112221.shtml)
-- 2026-06-29 13:04 - [流金岁月](https://www.blog.minike.top/Article/details/91114892898.shtml)
+- 2026-06-29 13:35 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/59614.shtml)
+- 2026-06-29 13:18 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/6838088725.shtml)
+- 2026-06-29 13:14 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/93047910.shtml)
+- 2026-06-29 13:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/103441.shtml)
+- 2026-06-29 13:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/54743.shtml)
+- 2026-06-29 13:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/5560576.shtml)
+- 2026-06-29 13:09 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/50104397055.shtml)
+- 2026-06-29 13:20 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/9128140.shtml)
+- 2026-06-29 13:13 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/799029.shtml)
+- 2026-06-29 13:09 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/70281213860.shtml)
+- 2026-06-29 13:28 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/51162618686.shtml)
+- 2026-06-29 13:10 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/10241.shtml)
+- 2026-06-29 13:30 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/2883134.shtml)
+- 2026-06-29 13:09 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/30728.shtml)
+- 2026-06-29 13:32 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/484896781597.shtml)

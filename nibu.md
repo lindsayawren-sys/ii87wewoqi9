@@ -1,60 +1,59 @@
-# 一块冲浪板激起浪花朵朵
+# 破立之间，优化期刊评价标尺
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-原标题：海南万宁冲浪产业规范发展、文体旅融合全域联动 一块冲浪板激起浪花朵朵(县域体育展活力) 从靠天吃饭到科技造浪，从无序生长到规范发展，海南万宁以冲浪为支点，串联起业态融合、全域联动的发展新篇。这座滨海小城，正勾勒出文体旅融合发展的新图景。 ——编者 海南省万宁市日月湾，阳光正好。距离海岸线几百米处，中旅逐浪度假区内人声鼎沸。伴随着气压释放的低沉轰鸣，平静的水面顷刻间隆起一
+近期，与期刊评价有关的破立之举频频成为学界焦点。 3月底，中国科学院文献情报中心宣布不再更新与发布期刊分区表，同时表示将继续开展学术资源评价方法的研究与探索。在这一时间前后，中国科学技术信息研究所(以下简称“中信所”)和之江实验室共同开发的世界科学引文数据库原型发布；东壁科技数据有限责任公司研发的《Dongbi Index全球高质量期刊列表》(以下简称“东壁指数”)问世；第三方
 
 ## 正文
 
-原标题：海南万宁冲浪产业规范发展、文体旅融合全域联动 一块冲浪板激起浪花朵朵(县域体育展活力) 从靠天吃饭到科技造浪，从无序生长到规范发展，海南万宁以冲浪为支点，串联起业态融合、全域联动的发展新篇。
+近期，与期刊评价有关的破立之举频频成为学界焦点。
 
-这座滨海小城，正勾勒出文体旅融合发展的新图景。
+3月底，中国科学院文献情报中心宣布不再更新与发布期刊分区表，同时表示将继续开展学术资源评价方法的研究与探索。
 
-——编者 海南省万宁市日月湾，阳光正好。
+在这一时间前后，中国科学技术信息研究所(以下简称“中信所”)和之江实验室共同开发的世界科学引文数据库原型发布；东壁科技数据有限责任公司研发的《Dongbi Index全球高质量期刊列表》(以下简称“东壁指数”)问世；第三方机构新锐学术推出《新锐期刊分区表》；在计算机领域颇具影响力的《中国计算机学会推荐国际学术会议和期刊目录》也更新了调整后的版本。
 
-距离海岸线几百米处，中旅逐浪度假区内人声鼎沸。
+国内机构纷纷探索优化期刊评价体系，这在深圳大学特聘教授、东壁指数创始人吴登生看来“并非简单地‘另起炉灶’”，而是由现行评价方法内在理论缺陷、现实需求与战略安全考量共同驱动的必然选择。
 
-伴随着气压释放的低沉轰鸣，平静的水面顷刻间隆起一道两米多高的碧蓝水墙。
+优化期刊评价体系“并非简单地‘另起炉灶’”不少业内人士认为，以“影响因子”论英雄的主流期刊评价体系存在“缺陷”。
 
-一名冲浪者伏在板上，划水、起乘、站立，滑行、转向，动作一气呵成。
+吴登生解释，目前常用的期刊评价指标，源于尤金·加菲尔德提出的“影响因子”，即统计期刊近两年发表的论文在当年的平均被引次数，也就是用总被引次数除以刊发论文的数量。
 
-“以前来日月湾，得盯着天气预报，生怕没有浪；现在来了就能下水，浪在这等着你。
+其优势在于直观易懂，因此长期被视为主流期刊评价指标，在过去的半个多世纪里对学术传播与期刊管理作出了不可磨灭的贡献。
 
-”刚刚上岸的游客李先生抹了一把脸上的水珠，难掩兴奋。
+然而吴登生指出，对于一些期刊来说，影响因子的统计假设与科研论文的实际被引分布存在根本性错配。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 13:29 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 13:29 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 13:22 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 13:08 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 13:14 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 13:08 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 13:19 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 13:00 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 13:24 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 13:26 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 13:29 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 13:22 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 13:10 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 13:27 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 13:17 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 13:08 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 13:35 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:09 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 13:13 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 13:31 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 13:06 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 13:14 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 13:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 13:06 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 13:15 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 13:18 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.minike.top/Article/details/73348218459.shtml)
-- 2026-06-29 13:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/304901200357.shtml)
-- 2026-06-29 13:01 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/20201644.shtml)
-- 2026-06-29 13:23 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/350330.shtml)
-- 2026-06-29 13:21 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/9439099.shtml)
-- 2026-06-29 13:16 - [急先锋](https://www.share.minike.top/Article/details/27468150.shtml)
-- 2026-06-29 13:29 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/86201358.shtml)
-- 2026-06-29 13:20 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/26326288326.shtml)
-- 2026-06-29 13:26 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/74302269.shtml)
-- 2026-06-29 13:02 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/0947443484.shtml)
-- 2026-06-29 13:01 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/5067237507.shtml)
-- 2026-06-29 13:18 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/568643406614.shtml)
-- 2026-06-29 13:13 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/85576.shtml)
-- 2026-06-29 13:00 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/63211489458.shtml)
-- 2026-06-29 13:21 - [毒液2](http://www.share.minike.top/Article/details/815468035.shtml)
+- 2026-06-29 13:24 - [俄政府批准巩固俄语地位行动计划](https://www.share.kurohicncr.top/Article/details/7158249663.shtml)
+- 2026-06-29 13:13 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/100237179908.shtml)
+- 2026-06-29 13:34 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/995205.shtml)
+- 2026-06-29 13:25 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/3056869546.shtml)
+- 2026-06-29 13:35 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/423625326.shtml)
+- 2026-06-29 13:11 - [急先锋](http://www.blog.minike.top/Article/details/33828922.shtml)
+- 2026-06-29 13:19 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/001299.shtml)
+- 2026-06-29 13:24 - [起风了](https://www.blog.minike.top/Article/details/48395426183.shtml)
+- 2026-06-29 13:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/098704397869.shtml)
+- 2026-06-29 13:11 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/97702.shtml)
+- 2026-06-29 13:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/101194.shtml)
+- 2026-06-29 13:12 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/824629.shtml)
+- 2026-06-29 13:19 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/92107662969.shtml)
+- 2026-06-29 13:23 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/933764.shtml)
+- 2026-06-29 13:14 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/09679206973.shtml)

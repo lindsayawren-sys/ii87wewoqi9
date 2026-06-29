@@ -1,56 +1,57 @@
-# 广东持续暴雨 深圳全市中小学停课
+# 中新网评：“婴儿”不是解压工具 警惕“娜塔莎”式暴力
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新社广州6月16日电 (记者 王坚)广东16日持续出现强降雨。当日白天，全省有261个镇街遭遇暴雨、大暴雨。广州南沙区部分区域及深圳等地停课。 广东气象部门介绍，16日8时到17时，全省有39个镇街录得超过100毫米的大暴雨，有222个镇街录得50毫米至100毫米的暴雨，其中江门台山市川岛镇录得全省最大降雨量达235毫米，深圳光明区新湖街道也录得降雨量超200毫米。 16日中
+中新网北京5月24日电(记者 谢艺观)近期，一款名为“娜塔莎”的婴儿造型解压玩具在网上引发争议。 视频中，这款软胶材质的“婴儿”玩偶，被反复摔打、踩踏、针刺……部分商家在宣传时更是用“养娃不如捏娃”“耐造抗揍”等话术，将暴力破坏包装成卖点。 一条“婴儿模样玩具承受种种‘虐待’”的视频走红，成百上千条同类视频蜂拥而至。这看似是“出圈”，实则折射出算法推荐机制下，情绪经济被流量绑架
 
 ## 正文
 
-中新社广州6月16日电 (记者 王坚)广东16日持续出现强降雨。
+中新网北京5月24日电(记者 谢艺观)近期，一款名为“娜塔莎”的婴儿造型解压玩具在网上引发争议。
 
-当日白天，全省有261个镇街遭遇暴雨、大暴雨。
+视频中，这款软胶材质的“婴儿”玩偶，被反复摔打、踩踏、针刺……部分商家在宣传时更是用“养娃不如捏娃”“耐造抗揍”等话术，将暴力破坏包装成卖点。
 
-广州南沙区部分区域及深圳等地停课。
+一条“婴儿模样玩具承受种种‘虐待’”的视频走红，成百上千条同类视频蜂拥而至。
 
-广东气象部门介绍，16日8时到17时，全省有39个镇街录得超过100毫米的大暴雨，有222个镇街录得50毫米至100毫米的暴雨，其中江门台山市川岛镇录得全省最大降雨量达235毫米，深圳光明区新湖街道也录得降雨量超200毫米。
+这看似是“出圈”，实则折射出算法推荐机制下，情绪经济被流量绑架的危险倾向，导致本应温和的宣泄方式，被异化为对“婴儿”形象的施虐狂欢。
 
-16日中午，广州南沙区乌云密布，暴雨倾盆，南沙区榄核镇、大岗镇暴雨橙色预警信号升级至红色。
+更须警惕的是，“娜塔莎”爆火带来的暴力模仿问题。
 
-按相关规定，两镇当日下午停课。
+以摧残婴儿玩偶为乐，会在潜移默化中弱化人们对儿童保护的敬畏心。
 
-深圳当日亦狂风暴雨，电闪雷鸣，全市(不含深汕特别合作区)中小学、幼儿园及培训机构下午停课。
+当“攻击弱小即可获得快感”的行为模式被反复强化，暴力便可能成为面对压力时的第一选择。
 
-气象专家表示，预计16日至18日，广东的南部市县仍将有大到暴雨局部(特)大暴雨，其余市县有中到大雨局部暴雨，雷雨时部分市县伴有8级局地10级的短时大风。
+尤其，大量“娜塔莎”暴力视频的观看者和模仿者正是未成年人。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 13:02 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 13:05 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 13:16 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 13:04 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 13:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 13:00 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 13:05 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:12 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 13:16 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 13:24 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:19 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 13:29 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 13:34 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 13:32 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 13:17 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 13:12 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 13:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 13:08 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 13:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/374750890.shtml)
-- 2026-06-29 13:06 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/359214.shtml)
-- 2026-06-29 13:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3122172526.shtml)
-- 2026-06-29 13:24 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/822634517.shtml)
-- 2026-06-29 13:20 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/10631513903.shtml)
-- 2026-06-29 13:00 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/728619441148.shtml)
-- 2026-06-29 13:01 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/814096129.shtml)
-- 2026-06-29 13:03 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/3886473.shtml)
-- 2026-06-29 13:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/31234.shtml)
-- 2026-06-29 13:13 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/9520846190.shtml)
-- 2026-06-29 13:11 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/628175447.shtml)
-- 2026-06-29 13:05 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/734619.shtml)
-- 2026-06-29 13:05 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/5933217.shtml)
-- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/2972020.shtml)
-- 2026-06-29 13:26 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/56699910885.shtml)
+- 2026-06-29 13:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/73476.shtml)
+- 2026-06-29 13:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/65742508.shtml)
+- 2026-06-29 13:12 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/124422.shtml)
+- 2026-06-29 13:16 - [大罗力挺内马尔](https://www.share.minike.top/Article/details/9554716.shtml)
+- 2026-06-29 13:21 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/946782088.shtml)
+- 2026-06-29 13:07 - [杨紫《生命树》播放量破百亿](https://www.blog.minike.top/Article/details/424677599284.shtml)
+- 2026-06-29 13:29 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/661694147.shtml)
+- 2026-06-29 13:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/11201028842.shtml)
+- 2026-06-29 13:19 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/7859040.shtml)
+- 2026-06-29 13:13 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/82760367.shtml)
+- 2026-06-29 13:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/28788388183.shtml)
+- 2026-06-29 13:25 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/273120412.shtml)
+- 2026-06-29 13:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/48541.shtml)
+- 2026-06-29 13:14 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/556445252.shtml)
+- 2026-06-29 13:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/37673.shtml)

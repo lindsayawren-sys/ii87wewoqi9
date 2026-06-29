@@ -1,51 +1,56 @@
-# 青海发生6.3级地震 武警青海总队紧急出动救援
+# 两家美国地区银行控股公司宣布季度派息方案
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 07:58 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。武警青海总队海西支队第一时间启动应急预案，紧急出动救援。(记者 卢晓娜) 责任编辑：【黄钰涵】
+两家地区性银行控股公司于5月22日分别宣布了季度股息分配方案。 Commercial National Financial Corporation宣布，将派发每股0.15美元的季度现金股息。该股息的股权登记日为5月29日，支付日为6月5日。 Commercial National Financial是宾夕法尼亚州Commercial Bank & Trust of PA的母公司
 
 ## 正文
 
-发布时间：2026年06月17日 07:58 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。
+两家地区性银行控股公司于5月22日分别宣布了季度股息分配方案。
 
-武警青海总队海西支队第一时间启动应急预案，紧急出动救援。
+Commercial National Financial Corporation宣布，将派发每股0.15美元的季度现金股息。
 
-(记者 卢晓娜) 责任编辑：【黄钰涵】
+该股息的股权登记日为5月29日，支付日为6月5日。
+
+Commercial National Financial是宾夕法尼亚州Commercial Bank & Trust of PA的母公司，总部位于拉特罗布。
+
+该银行在宾夕法尼亚州威斯特摩兰县地区运营七家社区银行网点，并提供资产管理和信托服务。
+
+公司此前曾披露，截至2026年3月31日，高管及董事直接和实益持有的股份达504，607股，占流通股的17.75%。
+
+值得注意的是，Commercial National Financial设有股票回购计划，已授权回购最多143，048股，占流通股的5%。
+
+截至2026年3月31日，公司已以平均每股7.94美元的价格回购了18，190股。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 13:21 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 13:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 13:25 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 13:29 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 13:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 13:15 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 13:13 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 13:18 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 13:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 13:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 13:04 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 13:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 13:02 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 13:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 13:28 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 13:30 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 13:06 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 13:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 13:33 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 13:21 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 13:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/690135.shtml)
-- 2026-06-29 13:05 - [我和我的家乡](https://www.share.minike.top/Article/details/370169939.shtml)
-- 2026-06-29 13:27 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/351610116021.shtml)
-- 2026-06-29 13:22 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/61072831240.shtml)
-- 2026-06-29 13:00 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/465193.shtml)
-- 2026-06-29 13:23 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/92576.shtml)
-- 2026-06-29 13:17 - [委内瑞拉强震致中国公民8遇难1失联](http://www.blog.minike.top/Article/details/39269.shtml)
-- 2026-06-29 13:12 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/230610958.shtml)
-- 2026-06-29 13:12 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/6984991.shtml)
-- 2026-06-29 13:07 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/975300019.shtml)
-- 2026-06-29 13:09 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/3652642647.shtml)
-- 2026-06-29 13:29 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/382310686.shtml)
-- 2026-06-29 13:27 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/96804772.shtml)
-- 2026-06-29 13:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/8570980.shtml)
-- 2026-06-29 13:27 - [四川宜宾地震](https://www.blog.minike.top/Article/details/07101973850.shtml)
+- 2026-06-29 13:09 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/27603312.shtml)
+- 2026-06-29 13:26 - [医护人员观影《四渡》传承长征精神](http://www.share.kurohicncr.top/Article/details/058961472832.shtml)
+- 2026-06-29 13:22 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/48717.shtml)
+- 2026-06-29 13:16 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/41766816.shtml)
+- 2026-06-29 13:35 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/059851835.shtml)
+- 2026-06-29 13:16 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/66700661691.shtml)
+- 2026-06-29 13:08 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/558236.shtml)
+- 2026-06-29 13:32 - [伊朗球员致歉](https://www.share.kurohicncr.top/Article/details/27512.shtml)
+- 2026-06-29 13:16 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/72412193.shtml)
+- 2026-06-29 13:29 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/794396.shtml)
+- 2026-06-29 13:29 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/69076.shtml)
+- 2026-06-29 13:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/3423145.shtml)
+- 2026-06-29 13:12 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/80056844602.shtml)
+- 2026-06-29 13:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/993715216790.shtml)
+- 2026-06-29 13:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/71383.shtml)

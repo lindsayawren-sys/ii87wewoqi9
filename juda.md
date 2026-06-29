@@ -1,54 +1,58 @@
-# 港片扎堆上海电影节 王英伟：香港文化特质和深厚积累要发挥出来
+# 江苏扬州航空-低空经济党外知识分子创新创业集聚区建设启动
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 12:42 来源：中国新闻网 在第28届上海国际电影节举行期间，香港电影发展局主席王英伟接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。但如何将这些优势发挥出来，是需要思考的课题。王英伟认为，香港与内地文化一脉相承，这种亲近感会让
+中新网扬州5月22日电 (徐珊珊 任静)凝聚党外智识，赋能航空发展。5月22日，扬州航空-低空经济党外知识分子创新创业集聚区建设启动活动在生态科技新城举行。扬州市委常委、统战部部长丁四海，江苏省委统战部五处处长夏斌，扬州市政协副主席、市知联会会长华德荣，扬州市生态科技新城党工委书记王学峰出席活动，并共同启动集聚区建设。 丁四海在致辞中说，建设党外知识分子创新创业集聚区，是统一战
 
 ## 正文
 
-发布时间：2026年06月17日 12:42 来源：中国新闻网 在第28届上海国际电影节举行期间，香港电影发展局主席王英伟接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。
+中新网扬州5月22日电 (徐珊珊 任静)凝聚党外智识，赋能航空发展。
 
-中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。
+5月22日，扬州航空-低空经济党外知识分子创新创业集聚区建设启动活动在生态科技新城举行。
 
-但如何将这些优势发挥出来，是需要思考的课题。
+扬州市委常委、统战部部长丁四海，江苏省委统战部五处处长夏斌，扬州市政协副主席、市知联会会长华德荣，扬州市生态科技新城党工委书记王学峰出席活动，并共同启动集聚区建设。
 
-王英伟认为，香港与内地文化一脉相承，这种亲近感会让两地电影人更好合作。
+丁四海在致辞中说，建设党外知识分子创新创业集聚区，是统一战线“围绕中心、服务大局”的使命担当。
 
-内地导演和演员更懂内地文化和观众需求，而香港则是电影“走出去”的枢纽，香港电影人拥有自身独特的视角，以及成熟的技术。
+扬州现有党外知识分子64万余人，近年来航空产业蓬勃发展，规上企业达92家，2025年规上工业开票收入达268亿元，建成全省唯一的航空航天先进结构与高端装备技术创新中心，53个低空应用场景落地见效。
 
-“两地的合作，我相信有非常多的空间。
+他表示，集聚区建设具备天时地利人和，要以此次启动为契机，强化思想引领、聚焦发展所需、发挥专业所长，营造近悦远来的服务环境，推动党外知识分子智慧与航空低空经济同频共振、双向赋能。
 
-”(缪璐 娄瀚锟) 责任编辑：【黄钰涵】
+“生态科技新城拥有承载梦想的坚实基础和望见未来的广阔舞台。
+
+”王学峰在致辞中表示，生态科技新城作为扬州“东进”战略主战场和市域科创中心，近年来与中航工业集团深度合作，规划建设华东航空谷、低空经济产业园等重大项目。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 13:18 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 13:08 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 13:03 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 13:10 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 13:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 13:04 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 13:29 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 13:07 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 13:09 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 13:11 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 13:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 13:35 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 13:12 - [大罗力挺内马尔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 13:32 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 13:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 13:19 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 13:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 13:17 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 13:30 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 13:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 13:30 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/595640.shtml)
-- 2026-06-29 13:11 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/94058960389.shtml)
-- 2026-06-29 13:08 - [急先锋](https://www.share.minike.top/Article/details/16281.shtml)
-- 2026-06-29 13:20 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/018726687.shtml)
-- 2026-06-29 13:09 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/3088261.shtml)
-- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/1035867218.shtml)
-- 2026-06-29 13:25 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/7575757.shtml)
-- 2026-06-29 13:15 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/8122937429.shtml)
-- 2026-06-29 13:27 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/678655.shtml)
-- 2026-06-29 13:12 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/9936841896.shtml)
-- 2026-06-29 13:28 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/3563371892.shtml)
-- 2026-06-29 13:19 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/956103053668.shtml)
-- 2026-06-29 13:04 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/74282837106.shtml)
-- 2026-06-29 13:10 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/8167292.shtml)
-- 2026-06-29 13:11 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/282929323962.shtml)
+- 2026-06-29 13:07 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/94151.shtml)
+- 2026-06-29 13:26 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/2727852653.shtml)
+- 2026-06-29 13:15 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/70454.shtml)
+- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/538629900143.shtml)
+- 2026-06-29 13:22 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/4274997.shtml)
+- 2026-06-29 13:31 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/26942764.shtml)
+- 2026-06-29 13:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/12736224.shtml)
+- 2026-06-29 13:27 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/212432495208.shtml)
+- 2026-06-29 13:14 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/5658771606.shtml)
+- 2026-06-29 13:20 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/410832475.shtml)
+- 2026-06-29 13:28 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/75649837.shtml)
+- 2026-06-29 13:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/37099530186.shtml)
+- 2026-06-29 13:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/7153484.shtml)
+- 2026-06-29 13:34 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/77216450.shtml)
+- 2026-06-29 13:32 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/1100978044.shtml)

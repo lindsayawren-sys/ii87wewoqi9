@@ -1,58 +1,53 @@
-# 福建漳州传统龙舟赛演绎闽南侨乡文化
+# 中国自主研发载人观光潜水器亮相西洽会 已远销马来西亚、印尼
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网漳州6月15日电 (隋文杰)端午临近，九龙江畔龙舟竞渡、乡音缭绕。作为全国龙舟大联动重要组成部分，2026“龙江岁月杯”漳州传统龙舟赛于6月11日至14日在漳州高新区龙江岁月园区举办。这场已有640余年传承历史的闽南民俗盛会，由中国龙舟协会指导，华侨大学全程参与执行，以龙舟为纽带联结海内外侨胞，让远在海外的闽南乡亲透过一桨一旗，望见故土文脉、解了乡愁。 漳州龙舟竞渡是闽南
+发布时间：2026年05月22日 17:15 来源：中国新闻网 5月22日，在第八届中国西部国际投资贸易洽谈会上，一款水下载人观光潜水器吸引不少参观者驻足。 据介绍，这款名为“鲛子”号的水下载人观光潜水器由中国自主研发制造，主要应用于旅游观光、深海救援、深海养殖。除国内使用外，该潜水器还远销马来西亚、印尼等国家和地区，未来将全方位覆盖东盟国家。(贾楠 景诗雁） 责任编辑：【李季
 
 ## 正文
 
-中新网漳州6月15日电 (隋文杰)端午临近，九龙江畔龙舟竞渡、乡音缭绕。
+发布时间：2026年05月22日 17:15 来源：中国新闻网 5月22日，在第八届中国西部国际投资贸易洽谈会上，一款水下载人观光潜水器吸引不少参观者驻足。
 
-作为全国龙舟大联动重要组成部分，2026“龙江岁月杯”漳州传统龙舟赛于6月11日至14日在漳州高新区龙江岁月园区举办。
+据介绍，这款名为“鲛子”号的水下载人观光潜水器由中国自主研发制造，主要应用于旅游观光、深海救援、深海养殖。
 
-这场已有640余年传承历史的闽南民俗盛会，由中国龙舟协会指导，华侨大学全程参与执行，以龙舟为纽带联结海内外侨胞，让远在海外的闽南乡亲透过一桨一旗，望见故土文脉、解了乡愁。
+除国内使用外，该潜水器还远销马来西亚、印尼等国家和地区，未来将全方位覆盖东盟国家。
 
-漳州龙舟竞渡是闽南侨乡刻进骨子里的民俗记忆。
-
-2010年“漳州龙舟赛(扒龙舟)”列入漳州市级非物质文化遗产。
-
-主办方介绍，本届赛事沿袭了漳州传统龙舟的独特规制：船身长30米，可容纳67人同划；划手采用双排半跪式姿态，听鼓而动、闻锣而齐。
-
-马州村的“黑地白月旗”已飘扬了六百余年，曾社的龙舟寮承载着百年的工匠记忆。
-
-赛事期间，马州村还举行了隆重的祭拜水仙尊王保平安等传统仪式，完整再现了闽南龙舟竞渡的古老民俗画卷。
+(贾楠 景诗雁） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 13:04 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 13:19 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 13:12 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 13:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 13:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 13:18 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 13:12 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:08 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 13:17 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 13:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 13:33 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 13:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 13:24 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 13:08 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 13:25 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 13:31 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:15 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 13:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 13:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 13:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 13:33 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 13:20 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:28 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/15842.shtml)
-- 2026-06-29 13:02 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/11465842.shtml)
-- 2026-06-29 13:15 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/8549185.shtml)
-- 2026-06-29 13:22 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/173450717702.shtml)
-- 2026-06-29 13:26 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/7631110181.shtml)
-- 2026-06-29 13:09 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/94051708516.shtml)
-- 2026-06-29 13:00 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/5686782.shtml)
-- 2026-06-29 13:12 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/0633796.shtml)
-- 2026-06-29 13:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/323581.shtml)
-- 2026-06-29 13:19 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/5421913355.shtml)
-- 2026-06-29 13:23 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/91716594.shtml)
-- 2026-06-29 13:01 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/237594.shtml)
-- 2026-06-29 13:02 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/180475809.shtml)
-- 2026-06-29 13:07 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/567238673187.shtml)
-- 2026-06-29 13:11 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/5709563.shtml)
+- 2026-06-29 13:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/406724505.shtml)
+- 2026-06-29 13:17 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/970106496.shtml)
+- 2026-06-29 13:14 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/26830963899.shtml)
+- 2026-06-29 13:35 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/274731.shtml)
+- 2026-06-29 13:13 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/248872.shtml)
+- 2026-06-29 13:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/92277518314.shtml)
+- 2026-06-29 13:34 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.kurohicncr.top/Article/details/0223659.shtml)
+- 2026-06-29 13:25 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/9548191.shtml)
+- 2026-06-29 13:28 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/47707159941.shtml)
+- 2026-06-29 13:14 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.minike.top/Article/details/393508074073.shtml)
+- 2026-06-29 13:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/4729003.shtml)
+- 2026-06-29 13:22 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/360212123.shtml)
+- 2026-06-29 13:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/394968342.shtml)
+- 2026-06-29 13:09 - [毒液2](https://www.blog.kurohicncr.top/Article/details/58256356.shtml)
+- 2026-06-29 13:06 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/29227704.shtml)

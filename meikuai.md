@@ -1,60 +1,58 @@
-# 上海举办侨界高层次青年人才研修营 搭建科创交流桥梁
+# 皮肤破损别接触海水与生海鲜！这种病菌一旦感染或致命
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网上海6月16日电(范宇斌)近日，“相聚上海 共话明天”侨界高层次青年人才研修营暨澳大利亚青年校友上海行活动举办。 本次活动汇聚优质青年人才资源，邀请10位怀揣创新创业梦想的澳大利亚青年校友和10位深耕上海创新创业领域的侨界青年共同参与，参与人员中80%拥有博士学历。参与者涵盖新南威尔士大学、悉尼大学、帝国理工大学等知名高校博士后，以及海外科研机构、企业的研究员、工程师等各
+日前，一位老年患者因处理海产品时不慎被鱼刺扎伤手指，短短一天内迅速发展为重度创伤弧菌感染，随时可能出现心力衰竭等严重并发症。到底什么是创伤弧菌？为何它如此凶险？ 创伤弧菌是一种嗜盐、嗜温的海洋致病菌，自然存活于温暖海水中，常附着在海鱼、虾、蟹、贝类等海洋生物体表。它有着“食肉菌”的可怕别称，一旦人体被感染，病情进展迅猛。若救治不及时，致死率极高，也被称作“海洋中的无情杀手”。
 
 ## 正文
 
-中新网上海6月16日电(范宇斌)近日，“相聚上海 共话明天”侨界高层次青年人才研修营暨澳大利亚青年校友上海行活动举办。
+日前，一位老年患者因处理海产品时不慎被鱼刺扎伤手指，短短一天内迅速发展为重度创伤弧菌感染，随时可能出现心力衰竭等严重并发症。
 
-本次活动汇聚优质青年人才资源，邀请10位怀揣创新创业梦想的澳大利亚青年校友和10位深耕上海创新创业领域的侨界青年共同参与，参与人员中80%拥有博士学历。
+到底什么是创伤弧菌？
 
-参与者涵盖新南威尔士大学、悉尼大学、帝国理工大学等知名高校博士后，以及海外科研机构、企业的研究员、工程师等各类高层次青年人才。
+为何它如此凶险？
 
-上海市政府侨办主任王霄汉表示，本次活动旨在搭建交流互鉴、互学共进的平台，希望侨界青年人才更深刻地走进上海、感受上海、读懂上海。
+创伤弧菌是一种嗜盐、嗜温的海洋致病菌，自然存活于温暖海水中，常附着在海鱼、虾、蟹、贝类等海洋生物体表。
 
-上海市政府侨办将继续做好服务工作，做广大侨胞海外奋斗的后盾、回国发展的伙伴与情感链接的桥梁。
+它有着“食肉菌”的可怕别称，一旦人体被感染，病情进展迅猛。
 
-活动期间，侨界青年参观了上海侨史发展陈列展，从百年侨史中汲取同心共识。
+若救治不及时，致死率极高，也被称作“海洋中的无情杀手”。
 
-上海交通大学细胞和基因治疗研究院院长郑颂国，上海仟寻网络科技有限公司创始人、上海市侨界专业人士联谊会专业服务委员会副主任王向导分别结合自身归国创业历程，分享爱国报国初心与创新创业实践经验。
+首都医科大学附属北京地坛医院急诊科主任医师 常宇飞：每10万人可能就是个位数字的感染，所以相对而言，并不是一个常见病。
 
-同时，本次活动聚焦上海城市发展与人才需求，解读城市发展机遇。
+但是一旦感染，就有可能快速进展成为脓毒症、败血症，就医比较晚的话很容易导致脓毒症加重，危及生命。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 13:26 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 13:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 13:01 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 13:29 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 13:02 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 13:10 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 13:08 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 13:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 13:06 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 13:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 13:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 13:25 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 13:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 13:33 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 13:13 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:26 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 13:20 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 13:07 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 13:14 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 13:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 13:32 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 13:10 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 13:12 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:18 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 13:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/47581648006.shtml)
-- 2026-06-29 13:19 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/6152604308.shtml)
-- 2026-06-29 13:07 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/68179943754.shtml)
-- 2026-06-29 13:10 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.kurohicncr.top/Article/details/482004.shtml)
-- 2026-06-29 13:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/83334.shtml)
-- 2026-06-29 13:08 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/90650218315.shtml)
-- 2026-06-29 13:29 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/5930736.shtml)
-- 2026-06-29 13:20 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/89277629738.shtml)
-- 2026-06-29 13:03 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/29629269436.shtml)
-- 2026-06-29 13:29 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/042615760293.shtml)
-- 2026-06-29 13:19 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/92930787728.shtml)
-- 2026-06-29 13:09 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/1615425.shtml)
-- 2026-06-29 13:06 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/700819.shtml)
-- 2026-06-29 13:20 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/04745351782.shtml)
-- 2026-06-29 13:19 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/827207757877.shtml)
+- 2026-06-29 13:29 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/789767852992.shtml)
+- 2026-06-29 13:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/77777667.shtml)
+- 2026-06-29 13:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/120564473591.shtml)
+- 2026-06-29 13:21 - [2026年Mac能玩游戏了吗](https://www.share.kurohicncr.top/Article/details/69352409.shtml)
+- 2026-06-29 13:22 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/839595707.shtml)
+- 2026-06-29 13:28 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/901500.shtml)
+- 2026-06-29 13:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/5878358725.shtml)
+- 2026-06-29 13:17 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/573923681909.shtml)
+- 2026-06-29 13:21 - [天津打雷](http://www.blog.minike.top/Article/details/54414724289.shtml)
+- 2026-06-29 13:30 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/90162.shtml)
+- 2026-06-29 13:26 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/38772800.shtml)
+- 2026-06-29 13:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/500747.shtml)
+- 2026-06-29 13:10 - [谢霆锋演唱会变大型呲水现场](https://www.blog.kurohicncr.top/Article/details/7498376882.shtml)
+- 2026-06-29 13:27 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/69991791162.shtml)
+- 2026-06-29 13:27 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/304035984856.shtml)

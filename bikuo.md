@@ -1,60 +1,57 @@
-# 公募出海，鹏华基金被监管“灵魂四问”
+# 出门吃饭遇到价格歧视怎么办？消费者维权实用指南
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-来源：行家券业 公募出海，鹏华基金被监管“灵魂四问” 积极出海的，不仅是券商，还有公募机构。 就在6月12日，证监会官网上挂出了一份看似常规的反馈意见——关于鹏华基设立香港子公司的申请。四段话、四个问题，字数不多，却直指要害。 为什么是鹏华？这家成立于1998年的老牌公募，凭什么觉得自己有资格走出去？毕竟，出海，需要有实力、有经验、有团队、有客户。而恰恰是在这几个维度上，鹏华是
+最近，一家米粉店因“本地人7元、游客13元”的差异化定价登上热搜，引发广泛讨论。类似的价格歧视现象在外卖、餐饮、景区消费中并不少见——同样的商品或服务，不同人群被标以不同价格。作为消费者，面对这种情况该如何维护自身权益？ 首先需要明确的是，根据《价格法》和《消费者权益保护法》，经营者应当明码标价，不得有价格欺诈行为。如果商家对同类商品设置不同价格且未提前告知，或者存在虚假标价、
 
 ## 正文
 
-来源：行家券业 公募出海，鹏华基金被监管“灵魂四问” 积极出海的，不仅是券商，还有公募机构。
+最近，一家米粉店因“本地人7元、游客13元”的差异化定价登上热搜，引发广泛讨论。
 
-就在6月12日，证监会官网上挂出了一份看似常规的反馈意见——关于鹏华基设立香港子公司的申请。
+类似的价格歧视现象在外卖、餐饮、景区消费中并不少见——同样的商品或服务，不同人群被标以不同价格。
 
-四段话、四个问题，字数不多，却直指要害。
+作为消费者，面对这种情况该如何维护自身权益？
 
-为什么是鹏华？
+首先需要明确的是，根据《价格法》和《消费者权益保护法》，经营者应当明码标价，不得有价格欺诈行为。
 
-这家成立于1998年的老牌公募，凭什么觉得自己有资格走出去？
+如果商家对同类商品设置不同价格且未提前告知，或者存在虚假标价、误导性标价等情况，消费者有权要求解释甚至投诉。
 
-毕竟，出海，需要有实力、有经验、有团队、有客户。
+但实际操作中，很多消费者因为金额不大、怕麻烦而选择忍气吞声，这反而纵容了部分商家的不当行为。
 
-而恰恰是在这几个维度上，鹏华是扎扎实实掏出过成绩单的。
+当遇到餐饮、外卖等消费纠纷 【下载黑猫投诉客户端】时，最直接的渠道是12315全国平台。
 
-1.1万亿的“底盘”，到底是什么段位？
+通过微信小程序“全国12315平台”或拨打12315热线，可以提交投诉举报，市场监管部门会依法核查处理。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 13:01 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 13:17 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 13:11 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 13:00 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 13:10 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 13:29 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:14 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 13:21 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 13:20 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 13:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 13:13 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 13:24 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 13:18 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 13:09 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 13:29 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 13:11 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 13:23 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 13:12 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 13:12 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 13:21 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 13:18 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 13:22 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 13:15 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 13:31 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/98749784643.shtml)
-- 2026-06-29 13:28 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/7590167462.shtml)
-- 2026-06-29 13:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/021541638426.shtml)
-- 2026-06-29 13:29 - [一见倾心](https://www.share.minike.top/Article/details/41124025.shtml)
-- 2026-06-29 13:28 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/37997.shtml)
-- 2026-06-29 13:00 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/6285759207.shtml)
-- 2026-06-29 13:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/400774084687.shtml)
-- 2026-06-29 13:29 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/762651.shtml)
-- 2026-06-29 13:15 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/60280253899.shtml)
-- 2026-06-29 13:02 - [国乒全主力参加美国大满贯](https://www.share.minike.top/Article/details/395461.shtml)
-- 2026-06-29 13:03 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/81233251.shtml)
-- 2026-06-29 13:11 - [恋与深空女玩家不该被冒犯](https://www.blog.kurohicncr.top/Article/details/564544.shtml)
-- 2026-06-29 13:25 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/383204210214.shtml)
-- 2026-06-29 13:06 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/3885203.shtml)
-- 2026-06-29 13:24 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/327172798.shtml)
+- 2026-06-29 13:33 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/3704947061.shtml)
+- 2026-06-29 13:09 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/97890.shtml)
+- 2026-06-29 13:23 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/324533.shtml)
+- 2026-06-29 13:23 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/077500838.shtml)
+- 2026-06-29 13:16 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/0189591.shtml)
+- 2026-06-29 13:22 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/72570.shtml)
+- 2026-06-29 13:21 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/61994.shtml)
+- 2026-06-29 13:17 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/827454911756.shtml)
+- 2026-06-29 13:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/556748681867.shtml)
+- 2026-06-29 13:11 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/939180750128.shtml)
+- 2026-06-29 13:23 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/849664216.shtml)
+- 2026-06-29 13:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/505241.shtml)
+- 2026-06-29 13:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/605110010.shtml)
+- 2026-06-29 13:09 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/7433993.shtml)
+- 2026-06-29 13:30 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/29020220.shtml)

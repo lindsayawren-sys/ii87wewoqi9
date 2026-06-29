@@ -1,47 +1,58 @@
-# 国家统计局：5月全国规上工业增加值同比增4.5%
+# 凯文·沃什正式“掌舵”美联储！通胀“高烧”不退，加息概率逼近70%，1384亿美元美债被抛
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+每经记者|兰素英 每经编辑|王嘉琦 当地时间5月22日，凯文·沃什（Kevin Warsh）宣誓就任新一任美联储主席。 此次仪式并未按照惯例在美联储总部举行，而是改在白宫举行，由美国总统特朗普亲自主持。 凯文·沃什在讲话中表示，自己将领导一个“改革导向”的美联储。 特朗普表示，希望凯文·沃什成为一名“完全独立”的美联储主席，不看他或其他人态度行事，只管做好自己的事。 但就职仪式
 
 ## 正文
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+每经记者|兰素英 每经编辑|王嘉琦 当地时间5月22日，凯文·沃什（Kevin Warsh）宣誓就任新一任美联储主席。
+
+此次仪式并未按照惯例在美联储总部举行，而是改在白宫举行，由美国总统特朗普亲自主持。
+
+凯文·沃什在讲话中表示，自己将领导一个“改革导向”的美联储。
+
+特朗普表示，希望凯文·沃什成为一名“完全独立”的美联储主席，不看他或其他人态度行事，只管做好自己的事。
+
+但就职仪式本身就凸显了总统前所未有的干预：凯文·沃什是自1987年艾伦·格林斯潘（Alan Greenspan）以来首位在白宫宣誓就职的美联储主席。
+
+当天晚些时候，特朗普又进一步明确表达了对沃什时代的期望，声称利率将“很快”下降。
+
+不过，通胀高烧不退，美债遭遇大规模抛售，原本被视为抗通胀利器的AI产业正成为物价新推手。
+
+美联储年内加息概率已经升至近70%，特朗普的降息目标恐怕要落空了。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 13:26 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 13:05 - [欧洲极端高温东扩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 13:29 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 13:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 13:24 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 13:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 13:02 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 13:28 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 13:28 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 13:02 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 13:20 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 13:01 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 13:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 13:19 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 13:20 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:29 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 13:30 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 13:27 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 13:24 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 13:30 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 13:33 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 13:18 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 13:09 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 13:30 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 13:24 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 13:27 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/608794916.shtml)
-- 2026-06-29 13:04 - [俄政府批准巩固俄语地位行动计划](https://www.share.kurohicncr.top/Article/details/089056.shtml)
-- 2026-06-29 13:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/17030293.shtml)
-- 2026-06-29 13:16 - [灿如繁星定档](https://www.share.minike.top/Article/details/2574122.shtml)
-- 2026-06-29 13:04 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/10469114941.shtml)
-- 2026-06-29 13:11 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/153833332662.shtml)
-- 2026-06-29 13:25 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/9735978.shtml)
-- 2026-06-29 13:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/634836985517.shtml)
-- 2026-06-29 13:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/08243895047.shtml)
-- 2026-06-29 13:18 - [宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/5154999260.shtml)
-- 2026-06-29 13:17 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/48543047.shtml)
-- 2026-06-29 13:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/091989479.shtml)
-- 2026-06-29 13:13 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/6545554.shtml)
-- 2026-06-29 13:11 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/17110.shtml)
-- 2026-06-29 13:22 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/23760478461.shtml)
+- 2026-06-29 13:14 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/780619.shtml)
+- 2026-06-29 13:16 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/9235156563.shtml)
+- 2026-06-29 13:16 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/6747294.shtml)
+- 2026-06-29 13:23 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/069587214798.shtml)
+- 2026-06-29 13:28 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/66101.shtml)
+- 2026-06-29 13:17 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/70664078.shtml)
+- 2026-06-29 13:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/2618334.shtml)
+- 2026-06-29 13:19 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/29796286769.shtml)
+- 2026-06-29 13:26 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/765763.shtml)
+- 2026-06-29 13:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/926329753.shtml)
+- 2026-06-29 13:33 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/2353609289.shtml)
+- 2026-06-29 13:12 - [大罗力挺内马尔](http://www.blog.minike.top/Article/details/5380561.shtml)
+- 2026-06-29 13:15 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/64691039.shtml)
+- 2026-06-29 13:35 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/2406693473.shtml)
+- 2026-06-29 13:22 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/0045347.shtml)

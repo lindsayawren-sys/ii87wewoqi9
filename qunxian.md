@@ -1,51 +1,48 @@
-# 特朗普：美国将能很快对俄罗斯石油重新实施制裁
+# 李秀宏、尹光星获批出任江西银行董事
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-特朗普表示，美国政府“很快”将能够对俄罗斯石油重新实施制裁。 “我们将能这么做，因为石油现在流动起来了，”他在法国对记者说。责任编辑：江学思
+5月22日金融一线消息，江西金融监管局今日发布批复，核准李秀宏、尹光星江西银行董事任职资格。 责任编辑：秦艺
 
 ## 正文
 
-特朗普表示，美国政府“很快”将能够对俄罗斯石油重新实施制裁。
+5月22日金融一线消息，江西金融监管局今日发布批复，核准李秀宏、尹光星江西银行董事任职资格。
 
-“我们将能这么做，因为石油现在流动起来了，”他在法国对记者说。
-
-责任编辑：江学思
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 13:04 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 13:25 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 13:16 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 13:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 13:04 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 13:20 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 13:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 13:18 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 13:18 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:28 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:08 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 13:15 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 13:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 13:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:30 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 13:16 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 13:34 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 13:15 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 13:28 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 13:22 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 13:07 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 13:34 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 13:21 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 13:10 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:33 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:14 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/497856.shtml)
-- 2026-06-29 13:29 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/64446945743.shtml)
-- 2026-06-29 13:15 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/32395105.shtml)
-- 2026-06-29 13:29 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/189932310707.shtml)
-- 2026-06-29 13:10 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/886400562595.shtml)
-- 2026-06-29 13:20 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/377252102467.shtml)
-- 2026-06-29 13:18 - [韩红携4000万物资抵呼和浩特](http://www.blog.kurohicncr.top/Article/details/408239.shtml)
-- 2026-06-29 13:27 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/470237422.shtml)
-- 2026-06-29 13:12 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/090937.shtml)
-- 2026-06-29 13:04 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/396259953.shtml)
-- 2026-06-29 13:26 - [女心理师](http://www.share.kurohicncr.top/Article/details/82731.shtml)
-- 2026-06-29 13:14 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/111670.shtml)
-- 2026-06-29 13:13 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/49937.shtml)
-- 2026-06-29 13:16 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/727408548062.shtml)
-- 2026-06-29 13:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/999929743031.shtml)
+- 2026-06-29 13:19 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/067703072.shtml)
+- 2026-06-29 13:33 - [强⁶](https://www.share.minike.top/Article/details/35410513038.shtml)
+- 2026-06-29 13:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/234645.shtml)
+- 2026-06-29 13:17 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/849311251008.shtml)
+- 2026-06-29 13:29 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/3882114.shtml)
+- 2026-06-29 13:10 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/50499413074.shtml)
+- 2026-06-29 13:07 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/243574590.shtml)
+- 2026-06-29 13:26 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/47102.shtml)
+- 2026-06-29 13:30 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/32699707.shtml)
+- 2026-06-29 13:18 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/2318225.shtml)
+- 2026-06-29 13:19 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/148251819767.shtml)
+- 2026-06-29 13:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/636666182.shtml)
+- 2026-06-29 13:17 - [急先锋](http://www.blog.minike.top/Article/details/93099.shtml)
+- 2026-06-29 13:30 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/069065646171.shtml)
+- 2026-06-29 13:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/325374.shtml)

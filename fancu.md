@@ -1,58 +1,58 @@
-# 六家寿险公司试水“南向通” 险资打开出海新通道
+# 太惨了！借账户炒股19年，不赚反亏476万！这位证券从业人员被罚
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-近日，保险资金参与债券通“南向通”从政策破冰走向实操落地。记者从业内获悉，中国人寿、平安人寿、太保寿险、泰康人寿、太平人寿、人保寿险6家寿险公司首批获准开展“南向通”债券投资。与此同时，泰康资产、平安资管、国寿资产等保险资管机构作为首批受托方，已顺利完成首笔投资交易。这意味着，在2025年7月央行宣布将“南向通”投资者范围扩大至券商、基金、保险、理财等四类非银机构之后，保险资金
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！券商从业人员“借用他人账户炒股”的悲剧案例再添一例。 近日，天津证监局披露了一则行政处罚决定书，证券从业人员迟某因长达19年的借用他人证券账户买卖股票行为，不仅累计亏损高达476.21万元，还收到了监管的25万元罚单。 天津证监局公告显示，迟某在涉案期间为证券公司从业人员，自2005年8月至2024年2月，
 
 ## 正文
 
-近日，保险资金参与债券通“南向通”从政策破冰走向实操落地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者从业内获悉，中国人寿、平安人寿、太保寿险、泰康人寿、太平人寿、人保寿险6家寿险公司首批获准开展“南向通”债券投资。
+券商从业人员“借用他人账户炒股”的悲剧案例再添一例。
 
-与此同时，泰康资产、平安资管、国寿资产等保险资管机构作为首批受托方，已顺利完成首笔投资交易。
+近日，天津证监局披露了一则行政处罚决定书，证券从业人员迟某因长达19年的借用他人证券账户买卖股票行为，不仅累计亏损高达476.21万元，还收到了监管的25万元罚单。
 
-这意味着，在2025年7月央行宣布将“南向通”投资者范围扩大至券商、基金、保险、理财等四类非银机构之后，保险资金跨境债券投资的新通道正式开启。
+天津证监局公告显示，迟某在涉案期间为证券公司从业人员，自2005年8月至2024年2月，实际控制并使用多个他人证券账户交易多只股票，经监管部门计算，累计亏损高达476.21万元。
 
-独立额度打破QDII瓶颈 “南向通”于2021年9月上线运行，初期合格投资者仅限于41家银行类金融机构以及QDII、RQDII。
+根据相关劳动合同、询问笔录、证券及银行账户资料等多重证据，监管认定了其违法事实。
 
-2025年7月，中国人民银行明确将非银金融机构纳入合格投资者范围。
+券商中国记者注意到，实际上，监管系统早已对迟某的违规行为实施了预警。
 
-经过近一年的准备，保险机构终于在2026年6月拿到入场券。
+2024年11月，天津证监局就曾对迟某作出过行政监管措施决定。
 
-从首批名单看，6家寿险公司均为头部机构，符合“初期试点、不搞大范围放开”的市场预期。
+相关决定书载明，迟某在财达证券天津狮子林大街证券营业部任职期间，存在借用他人证券账户买卖股票的行为，违反了《证券法》第四十条第一款的规定，天津证监局当时已对其采取出具警示函的监督管理措施，并记入证券期货市场诚信档案。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 13:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 13:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 13:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 13:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 13:09 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 13:25 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 13:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:03 - [天津打雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 13:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 13:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 13:33 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 13:32 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 13:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 13:25 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 13:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 13:12 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 13:06 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 13:27 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 13:07 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [金刚川](http://www.share.kurohicncr.top/Article/details/716007748.shtml)
-- 2026-06-29 13:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/29343742209.shtml)
-- 2026-06-29 13:27 - [王佳佳江疏影13年前后同框对比](http://www.blog.minike.top/Article/details/485672720.shtml)
-- 2026-06-29 13:16 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/853785438888.shtml)
-- 2026-06-29 13:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/55642828416.shtml)
-- 2026-06-29 13:14 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/70335.shtml)
-- 2026-06-29 13:24 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/42271.shtml)
-- 2026-06-29 13:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/985796.shtml)
-- 2026-06-29 13:17 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/820667176.shtml)
-- 2026-06-29 13:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/66061.shtml)
-- 2026-06-29 13:17 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/01931.shtml)
-- 2026-06-29 13:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2853179618.shtml)
-- 2026-06-29 13:23 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/743553667.shtml)
-- 2026-06-29 13:20 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/10665867.shtml)
-- 2026-06-29 13:25 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/878935850.shtml)
+- 2026-06-29 13:29 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/3341923239.shtml)
+- 2026-06-29 13:21 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/24780239.shtml)
+- 2026-06-29 13:19 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/57903981.shtml)
+- 2026-06-29 13:28 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/4734855163.shtml)
+- 2026-06-29 13:14 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/0221180.shtml)
+- 2026-06-29 13:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/904240810.shtml)
+- 2026-06-29 13:32 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/10571296.shtml)
+- 2026-06-29 13:15 - [金牌调解](https://www.share.minike.top/Article/details/4029741.shtml)
+- 2026-06-29 13:07 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/2341571.shtml)
+- 2026-06-29 13:07 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/9560027.shtml)
+- 2026-06-29 13:34 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/156001.shtml)
+- 2026-06-29 13:31 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/5774269.shtml)
+- 2026-06-29 13:09 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/526772017.shtml)
+- 2026-06-29 13:10 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/132632295501.shtml)
+- 2026-06-29 13:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/1110269742.shtml)

@@ -1,54 +1,56 @@
-# 《中华人民共和国年鉴2025》中、英文版出版发行
+# 长鑫科技朱一明：让渡7.68亿股激励员工，价值或超200亿元！
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-新华社北京6月16日电 由新华通讯社主管、新华出版社主办、《中华人民共和国年鉴》编辑部编辑的《中华人民共和国年鉴2025》(以下简称《中国年鉴2025》)中、英文版近日出版，面向海内外公开发行。 《中国年鉴2025》中文版忠实记录了2024年中国改革开放和现代化建设事业的大事要事，设有国家机构、国防、外交、经济总类、国资国企等36个部类，240余万字，收录100多幅具有史料价值
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：半导体产业纵横 朱一明承诺了超长股份锁定，在长鑫科技上市后的第一个十年，不转让所持股份。 国内DRAM芯片龙头长鑫科技集团股份有限公司（下称“长鑫科技”）近日正式披露科创板IPO招股说明书（上会稿）。在募资用途、业绩表现等常规信息之外，公司创始人、董事长朱一明自愿承诺的A股史上最大规模的个人股权激励引
 
 ## 正文
 
-新华社北京6月16日电 由新华通讯社主管、新华出版社主办、《中华人民共和国年鉴》编辑部编辑的《中华人民共和国年鉴2025》(以下简称《中国年鉴2025》)中、英文版近日出版，面向海内外公开发行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-《中国年鉴2025》中文版忠实记录了2024年中国改革开放和现代化建设事业的大事要事，设有国家机构、国防、外交、经济总类、国资国企等36个部类，240余万字，收录100多幅具有史料价值的图片。
+来源：半导体产业纵横 朱一明承诺了超长股份锁定，在长鑫科技上市后的第一个十年，不转让所持股份。
 
-《中国年鉴2025》英文版包括国情概要、中国政党制度、国家机构、今日中国、年度特辑、新闻图片、大事记和附录、索引等，100余万字，收录100多幅具有史料价值的图片。
+国内DRAM芯片龙头长鑫科技集团股份有限公司（下称“长鑫科技”）近日正式披露科创板IPO招股说明书（上会稿）。
 
-为更好响应海内外读者的使用反馈与阅读需求，《中国年鉴2025》英文版进行了轻量化改版。
+在募资用途、业绩表现等常规信息之外，公司创始人、董事长朱一明自愿承诺的A股史上最大规模的个人股权激励引发市场关注。
 
-《中国年鉴》是目前国内唯一的综合性国家年鉴，自1981年创刊以来，已连续出版45期。
+根据招股书，朱一明持有长鑫科技股份数量15.98亿股，其中15.36亿股来自公司第二期员工持股计划。
 
-其内容翔实、资料完整、数据权威，已成为各级党政机关、企事业单位、海内外研究机构、高等院校等了解中国、研究中国的重要参考工具书。
+长鑫科技授予朱一明这部分股份的初衷，是为感谢其作为创始人对公司发展作出的重要历史贡献及其对公司长远发展不可或缺的关键作用。
 
-据悉，《中国年鉴2024》中英文版已被近百所海内外知名高等院校图书馆收藏，获得积极反响。
+朱一明承诺自愿将获授股份的50%，对应约7.68亿股，在上市后10年内，以现金或股份形式，全部分配给公司员工，用作激励（不含其本人），且不涉及新增股份稀释原有股东权益。
+
+按长鑫科技1.5万亿市值计算，这部分激励股份的市值约162亿，若按2万亿市值计算，激励股份市值超200亿。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 13:02 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 13:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 13:07 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 13:09 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 13:10 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 13:24 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:22 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 13:19 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 13:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 13:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 13:17 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 13:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 13:35 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 13:07 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 13:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 13:18 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 13:32 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 13:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/4966699.shtml)
-- 2026-06-29 13:07 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/587618171734.shtml)
-- 2026-06-29 13:21 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/20371008.shtml)
-- 2026-06-29 13:15 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/48639748.shtml)
-- 2026-06-29 13:17 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/99371737.shtml)
-- 2026-06-29 13:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/539471.shtml)
-- 2026-06-29 13:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/16420.shtml)
-- 2026-06-29 13:20 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/32859956957.shtml)
-- 2026-06-29 13:19 - [沙特足协主席发布声明主动请辞](https://www.share.minike.top/Article/details/0129880.shtml)
-- 2026-06-29 13:02 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/445606696823.shtml)
-- 2026-06-29 13:05 - [女心理师](https://www.blog.kurohicncr.top/Article/details/38809.shtml)
-- 2026-06-29 13:08 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/1340461.shtml)
-- 2026-06-29 13:05 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/8278814459.shtml)
-- 2026-06-29 13:01 - [流金岁月](http://www.blog.minike.top/Article/details/90050799275.shtml)
-- 2026-06-29 13:17 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/04998301025.shtml)
+- 2026-06-29 13:35 - [薛之谦演唱会](http://www.blog.kurohicncr.top/Article/details/5584969030.shtml)
+- 2026-06-29 13:18 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/72666580.shtml)
+- 2026-06-29 13:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/96628904.shtml)
+- 2026-06-29 13:33 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/27277942954.shtml)
+- 2026-06-29 13:13 - [扬名立万](http://www.share.minike.top/Article/details/428924682.shtml)
+- 2026-06-29 13:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/109501203.shtml)
+- 2026-06-29 13:27 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/0020626043.shtml)
+- 2026-06-29 13:10 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/978001042.shtml)
+- 2026-06-29 13:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/950119802726.shtml)
+- 2026-06-29 13:18 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/020461649505.shtml)
+- 2026-06-29 13:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/7144370.shtml)
+- 2026-06-29 13:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/905486190012.shtml)
+- 2026-06-29 13:13 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/9673291172.shtml)
+- 2026-06-29 13:27 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/50622225.shtml)
+- 2026-06-29 13:15 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/94525758991.shtml)

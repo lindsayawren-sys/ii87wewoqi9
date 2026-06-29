@@ -1,58 +1,61 @@
-# 华泰期货：美伊协议签订条款仍存疑，海峡油运出现新模式
+# 巴西税收创历史新高，受石油暴利推动
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌4.13美元，收于每桶80.75美元，跌幅为4.87%；8月交货的伦敦布伦特原油期货价格下跌4.16美元，收于每桶83.17美元，跌幅为4.76%。截至今日2：30收盘，SC原油主力合约收跌1.96%，报531元/桶。（来源：Bloomberg） 2、 万斯宣布美
+周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。 总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。 4月份由联邦税务局
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场要闻与重要数据 1、 截至当天收盘，纽约商品交易所7月交货的轻质原油期货价格下跌4.13美元，收于每桶80.75美元，跌幅为4.87%；8月交货的伦敦布伦特原油期货价格下跌4.16美元，收于每桶83.17美元，跌幅为4.76%。
+周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。
 
-截至今日2：30收盘，SC原油主力合约收跌1.96%，报531元/桶。
+与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。
 
-（来源：Bloomberg） 2、 万斯宣布美伊协议已于周日完成电子签署。
+总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。
 
-6月15日讯，据报道，美国副总统万斯表示，美国与伊朗达成的协议已于周末通过电子方式完成签署，表明协议条款现已生效，同时伊朗不会获得任何新的资金解冻。
+4月份由联邦税务局管理的税收收入经通胀调整后增长7.31%，而主要由石油特许权使用费推动的其他机构征收的收入则跃升14.89%。
 
-万斯在ABC电视台节目中表示：“我们昨天已经通过电子方式签署了协议，而且目前没有任何资金被释放。
+作为石油净出口国，这个拉丁美洲最大的经济体一直预期在中东冲突相关的商品价格波动中获得更高的收入。
 
-这一点也不会改变。
+税务局表示，在各行业中，“石油和天然气开采”的税款缴纳较上年同期飙升约541%，是所有行业中百分比增幅最大的。
 
-”尽管在协议达成前，外界曾提出通过电子签署方式完成协议，但直至此刻才得到证实。
+政府还指出，企业所得税征收增加、社会保障收入提高以及对固定收益投资征税增加是推动4月份业绩的关键因素。
 
-特朗普于周日宣布，双方将在周五在瑞士举行正式签署仪式。
+Lula政府一直在寻求主要通过增加收入来改善公共财政，此前政府提高了部分税收并取消了税收减免。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 13:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 13:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 13:23 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 13:28 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 13:09 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 13:23 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:27 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 13:16 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 13:23 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 13:12 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 13:18 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 13:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 13:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 13:25 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 13:06 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 13:34 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 13:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 13:10 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 13:08 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 13:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 13:15 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 13:29 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 13:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 13:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 13:08 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/72891690.shtml)
-- 2026-06-29 13:29 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/81864.shtml)
-- 2026-06-29 13:06 - [美人鱼](http://www.blog.minike.top/Article/details/703298472944.shtml)
-- 2026-06-29 13:24 - [光与夜之恋](http://www.share.minike.top/Article/details/3722505263.shtml)
-- 2026-06-29 13:18 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/48231449.shtml)
-- 2026-06-29 13:09 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/32160013903.shtml)
-- 2026-06-29 13:19 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/1606558.shtml)
-- 2026-06-29 13:14 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/0660598.shtml)
-- 2026-06-29 13:03 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/4931541.shtml)
-- 2026-06-29 13:12 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/375964544.shtml)
-- 2026-06-29 13:02 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/5189319.shtml)
-- 2026-06-29 13:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/219691166277.shtml)
-- 2026-06-29 13:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/457349406985.shtml)
-- 2026-06-29 13:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/589008.shtml)
-- 2026-06-29 13:00 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/2383422.shtml)
+- 2026-06-29 13:21 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/692462.shtml)
+- 2026-06-29 13:34 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/0373326221.shtml)
+- 2026-06-29 13:23 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/730152073541.shtml)
+- 2026-06-29 13:06 - [NBA交易](http://www.blog.minike.top/Article/details/74437.shtml)
+- 2026-06-29 13:20 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/0999174082.shtml)
+- 2026-06-29 13:12 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/189365590863.shtml)
+- 2026-06-29 13:35 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/557492952.shtml)
+- 2026-06-29 13:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/6827490.shtml)
+- 2026-06-29 13:14 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/9966404474.shtml)
+- 2026-06-29 13:11 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/8489999721.shtml)
+- 2026-06-29 13:06 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/8764202.shtml)
+- 2026-06-29 13:33 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/4852409.shtml)
+- 2026-06-29 13:06 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/112636144031.shtml)
+- 2026-06-29 13:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/07129.shtml)
+- 2026-06-29 13:23 - [吴建豪老婆](https://www.blog.minike.top/Article/details/9645118.shtml)

@@ -1,59 +1,61 @@
-# 家庭火灾逃生自救需注意什么？国家消防救援局提醒
+# 600696，终止上市！
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 预防家庭火灾关键是要树牢基本安全意识。通过事故调查，因居民群众逃生方法不当造成人员伤亡的现象屡见不鲜。在国家消防救援局17日上午举行的例行新闻发布会上，国家消防救援局新闻发言人、消防监督司副司长王天瑞向大家介绍家庭火灾逃生自救的注意事项。第一，坐不坐电梯。高层建筑发生火灾不要坐电梯。毫无疑问，发生火灾的时候，不要乘坐普通的客梯，因为在火灾中断电会导致电梯停运
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月22日，*ST岩石（600696.SH）公告称，公司收到上海证券交易所《关于上海君道酒企业发展股份有限公司股票终止上市的决定》，因公司2025年度净利润为负且营收低于3亿元，财务报告被出具保留意见审计报告，内部控制被出具否定意见审计报告，触及终止上市条件。公司股票将于2026年6月1日进入退市整理期，预
 
 ## 正文
 
-中新网6月17日电 预防家庭火灾关键是要树牢基本安全意识。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-通过事故调查，因居民群众逃生方法不当造成人员伤亡的现象屡见不鲜。
+5月22日，*ST岩石（600696.SH）公告称，公司收到上海证券交易所《关于上海君道酒企业发展股份有限公司股票终止上市的决定》，因公司2025年度净利润为负且营收低于3亿元，财务报告被出具保留意见审计报告，内部控制被出具否定意见审计报告，触及终止上市条件。
 
-在国家消防救援局17日上午举行的例行新闻发布会上，国家消防救援局新闻发言人、消防监督司副司长王天瑞向大家介绍家庭火灾逃生自救的注意事项。
+公司股票将于2026年6月1日进入退市整理期，预计最后交易日为6月22日，交易期限为15个交易日。
 
-第一，坐不坐电梯。
+退市整理期届满后5个交易日内，上交所将对公司股票予以摘牌。
 
-高层建筑发生火灾不要坐电梯。
+资料显示，*ST岩石的公司全称与证券简称均曾经历多次变更。
 
-毫无疑问，发生火灾的时候，不要乘坐普通的客梯，因为在火灾中断电会导致电梯停运，浓烟也会导致电梯门无法正常开闭。
+公司全称方面，*ST岩石目前的公司全称为上海君道酒企业发展股份有限公司，这一名称为今年4月刚变更不久。
 
-第二，逃与不逃。
+在此之前，公司全称为上海贵酒股份有限公司。
 
-发生火灾后，逃还是不逃？
+在2019年12月之前，公司全称为上海岩石企业发展股份有限公司。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 13:14 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 13:25 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 13:06 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 13:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 13:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 13:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 13:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 13:15 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 13:18 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 13:15 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 13:00 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:20 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 13:24 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 13:28 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 13:11 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 13:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 13:16 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 13:18 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 13:25 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:21 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 13:31 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 13:18 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 13:15 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 13:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 13:32 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 13:13 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 13:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/223126434043.shtml)
-- 2026-06-29 13:23 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/187048932210.shtml)
-- 2026-06-29 13:20 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/56801847.shtml)
-- 2026-06-29 13:29 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/969404310.shtml)
-- 2026-06-29 13:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/204191261.shtml)
-- 2026-06-29 13:07 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/191003.shtml)
-- 2026-06-29 13:01 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/03052.shtml)
-- 2026-06-29 13:15 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.minike.top/Article/details/95366.shtml)
-- 2026-06-29 13:05 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/1231314691.shtml)
-- 2026-06-29 13:11 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.kurohicncr.top/Article/details/52439.shtml)
-- 2026-06-29 13:12 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/93246195.shtml)
-- 2026-06-29 13:20 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/1270989.shtml)
-- 2026-06-29 13:03 - [世界杯打成了欧洲杯和美洲杯](http://www.share.kurohicncr.top/Article/details/87368523756.shtml)
-- 2026-06-29 13:03 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/10534555722.shtml)
-- 2026-06-29 13:00 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/212050964.shtml)
+- 2026-06-29 13:23 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/799538.shtml)
+- 2026-06-29 13:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/363914353288.shtml)
+- 2026-06-29 13:21 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/4828331141.shtml)
+- 2026-06-29 13:07 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/05346231216.shtml)
+- 2026-06-29 13:23 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/0348158.shtml)
+- 2026-06-29 13:07 - [小娘惹](https://www.blog.minike.top/Article/details/155312.shtml)
+- 2026-06-29 13:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/85779162615.shtml)
+- 2026-06-29 13:25 - [送你一朵小红花](https://www.blog.minike.top/Article/details/383715206.shtml)
+- 2026-06-29 13:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/193819254964.shtml)
+- 2026-06-29 13:11 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/54128.shtml)
+- 2026-06-29 13:34 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/55622164.shtml)
+- 2026-06-29 13:06 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/988020312.shtml)
+- 2026-06-29 13:23 - [小娘惹](https://www.share.minike.top/Article/details/7385184.shtml)
+- 2026-06-29 13:19 - [功率半导体缺货涨价](https://www.blog.kurohicncr.top/Article/details/3185584.shtml)
+- 2026-06-29 13:18 - [急先锋](http://www.blog.kurohicncr.top/Article/details/7176492.shtml)

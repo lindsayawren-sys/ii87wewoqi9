@@ -1,56 +1,50 @@
-# “数币达”首批直接参与者出炉！数字人民币国际运营中心与26家海内外金融机构签约
+# 摩根大通预计土耳其央行即将加息至40%
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 文/卢梦雪 2026年6月16日，数字人民币国际运营中心与首批26家金融机构在沪签署直接参与者服务协议，上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。 这26家机构即为“数币达”（Cross-border e-CNY Transfer Services，简称CBETS）跨境结算综合服务平台的首批直接参与者，分别为：工银
+投资银行摩根大通周五表示，受新一轮政治因素引发的市场动荡影响，土耳其央行大概率将基准利率上调至 40%，甚至可能在 6 月既定议息会议前提前加息。 摩根大通分析师在研报中称：“政治风险攀升，正里拉汇率承压。” “我们目前预判，土耳其央行或将在 6 月 11 日货币政策委员会会议上，把一周回购利率从现行 37% 上调至 40%，亦存在提前加息的可能。”责任编辑：郭明煜
 
 ## 正文
 
-来源：华夏时报 文/卢梦雪 2026年6月16日，数字人民币国际运营中心与首批26家金融机构在沪签署直接参与者服务协议，上线后业务可覆盖中国香港、中国澳门、新加坡、老挝、泰国、阿联酋、卡塔尔、巴西等国家和地区。
+投资银行摩根大通周五表示，受新一轮政治因素引发的市场动荡影响，土耳其央行大概率将基准利率上调至 40%，甚至可能在 6 月既定议息会议前提前加息。
 
-这26家机构即为“数币达”（Cross-border e-CNY Transfer Services，简称CBETS）跨境结算综合服务平台的首批直接参与者，分别为：工银亚洲、工银澳门、工行新加坡分行、工银泰国、工行万象分行、工行多哈分行、农行香港分行、农行迪拜分行、中银香港、中行澳门分行、中行新加坡分行、中银泰国、中银香港万象分行、建行亚洲、建行新加坡分行、交行香港分行、交行香港子行、交行澳门分行、交行巴西子行、渣打中国、兴业香港分行、信银国际、浦发香港分行、浦发新加坡分行、广发香港分行、广发澳门分行。
+摩根大通分析师在研报中称：“政治风险攀升，正里拉汇率承压。
 
-2025年，根据中国人民银行的决策部署，中国人民银行数字货币研究所下属机构整合为数字人民币运营管理中心和国际运营中心，承担数字人民币金融基础设施运营单位的职能，支持构建国内国际双循环的“两翼”格局。
+” “我们目前预判，土耳其央行或将在 6 月 11 日货币政策委员会会议上，把一周回购利率从现行 37% 上调至 40%，亦存在提前加息的可能。
 
-其中，数字人民币国际运营中心负责数字人民币跨境基础设施建设和运营，服务跨境和离岸体系建设。
-
-2026年，随着数字人民币计量框架调整和基础设施体系整体架构升级，数字人民币跨境数字支付平台、区块链服务平台、数字资产平台等三大业务平台也随之升级为“数币达”（CBETS）跨境结算综合服务平台，并启动品牌化运作。
-
-境外参与者可通过香港接入点一点接入，便捷开通多项业务。
-
-CBETS有两种合作模式：既支持与各货币当局支付系统/法定数字货币系统的跨境互联互通，便利当地机构不改变原有渠道，通过本地系统实现“一通百通”，也支持金融机构直接接入，直达7*24小时智能数字支付服务。
-
-CBETS参与者可依托CBETS的系统能力为客户提供低成本、多元化和安全高效的跨境数字支付服务，助力跨境贸易和投融资便利化与金融高水平对外开放。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 13:15 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 13:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 13:23 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 13:13 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 13:06 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 13:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 13:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 13:07 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 13:20 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 13:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:07 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 13:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 13:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 13:15 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 13:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 13:32 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 13:19 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 13:26 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 13:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 13:32 - [俄政府批准巩固俄语地位行动计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 13:11 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/060703053040.shtml)
-- 2026-06-29 13:01 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/0146789866.shtml)
-- 2026-06-29 13:23 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/6140458447.shtml)
-- 2026-06-29 13:17 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/51096499.shtml)
-- 2026-06-29 13:09 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/792623793.shtml)
-- 2026-06-29 13:01 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/18632936.shtml)
-- 2026-06-29 13:17 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/6691398.shtml)
-- 2026-06-29 13:10 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/760163660.shtml)
-- 2026-06-29 13:28 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/795424.shtml)
-- 2026-06-29 13:08 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/199200.shtml)
-- 2026-06-29 13:13 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/7497285.shtml)
-- 2026-06-29 13:21 - [沙丘](https://www.share.minike.top/Article/details/10042839662.shtml)
-- 2026-06-29 13:23 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/7621930.shtml)
-- 2026-06-29 13:14 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/75541887.shtml)
-- 2026-06-29 13:12 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/9529157123.shtml)
+- 2026-06-29 13:21 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/91176.shtml)
+- 2026-06-29 13:07 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/515964.shtml)
+- 2026-06-29 13:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/408638.shtml)
+- 2026-06-29 13:22 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/859222514.shtml)
+- 2026-06-29 13:19 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/216944602839.shtml)
+- 2026-06-29 13:07 - [勇敢的心第二部](https://www.share.minike.top/Article/details/078231403292.shtml)
+- 2026-06-29 13:25 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/49937.shtml)
+- 2026-06-29 13:29 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/78582430.shtml)
+- 2026-06-29 13:18 - [赵今麦客串电影版开端](http://www.share.minike.top/Article/details/010472819.shtml)
+- 2026-06-29 13:20 - [极限挑战第一季](http://www.share.minike.top/Article/details/16668309.shtml)
+- 2026-06-29 13:34 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/7619948650.shtml)
+- 2026-06-29 13:10 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/1893038.shtml)
+- 2026-06-29 13:18 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/76792261.shtml)
+- 2026-06-29 13:22 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/78065215.shtml)
+- 2026-06-29 13:14 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/196099062.shtml)

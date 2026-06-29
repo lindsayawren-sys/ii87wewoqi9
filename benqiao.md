@@ -1,58 +1,60 @@
-# 猪价连续下行超40个月
+# 从简易球场到万千赛场：西藏高原体育75年跨越之路
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-来源：饲料行业信息网 自2022年生猪行业步入下行周期后，国内猪价连续下行超40个月，谷底震荡时长刷新历史纪录。今年4月多地生猪出栏价跌破4元/斤，全国生猪均价跌至近17年低位，漫长低价行情压垮整个养殖板块，一众上市头部猪企在一季度均出现大额亏损。针对行业这场颠覆性变局，中国农业科学院北京畜牧兽医研究所研究员朱增勇、王立刚接受访谈，结合数据与产业现状拆解本轮猪价持续低迷的深层逻
+中新网拉萨5月23日电 (记者 赵延)“从当年驻藏部队搭建的简易篮球场，到如今覆盖城乡的健身设施、遍地开花的民族体育活动。”西藏民族大学体育学院硕士研究生导师朱亚成博士5月23日表示，75年来，西藏高原体育事业从无到有、由弱变强，在全民健身、竞技赛场、民族文化传承等方面取得了全方位成就，成为雪域高原发展巨变的生动缩影。 5月23日，庆祝西藏和平解放75周年理论研讨会在拉萨举办，
 
 ## 正文
 
-来源：饲料行业信息网 自2022年生猪行业步入下行周期后，国内猪价连续下行超40个月，谷底震荡时长刷新历史纪录。
+中新网拉萨5月23日电 (记者 赵延)“从当年驻藏部队搭建的简易篮球场，到如今覆盖城乡的健身设施、遍地开花的民族体育活动。
 
-今年4月多地生猪出栏价跌破4元/斤，全国生猪均价跌至近17年低位，漫长低价行情压垮整个养殖板块，一众上市头部猪企在一季度均出现大额亏损。
+”西藏民族大学体育学院硕士研究生导师朱亚成博士5月23日表示，75年来，西藏高原体育事业从无到有、由弱变强，在全民健身、竞技赛场、民族文化传承等方面取得了全方位成就，成为雪域高原发展巨变的生动缩影。
 
-针对行业这场颠覆性变局，中国农业科学院北京畜牧兽医研究所研究员朱增勇、王立刚接受访谈，结合数据与产业现状拆解本轮猪价持续低迷的深层逻辑，同时直言传统猪周期已经彻底改变，养猪行业将迎来全新发展格局。
+5月23日，庆祝西藏和平解放75周年理论研讨会在拉萨举办，西藏自治区党委党校、社科院、西藏大学、西藏民族大学等科研教学单位的专家学者代表90余人参加会议。
 
-谈及本轮猪价长期深陷低谷的根源，朱增勇表示：“核心问题还是生猪市场供给长期处于过剩状态。
+朱亚成会上介绍，和平解放初期，西藏体育设施几乎空白。
 
-行业有一套成熟规律，当年商品猪出栏总量，基本由上一年能繁母猪存栏规模和整体养殖效率决定。
+如今，全区体育场地超一万个，人均体育场地面积达2.26平方米，行政村健身设施全覆盖，城镇社区建成“15分钟健身圈”。
 
-” 他说道，2024年前三季度，即便猪价持续走低，饲料原料价格回落依旧让养殖户保有微薄利润，这也直接导致能繁母猪产能仅小幅缩水，为2025年上半年生猪出栏量居高不下埋下隐患。
+“十四五”期间，西藏投入14.5亿元(人民币，下同)完善健身设施，举办各类全民健身活动超9000场，参与群众超百万人次。
 
-直到2024年10月全行业全面陷入深度亏损，养殖场才集中加速淘汰母猪、调减产能。
+健身锅庄舞、农牧民运动会、藏历新年赛马等活动常态化开展，经常参加体育锻炼人数比例升至37.5%，城乡居民体质合格率超92%，人均预期寿命从35.5岁提高到72.5岁。
 
-在他看来，本轮周期最鲜明的特征就是上涨周期短、下跌周期漫长，属于典型的“窄峰长坡”走势，眼下猪价虽从最低点小幅回弹，但整体始终在低位小幅震荡，很难走出强势上涨行情。
+“竞技体育突破不断，雪域健儿闪耀赛场。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 13:16 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 13:04 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 13:26 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 13:18 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 13:00 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:11 - [天津打雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 13:18 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 13:08 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 13:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 13:06 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 13:28 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 13:35 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 13:10 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 13:10 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 13:17 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 13:09 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:12 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 13:24 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 13:33 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 13:09 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 13:27 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 13:15 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 13:26 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 13:29 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/5641262800.shtml)
-- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/442681.shtml)
-- 2026-06-29 13:01 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/31943.shtml)
-- 2026-06-29 13:14 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/93321869.shtml)
-- 2026-06-29 13:25 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/239019492032.shtml)
-- 2026-06-29 13:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/257708.shtml)
-- 2026-06-29 13:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/70526180610.shtml)
-- 2026-06-29 13:25 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/159952.shtml)
-- 2026-06-29 13:28 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/918498.shtml)
-- 2026-06-29 13:05 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/36493474.shtml)
-- 2026-06-29 13:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/85500011.shtml)
-- 2026-06-29 13:01 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/4403871307.shtml)
-- 2026-06-29 13:13 - [中国战机大片上新](https://www.blog.minike.top/Article/details/650490320.shtml)
-- 2026-06-29 13:24 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/018957.shtml)
-- 2026-06-29 13:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/2816954.shtml)
+- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/7674930669.shtml)
+- 2026-06-29 13:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/443207547443.shtml)
+- 2026-06-29 13:17 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/714409.shtml)
+- 2026-06-29 13:06 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/725848399589.shtml)
+- 2026-06-29 13:30 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/7273433.shtml)
+- 2026-06-29 13:19 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/148503.shtml)
+- 2026-06-29 13:11 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/1540544.shtml)
+- 2026-06-29 13:16 - [速度与激情9](http://www.share.minike.top/Article/details/050498360218.shtml)
+- 2026-06-29 13:29 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/6021846.shtml)
+- 2026-06-29 13:16 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/5103154577.shtml)
+- 2026-06-29 13:14 - [A股](http://www.blog.minike.top/Article/details/015143.shtml)
+- 2026-06-29 13:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/56791319484.shtml)
+- 2026-06-29 13:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/819437553177.shtml)
+- 2026-06-29 13:30 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/2324007.shtml)
+- 2026-06-29 13:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/22528053.shtml)

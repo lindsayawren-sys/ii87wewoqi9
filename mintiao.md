@@ -1,49 +1,56 @@
-# 伊朗外长：结束黎巴嫩战事是伊美协议基本要求
+# 特朗普政府宣布外国人必须回本国才能申请绿卡
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月16日电据伊朗伊斯兰共和国通讯社16日报道，伊朗外交部长阿拉格齐当天表示，结束黎巴嫩的战事是伊朗和美国达成协议的一项基本要求。（完）责任编辑：宋雅芳
+申请美国永久居留权的外国人现在必须返回本国才能申请绿卡。 美国公民及移民服务局（USCIS）发言人Zach Kahler周五在一份声明中表示：“从现在起，暂时居住在美国的外国人如果想要获得绿卡，必须返回其本国申请，除非有特殊情况。” Kahler说：“这项政策使我们的移民系统能够按照法律的预期运作，而不是鼓励钻法律漏洞。” 移民法律专家表示，这项政策变化每年可能影响数十万人，并
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+申请美国永久居留权的外国人现在必须返回本国才能申请绿卡。
 
-新华社德黑兰6月16日电据伊朗伊斯兰共和国通讯社16日报道，伊朗外交部长阿拉格齐当天表示，结束黎巴嫩的战事是伊朗和美国达成协议的一项基本要求。
+美国公民及移民服务局（USCIS）发言人Zach Kahler周五在一份声明中表示：“从现在起，暂时居住在美国的外国人如果想要获得绿卡，必须返回其本国申请，除非有特殊情况。
 
-（完）责任编辑：宋雅芳
+” Kahler说：“这项政策使我们的移民系统能够按照法律的预期运作，而不是鼓励钻法律漏洞。
+
+” 移民法律专家表示，这项政策变化每年可能影响数十万人，并可能在政府全面打击移民的背景下进一步减少合法移民。
+
+美国总统特朗普政府已出台一系列限制措施，影响范围涵盖从寻求庇护者到学生和高技能工作者等各类人群。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 13:02 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 13:21 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 13:26 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 13:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:13 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 13:18 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 13:20 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 13:00 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 13:24 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 13:04 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:00 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 13:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 13:25 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 13:14 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 13:13 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 13:31 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 13:33 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 13:27 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 13:18 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 13:10 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 13:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 13:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 13:13 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:23 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 13:22 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:18 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/185507657.shtml)
-- 2026-06-29 13:10 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/591819426128.shtml)
-- 2026-06-29 13:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/3186277.shtml)
-- 2026-06-29 13:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/9799030555.shtml)
-- 2026-06-29 13:13 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.minike.top/Article/details/4227273.shtml)
-- 2026-06-29 13:01 - [恋与深空女玩家不该被冒犯](http://www.blog.minike.top/Article/details/432375827.shtml)
-- 2026-06-29 13:18 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/8265822983.shtml)
-- 2026-06-29 13:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.kurohicncr.top/Article/details/7752945847.shtml)
-- 2026-06-29 13:28 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/0574305.shtml)
-- 2026-06-29 13:01 - [国乒全主力参加美国大满贯](https://www.share.kurohicncr.top/Article/details/3051860514.shtml)
-- 2026-06-29 13:04 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/86744097958.shtml)
-- 2026-06-29 13:08 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/8490798.shtml)
-- 2026-06-29 13:00 - [明星大侦探第四季](https://www.share.minike.top/Article/details/24641.shtml)
-- 2026-06-29 13:13 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/2030233.shtml)
-- 2026-06-29 13:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/360993174.shtml)
+- 2026-06-29 13:08 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.kurohicncr.top/Article/details/001685775.shtml)
+- 2026-06-29 13:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/12689109229.shtml)
+- 2026-06-29 13:24 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/1558147.shtml)
+- 2026-06-29 13:31 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/1647725.shtml)
+- 2026-06-29 13:06 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/93165.shtml)
+- 2026-06-29 13:35 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/841814067903.shtml)
+- 2026-06-29 13:23 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/573196.shtml)
+- 2026-06-29 13:18 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/40233275.shtml)
+- 2026-06-29 13:35 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/283420.shtml)
+- 2026-06-29 13:15 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.minike.top/Article/details/7638493659.shtml)
+- 2026-06-29 13:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/0731537.shtml)
+- 2026-06-29 13:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/624860.shtml)
+- 2026-06-29 13:07 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/09811.shtml)
+- 2026-06-29 13:18 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/714848951730.shtml)
+- 2026-06-29 13:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/2959801.shtml)

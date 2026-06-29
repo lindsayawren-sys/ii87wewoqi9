@@ -1,58 +1,61 @@
-# 科创板第五套标准扩围AI，未盈利大模型企业上市迎新通道，哪些巨头受益？
+# 82人遇难，存次生灾害风险，市长鞠躬致歉......山西矿难发布会信息汇总
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。 ETF投资工具可关注：589520、589190。 热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。这一举
+82人遇难、2人失联、128人受伤！存在次生灾害风险，涉事企业有重大违法行为，长治市长鞠躬致歉......山西矿难发布会信息汇总 2026年5月22日晚，山西省沁源县通洲集团留神峪煤矿发生瓦斯爆炸事故，造成重大人员伤亡。 今天(5月23日)22时30分左右，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。 发布会现场为遇难者默哀 发布会现场，全体起立
 
 ## 正文
 
-在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。
+82人遇难、2人失联、128人受伤！
 
-ETF投资工具可关注：589520、589190。
+存在次生灾害风险，涉事企业有重大违法行为，长治市长鞠躬致歉......山西矿难发布会信息汇总 2026年5月22日晚，山西省沁源县通洲集团留神峪煤矿发生瓦斯爆炸事故，造成重大人员伤亡。
 
-热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。
+今天(5月23日)22时30分左右，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。
 
-这一举措是深化科创板改革、增强资本市场制度包容性与适应性的关键步骤，旨在更好服务成长型创新创业企业，特别是那些具备前沿技术但可能尚未盈利的AI企业。
+发布会现场为遇难者默哀 发布会现场，全体起立，向遇难人员默哀。
 
-吴清同时表示，将适时发布规范发展资本市场人工智能的指导意见，为AI行业的资本化进程提供制度保障。
+视频：山西留神峪煤矿瓦斯爆炸事故新闻发布会现场为遇难者默哀来源：央视新闻客户端 事故已致82人遇难 2人失联 会上介绍，截至目前，煤矿瓦斯爆炸事故已致82人遇难，2人失联，128人受伤。
 
-此外，证监会大力支持上市公司并购重组及再融资，支持符合条件的港股上市公司境内上市，以激发市场活力。
+视频：山西留神峪煤矿瓦斯爆炸事故发布会：事故已致82人遇难 2人失联来源：央视新闻客户端 涉事煤矿企业有重大违法行为 会上，相关负责人介绍：初步判断，涉事煤矿企业有重大违法行为，对失联人员，我们将不惜任何代价全力搜救，事故具体原因正在进一步调查。
 
-在资金端，新“国九条”发布两年多以来，社保、保险等中长期资金净买入A股达1.3万亿元，“耐心资本”力量不断增强。
+视频：山西留神峪煤矿瓦斯爆炸事故发布会：涉事煤矿企业有重大违法行为来源：央视新闻客户端 要给遇难者及其家属和社会公众一个负责任的交代 相关负责人介绍：积极配合做好事故调查，实事求是，尊重科学，开展调查核查，进一步查明查实事故原因，要给遇难者及其家属和社会公众一个负责任的交代。
 
-吴清强调，中国资本市场韧性提升，科技板块市值占比已超三成，A股公司分红回购规模是同期股权融资的三倍，显示出市场质量的显著改善。
+视频：山西留神峪煤矿瓦斯爆炸事故发布会：要给遇难者及其家属和社会公众一个负责任的交代来源：央视新闻客户端 事故存在次生灾害风险 相关负责人介绍：事故现场有毒有害气体长时间超限，存在发生次生灾害风险。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 13:19 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 13:24 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 13:06 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 13:02 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 13:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 13:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:09 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 13:09 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 13:12 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 13:19 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 13:10 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 13:30 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 13:16 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 13:07 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 13:16 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 13:19 - [白鹿呵呵挽手比心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:23 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 13:27 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 13:13 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 13:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 13:26 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 13:25 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:06 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 13:33 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 13:07 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/401259659.shtml)
-- 2026-06-29 13:18 - [双高胎](http://www.share.minike.top/Article/details/15158368932.shtml)
-- 2026-06-29 13:06 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/22041.shtml)
-- 2026-06-29 13:29 - [急先锋](https://www.share.minike.top/Article/details/333106266315.shtml)
-- 2026-06-29 13:05 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/70128.shtml)
-- 2026-06-29 13:21 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/2189521.shtml)
-- 2026-06-29 13:03 - [周生如故](https://www.blog.kurohicncr.top/Article/details/75989713.shtml)
-- 2026-06-29 13:12 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/7514697311.shtml)
-- 2026-06-29 13:15 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/922536.shtml)
-- 2026-06-29 13:19 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/9651007.shtml)
-- 2026-06-29 13:08 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/57725.shtml)
-- 2026-06-29 13:05 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/0422590.shtml)
-- 2026-06-29 13:25 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/10735309.shtml)
-- 2026-06-29 13:04 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/563754426.shtml)
-- 2026-06-29 13:16 - [韩红携4000万物资抵呼和浩特](http://www.share.minike.top/Article/details/4743283038.shtml)
+- 2026-06-29 13:29 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/00742771104.shtml)
+- 2026-06-29 13:11 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/9241608338.shtml)
+- 2026-06-29 13:12 - [张一山说杨紫早该拿奖了](https://www.blog.minike.top/Article/details/764963457.shtml)
+- 2026-06-29 13:28 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/278988932.shtml)
+- 2026-06-29 13:21 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/097851779114.shtml)
+- 2026-06-29 13:21 - [游戏数据竟被用于军事目的](http://www.blog.minike.top/Article/details/8660120266.shtml)
+- 2026-06-29 13:26 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/79750.shtml)
+- 2026-06-29 13:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/336093.shtml)
+- 2026-06-29 13:18 - [美的空调 卡bug](http://www.share.minike.top/Article/details/69823570.shtml)
+- 2026-06-29 13:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/18188354915.shtml)
+- 2026-06-29 13:29 - [谢霆锋演唱会变大型呲水现场](https://www.blog.kurohicncr.top/Article/details/973646885.shtml)
+- 2026-06-29 13:31 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/358914836359.shtml)
+- 2026-06-29 13:14 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/5216528190.shtml)
+- 2026-06-29 13:06 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/707077336609.shtml)
+- 2026-06-29 13:15 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/0636639091.shtml)

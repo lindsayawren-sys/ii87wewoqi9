@@ -1,57 +1,61 @@
-# 全球资本市场瞩目！超级央行周来袭，美联储新主席首秀，核心看点一文全梳理
+# 杰富瑞高调上调Generac评级：AI数据中心备电需求点燃转型催化剂
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，全球主要央行将迎来密集议息窗口。 北京时间6月15日至16日，日本央行召开政策会议；6月18日凌晨，美联储将公布最新利率决议；英国央行、瑞士央行、挪威央行、瑞典央行等也将陆续公布利率决定。 本轮超级央行周看点颇多。在中东地缘冲突缓和的背景下，凯文·沃什（Kevin Warsh）将迎来就任美联储主席后的
+受数据中心备用电源需求强劲的乐观预期驱动，备用电源设备制造商Generac Holdings于5月22日股价大幅上涨，盘中涨幅一度接近7.5%。此前，华尔街投资机构杰富瑞将公司股票评级从持有一举上调至买入，并将目标股价从239美元大幅上调至302美元。 分析师指出，Generac正处于赢得超大规模数据中心合同的关键时刻。随着AI基础设施建设热潮涌动，为该类高能耗设施提供不间断电
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+受数据中心备用电源需求强劲的乐观预期驱动，备用电源设备制造商Generac Holdings于5月22日股价大幅上涨，盘中涨幅一度接近7.5%。
 
-本周，全球主要央行将迎来密集议息窗口。
+此前，华尔街投资机构杰富瑞将公司股票评级从持有一举上调至买入，并将目标股价从239美元大幅上调至302美元。
 
-北京时间6月15日至16日，日本央行召开政策会议；6月18日凌晨，美联储将公布最新利率决议；英国央行、瑞士央行、挪威央行、瑞典央行等也将陆续公布利率决定。
+分析师指出，Generac正处于赢得超大规模数据中心合同的关键时刻。
 
-本轮超级央行周看点颇多。
+随着AI基础设施建设热潮涌动，为该类高能耗设施提供不间断电力支持的工业发电机需求激增。
 
-在中东地缘冲突缓和的背景下，凯文·沃什（Kevin Warsh）将迎来就任美联储主席后的首场联邦公开市场委员会（FOMC）会议，而日本央行则有望将利率上调至1995年以来最高水平。
+杰富瑞认为，Generac已成为能够满足此需求的稀缺供应商，其独家供应的博杜安发动机技术已进入超大规模云服务商的配置方案。
 
-经历欧洲央行加息后，全球货币政策走向再度成为市场焦点，资本市场也将迎来考验。
+公司基本面正在经历深刻的结构性转变。
 
-美联储新主席首秀 北京时间6月18日凌晨2点，美联储将公布利率决议。
+最新财报显示，其商用与工业板块营收同比增长28%至3.85亿美元，几乎完全由数据中心订单驱动。
 
-这也是凯文·沃什5月22日宣誓就任美联储主席后，首次主持FOMC会议。
+公司总订单储备已超过7亿美元，其中包括一家超大规模云厂商发出的6亿美元非约束性意向函，计划于2027年交付。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 13:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 13:26 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 13:03 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 13:29 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 13:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:24 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 13:13 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 13:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 13:07 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 13:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 13:28 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 13:14 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 13:09 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 13:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 13:25 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 13:07 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 13:22 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 13:20 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 13:13 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 13:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 13:08 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 13:09 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 13:06 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 13:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 13:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/503170860639.shtml)
-- 2026-06-29 13:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/303793318948.shtml)
-- 2026-06-29 13:08 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/10601271.shtml)
-- 2026-06-29 13:11 - [强⁶](http://www.share.minike.top/Article/details/039556444.shtml)
-- 2026-06-29 13:29 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/18708.shtml)
-- 2026-06-29 13:14 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/715108159753.shtml)
-- 2026-06-29 13:06 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/18685620.shtml)
-- 2026-06-29 13:19 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/682591.shtml)
-- 2026-06-29 13:13 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/6739572026.shtml)
-- 2026-06-29 13:15 - [双高胎](http://www.share.minike.top/Article/details/066119119992.shtml)
-- 2026-06-29 13:09 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/74429601.shtml)
-- 2026-06-29 13:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/11468029494.shtml)
-- 2026-06-29 13:26 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/3177086.shtml)
-- 2026-06-29 13:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/86948913.shtml)
-- 2026-06-29 13:05 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/414637.shtml)
+- 2026-06-29 13:28 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/2499456465.shtml)
+- 2026-06-29 13:21 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/153542972.shtml)
+- 2026-06-29 13:09 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/03005749.shtml)
+- 2026-06-29 13:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/545373935.shtml)
+- 2026-06-29 13:32 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/420562765.shtml)
+- 2026-06-29 13:22 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/87496.shtml)
+- 2026-06-29 13:06 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/785919571.shtml)
+- 2026-06-29 13:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/122620706.shtml)
+- 2026-06-29 13:21 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/02207179665.shtml)
+- 2026-06-29 13:34 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/876285727.shtml)
+- 2026-06-29 13:10 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/80001.shtml)
+- 2026-06-29 13:10 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/8488919.shtml)
+- 2026-06-29 13:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/047867.shtml)
+- 2026-06-29 13:22 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/49732.shtml)
+- 2026-06-29 13:15 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/97579297.shtml)

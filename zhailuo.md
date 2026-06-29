@@ -1,54 +1,56 @@
-# 张雪：通过夺冠销量翻了3倍
+# 郑商所7大品种同步对外开放 助力聚酯产业链融入全球发展大局
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-6月10日，中国摩托车产业高质量发展圆桌会议举行。 对于“赛事如何转化成产业发展？”的问题，张雪机车有限公司创始人董事长张雪表示：“我已经给各位打了一个很好的样，我直接告诉大家结果，我们通过夺冠销量翻了3倍，这已经是事实，把这个分享给大家的意思是大家都进来玩，进来玩可以挣更多的钱，非常直接。”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息
+5月22日上午9时，郑州商品交易所聚酯期货板块正式引入境外交易者。此次对外开放涵盖PX0>对二甲苯（PX）、瓶片、短纤期货及期权、精对苯二甲酸（PTA）期权7个期货期权品种，加之2018年已实现对外开放的PTA期货，形成了‘品种齐全、工具完备、覆盖全球’的聚酯产业链市场格局，标志着我国从“聚酯产销大国”向“聚酯定价强国”迈出重要一步。 郑商所理事长朱丽红在启动仪式上表示，聚酯产
 
 ## 正文
 
-6月10日，中国摩托车产业高质量发展圆桌会议举行。
+5月22日上午9时，郑州商品交易所聚酯期货板块正式引入境外交易者。
 
-对于“赛事如何转化成产业发展？
+此次对外开放涵盖PX0>对二甲苯（PX）、瓶片、短纤期货及期权、精对苯二甲酸（PTA）期权7个期货期权品种，加之2018年已实现对外开放的PTA期货，形成了‘品种齐全、工具完备、覆盖全球’的聚酯产业链市场格局，标志着我国从“聚酯产销大国”向“聚酯定价强国”迈出重要一步。
 
-”的问题，张雪机车有限公司创始人董事长张雪表示：“我已经给各位打了一个很好的样，我直接告诉大家结果，我们通过夺冠销量翻了3倍，这已经是事实，把这个分享给大家的意思是大家都进来玩，进来玩可以挣更多的钱，非常直接。
+郑商所理事长朱丽红在启动仪式上表示，聚酯产业是联系石油化工和化纤纺织两大国民经济支柱产业的重要枢纽，与人民生产生活密切相关。
 
-”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+近年来，我国聚酯产业发展迅速，已成为全球最大的聚酯产品生产国、消费国和贸易国，市场规模占全球70%，实现了从供不应求到供应全球的历史性跨越。
 
-责任编辑：李思阳
+2025年我国PTA、短纤出口约占全球贸易量的40%，瓶片出口占比高达50%。
+
+随着聚酯产业国际化程度不断提升，产业企业加快“出海”步伐、拓展全球布局，迫切需要期货市场顺应产业需求，积极推进国际化进程。
+
+朱丽红表示，聚酯期货板块全面实现对外开放意义深远。
+
+一是赋能全球聚酯产业稳健运行，为境内外产业企业提供公开透明的价格发现平台、高效专业的避险工具，增强全球聚酯产业链供应链抗风险能力；二是引导全球更多产业、贸易、金融机构在郑州期货市场集聚，共同推进聚酯期货价格精准反映全球供需格局，从“中国价格”向“全球价格”转变；三是为我国聚酯产业“出海”保驾护航，更好利用国内国际两个市场、两种资源，规避价格波动风险、稳定生产经营，进一步增强国际竞争力。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 13:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 13:23 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:03 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 13:28 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 13:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 13:02 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 13:25 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 13:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 13:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 13:19 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 13:16 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 13:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 13:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 13:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 13:23 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 13:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:25 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 13:27 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 13:27 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 13:24 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 13:22 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 13:16 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/010085999.shtml)
-- 2026-06-29 13:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/57699644.shtml)
-- 2026-06-29 13:08 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/171988513584.shtml)
-- 2026-06-29 13:27 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/21512303879.shtml)
-- 2026-06-29 13:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/1727371327.shtml)
-- 2026-06-29 13:05 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/0636374.shtml)
-- 2026-06-29 13:03 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/27217.shtml)
-- 2026-06-29 13:21 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/3274858268.shtml)
-- 2026-06-29 13:09 - [吴建豪老婆](https://www.blog.minike.top/Article/details/916990.shtml)
-- 2026-06-29 13:24 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/9189964121.shtml)
-- 2026-06-29 13:28 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/13355450980.shtml)
-- 2026-06-29 13:23 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/727768.shtml)
-- 2026-06-29 13:08 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/37151.shtml)
-- 2026-06-29 13:27 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/307893.shtml)
-- 2026-06-29 13:04 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/42072.shtml)
+- 2026-06-29 13:16 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/0690319.shtml)
+- 2026-06-29 13:31 - [第一炉香](https://www.share.minike.top/Article/details/554573208481.shtml)
+- 2026-06-29 13:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/8909072.shtml)
+- 2026-06-29 13:25 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/474259.shtml)
+- 2026-06-29 13:26 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/6714750.shtml)
+- 2026-06-29 13:17 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/8961977793.shtml)
+- 2026-06-29 13:28 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/62850801530.shtml)
+- 2026-06-29 13:16 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/67917.shtml)
+- 2026-06-29 13:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/2728030.shtml)
+- 2026-06-29 13:19 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/6488580.shtml)
+- 2026-06-29 13:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/155261440541.shtml)
+- 2026-06-29 13:16 - [游戏数据竟被用于军事目的](https://www.share.minike.top/Article/details/843485464.shtml)
+- 2026-06-29 13:21 - [逃狱兄弟](http://www.share.minike.top/Article/details/376200928.shtml)
+- 2026-06-29 13:25 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/7228970.shtml)
+- 2026-06-29 13:18 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/727739776.shtml)

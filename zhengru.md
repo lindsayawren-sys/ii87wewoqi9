@@ -1,55 +1,50 @@
-# 日经指数下跌0.1%，受科技和金融股拖累
+# 4月上海黄金交易所黄金成交5633.7吨
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-日本股市在早盘交易中走低，此前周一受美伊和平协议推动大幅上涨。日经225指数下跌0.1%，至69268.36点。科技股和金融股领跌。软银集团下跌2.8%，野村控股下跌2.1%。在美国总统特朗普表示霍尔木兹海峡将于周五全面开放后，投资者正密切关注原油价格。日本央行定于周二晚些时候公布的利率决定也备受关注。责任编辑：王永生
+中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。(完)
 
 ## 正文
 
-日本股市在早盘交易中走低，此前周一受美伊和平协议推动大幅上涨。
+中新社北京5月22日电 中国央行22日发布4月金融市场运行情况。
 
-日经225指数下跌0.1%，至69268.36点。
+其中，黄金市场方面，4月上海黄金交易所黄金成交5633.7吨，同比减少17.0%；上海期货交易所黄金成交1.3万吨，同比减少64.3%。
 
-科技股和金融股领跌。
+4月末，上海黄金交易所Au(T+D)合约收于每克1014元人民币，环比下跌0.2%。
 
-软银集团下跌2.8%，野村控股下跌2.1%。
-
-在美国总统特朗普表示霍尔木兹海峡将于周五全面开放后，投资者正密切关注原油价格。
-
-日本央行定于周二晚些时候公布的利率决定也备受关注。
-
-责任编辑：王永生
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 13:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 13:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 13:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 13:19 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 13:29 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 13:19 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 13:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 13:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 13:18 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 13:03 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 13:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 13:09 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 13:06 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 13:14 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 13:28 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 13:26 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 13:26 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 13:17 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 13:07 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 13:28 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 13:25 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 13:21 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/037130051.shtml)
-- 2026-06-29 13:26 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/88229038.shtml)
-- 2026-06-29 13:28 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/01334.shtml)
-- 2026-06-29 13:11 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/8607775.shtml)
-- 2026-06-29 13:26 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/1157747201.shtml)
-- 2026-06-29 13:28 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/6455314.shtml)
-- 2026-06-29 13:20 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/21484063.shtml)
-- 2026-06-29 13:23 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/08762828.shtml)
-- 2026-06-29 13:00 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/804871.shtml)
-- 2026-06-29 13:03 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/1053019173.shtml)
-- 2026-06-29 13:00 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/83556531590.shtml)
-- 2026-06-29 13:26 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/96895362.shtml)
-- 2026-06-29 13:02 - [委内瑞拉强震致中国公民8遇难1失联](https://www.blog.kurohicncr.top/Article/details/35300.shtml)
-- 2026-06-29 13:13 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/3207858.shtml)
-- 2026-06-29 13:28 - [绘画区你赢了](https://www.share.minike.top/Article/details/233870561.shtml)
+- 2026-06-29 13:07 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/37814.shtml)
+- 2026-06-29 13:19 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/375329279.shtml)
+- 2026-06-29 13:08 - [网友偶遇胡军和李乃文](http://www.blog.kurohicncr.top/Article/details/9481000002.shtml)
+- 2026-06-29 13:09 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/83531.shtml)
+- 2026-06-29 13:09 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/11559632.shtml)
+- 2026-06-29 13:19 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/419741.shtml)
+- 2026-06-29 13:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/358182136.shtml)
+- 2026-06-29 13:27 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/841494065793.shtml)
+- 2026-06-29 13:06 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/13009193081.shtml)
+- 2026-06-29 13:14 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/623500093638.shtml)
+- 2026-06-29 13:11 - [谢霆锋演唱会变大型呲水现场](https://www.blog.minike.top/Article/details/46115787757.shtml)
+- 2026-06-29 13:31 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/59678459920.shtml)
+- 2026-06-29 13:13 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/36376037998.shtml)
+- 2026-06-29 13:24 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/797827045.shtml)
+- 2026-06-29 13:25 - [宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/02659543020.shtml)

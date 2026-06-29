@@ -1,57 +1,57 @@
-# 作价43.29亿元，华信信托拍卖券商股权，破产重整再进一步
+# “我们‘视’好朋友呀！”影视拍摄平台亮相深圳文博会
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。 结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，
+中新网深圳5月24日电 (记者 蔡敏婕)在第二十二届深圳文博会上，北京市广电局携“我们‘视’好朋友呀！”影视拍摄服务平台、“北京大视听”四季影视打卡路线两大核心成果亮相北京展区，举办北京影视产业服务生态创新暨平台推介仪式，展示首都影视产业服务创新成果与视听文旅融合发展新势能。 推介仪式上，现场首先播放“我们‘视’好朋友呀！”影视拍摄服务平台宣传片，直观展现平台服务功能与核心优势
 
 ## 正文
 
-北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。
+中新网深圳5月24日电 (记者 蔡敏婕)在第二十二届深圳文博会上，北京市广电局携“我们‘视’好朋友呀！
 
-6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。
+”影视拍摄服务平台、“北京大视听”四季影视打卡路线两大核心成果亮相北京展区，举办北京影视产业服务生态创新暨平台推介仪式，展示首都影视产业服务创新成果与视听文旅融合发展新势能。
 
-结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，起拍价为43.29亿元，与评估价一致。
+推介仪式上，现场首先播放“我们‘视’好朋友呀！
 
-拍卖时间则为6月30日10时至7月1日10时止（延时除外）。
+”影视拍摄服务平台宣传片，直观展现平台服务功能与核心优势。
 
-截至6月16日17时35分，这一拍卖标的已经获得79人关注，8949人围观，目前暂无报名者。
+北京市广电局党组成员、副局长张苏现场宣介“北京大视听”拍摄服务机制建设运行情况，详解首都影视产业全链条服务体系。
 
-而本次拟拍卖的股权共计三部分，具体包括华信信托所持有的大通证券9.32亿股股份、华信信托二级全资子公司海创汇通所持有的3.02亿股股份，以及海创汇通指定第三方承接大连华根机械有限公司所持有的大通证券4.68亿股股份，合计持股比例为51.59%，其中23.44%已经被质押。
+“北京大视听”拍摄服务机制自2024年4月正式启动，系统梳理搭建起包含1200余个点位的优质取景资源库。
 
-对于处置旗下大通证券股权，华信信托此前已有公告。
+机制运行两年来，已累计协助50余部影视作品在京取景拍摄，拍摄足迹覆盖钟鼓楼、国贸、什刹海、大运河等425个城市标志性点位。
 
-2026年2月，华信信托重整案第一次债权人会议中，三项议案均表决通过，其中就包括《关于处置大通证券股份有限公司股份的方案》。
+数据显示，相关影视取景热度成功带动景点游览、餐饮住宿、文创消费等多业态发展，累计拉动消费达3.5亿元。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 13:00 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 13:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 13:17 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:14 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 13:08 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 13:10 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 13:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 13:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 13:09 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:34 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 13:19 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 13:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 13:07 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 13:19 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 13:33 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 13:31 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 13:30 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 13:18 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 13:09 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/01803190.shtml)
-- 2026-06-29 13:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/279202873.shtml)
-- 2026-06-29 13:17 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/85330040.shtml)
-- 2026-06-29 13:23 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/90988061625.shtml)
-- 2026-06-29 13:28 - [周生如故](https://www.share.minike.top/Article/details/244300.shtml)
-- 2026-06-29 13:09 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/84297485674.shtml)
-- 2026-06-29 13:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/35578694.shtml)
-- 2026-06-29 13:21 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/46105670589.shtml)
-- 2026-06-29 13:29 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/723263643176.shtml)
-- 2026-06-29 13:02 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/27777467.shtml)
-- 2026-06-29 13:11 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/632933841.shtml)
-- 2026-06-29 13:08 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/49184.shtml)
-- 2026-06-29 13:07 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/968601.shtml)
-- 2026-06-29 13:03 - [爱很美味](http://www.blog.minike.top/Article/details/23985.shtml)
-- 2026-06-29 13:13 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/45523374.shtml)
+- 2026-06-29 13:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/590235049667.shtml)
+- 2026-06-29 13:13 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/256667.shtml)
+- 2026-06-29 13:09 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/6858446583.shtml)
+- 2026-06-29 13:30 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/6177408802.shtml)
+- 2026-06-29 13:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/3028083452.shtml)
+- 2026-06-29 13:07 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/798372.shtml)
+- 2026-06-29 13:17 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/20359582317.shtml)
+- 2026-06-29 13:34 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/8701050007.shtml)
+- 2026-06-29 13:32 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/18580736979.shtml)
+- 2026-06-29 13:28 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/474442488186.shtml)
+- 2026-06-29 13:33 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/48499755785.shtml)
+- 2026-06-29 13:23 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/5284254.shtml)
+- 2026-06-29 13:07 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/7947181857.shtml)
+- 2026-06-29 13:14 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/6601290344.shtml)
+- 2026-06-29 13:34 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/84077.shtml)

@@ -1,56 +1,57 @@
-# 资本项目开放明确方向、QDII提额......陆家嘴论坛官宣新一轮政策红利
+# 多位专家建言赓续中华文脉 推动文化创新创造
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 “十五五”规划提出“提升资本项目开放水平”。资本项目开放是国家高水平对外开放的重要内容。 6月17日，在2026陆家嘴论坛上，中国人民银行副行长、国家外汇管理局局长朱鹤新重磅发言，围绕全球资本流动新格局、中国资本项目开放分享他的观点。 （中国人民银行副行长、国家外汇管理局局长朱鹤新。摄影记者/第一财经 吴军） 论坛上
+中新网深圳5月22日电 (记者 程景伟 索有为)2026文化强国建设高峰论坛21日在深圳开幕。多位专家围绕“文脉文运的传承与文化的创新创造”主题，就文化遗产保护、中华文明传承、中国电影发展等话题进行了分享。 中国社会科学院学部委员、一级研究员王巍以《跨学科视域下不同文明演进路径的比较与思考》为题作发言。他认为，得天独厚的地理环境、以人为本的文化内核、一脉相承的文化传统、大一统的
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 “十五五”规划提出“提升资本项目开放水平”。
+中新网深圳5月22日电 (记者 程景伟 索有为)2026文化强国建设高峰论坛21日在深圳开幕。
 
-资本项目开放是国家高水平对外开放的重要内容。
+多位专家围绕“文脉文运的传承与文化的创新创造”主题，就文化遗产保护、中华文明传承、中国电影发展等话题进行了分享。
 
-6月17日，在2026陆家嘴论坛上，中国人民银行副行长、国家外汇管理局局长朱鹤新重磅发言，围绕全球资本流动新格局、中国资本项目开放分享他的观点。
+中国社会科学院学部委员、一级研究员王巍以《跨学科视域下不同文明演进路径的比较与思考》为题作发言。
 
-（中国人民银行副行长、国家外汇管理局局长朱鹤新。
+他认为，得天独厚的地理环境、以人为本的文化内核、一脉相承的文化传统、大一统的治理理念、天下大同的政治理想、开放包容的宽广胸怀，以及开拓创新的进取精神、爱好和平的仁德之心，共同构筑了中华文明绵延不绝的发展密码。
 
-摄影记者/第一财经 吴军） 论坛上，朱鹤新官宣了新增推出“一揽子”增量政策，发挥存量和增量政策集成效应，释放在更高层次、更高质量上推进开放的政策信号。
+王巍表示，新时代背景下，我们更应坚定文化自信，传承中华优秀传统文化，汲取四大文明兴衰的历史经验，在守正创新中推动中华文明永续发展。
 
-“上海是金融高水平开放的承载地、试验田。
+中山大学历史系教授、岭南文化研究院院长陈春声以《提升中华文化的国际影响力——以岭南文化为例》为题作发言。
 
-”值得一提的是，他同时强调要以更大力度支持上海国际金融中心建设，“下一步，将支持上海开展更加灵活的贸易外汇结算试点、实施跨境再保险收入境外投资便利化试点、推广跨国公司资金集中运营管理等政策，提升制度集成创新效能。
+他指出，岭南文化是中华文化的有机组成部分。
 
-” 来自国家外汇管理局的统计数据显示，今年以来，上海跨境贸易高水平开放试点规模占全市经常项目外汇收支比例达1/4。
+包括岭南文化在内的地域文化传播，实际上都在反映国家的总体形象，讲好岭南故事有助于对中华文化整体的传播，我们应当要有这样的自觉性和责任感。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [欧洲热死人不是开玩笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 13:19 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 13:21 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 13:29 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 13:16 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 13:06 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 13:15 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:05 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:01 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:22 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 13:08 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 13:24 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 13:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 13:12 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 13:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 13:16 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 13:16 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 13:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 13:07 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 13:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 13:16 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [《贺子珍》](http://www.blog.minike.top/Article/details/5292346.shtml)
-- 2026-06-29 13:23 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/05124845.shtml)
-- 2026-06-29 13:20 - [时光音乐会](http://www.share.minike.top/Article/details/10912829.shtml)
-- 2026-06-29 13:00 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.minike.top/Article/details/768693.shtml)
-- 2026-06-29 13:16 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/0655744.shtml)
-- 2026-06-29 13:29 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/13725.shtml)
-- 2026-06-29 13:08 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/84478.shtml)
-- 2026-06-29 13:26 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/971273.shtml)
-- 2026-06-29 13:22 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/20483755425.shtml)
-- 2026-06-29 13:06 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/074962.shtml)
-- 2026-06-29 13:29 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/25156.shtml)
-- 2026-06-29 13:25 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/5442792125.shtml)
-- 2026-06-29 13:25 - [青春环游记第三季](https://www.blog.minike.top/Article/details/6930726.shtml)
-- 2026-06-29 13:14 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/7843289.shtml)
-- 2026-06-29 13:01 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/7390857252.shtml)
+- 2026-06-29 13:31 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/511019.shtml)
+- 2026-06-29 13:20 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/90393510.shtml)
+- 2026-06-29 13:28 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/542723254.shtml)
+- 2026-06-29 13:06 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/2509964.shtml)
+- 2026-06-29 13:25 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/22754889693.shtml)
+- 2026-06-29 13:10 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/4420160520.shtml)
+- 2026-06-29 13:28 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/469907832128.shtml)
+- 2026-06-29 13:24 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/4384054015.shtml)
+- 2026-06-29 13:20 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/557432627912.shtml)
+- 2026-06-29 13:14 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/0659709.shtml)
+- 2026-06-29 13:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/130878.shtml)
+- 2026-06-29 13:34 - [这位天才台湾人第一次来大陆，开智了](http://www.share.minike.top/Article/details/2630334492.shtml)
+- 2026-06-29 13:14 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/4325352.shtml)
+- 2026-06-29 13:18 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/81451.shtml)
+- 2026-06-29 13:21 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/25861567554.shtml)

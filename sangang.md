@@ -1,58 +1,60 @@
-# 加快打造“千亿级汽车城” 河南开封推动先进制造业攀“高”向“新”
+# 习近平对山西长治市沁源县一煤矿瓦斯爆炸事故作出重要指示
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网开封6月17日电 (刘鹏 左起超 王博)连日来，在河南开封奇瑞乘用车技改项目工地上，工程机械轰鸣运转，工人们正在加紧施工，争取将这座大型现代化工厂早日建成投用。 “项目建设已进入最后冲刺阶段，将引入更先进的自动化产线和数字管理系统，到2027年全面达产后，开封奇瑞整车和KD(散件组装)产量将超过60万辆，产值突破600亿元。”开封奇瑞基地相关负责人乔永介绍，开封市、区对该
+原标题：习近平对山西长治市沁源县一煤矿瓦斯爆炸事故作出重要指示强调 全力救治伤员 科学组织搜救 坚决防范遏制重特大事故发生 李强作出批示 新华社北京5月23日电 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 事故发生后，中共中央总书记、国家主席、中央军委主席习近平高度重视并作出重要指示指出，山西长治市沁源县一煤矿
 
 ## 正文
 
-中新网开封6月17日电 (刘鹏 左起超 王博)连日来，在河南开封奇瑞乘用车技改项目工地上，工程机械轰鸣运转，工人们正在加紧施工，争取将这座大型现代化工厂早日建成投用。
+原标题：习近平对山西长治市沁源县一煤矿瓦斯爆炸事故作出重要指示强调 全力救治伤员 科学组织搜救 坚决防范遏制重特大事故发生 李强作出批示 新华社北京5月23日电 5月22日19时29分，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-“项目建设已进入最后冲刺阶段，将引入更先进的自动化产线和数字管理系统，到2027年全面达产后，开封奇瑞整车和KD(散件组装)产量将超过60万辆，产值突破600亿元。
+事故发生后，中共中央总书记、国家主席、中央军委主席习近平高度重视并作出重要指示指出，山西长治市沁源县一煤矿井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-”开封奇瑞基地相关负责人乔永介绍，开封市、区对该项目的落地建设给予大力支持，项目设计方案从预审到区规委会审议通过仅用10天，建设工程规划许可证核发压缩至1天。
+要全力救治伤员，科学组织搜救，妥善做好善后处置工作。
 
-“开封正在谋划实施一批带动性强的技改项目，以技改投资拉动产业迭代升级。
+要查明事故原因，依法严肃追责。
 
-奇瑞技改项目将建造成引领行业的智能超级工厂，并通过延链补链带动本地汽车零部件配套率超过60%。
+习近平强调，各地区各部门要汲取事故教训，时刻绷紧安全生产这根弦，深入排查整治各类风险隐患，坚决防范遏制重特大事故发生。
 
-”据开封市发改委主任刘国飞介绍，“十五五”时期，开封将全力打造先进制造业新城，把汽车制造作为首位产业来抓，依托郑开汽车产业带加快新能源转型步伐，实施整车制造规模提升工程和零部件配套提质工程，支持奇瑞汽车、星辰房车等企业扩大整车出口，带动光瑞、武秀等零部件企业产值突破10亿元，加快打造“千亿级汽车城”。
+当前正值汛期，要加强应急值守，扎实做好防汛救灾工作，切实维护人民群众生命财产安全。
 
-为此，开封专门成立了先进制造业新城建设专班，制定了“汽车城”、现代物流产业等专项发展规划，以重大项目为抓手，积极推进汽车制造、现代食品、化工新材料、生物医药等9条重点产业链智能化、绿色化、融合化转型升级，构建“空铁水公”多式联运体系，为制造业赋能提速。
+中共中央政治局常委、国务院总理李强作出批示指出，要全力搜救被困人员、救治伤员，做好善后工作，及时准确发布信息，尽快查明事故原因并依法依规严肃问责。
 
-并通过落实“市级领导+责任部门+金融机构+助企服务员”包联服务机制，不断提升“以企观政”精准服务水平，确保惠企政策直达快享，激励制造企业加快技术创新、提质增效、开拓市场。
+国务院安委办要进一步督促指导各地各有关方面强化安全生产责任落实，切实抓好重点行业领域安全隐患排查整治，坚决防范重特大事故发生。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 13:27 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 13:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 13:29 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 13:22 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 13:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 13:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 13:15 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 13:16 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 13:11 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 13:00 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 13:18 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 13:34 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 13:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 13:08 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 13:14 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 13:27 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 13:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 13:13 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 13:18 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 13:16 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:23 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 13:13 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 13:25 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/6307184695.shtml)
-- 2026-06-29 13:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/711223.shtml)
-- 2026-06-29 13:26 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/868124.shtml)
-- 2026-06-29 13:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/31097518.shtml)
-- 2026-06-29 13:03 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/057118897.shtml)
-- 2026-06-29 13:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/46145921571.shtml)
-- 2026-06-29 13:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/92275842.shtml)
-- 2026-06-29 13:04 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/0519499.shtml)
-- 2026-06-29 13:19 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/9828914.shtml)
-- 2026-06-29 13:23 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/7601480248.shtml)
-- 2026-06-29 13:27 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/5832745.shtml)
-- 2026-06-29 13:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/44793914.shtml)
-- 2026-06-29 13:20 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/7319072.shtml)
-- 2026-06-29 13:10 - [6月我国降水为何偏多](http://www.blog.kurohicncr.top/Article/details/59178266.shtml)
-- 2026-06-29 13:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/098671.shtml)
+- 2026-06-29 13:15 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/8642516.shtml)
+- 2026-06-29 13:21 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/21755848839.shtml)
+- 2026-06-29 13:26 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/382472005.shtml)
+- 2026-06-29 13:21 - [明星大侦探第一季](https://www.share.minike.top/Article/details/3126718.shtml)
+- 2026-06-29 13:25 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/2106491.shtml)
+- 2026-06-29 13:17 - [张一山说杨紫早该拿奖了](https://www.blog.kurohicncr.top/Article/details/13916.shtml)
+- 2026-06-29 13:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/70389747927.shtml)
+- 2026-06-29 13:33 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/523898575.shtml)
+- 2026-06-29 13:11 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.minike.top/Article/details/2744339204.shtml)
+- 2026-06-29 13:22 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/330314.shtml)
+- 2026-06-29 13:10 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/48724.shtml)
+- 2026-06-29 13:35 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/390235.shtml)
+- 2026-06-29 13:09 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/074833.shtml)
+- 2026-06-29 13:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/320624501.shtml)
+- 2026-06-29 13:35 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/1721238.shtml)

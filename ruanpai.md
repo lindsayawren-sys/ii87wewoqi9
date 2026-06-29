@@ -1,49 +1,57 @@
-# 浙江义乌“端午系产品”畅销海内外 宋锦元素成就爆款
+# 特朗普为司法部基金辩护，遭参议院共和党人反对
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。(董易鑫 刘富城 宋继添） 责任编辑：【李季】
+核心要点 唐纳德・特朗普总统为颇具争议的司法部新设 “反武器化基金” 辩护，该基金或用于向其盟友支付赔偿金 —— 这些盟友声称在拜凳政府时期成为司法不当行为的受害者。 特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。” 此前，代理司法部长托德・布兰奇就该基金向参议院共和党人进行简报后，后者取消了原定投票计划。 参议院共和党人强烈反对后，
 
 ## 正文
 
-发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。
+核心要点 唐纳德・特朗普总统为颇具争议的司法部新设 “反武器化基金” 辩护，该基金或用于向其盟友支付赔偿金 —— 这些盟友声称在拜凳政府时期成为司法不当行为的受害者。
 
-据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。
+特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。
 
-(董易鑫 刘富城 宋继添） 责任编辑：【李季】
+” 此前，代理司法部长托德・布兰奇就该基金向参议院共和党人进行简报后，后者取消了原定投票计划。
+
+参议院共和党人强烈反对后，唐纳德・特朗普总统于周五为司法部颇具争议的新设 “反武器化基金” 进行辩护。
+
+特朗普的前刑事辩护律师、现任代理司法部长托德・布兰奇本周早些时候表示，设立这笔 18 亿美元基金，是为和解特朗普对美国国家税务局（IRS）提起的 100 亿美元诉讼。
+
+特朗普在该和解中未获分文，但基金旨在赔偿其众多支持者 —— 他们声称在拜凳政府时期，成为司法部过度执法行为的受害者。
+
+特朗普在 “真相社交” 平台发文称：“为让刚宣布的反武器化基金顺利推进，我放弃了巨额资金。
+
+” 他表示：“我本可以就我的案件达成和解 —— 包括非法泄露我的纳税申报表、以及同样非法闯入海湖庄园的行为 —— 从而获得一笔巨款。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 13:03 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 13:15 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 13:17 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 13:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 13:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 13:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 13:24 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 13:12 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 13:17 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 13:11 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 13:12 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 13:04 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 13:31 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 13:29 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 13:32 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 13:14 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 13:33 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:12 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 13:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:30 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 13:15 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 13:17 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 13:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/398206.shtml)
-- 2026-06-29 13:01 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/634577.shtml)
-- 2026-06-29 13:21 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/061679.shtml)
-- 2026-06-29 13:09 - [向佑说向佐是一生依靠](https://www.blog.minike.top/Article/details/811243556570.shtml)
-- 2026-06-29 13:14 - [A股限售股解禁一览](http://www.blog.kurohicncr.top/Article/details/651007391.shtml)
-- 2026-06-29 13:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/690284837346.shtml)
-- 2026-06-29 13:14 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.minike.top/Article/details/982638121745.shtml)
-- 2026-06-29 13:24 - [双高胎](http://www.blog.minike.top/Article/details/3187080281.shtml)
-- 2026-06-29 13:21 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/086136097003.shtml)
-- 2026-06-29 13:22 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/847561695821.shtml)
-- 2026-06-29 13:21 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/15583091735.shtml)
-- 2026-06-29 13:08 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/942238079.shtml)
-- 2026-06-29 13:18 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/04555.shtml)
-- 2026-06-29 13:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/2948564.shtml)
-- 2026-06-29 13:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/4595764.shtml)
+- 2026-06-29 13:23 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/43849.shtml)
+- 2026-06-29 13:33 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/5495333.shtml)
+- 2026-06-29 13:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/31639991.shtml)
+- 2026-06-29 13:14 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/37992486.shtml)
+- 2026-06-29 13:27 - [双高胎](http://www.share.minike.top/Article/details/96637.shtml)
+- 2026-06-29 13:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.minike.top/Article/details/06505581868.shtml)
+- 2026-06-29 13:25 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/6323952231.shtml)
+- 2026-06-29 13:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/45150280478.shtml)
+- 2026-06-29 13:20 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/52171535.shtml)
+- 2026-06-29 13:29 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/25956.shtml)
+- 2026-06-29 13:20 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/1981484336.shtml)
+- 2026-06-29 13:18 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/38386.shtml)
+- 2026-06-29 13:06 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/48622.shtml)
+- 2026-06-29 13:26 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/298302097.shtml)
+- 2026-06-29 13:26 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/26247026.shtml)

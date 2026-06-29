@@ -1,57 +1,56 @@
-# 贝莱德建信理财刘睿：个人养老金推广需克服转化率难题
+# Stellantis CEO：考虑在墨西哥、加拿大生产中国品牌车型，美国暂无计划
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-原标题：专访贝莱德建信理财刘睿：个人养老金推广需克服转化率难题 21世纪经济报道 周炎炎 养老理财产品要不要含权？含多少权益合适？ 虽然养老资金的天然属性是追求稳健，而权益资产天然有波动，两者难以适配，但身处低利率时代，很多理财子公司都在养老理财产品中引入权益资产，力争提高产品整体收益率。至于波动，时间跨度的优势可以消化短期波动。 贝莱德建信理财将股票资产引入R2相对较低风险等
+Stellantis首席执行官Antonio Filosa于5月22日表示，公司正考虑在墨西哥和加拿大扩大与中国合作伙伴零跑汽车的合作，可能在这两个市场生产中国品牌车型，但美国市场目前没有空间。 Filosa在底特律附近Stellantis北美总部举行的投资者日活动后表示，他认为墨西哥市场存在机会，加拿大或许也有空间。此前彭博社已报道，Stellantis正与零跑汽车就在加拿大
 
 ## 正文
 
-原标题：专访贝莱德建信理财刘睿：个人养老金推广需克服转化率难题 21世纪经济报道 周炎炎 养老理财产品要不要含权？
+Stellantis首席执行官Antonio Filosa于5月22日表示，公司正考虑在墨西哥和加拿大扩大与中国合作伙伴零跑汽车的合作，可能在这两个市场生产中国品牌车型，但美国市场目前没有空间。
 
-含多少权益合适？
+Filosa在底特律附近Stellantis北美总部举行的投资者日活动后表示，他认为墨西哥市场存在机会，加拿大或许也有空间。
 
-虽然养老资金的天然属性是追求稳健，而权益资产天然有波动，两者难以适配，但身处低利率时代，很多理财子公司都在养老理财产品中引入权益资产，力争提高产品整体收益率。
+此前彭博社已报道，Stellantis正与零跑汽车就在加拿大安大略省布兰普顿的闲置工厂生产电动车进行洽谈。
 
-至于波动，时间跨度的优势可以消化短期波动。
+该工厂自2024年关闭后，一直面临产能闲置问题，若协议落地，零跑将成为首个在北美实现本土化生产的中国新势力品牌。
 
-贝莱德建信理财将股票资产引入R2相对较低风险等级的个人养老金产品（“贝嘉智能心”），同时用AI辅助进行股债配比，这一举动引起了业内关注。
+Filosa同时明确排除了在美国本土生产中国品牌汽车的可能性。
 
-在此之前，贝莱德建信理财也在养老理财领域有过其他“首创”，比如业内首只十年期封闭式养老理财试点产品。
+他表示现在美国没有空间，看不到。
 
-“理财客户从接受波动的程度来讲偏保守，但不接受一点波动，长期增值的效果会差很多。
+这一判断基于美国对中国汽车制造商进入北美市场的持续担忧。
 
-”贝莱德建信理财副总经理、首席投资官刘睿日前在接受21世纪经济报道专访时坦言。
+传统车企一直担心中国车企可能通过合作渠道渗透至美国消费者市场，而美国政策层面对中国汽车的准入态度也持续趋严。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 13:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 13:18 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 13:18 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 13:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 13:01 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:19 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 13:08 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 13:13 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 13:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 13:04 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 13:11 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:12 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 13:26 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 13:17 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 13:33 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 13:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 13:34 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 13:35 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 13:18 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 13:12 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/3085046.shtml)
-- 2026-06-29 13:29 - [A股](http://www.blog.minike.top/Article/details/43978923000.shtml)
-- 2026-06-29 13:22 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/77969554757.shtml)
-- 2026-06-29 13:25 - [明星大侦探第四季](http://www.share.minike.top/Article/details/949691764396.shtml)
-- 2026-06-29 13:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/339551616.shtml)
-- 2026-06-29 13:15 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/7598303.shtml)
-- 2026-06-29 13:01 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/4414679.shtml)
-- 2026-06-29 13:15 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/725038040083.shtml)
-- 2026-06-29 13:18 - [美人鱼](https://www.share.kurohicncr.top/Article/details/65409076013.shtml)
-- 2026-06-29 13:07 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/50930594691.shtml)
-- 2026-06-29 13:07 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/04519314346.shtml)
-- 2026-06-29 13:13 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/887654.shtml)
-- 2026-06-29 13:18 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/4703763.shtml)
-- 2026-06-29 13:15 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/08952910.shtml)
-- 2026-06-29 13:10 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/330694507365.shtml)
+- 2026-06-29 13:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/62415866.shtml)
+- 2026-06-29 13:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/2121687.shtml)
+- 2026-06-29 13:25 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/3911427.shtml)
+- 2026-06-29 13:23 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/15555747015.shtml)
+- 2026-06-29 13:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/04236597246.shtml)
+- 2026-06-29 13:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/200462455.shtml)
+- 2026-06-29 13:23 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/7675508.shtml)
+- 2026-06-29 13:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/501535817909.shtml)
+- 2026-06-29 13:26 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/963229688798.shtml)
+- 2026-06-29 13:25 - [金牌调解](http://www.share.minike.top/Article/details/15514181047.shtml)
+- 2026-06-29 13:21 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/16419.shtml)
+- 2026-06-29 13:31 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/843207.shtml)
+- 2026-06-29 13:35 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/83228872.shtml)
+- 2026-06-29 13:25 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/283371.shtml)
+- 2026-06-29 13:06 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/5515242409.shtml)

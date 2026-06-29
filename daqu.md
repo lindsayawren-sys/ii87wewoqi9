@@ -1,58 +1,51 @@
-# 新疆兵团银发讲师团：让红色故事浸润青少年心田
+# Stellantis公布600亿欧元转型计划
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月16日电 (蒲子璇 何瑞娜)在新疆生产建设兵团第六师五家渠市，一支由退休干部、老党员、老军垦组成的“五老”讲师团家喻户晓。 他们活跃在校园、社区、连队，结合亲身经历，平日里为身边青少年讲述兵团历史与红色故事，传承兵团精神。 “五老”讲师团最初由几位退休老同志自发组建，现已是当地红色教育领域的亮眼名片。虽大多已是古稀之年，却初心不改，持续将红色火种播撒在一代代青
+Stellantis（STLA）公布了一项五年计划，目标是到2027年实现工业自由现金流转正，到2028年实现每年60亿欧元的成本节约，并推出60多款新车或改款车型，涵盖混合动力和纯电动汽车。该计划旨在应对全球汽车行业的电动化转型和激烈的市场竞争。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网乌鲁木齐6月16日电 (蒲子璇 何瑞娜)在新疆生产建设兵团第六师五家渠市，一支由退休干部、老党员、老军垦组成的“五老”讲师团家喻户晓。
+Stellantis（STLA）公布了一项五年计划，目标是到2027年实现工业自由现金流转正，到2028年实现每年60亿欧元的成本节约，并推出60多款新车或改款车型，涵盖混合动力和纯电动汽车。
 
-他们活跃在校园、社区、连队，结合亲身经历，平日里为身边青少年讲述兵团历史与红色故事，传承兵团精神。
+该计划旨在应对全球汽车行业的电动化转型和激烈的市场竞争。
 
-“五老”讲师团最初由几位退休老同志自发组建，现已是当地红色教育领域的亮眼名片。
-
-虽大多已是古稀之年，却初心不改，持续将红色火种播撒在一代代青少年心间。
-
-走到哪里就讲到哪里 年逾八旬的讲师团团长徐金石的家，俨然一座红色资料库，内容涵盖兵团精神、英模事迹、主流价值理念等。
-
-“一天不学退十步，宣讲也得与时俱进。
-
-”徐金石常说。
-
-二十余年来，徐金石坚持记录每一份搜集的资料、每一场宣讲的细节。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 13:29 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 13:10 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 13:26 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 13:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 13:28 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 13:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 13:06 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 13:02 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 13:07 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 13:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 13:23 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 13:23 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 13:08 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 13:34 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:15 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 13:24 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 13:31 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 13:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:16 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 13:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 13:24 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 13:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 13:34 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 13:14 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/432308037.shtml)
-- 2026-06-29 13:08 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/01115642.shtml)
-- 2026-06-29 13:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/44952.shtml)
-- 2026-06-29 13:14 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/539585844.shtml)
-- 2026-06-29 13:29 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/9068196862.shtml)
-- 2026-06-29 13:22 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/238621860331.shtml)
-- 2026-06-29 13:25 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/0393369757.shtml)
-- 2026-06-29 13:08 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/0891652038.shtml)
-- 2026-06-29 13:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/07128611.shtml)
-- 2026-06-29 13:16 - [普京称俄处于命运攸关之际](https://www.share.kurohicncr.top/Article/details/4100858666.shtml)
-- 2026-06-29 13:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/03556256.shtml)
-- 2026-06-29 13:01 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/197268866928.shtml)
-- 2026-06-29 13:07 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/150226079232.shtml)
-- 2026-06-29 13:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/88104.shtml)
-- 2026-06-29 13:00 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/9550091450.shtml)
+- 2026-06-29 13:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/93988634310.shtml)
+- 2026-06-29 13:33 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/882788.shtml)
+- 2026-06-29 13:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/387969257.shtml)
+- 2026-06-29 13:24 - [谢霆锋演唱会变大型呲水现场](http://www.blog.minike.top/Article/details/7115759.shtml)
+- 2026-06-29 13:06 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/564584524.shtml)
+- 2026-06-29 13:08 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/75049943084.shtml)
+- 2026-06-29 13:09 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/757671312.shtml)
+- 2026-06-29 13:30 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/72299719.shtml)
+- 2026-06-29 13:34 - [谢霆锋演唱会变大型呲水现场](https://www.blog.kurohicncr.top/Article/details/64564.shtml)
+- 2026-06-29 13:31 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/315966974087.shtml)
+- 2026-06-29 13:22 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/786163632147.shtml)
+- 2026-06-29 13:31 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/42847498657.shtml)
+- 2026-06-29 13:32 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/339315.shtml)
+- 2026-06-29 13:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/264116841.shtml)
+- 2026-06-29 13:07 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/2609942019.shtml)

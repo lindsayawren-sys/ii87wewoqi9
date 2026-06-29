@@ -1,56 +1,57 @@
-# 油价跌至三个月低点，但油轮企业对霍尔木兹海峡航运仍持谨慎态度
+# 山水出好物 广东云浮土特产借助文博会“出圈”湾区
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-核心要点 继周一油价大幅抛售之后，周二国际原油价格跌至三个月以来最低水平，市场投资者正等待美伊旨在结束中东冲突的相关协议更多细节落地。 截至美国东部时间凌晨 4 点，国际原油定价基准 —— 布伦特原油期货下跌 1.25%，报每桶 82.13 美元。 美国 7 月交货的西德克萨斯轻质原油（WTI）期货跌破每桶 80 美元关口，下跌 1.41%，报每桶 79.67 美元。 原油期货
+中新网深圳5月24日电 (记者 蔡敏婕)从云城番薯到云安花生、托洞腐竹，从罗定稻米、罗定肉桂、泗纶蒸笼、罗定皱纱鱼腐到新兴香荔、新兴凉果，再到郁南无核黄皮…… 这些生长在云浮山水间的“土特产”，正串联成一条从田间到餐桌、从产品到文化的完整叙事链。去年，广东云浮现代农业产业规模已迈上千亿级台阶，成为该市首个千亿级产业集群。 正在深圳举行的第二十二届深圳文博会上，一处占地100平方
 
 ## 正文
 
-核心要点 继周一油价大幅抛售之后，周二国际原油价格跌至三个月以来最低水平，市场投资者正等待美伊旨在结束中东冲突的相关协议更多细节落地。
+中新网深圳5月24日电 (记者 蔡敏婕)从云城番薯到云安花生、托洞腐竹，从罗定稻米、罗定肉桂、泗纶蒸笼、罗定皱纱鱼腐到新兴香荔、新兴凉果，再到郁南无核黄皮…… 这些生长在云浮山水间的“土特产”，正串联成一条从田间到餐桌、从产品到文化的完整叙事链。
 
-截至美国东部时间凌晨 4 点，国际原油定价基准 —— 布伦特原油期货下跌 1.25%，报每桶 82.13 美元。
+去年，广东云浮现代农业产业规模已迈上千亿级台阶，成为该市首个千亿级产业集群。
 
-美国 7 月交货的西德克萨斯轻质原油（WTI）期货跌破每桶 80 美元关口，下跌 1.41%，报每桶 79.67 美元。
+正在深圳举行的第二十二届深圳文博会上，一处占地100平方米的展区飘出阵阵鲜香——汤锅热气氤氲，大厨用老母鸡慢熬的汤底现场制作中华土鸡米粉，观众闻香而来，排起了队伍。
 
-原油期货隔夜时段曾小幅冲高，随后再度反转下行；在前一交易日，油价已经跌至 3 月 4 日以来的最低价位。
+这是广东云浮市的展区，“中华土鸡餐桌C位”几个大字引人注目。
 
-油价剧烈波动，反映出市场对于美伊双方达成的和平框架完整条款依旧存在不确定性。
+展区设置了“吃鸡”食谱互动体验装置，扫码即可获取菜谱，体验不同烹饪技法。
 
-本次 G7 峰会于今日在法国埃维昂莱班召开，推动中东战事和平解决将成为峰会核心议题，美伊谅解备忘录的更多细节预计将于本周晚些时候对外公布。
+土鸡是广东云浮的产业家底，但云浮的文博会展台，装的远不止一只鸡。
 
-油轮企业高管：霍尔木兹海峡通航前景仍需审慎观望 美伊双方已于周日达成临时协议：将美伊停火期限延长 60 天，同时全面开放霍尔木兹海峡，恢复各国船舶正常通航。
+作为国家农产品质量安全市，云浮拥有2个国家级、15个省级现代农业产业园，16个国家地理标志保护产品，家禽出栏量稳居全省第一。
 
-前往出席 G7 峰会的美国总统特朗普表示，美国已与伊朗签署和平框架协议，并透露霍尔木兹海峡将于本周五全面重新开放，过往伊朗征收的海峡通行费也将取消，双方正式签约仪式定于本周五在日内瓦举行。
+有参观者表示：“我一直觉得鸡就是鸡，没想到这里有一整套鸡的品种文化，看了才知道原来‘中华土鸡’背后有这么完整的产业和文化体系。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 13:13 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 13:18 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 13:10 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 13:15 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 13:20 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 13:28 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 13:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 13:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 13:07 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:36 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 13:24 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 13:16 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 13:31 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 13:06 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 13:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 13:31 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 13:07 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 13:35 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 13:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 13:13 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/628171.shtml)
-- 2026-06-29 13:12 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/498579160.shtml)
-- 2026-06-29 13:13 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/55084292268.shtml)
-- 2026-06-29 13:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/808413749494.shtml)
-- 2026-06-29 13:10 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/248120.shtml)
-- 2026-06-29 13:28 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/898041998812.shtml)
-- 2026-06-29 13:17 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/5584702.shtml)
-- 2026-06-29 13:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/532059766.shtml)
-- 2026-06-29 13:08 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/2158498.shtml)
-- 2026-06-29 13:15 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/95433321780.shtml)
-- 2026-06-29 13:21 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/2667853.shtml)
-- 2026-06-29 13:10 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/3426942.shtml)
-- 2026-06-29 13:00 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/33712.shtml)
-- 2026-06-29 13:06 - [A股](http://www.blog.kurohicncr.top/Article/details/47665299.shtml)
-- 2026-06-29 13:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/23307141.shtml)
+- 2026-06-29 13:13 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/1555300.shtml)
+- 2026-06-29 13:23 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/573769855.shtml)
+- 2026-06-29 13:35 - [张真源解读相思锁](http://www.share.minike.top/Article/details/48461.shtml)
+- 2026-06-29 13:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/655894.shtml)
+- 2026-06-29 13:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/231758556383.shtml)
+- 2026-06-29 13:10 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/686491061743.shtml)
+- 2026-06-29 13:34 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/05543726379.shtml)
+- 2026-06-29 13:14 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.kurohicncr.top/Article/details/698067.shtml)
+- 2026-06-29 13:12 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/7423152432.shtml)
+- 2026-06-29 13:20 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/939685384.shtml)
+- 2026-06-29 13:28 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/973606076.shtml)
+- 2026-06-29 13:09 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/24462822118.shtml)
+- 2026-06-29 13:18 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/33028004765.shtml)
+- 2026-06-29 13:32 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/397493767196.shtml)
+- 2026-06-29 13:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/06073110495.shtml)

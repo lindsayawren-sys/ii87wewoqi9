@@ -1,56 +1,57 @@
-# 民企奋进自贸港：借海南拓绿色智造版图
+# 富瑞：阿里健康目标价下调至5.3港元 重申“买入”评级
 
-> 更新时间：2026-06-29 13:30:02 UTC+8
+> 更新时间：2026-06-29 13:36:02 UTC+8
 
 ## 摘要
 
-中新网海口6月16日电 题：民企奋进自贸港：借海南拓绿色智造版图 中新网记者 张茜翼 “泰豪集团自主研发的储能变流器、全域能耗监测系统，可精准适配海南环岛风光资源开发、独立储能布局及省域数字电网建设需求。”16日于海口举行的2026全国民营企业绿色发展大会民营企业座谈会上，泰豪集团董事会主席黄代放表示，企业将海南视为企业绿色智造版图的关键落子。 这家发轫于江西、受益于省校合作机
+富瑞发布研报称，阿里健康（00241）推出的“氢离子”APP将其定位为早期面向医生的AI领导者，与《英国医学杂志》（BMJ）合作提供基于证据的临床决策支持。初步产品测试显示其可用性强、幻觉率低且临床推理稳健。管理层预计在2027至2029财年期间，每年将投入2亿至3亿元人民币于AI研发，目标在三年内达到200万月活跃用户（MAU），并期望“氢离子”在2029年实现收支平衡。该行
 
 ## 正文
 
-中新网海口6月16日电 题：民企奋进自贸港：借海南拓绿色智造版图 中新网记者 张茜翼 “泰豪集团自主研发的储能变流器、全域能耗监测系统，可精准适配海南环岛风光资源开发、独立储能布局及省域数字电网建设需求。
+富瑞发布研报称，阿里健康（00241）推出的“氢离子”APP将其定位为早期面向医生的AI领导者，与《英国医学杂志》（BMJ）合作提供基于证据的临床决策支持。
 
-”16日于海口举行的2026全国民营企业绿色发展大会民营企业座谈会上，泰豪集团董事会主席黄代放表示，企业将海南视为企业绿色智造版图的关键落子。
+初步产品测试显示其可用性强、幻觉率低且临床推理稳健。
 
-这家发轫于江西、受益于省校合作机制的科技企业，38年来始终锚定信息技术应用，手握逾3000项知识产权，产品覆盖全球百余个国家和地区。
+管理层预计在2027至2029财年期间，每年将投入2亿至3亿元人民币于AI研发，目标在三年内达到200万月活跃用户（MAU），并期望“氢离子”在2029年实现收支平衡。
 
-嵌入“绿色基因” 绿色低碳理念贯穿泰豪集团研发、生产、服务全链条。
+该行将阿里健康目标价由6港元下调至5.3港元，以反映商业化速度等变量，但维持“买入”评级。
 
-在智慧能源领域，企业聚焦能源互联网与综合能源服务，通过数字化技术助力新型电力系统构建，推动园区与工业企业降本减碳。
+在业绩指引方面，阿里健康管理层预计2027财年收入将同比增长10%至15%，主要受直接销售及处方药/创新药品类驱动。
 
-其应急装备板块中，绿色电力智能制造产品及定制化解决方案畅销海内外，新能源储能电池产业亦同步拓展国内绿电与海外储能市场。
+虽然账面净利润预期随收入同步增长，但调整后净利润可能持平。
 
-“企业正谋求将自身能源科技优势与海南清洁能源岛建设深度耦合。
+此外，公司在2026财年首次派发末期及特别现金股息共约31.5亿元人民币，并承诺未来保持1%至2%的股息率，有助于改善股东回报。
 
-”黄代放表示，企业自主研发的储能变流器和能耗监测系统，已具备服务省域数字电网的能力。
+富瑞认为，阿里健康作为领先的B2C参与者，其互联网医院工作流程已获授权，基本不受近期江西及上海收紧GLP-1药物处方限制的新闻影响。
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 13:15 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 13:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 13:17 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 13:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 13:26 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 13:09 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 13:25 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 13:00 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 13:05 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:35 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 13:26 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:29 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 13:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 13:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 13:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 13:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:21 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:17 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 13:10 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 13:22 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/88142106.shtml)
-- 2026-06-29 13:03 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.kurohicncr.top/Article/details/2344478.shtml)
-- 2026-06-29 13:17 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/68411.shtml)
-- 2026-06-29 13:29 - [欧洲热死人不是开玩笑](http://www.share.minike.top/Article/details/3232288603.shtml)
-- 2026-06-29 13:01 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/5280066437.shtml)
-- 2026-06-29 13:16 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/18099.shtml)
-- 2026-06-29 13:15 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/91914129.shtml)
-- 2026-06-29 13:07 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/23685.shtml)
-- 2026-06-29 13:12 - [流金岁月](https://www.share.minike.top/Article/details/3555624577.shtml)
-- 2026-06-29 13:26 - [马杜罗社交媒体账号再发文](http://www.share.minike.top/Article/details/137669828.shtml)
-- 2026-06-29 13:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/676760.shtml)
-- 2026-06-29 13:27 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/49576485.shtml)
-- 2026-06-29 13:24 - [天津打雷](http://www.blog.kurohicncr.top/Article/details/0530281298.shtml)
-- 2026-06-29 13:12 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/071408494340.shtml)
-- 2026-06-29 13:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/315952210695.shtml)
+- 2026-06-29 13:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/00084699.shtml)
+- 2026-06-29 13:18 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/731975103.shtml)
+- 2026-06-29 13:13 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/748731907309.shtml)
+- 2026-06-29 13:20 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/59983764272.shtml)
+- 2026-06-29 13:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/474647.shtml)
+- 2026-06-29 13:26 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/1896288890.shtml)
+- 2026-06-29 13:35 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/756338944101.shtml)
+- 2026-06-29 13:20 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/99187284.shtml)
+- 2026-06-29 13:13 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/512335852.shtml)
+- 2026-06-29 13:28 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/58548.shtml)
+- 2026-06-29 13:14 - [白玉兰最佳女主角提名片段](http://www.blog.minike.top/Article/details/97114683831.shtml)
+- 2026-06-29 13:14 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/20923164382.shtml)
+- 2026-06-29 13:24 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/929711599.shtml)
+- 2026-06-29 13:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/388680.shtml)
+- 2026-06-29 13:17 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/153083.shtml)
