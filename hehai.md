@@ -1,57 +1,56 @@
-# 中蒙重大合作项目乌兰巴托中央污水处理厂正式启用
+# 开行超2万列、货值破6500亿 重庆中欧班列亮出十年“成绩单”
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-2026年6月15日，蒙古国乌兰巴托中央污水处理厂举行启用仪式，中共中央政治局委员、外交部长王毅与蒙古国总统办公厅主任乌依勒斯图格勒德、外长巴特策策格等共同出席。 王毅表示，2014年习近平主席对蒙古国进行国事访问期间，宣布向蒙古国经济发展提供支持，为建设中央污水处理厂奠定了基础。这项民生工程、友谊工程承载着两国领导人的嘱托、两国人民的期盼，从蓝图到实景，从奠基到竣工，成为中蒙
+发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。 特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国
 
 ## 正文
 
-2026年6月15日，蒙古国乌兰巴托中央污水处理厂举行启用仪式，中共中央政治局委员、外交部长王毅与蒙古国总统办公厅主任乌依勒斯图格勒德、外长巴特策策格等共同出席。
+发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。
 
-王毅表示，2014年习近平主席对蒙古国进行国事访问期间，宣布向蒙古国经济发展提供支持，为建设中央污水处理厂奠定了基础。
+据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。
 
-这项民生工程、友谊工程承载着两国领导人的嘱托、两国人民的期盼，从蓝图到实景，从奠基到竣工，成为中蒙守望相助的又一重要标志。
+特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国前列。
 
-王毅说，“亲望亲好，邻望邻好”，中国一贯支持蒙方发展经济、改善民生。
+十年来，重庆中欧班列开行频次由最初的日均0.8列，增长到如今的日均7.5列。
 
-从上世纪五十年代起，中国援蒙工人就来到蒙古国，帮助建设了850多项工程。
+重庆中欧班列的稳定运行，助推重庆智能网联新能源汽车、新一代电子信息制造业、先进材料三大万亿级主导产业集群的发展。
 
-进入新世纪以来，从跨境公路到口岸通关，从棚户区改造到城市基建，从医疗教育到荒漠化防治，双方坚持以民生福祉为导向，让合作始终惠及蒙古国人民。
+得益于此，重庆中欧班列本地货源占比不断提升。
 
-中蒙关系正成为邻国友好相处、共同发展繁荣的典范。
-
-中方将继续秉持亲诚惠容周边外交理念和睦邻安邻富邻政策，同蒙方赓续传统友好，共谱合作新篇，为两国人民打造更加美好的未来，为中蒙关系增添新的时代内涵。
+(记者 肖江川） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 17:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 17:58 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 18:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:53 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 17:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 17:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 18:04 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 17:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 17:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 17:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 18:03 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 17:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 18:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:44 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 17:47 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 17:42 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 18:08 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 18:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 17:47 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 17:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 17:58 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 18:04 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:00 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/73958921.shtml)
-- 2026-06-29 18:04 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/6630990.shtml)
-- 2026-06-29 17:45 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/250357.shtml)
-- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/060314.shtml)
-- 2026-06-29 17:44 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/468984042.shtml)
-- 2026-06-29 17:36 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/8170011636.shtml)
-- 2026-06-29 18:04 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/232674780.shtml)
-- 2026-06-29 17:46 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/014383.shtml)
-- 2026-06-29 17:56 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/438460861.shtml)
-- 2026-06-29 17:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/12238830.shtml)
-- 2026-06-29 17:44 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/69750002.shtml)
-- 2026-06-29 17:37 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/44508945826.shtml)
-- 2026-06-29 17:42 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/7422326.shtml)
-- 2026-06-29 17:57 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/6732176057.shtml)
-- 2026-06-29 17:52 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/7440790.shtml)
+- 2026-06-29 18:09 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/899111644.shtml)
+- 2026-06-29 18:08 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/2409577782.shtml)
+- 2026-06-29 18:01 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/594462363.shtml)
+- 2026-06-29 17:55 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/317368266129.shtml)
+- 2026-06-29 18:02 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/79781.shtml)
+- 2026-06-29 17:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/633009.shtml)
+- 2026-06-29 17:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/46417.shtml)
+- 2026-06-29 18:08 - [急先锋](http://www.share.kurohicncr.top/Article/details/0930067.shtml)
+- 2026-06-29 17:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/83379648890.shtml)
+- 2026-06-29 17:54 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/545509809.shtml)
+- 2026-06-29 18:11 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/24900223370.shtml)
+- 2026-06-29 17:51 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/87239813334.shtml)
+- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/483902.shtml)
+- 2026-06-29 18:00 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/980243.shtml)
+- 2026-06-29 18:04 - [中国战机大片上新](http://www.blog.minike.top/Article/details/98740.shtml)

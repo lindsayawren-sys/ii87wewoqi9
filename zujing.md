@@ -1,61 +1,58 @@
-# 2026陆家嘴论坛明日开幕，最新议程来了
+# TCL李东生：数字化系统是导入AI应用的基础设施
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-为期两天的2026陆家嘴论坛将于6月17日上午开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 6月16日晚间，论坛官方网站披露了最新的议程信息。除开幕式暨全体大会一未披露详细演讲嘉宾名单外，各个论坛环节演讲嘉宾名单均已披露。 名单显示，十二届全国政协副主席、中国人民银行原行长周小川，世界银行集团常务副行长兼首席行政官张文才，中国建设银行副董事长、执行董
+2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。TCL创始人、董事长李东生表示，AI并非凭空出现，企业在过去多年间建立的数字化系统是导入AI应用的基础设施。 李东生表示，TCL在AI应用上主要聚焦两大方面：一是将AI导入先进制造系统，这不仅显著提高了生产效率、改善了工艺质量，还大幅加快了产品开发速度；二是通过AI构建更
 
 ## 正文
 
-为期两天的2026陆家嘴论坛将于6月17日上午开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
+2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-6月16日晚间，论坛官方网站披露了最新的议程信息。
+TCL创始人、董事长李东生表示，AI并非凭空出现，企业在过去多年间建立的数字化系统是导入AI应用的基础设施。
 
-除开幕式暨全体大会一未披露详细演讲嘉宾名单外，各个论坛环节演讲嘉宾名单均已披露。
+李东生表示，TCL在AI应用上主要聚焦两大方面：一是将AI导入先进制造系统，这不仅显著提高了生产效率、改善了工艺质量，还大幅加快了产品开发速度；二是通过AI构建更加高效的数字智能化系统，从而全面提升企业竞争力。
 
-名单显示，十二届全国政协副主席、中国人民银行原行长周小川，世界银行集团常务副行长兼首席行政官张文才，中国建设银行副董事长、执行董事、行长兼首席合规官张毅，上海证券交易所理事长邱勇，香港交易所集团行政总裁陈翊庭，中国证券监督管理委员会原副主席、中国金融学会副会长方星海，香港证券及期货事务监察委员会行政总裁梁凤仪，申万宏源集团股份有限公司和申万宏源证券有限公司董事长刘健，中国太平洋保险（集团）股份有限公司董事长、执行董事傅帆，中国工商银行行长刘珺，上海新金融研究院理事长、上海交通大学上海高级金融学院原理事长屠光绍，中国农业银行董事长、执行董事谷澍，中国银行副董事长、行长张辉，浦发银行董事长张为忠，中国农业发展银行副董事长、行长张小东，交通银行行长张宝江，中国人民保险集团股份有限公司副董事长、总裁赵鹏，中国太平保险集团有限责任公司总经理李可东，中国国际金融
+此外，在终端产品方面，随着智能产品的普及，AI的应用前景十分广阔。
 
-上海市委金融办常务副主任周小全日前在市政府新闻发布会上介绍，今年的陆家嘴论坛嘉宾云集，70余名中外嘉宾将在论坛上发表精彩演讲，分享独到见解。
+针对AI在企业日常经营中的渗透，李东生坦言，AI已经深入到企业经营的每一个环节。
 
-这些嘉宾来自中央金融管理部门、境外金融管理部门、国际金融组织、境内外金融市场，以及部分中央金融机构和知名外资金融机构。
+作为管理者，在讨论企业经营问题时已不可避免地触及AI技术的应用。
 
-本次论坛设有八场全体大会，除大会主题外，还设置了“全球金融治理改革与合作”“建立健全功能完善的资本市场”“沪港金融协同发展赋能高水平金融开放”“健全科技金融全生命周期服务体系，服务实体经济高质量发展”“科技创新赋能金融高质量发展”“提高普惠金融的有效性与精准度”和“全球治理框架下的可持续金融创新与合作”等七个议题，涵盖了当前经济、金融领域的热点。
+他强调，数字化系统是导入AI应用的基础设施，“没有数字化系统，去谈AI的应用，建在沙上的建筑是不牢固的”。
 
-作者：陈佳怡 责任编辑：宋雅芳
+从制造业的宏观视角出发，李东生认为，AI的首要价值在于提高企业的创新能力和竞争力，并创造出如机器人等全新的产品形态，未来AI产品将迎来爆发式增长。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 17:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 18:00 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 18:01 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 17:46 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 17:46 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 17:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 17:46 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 17:44 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 17:50 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:51 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 17:47 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 17:40 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:59 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 17:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 17:45 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:49 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 18:10 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 18:09 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 18:07 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 17:57 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 17:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:01 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 18:02 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 17:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/395631403695.shtml)
-- 2026-06-29 17:54 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/15638865.shtml)
-- 2026-06-29 18:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/2362518317.shtml)
-- 2026-06-29 17:43 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/3293876.shtml)
-- 2026-06-29 17:57 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/3883738.shtml)
-- 2026-06-29 17:51 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6020020.shtml)
-- 2026-06-29 17:37 - [中国战机大片上新](https://www.share.minike.top/Article/details/93485244.shtml)
-- 2026-06-29 17:51 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/779520279903.shtml)
-- 2026-06-29 18:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/50340305.shtml)
-- 2026-06-29 17:43 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/2488749.shtml)
-- 2026-06-29 17:42 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/15706.shtml)
-- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/7625558.shtml)
-- 2026-06-29 17:52 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/7345805.shtml)
-- 2026-06-29 17:44 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/23150996.shtml)
-- 2026-06-29 17:40 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/354599900289.shtml)
+- 2026-06-29 18:08 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/148769954.shtml)
+- 2026-06-29 17:42 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/66329219.shtml)
+- 2026-06-29 17:42 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/913734.shtml)
+- 2026-06-29 18:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/110294174821.shtml)
+- 2026-06-29 18:02 - [女心理师](http://www.blog.minike.top/Article/details/200099536.shtml)
+- 2026-06-29 17:49 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/6233129.shtml)
+- 2026-06-29 17:55 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/14432115.shtml)
+- 2026-06-29 17:57 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/8016049879.shtml)
+- 2026-06-29 17:59 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/8766688722.shtml)
+- 2026-06-29 17:54 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/1153620.shtml)
+- 2026-06-29 18:07 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/785281.shtml)
+- 2026-06-29 17:52 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/855633089090.shtml)
+- 2026-06-29 17:55 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/19368153989.shtml)
+- 2026-06-29 18:05 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/130400893324.shtml)
+- 2026-06-29 18:06 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/3793808.shtml)

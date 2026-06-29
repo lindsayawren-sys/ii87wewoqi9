@@ -1,57 +1,61 @@
-# 各地端午民俗活动轮番上演打造消费“盛宴” “文体旅”融合成为新亮点
+# 俄方称乌军袭击沃罗涅日州致5人死亡
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。 龙舟竞渡是活动的重头戏。在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。队员们奋臂挥桨，动作整齐划一、向前飞驰。 此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17
+中新社莫斯科6月22日电 俄罗斯沃罗涅日州州长亚历山大·古谢夫22日在社交媒体上发文称，乌克兰武装部队对该州发动导弹袭击，造成5人死亡、数十人受伤。俄罗斯侦查委员会对袭击事件刑事立案调查。 古谢夫同时表示，该州一家工业企业遭袭后发生火灾。目前火灾已被扑灭，清理工作仍在继续。此次袭击还造成当地10栋公寓楼和约50辆汽车受损。 俄罗斯侦查委员会发言人斯韦特兰娜·彼得连科当天通报说，
 
 ## 正文
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。
+中新社莫斯科6月22日电 俄罗斯沃罗涅日州州长亚历山大·古谢夫22日在社交媒体上发文称，乌克兰武装部队对该州发动导弹袭击，造成5人死亡、数十人受伤。
 
-龙舟竞渡是活动的重头戏。
+俄罗斯侦查委员会对袭击事件刑事立案调查。
 
-在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。
+古谢夫同时表示，该州一家工业企业遭袭后发生火灾。
 
-队员们奋臂挥桨，动作整齐划一、向前飞驰。
+目前火灾已被扑灭，清理工作仍在继续。
 
-此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17村的特色资源，现场设置了绿色养生、文创村礼、乡村旅游等五大市集板块，还以端午民俗体验为主线，设置了趣味游戏及风俗展示活动，吸引村民游客打卡体验、休闲逛游。
+此次袭击还造成当地10栋公寓楼和约50辆汽车受损。
 
-潞村的钱山漾遗址被誉为“世界丝绸之源”，荻港村拥有全球重要农业文化遗产——桑基鱼塘系统，今年，湖州市谋划了“潞村—荻港”跨区域片区组团发展的蓝图。
+俄罗斯侦查委员会发言人斯韦特兰娜·彼得连科当天通报说，乌军使用导弹袭击了沃罗涅日民用及工业设施，造成平民伤亡，具体伤亡情况仍在进一步统计中。
 
-湖州市委宣传部副部长钱振宇介绍，今年在民当村的活动，集聚了片区里3个乡镇17个村的文化资源以及旅游资源，通过“潞荻集市”把这些资源展示出来。
+该委员会已根据涉“恐怖行为”相关条款对袭击事件刑事立案。
 
-一方面，主要考虑让民俗文化活动能进一步得到振兴。
+俄罗斯国防部22日通报说，莫斯科时间7时至20时，俄防空系统在莫斯科等多个地区上空拦截并摧毁141架乌克兰无人机。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 17:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 17:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 17:48 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 17:39 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:45 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:54 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 17:58 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 17:53 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 17:38 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 17:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 17:45 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 17:42 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 17:55 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 18:09 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 17:45 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 18:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 17:52 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 18:08 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 17:51 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 17:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 17:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 17:54 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 17:52 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/0693646.shtml)
-- 2026-06-29 17:39 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/3798051.shtml)
-- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/5618304367.shtml)
-- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/67235525.shtml)
-- 2026-06-29 17:36 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/453661303121.shtml)
-- 2026-06-29 17:50 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/603460.shtml)
-- 2026-06-29 17:40 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/0943524.shtml)
-- 2026-06-29 18:04 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/63405.shtml)
-- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/512894167263.shtml)
-- 2026-06-29 17:37 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/052929355.shtml)
-- 2026-06-29 17:40 - [请回答王牌2019](http://www.share.minike.top/Article/details/21213918.shtml)
-- 2026-06-29 17:39 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/204130.shtml)
-- 2026-06-29 17:47 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/159903644.shtml)
-- 2026-06-29 18:02 - [人形机器人](http://www.blog.minike.top/Article/details/05406980896.shtml)
-- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/768831075974.shtml)
+- 2026-06-29 17:58 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/201210.shtml)
+- 2026-06-29 18:04 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/29854.shtml)
+- 2026-06-29 18:07 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/959050.shtml)
+- 2026-06-29 17:56 - [毒液2](http://www.blog.minike.top/Article/details/04270447994.shtml)
+- 2026-06-29 18:10 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/181264.shtml)
+- 2026-06-29 17:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/355207233.shtml)
+- 2026-06-29 17:42 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/3616629.shtml)
+- 2026-06-29 17:47 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/545095.shtml)
+- 2026-06-29 18:03 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/10276.shtml)
+- 2026-06-29 17:59 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/739522208372.shtml)
+- 2026-06-29 17:52 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/7640197.shtml)
+- 2026-06-29 17:48 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/05041826.shtml)
+- 2026-06-29 17:49 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/374852339.shtml)
+- 2026-06-29 18:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/66584228494.shtml)
+- 2026-06-29 18:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/690199662955.shtml)

@@ -1,53 +1,52 @@
-# 西安东站完成装饰装修工作 已具备开通条件
+# 学习新语丨总书记给老党员的信纸短情长、照映初心
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。 据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积
+在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员张连生回信，向他和全国的老党员、老同志致以诚挚问候。 习近平总书记始终关心老党员、老同志，多次同他们书信交流。字里行间，是温暖人心的真情牵挂；尺素衷言，是饱含深情的殷切期望。 文案：姜子炜 设计：殷哲伦 新华社新媒体中心制作 新华社出品
 
 ## 正文
 
-发布时间：2026年06月15日 21:55 来源：中国新闻网 6月15日，中国铁路西安局集团有限公司对外披露，西安东站内外部装饰装修工作全面完成，标志着这座西北地区大型综合交通枢纽进入最后收尾阶段。
+在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员张连生回信，向他和全国的老党员、老同志致以诚挚问候。
 
-据悉，项目投用后可实现西安东站、西安北站互联互通，进一步完善全国高速铁路网，为区域经济社会高质量发展注入新动能。
+习近平总书记始终关心老党员、老同志，多次同他们书信交流。
 
-据了解，西安东站位于陕西省西安市灞桥区高铁东城核心区，站房建筑面积达10万平方米，车场总规模13台27线，其中西渝高速场5台9线，西武高速场4台8线，西康普速场4台10线，预留城际场。
+字里行间，是温暖人心的真情牵挂；尺素衷言，是饱含深情的殷切期望。
 
-(梅镱泷 刘一江 薛心如 视频来源 西安铁路局） 责任编辑：【李季】
+文案：姜子炜 设计：殷哲伦 新华社新媒体中心制作 新华社出品
 
 ## 相关推荐
 
-- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 18:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 17:54 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 18:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 17:39 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 17:56 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 17:37 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 17:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 17:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 17:57 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 17:47 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 17:56 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 17:57 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 17:44 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 18:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 18:11 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 17:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 18:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 17:45 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 18:10 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 18:09 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 18:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 18:08 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 17:54 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 18:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 17:44 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 17:49 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/683680.shtml)
-- 2026-06-29 17:41 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/661646692.shtml)
-- 2026-06-29 17:51 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/621830181552.shtml)
-- 2026-06-29 17:56 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/56867179235.shtml)
-- 2026-06-29 17:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3050700.shtml)
-- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/513864.shtml)
-- 2026-06-29 17:47 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/30578534.shtml)
-- 2026-06-29 17:50 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/56336099.shtml)
-- 2026-06-29 17:53 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/60820090817.shtml)
-- 2026-06-29 18:05 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/03037094714.shtml)
-- 2026-06-29 17:54 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/6749476.shtml)
-- 2026-06-29 17:38 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/723788526557.shtml)
-- 2026-06-29 17:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6173098.shtml)
-- 2026-06-29 18:06 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/4334547.shtml)
-- 2026-06-29 17:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/581793139259.shtml)
+- 2026-06-29 17:49 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/573962070.shtml)
+- 2026-06-29 18:00 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/5740718.shtml)
+- 2026-06-29 17:49 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/4593477.shtml)
+- 2026-06-29 17:56 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/26646961.shtml)
+- 2026-06-29 18:09 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/571848263904.shtml)
+- 2026-06-29 17:50 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/862686289.shtml)
+- 2026-06-29 18:02 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/42467278.shtml)
+- 2026-06-29 18:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/89681.shtml)
+- 2026-06-29 18:07 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/99589480467.shtml)
+- 2026-06-29 17:55 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/05250985189.shtml)
+- 2026-06-29 17:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/1553726.shtml)
+- 2026-06-29 17:54 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/42534391.shtml)
+- 2026-06-29 18:10 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/2870687552.shtml)
+- 2026-06-29 17:44 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/11301.shtml)
+- 2026-06-29 18:02 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/924468356900.shtml)

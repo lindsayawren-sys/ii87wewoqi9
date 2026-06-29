@@ -1,59 +1,57 @@
-# 计划上市前夕，OpenAI去年支出达340亿美元
+# 孟加拉国总理将访华 中方：期待同孟新政府一道加强战略沟通
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-ChatGPT开发商OpenAI去年全年支出达340亿美元。为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。 知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。 相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型
+中新网北京6月22日电 (记者 张蔚然 曾玥)中国外交部发言人22日宣布：应国务院总理李强邀请，孟加拉人民共和国总理塔里克·拉赫曼将于6月24日至26日对中国进行正式访问。 在当日举行的外交部例行记者会上，有记者提问，能否介绍此访有关安排？中方如何评价当前中孟关系？对此访有何期待？ 外交部发言人郭嘉昆表示，此访是孟加拉国总理塔里克就任后首次访华。访问期间，习近平主席、李强总理和
 
 ## 正文
 
-ChatGPT开发商OpenAI去年全年支出达340亿美元。
+中新网北京6月22日电 (记者 张蔚然 曾玥)中国外交部发言人22日宣布：应国务院总理李强邀请，孟加拉人民共和国总理塔里克·拉赫曼将于6月24日至26日对中国进行正式访问。
 
-为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。
+在当日举行的外交部例行记者会上，有记者提问，能否介绍此访有关安排？
 
-知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。
+中方如何评价当前中孟关系？
 
-相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型研发、数据中心建设、顶尖科研人才招聘上的巨额投入。
+对此访有何期待？
 
-独立记者埃德・齐特龙率先向媒体披露了上述财务数据，数据显示OpenAI营收规模已跟不上成本上涨的速度。
+外交部发言人郭嘉昆表示，此访是孟加拉国总理塔里克就任后首次访华。
 
-公司2025年全年营收约130亿美元；截至2025年末，月营收达到20亿美元，对比2024年末季度10亿美元的收入实现翻倍，使其成为史上增长速度最快的企业之一。
+访问期间，习近平主席、李强总理和赵乐际委员长将分别同塔里克总理会见、会谈，就双边关系及共同关心的国际和地区问题深入交换意见，为两国关系发展指明方向。
 
-但巨额投入也导致OpenAI归属净亏损同比扩大近7倍，从2024年的50亿美元飙升至2025年约390亿美元。
+塔里克总理还将出席在中国大连举行的第十七届夏季达沃斯论坛。
 
-知情人士表示，亏损大幅增长绝大部分源于一笔非现金会计调整，和公司此前特殊的股权架构相关，并非日常主营业务亏损。
+郭嘉昆说，中国和孟加拉国是传统友好邻邦和全面战略合作伙伴。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 17:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 17:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:51 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 17:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 17:59 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 18:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:49 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 17:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 17:38 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 17:51 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 17:45 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 18:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 18:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 17:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 17:45 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 18:07 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 18:05 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 18:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 17:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 17:52 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 17:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 18:01 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/3019875.shtml)
-- 2026-06-29 17:50 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/49293712978.shtml)
-- 2026-06-29 17:54 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/85249.shtml)
-- 2026-06-29 17:47 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/1861821.shtml)
-- 2026-06-29 17:43 - [AG 宫斗](http://www.share.minike.top/Article/details/950845184.shtml)
-- 2026-06-29 17:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/049003.shtml)
-- 2026-06-29 17:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/578667697420.shtml)
-- 2026-06-29 17:39 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/91228640.shtml)
-- 2026-06-29 17:54 - [毒液2](https://www.blog.minike.top/Article/details/88754410981.shtml)
-- 2026-06-29 18:05 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/524834.shtml)
-- 2026-06-29 17:55 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/72982058.shtml)
-- 2026-06-29 17:39 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/07652569.shtml)
-- 2026-06-29 17:54 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/6481693.shtml)
-- 2026-06-29 18:04 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/271978566.shtml)
-- 2026-06-29 17:50 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/409097.shtml)
+- 2026-06-29 17:54 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/20144.shtml)
+- 2026-06-29 18:08 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/9114133.shtml)
+- 2026-06-29 18:10 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/568109019.shtml)
+- 2026-06-29 17:52 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/1346015.shtml)
+- 2026-06-29 18:08 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/622306798030.shtml)
+- 2026-06-29 17:54 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/2909473861.shtml)
+- 2026-06-29 17:42 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/833867374514.shtml)
+- 2026-06-29 18:03 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/8115015.shtml)
+- 2026-06-29 17:51 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/532551127.shtml)
+- 2026-06-29 17:59 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/772461349951.shtml)
+- 2026-06-29 17:42 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/137219613.shtml)
+- 2026-06-29 17:45 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/37229353.shtml)
+- 2026-06-29 18:00 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/26628351628.shtml)
+- 2026-06-29 18:02 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/828310.shtml)
+- 2026-06-29 18:11 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/841642.shtml)

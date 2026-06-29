@@ -1,58 +1,60 @@
-# 厦门市2026年全国节能宣传周启动
+# 原油期货上涨 美伊和平谈判开启之际特朗普再次发出威胁
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网厦门6月15日电 (吴冠标)6月15日，厦门市2026年全国节能宣传周启动。 围绕“节能新起点 低碳向未来”主题，本次宣传周厦门策划并部署了绿色技术产品展、低碳日主题活动、ESG和绿色制造建设专题培训等活动，旨在搭建交流展示平台，普及节能降碳知识，推广先进技术，倡导简约适度、绿色低碳、文明健康的生活理念和消费方式。 近年来，厦门始终把绿色发展理念贯穿经济社会发展全过程各方
+油价上涨，此前美国总统特朗普威胁称如果真主党继续攻击以色列，将对伊朗发动打击，这引发市场对华盛顿和德黑兰之间和平谈判进展的担忧。 布伦特原油开盘一度上涨2.2%，至每桶82.30美元，而WTI原油期货一度升至每桶78美元上方。周日在瑞士举行的谈判开场充满波折，此前伊朗媒体报道称在特朗普最新威胁之后，伊朗方面暂停谈判，但知情人士称谈判继续进行。德黑兰指责以色列违反了黎巴嫩停火协议
 
 ## 正文
 
-中新网厦门6月15日电 (吴冠标)6月15日，厦门市2026年全国节能宣传周启动。
+油价上涨，此前美国总统特朗普威胁称如果真主党继续攻击以色列，将对伊朗发动打击，这引发市场对华盛顿和德黑兰之间和平谈判进展的担忧。
 
-围绕“节能新起点 低碳向未来”主题，本次宣传周厦门策划并部署了绿色技术产品展、低碳日主题活动、ESG和绿色制造建设专题培训等活动，旨在搭建交流展示平台，普及节能降碳知识，推广先进技术，倡导简约适度、绿色低碳、文明健康的生活理念和消费方式。
+布伦特原油开盘一度上涨2.2%，至每桶82.30美元，而WTI原油期货一度升至每桶78美元上方。
 
-近年来，厦门始终把绿色发展理念贯穿经济社会发展全过程各方面，节能降碳工作成效显著：厦门市每万元GDP能耗、电耗、水耗均保持全国领先，累计创建国家级绿色工厂86家、绿色工业园区1个，推动火炬同翔高新城入选首批国家级零碳园区建设名单。
+周日在瑞士举行的谈判开场充满波折，此前伊朗媒体报道称在特朗普最新威胁之后，伊朗方面暂停谈判，但知情人士称谈判继续进行。
 
-启动仪式上，厦门市节能协会发出全民节能低碳行动倡议，呼吁全社会树立绿色理念、践行低碳行为。
+德黑兰指责以色列违反了黎巴嫩停火协议。
 
-两家厦门企业在案例分享环节分别从能源转型和绿色物流两个维度，展示企业在节能降碳领域的积极探索与创新实践。
+在瑞士比尔根施托克度假胜地举行的这次高级别会议，标志着为期60天的谈判窗口期的开始。
 
-本次节能宣传周及其配套活动持续半个月，厦门还将集中开展形式丰富的节能宣传“六进”活动，走进社区、学校、企业、商场、公共机构及产业园区，线下通过互动问答、发放宣传手册、派送可循环购物袋等形式，广泛普及“双碳”相关知识，持续强化公众节能降碳意识。
+特朗普上周签署了一份谅解备忘录，启动了局势降级进程。
 
-厦门市发展和改革委员会党组成员、副主任简永丰表示，2026年是“十五五”的开局之年，是从能耗双控全面转向碳排放双控的第一年，厦门将坚持“双碳”引领，一以贯之坚持节约优先方针，更高水平、更高质量做好节能降碳工作，加快经济社会发展全面绿色转型。
+尽管伊朗声称已经关闭了霍尔木兹海峡，但周末期间数百万桶原油继续通过这条水道输送。
 
-本次活动由厦门市发展和改革委员会、厦门火炬高新区管委会联合主办，厦门市工信局、交通局、住建局、机关管理局、生态环境局、市场监管局、统计局协办，厦门市能源发展中心承办。
+周一其他能源商品价格也上涨，基准欧洲天然气期货涨幅一度高达3.9%。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 18:01 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 17:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 17:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 17:38 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 18:05 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 17:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 17:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 17:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 18:06 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 17:45 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 17:51 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 17:54 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 18:03 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 18:00 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 17:53 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 18:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 18:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 17:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 17:57 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 17:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 17:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 17:49 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 17:54 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/04376274563.shtml)
-- 2026-06-29 17:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/89658577526.shtml)
-- 2026-06-29 17:59 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/4254281.shtml)
-- 2026-06-29 17:52 - [TFING全员黑西装](http://www.share.minike.top/Article/details/519361981217.shtml)
-- 2026-06-29 17:47 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/0225240.shtml)
-- 2026-06-29 17:41 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/85511.shtml)
-- 2026-06-29 17:52 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/997462032697.shtml)
-- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/46339982.shtml)
-- 2026-06-29 17:52 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/05531297.shtml)
-- 2026-06-29 17:59 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/68861.shtml)
-- 2026-06-29 17:48 - [斗破苍穹](http://www.share.minike.top/Article/details/51021924.shtml)
-- 2026-06-29 17:39 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/26564036.shtml)
-- 2026-06-29 18:00 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/363936849.shtml)
-- 2026-06-29 17:55 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/4410664911.shtml)
-- 2026-06-29 17:51 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/545807.shtml)
+- 2026-06-29 18:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/50168946.shtml)
+- 2026-06-29 17:46 - [叠纸](http://www.blog.kurohicncr.top/Article/details/86328042.shtml)
+- 2026-06-29 17:42 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/230717651.shtml)
+- 2026-06-29 17:57 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/2019482.shtml)
+- 2026-06-29 18:05 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/102164.shtml)
+- 2026-06-29 17:49 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/00444.shtml)
+- 2026-06-29 18:06 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/8764637045.shtml)
+- 2026-06-29 17:44 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/208730112656.shtml)
+- 2026-06-29 17:49 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/30180.shtml)
+- 2026-06-29 18:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/957369772.shtml)
+- 2026-06-29 17:52 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/91239988418.shtml)
+- 2026-06-29 17:49 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/4280336192.shtml)
+- 2026-06-29 18:05 - [金牌调解](http://www.share.kurohicncr.top/Article/details/319345326.shtml)
+- 2026-06-29 18:08 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/73334115.shtml)
+- 2026-06-29 18:09 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/937534428825.shtml)

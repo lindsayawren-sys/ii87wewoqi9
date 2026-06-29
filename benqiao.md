@@ -1,60 +1,61 @@
-# 东北冷涡致吉林降水偏多102% 低温寡照影响作物长势
+# 大陆机车圈粉台湾学者和媒体人
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网长春6月16日电 (郭佳 张欣彤)受持续活跃的东北冷涡影响，吉林省出现异常多雨天气。记者16日从吉林省气象台获悉，6月1日至今该省平均降水量达82.5毫米，较常年同期偏多102%，未来几日仍将出现明显降雨过程。 吉林省气象台首席预报员云天接受中新网记者采访时表示，本轮异常天气的主导系统为持续稳定的东北冷涡。受稳定环流形势控制，叠加冷空气持续补充，冷涡长期盘踞东北地区上空，
+发布时间：2026年06月23日 13:53 来源：中国新闻网 6月22日，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。来自海峡两岸的专家学者、媒体记者、自媒体人等近40人，首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。 此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备
 
 ## 正文
 
-中新网长春6月16日电 (郭佳 张欣彤)受持续活跃的东北冷涡影响，吉林省出现异常多雨天气。
+发布时间：2026年06月23日 13:53 来源：中国新闻网 6月22日，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。
 
-记者16日从吉林省气象台获悉，6月1日至今该省平均降水量达82.5毫米，较常年同期偏多102%，未来几日仍将出现明显降雨过程。
+来自海峡两岸的专家学者、媒体记者、自媒体人等近40人，首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。
 
-吉林省气象台首席预报员云天接受中新网记者采访时表示，本轮异常天气的主导系统为持续稳定的东北冷涡。
+此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备完备的配套体系。
 
-受稳定环流形势控制，叠加冷空气持续补充，冷涡长期盘踞东北地区上空，造成吉林省降水显著偏多、气温持续走低。
+2025年重庆摩托车产量达785.7万辆，居大陆城市首位。
 
-云天介绍，今年东北冷涡能长期滞留东北，核心原因是其脱离西风带后失去东移动力。
+台湾被称为“机车之岛”，机车是部分民众日常出行刚需，庞大车友群体对摩托车产品拥有天然认知基础。
 
-与此同时，在贝加尔湖、鄂霍次克海形成的阻塞高压又把它牢牢卡在中间，使它东西移动受阻；而从高纬度南下的冷空气也不断为它补充能量，导致它深厚的冷心结构一直稳定存在，很难消散填塞。
+台湾资深媒体人、台湾大学哲学系教授苑举正体验后说，相较于距离大众日常生活较远的硬核科技，机车等贴近民生的消费品，是拉近两岸民心、打破信息壁垒最“有感”的交流载体。
 
-据吉林省气象台预报，17日至18日吉林省将迎来一轮雷雨过程，中部地区有中到大雨，局地暴雨；19日起，新一轮中到大雨将自西向东覆盖全省。
+苑举正还细数大陆机车产业的三大核心竞争力：一是品质过硬，二是产业链全球领先，三是价格优势突出。
 
-吉林省是中国重要商品粮生产基地，持续多雨低温天气已对当地农业生产造成不利影响。
+(记者 肖江川） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:00 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 17:48 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 17:37 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 17:44 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 17:52 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 18:02 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:36 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 17:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 17:50 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 18:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 17:41 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 17:57 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 17:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:50 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 18:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 17:46 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 18:09 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 17:51 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 18:05 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 17:49 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 18:11 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 18:01 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 18:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 17:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 18:06 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 18:08 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 17:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 17:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/2759817.shtml)
-- 2026-06-29 17:57 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/142573.shtml)
-- 2026-06-29 17:58 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/58221149.shtml)
-- 2026-06-29 18:05 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/97936.shtml)
-- 2026-06-29 17:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/38038.shtml)
-- 2026-06-29 17:47 - [王楚钦开门红](http://www.share.minike.top/Article/details/5615404816.shtml)
-- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/95857.shtml)
-- 2026-06-29 17:52 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/58934823.shtml)
-- 2026-06-29 17:50 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/52863.shtml)
-- 2026-06-29 17:53 - [沙丘](http://www.share.kurohicncr.top/Article/details/26083.shtml)
-- 2026-06-29 17:43 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/99780.shtml)
-- 2026-06-29 17:42 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/218554215.shtml)
-- 2026-06-29 17:38 - [急先锋](https://www.blog.minike.top/Article/details/66510341736.shtml)
-- 2026-06-29 18:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/13681.shtml)
-- 2026-06-29 17:45 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/958872717106.shtml)
+- 2026-06-29 18:10 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/3375811689.shtml)
+- 2026-06-29 18:02 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/03755104.shtml)
+- 2026-06-29 17:46 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/76868874712.shtml)
+- 2026-06-29 17:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/6491766279.shtml)
+- 2026-06-29 17:52 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/200167.shtml)
+- 2026-06-29 17:54 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/0446258050.shtml)
+- 2026-06-29 17:53 - [毒液2](http://www.share.minike.top/Article/details/46566051187.shtml)
+- 2026-06-29 17:53 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/055793145189.shtml)
+- 2026-06-29 17:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/43084802328.shtml)
+- 2026-06-29 17:48 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/47394867.shtml)
+- 2026-06-29 18:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/48178588417.shtml)
+- 2026-06-29 18:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/93138.shtml)
+- 2026-06-29 17:50 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/582517748060.shtml)
+- 2026-06-29 17:51 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/96399490.shtml)
+- 2026-06-29 18:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/232049337.shtml)

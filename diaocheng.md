@@ -1,42 +1,58 @@
-# 习近平同缅甸总统敏昂莱举行会谈
+# 比特币交易活动增至2024年以来最高水平
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-新华社北京6月16日电 6月16日，国家主席习近平在北京同来华进行国事访问的缅甸总统敏昂莱举行会谈。
+CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。尽管对冲基金资金继续逃离比特币，但交易频率依然上升。 CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。“但平均交易规模远小于往年的典型水平。 该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年
 
 ## 正文
 
-新华社北京6月16日电 6月16日，国家主席习近平在北京同来华进行国事访问的缅甸总统敏昂莱举行会谈。
+CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。
+
+尽管对冲基金资金继续逃离比特币，但交易频率依然上升。
+
+CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。
+
+“但平均交易规模远小于往年的典型水平。
+
+该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年不到50%的比例。
+
+低于0.001比特币和低于0.01比特币的交易群体在2026年均出现猛增，接近2024年的前期峰值。
+
+“ 比特币上涨2.5%，至65363美元。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 17:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 17:49 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 17:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 17:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 17:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 17:46 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 17:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 17:55 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 17:56 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 17:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 17:56 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 17:43 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 17:50 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 17:51 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 17:45 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 17:45 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 17:49 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 18:07 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 17:56 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 18:01 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 17:59 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/444368982550.shtml)
-- 2026-06-29 17:39 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/31974439410.shtml)
-- 2026-06-29 17:53 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/28187661566.shtml)
-- 2026-06-29 17:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/8147317454.shtml)
-- 2026-06-29 17:54 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/4816095397.shtml)
-- 2026-06-29 18:00 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/68632913633.shtml)
-- 2026-06-29 17:42 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/048740.shtml)
-- 2026-06-29 17:54 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/0195407.shtml)
-- 2026-06-29 17:47 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/7324760440.shtml)
-- 2026-06-29 17:40 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/57698.shtml)
-- 2026-06-29 17:41 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/73655888.shtml)
-- 2026-06-29 17:47 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/8415908216.shtml)
-- 2026-06-29 17:37 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/2272385817.shtml)
-- 2026-06-29 18:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/05471967302.shtml)
-- 2026-06-29 17:51 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/51693.shtml)
+- 2026-06-29 17:43 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/405116482.shtml)
+- 2026-06-29 17:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/018888935.shtml)
+- 2026-06-29 18:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/992976936.shtml)
+- 2026-06-29 18:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/9870213.shtml)
+- 2026-06-29 17:52 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/374453135719.shtml)
+- 2026-06-29 17:49 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/423671609.shtml)
+- 2026-06-29 17:52 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/25935.shtml)
+- 2026-06-29 17:57 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/61904445300.shtml)
+- 2026-06-29 17:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1909650578.shtml)
+- 2026-06-29 17:48 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/1463365822.shtml)
+- 2026-06-29 17:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/708940374.shtml)
+- 2026-06-29 18:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/3690372.shtml)
+- 2026-06-29 17:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/771853295408.shtml)
+- 2026-06-29 17:44 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/96534402.shtml)
+- 2026-06-29 18:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/8317561.shtml)

@@ -1,57 +1,59 @@
-# 市场监管总局：严查“618”大促虚假降价
+# 3年多减少1.2亿张 信用卡加快“瘦身”提质
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网北京6月16日电（记者 左雨晴） 6月16日，市场监管总局召开2026年二季度例行新闻发布会。市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，针对今年“618”网络集中促销，总局提前介入、靠前监管，向各大平台发布“618”网络集中促销合规提示，明确六大合规责任，全方位护航消费旺季。第一，严把准入关口。落实“守门人”职责，严格资质核验登记，坚决清退无证无照、吊销注销、不合
+3年多减少1.2亿张，个性化数字化或是未来趋势 信用卡加快“瘦身”提质(大数据观察) 相关部门公布的2026年第一季度支付体系运行总体情况显示，截至一季度末，全国共有信用卡和借贷合一卡6.87亿张。这一数量较2022年第三季度8.07亿张的峰值减少约1.2亿张。 有不少观点认为，“现在年轻人不爱用信用卡了”。数据缩减背后原因何在？进入中国40多年的信用卡未来发展空间在哪里？记者
 
 ## 正文
 
-中新网北京6月16日电（记者 左雨晴） 6月16日，市场监管总局召开2026年二季度例行新闻发布会。
+3年多减少1.2亿张，个性化数字化或是未来趋势 信用卡加快“瘦身”提质(大数据观察) 相关部门公布的2026年第一季度支付体系运行总体情况显示，截至一季度末，全国共有信用卡和借贷合一卡6.87亿张。
 
-市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，针对今年“618”网络集中促销，总局提前介入、靠前监管，向各大平台发布“618”网络集中促销合规提示，明确六大合规责任，全方位护航消费旺季。
+这一数量较2022年第三季度8.07亿张的峰值减少约1.2亿张。
 
-第一，严把准入关口。
+有不少观点认为，“现在年轻人不爱用信用卡了”。
 
-落实“守门人”职责，严格资质核验登记，坚决清退无证无照、吊销注销、不合规经营主体。
+数据缩减背后原因何在？
 
-第二，严管价格秩序。
+进入中国40多年的信用卡未来发展空间在哪里？
 
-落实明码标价，公开动态定价规则，严查虚假降价、误导促销、刷单炒信，保障平台内经营者公平竞争。
+记者采访了相关机构、专家和消费者。
 
-第三，规范平台规则。
+市场竞争格局转变、政策持续规范、消费习惯变迁，推动信用卡“精耕细作” “网购、打车、叫外卖，基本的消费场景都够用了。
 
-清理不合理捆绑条款，推动规则公开透明，不得将“比价”“跟价”“运费险”等与促销活动绑定。
+”在四川成都，工作不满一年的陈佳佳日常习惯使用“花呗”等在线消费金融产品，“一次网购支付时顺便开通的，这月买、下月发工资了还，很方便。
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 17:36 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 17:43 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:51 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 17:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 17:48 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 17:37 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 17:41 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 17:42 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 17:37 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 17:59 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 18:06 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 17:43 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:47 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 17:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 18:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 17:54 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 17:54 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 17:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 18:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 17:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 18:01 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/8041239125.shtml)
-- 2026-06-29 17:58 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/6155935713.shtml)
-- 2026-06-29 17:50 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/718343.shtml)
-- 2026-06-29 17:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/6256976.shtml)
-- 2026-06-29 17:56 - [东方风云榜](http://www.blog.minike.top/Article/details/58578.shtml)
-- 2026-06-29 17:52 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/11049903.shtml)
-- 2026-06-29 17:58 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/66575172.shtml)
-- 2026-06-29 17:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/93838.shtml)
-- 2026-06-29 17:44 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/17724.shtml)
-- 2026-06-29 17:42 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/556343061.shtml)
-- 2026-06-29 17:51 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/71448321166.shtml)
-- 2026-06-29 17:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/464718.shtml)
-- 2026-06-29 17:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/3784271.shtml)
-- 2026-06-29 17:47 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/997775315.shtml)
-- 2026-06-29 18:02 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/21012326087.shtml)
+- 2026-06-29 17:46 - [逃狱兄弟](https://www.share.minike.top/Article/details/021822523.shtml)
+- 2026-06-29 18:07 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/7837137761.shtml)
+- 2026-06-29 18:00 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/87060081.shtml)
+- 2026-06-29 18:03 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/2822240052.shtml)
+- 2026-06-29 18:10 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/05776363310.shtml)
+- 2026-06-29 18:09 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/93979.shtml)
+- 2026-06-29 18:06 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/23600.shtml)
+- 2026-06-29 17:47 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/449600754315.shtml)
+- 2026-06-29 18:10 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/1080111.shtml)
+- 2026-06-29 17:42 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/82855684885.shtml)
+- 2026-06-29 17:56 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/8087731304.shtml)
+- 2026-06-29 18:00 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/419069536.shtml)
+- 2026-06-29 17:42 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/3713942458.shtml)
+- 2026-06-29 17:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/593122.shtml)
+- 2026-06-29 18:01 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/923404.shtml)

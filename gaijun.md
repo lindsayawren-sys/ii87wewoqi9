@@ -1,61 +1,57 @@
-# 福建三溪村：独特的夜赛龙舟民俗
+# 深入学习贯彻习近平党建思想系列述评之六
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走
+原标题：坚持用党的创新理论凝心铸魂——深入学习贯彻习近平党建思想系列述评之六 新华社北京6月21日电 题：坚持用党的创新理论凝心铸魂——深入学习贯彻习近平党建思想系列述评之六 新华社记者范思翔 “坚持用党的创新理论凝心铸魂”，是习近平党建思想的内涵要义之一，是党的思想建设的根本任务。 正如习近平总书记指出，“马克思主义政党的先进性，首先体现为思想理论上的先进性”，“对于我们这样
 
 ## 正文
 
-以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+原标题：坚持用党的创新理论凝心铸魂——深入学习贯彻习近平党建思想系列述评之六 新华社北京6月21日电 题：坚持用党的创新理论凝心铸魂——深入学习贯彻习近平党建思想系列述评之六 新华社记者范思翔 “坚持用党的创新理论凝心铸魂”，是习近平党建思想的内涵要义之一，是党的思想建设的根本任务。
 
-“世界杯魔咒”失灵了？
+正如习近平总书记指出，“马克思主义政党的先进性，首先体现为思想理论上的先进性”，“对于我们这样一个世界上最大的马克思主义执政党来说，理论强，才能方向明、人心齐、底气足”。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+深入学习贯彻习近平党建思想，要坚持不懈用党的创新理论武装全党，守正创新、与时俱进，全面加强党的思想建设，使全党始终保持统一的思想、坚定的意志、协调的行动、强大的战斗力，为以中国式现代化全面推进强国建设、民族复兴伟业而团结奋斗。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+开辟马克思主义中国化时代化新境界 “必须继续推进马克思主义中国化，坚持把马克思主义基本原理同中国具体实际相结合、同中华优秀传统文化相结合，用马克思主义观察时代、把握时代、引领时代”。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土台湾学子横跨两岸探寻“日月潭之谜”2026年中国龙舟公开赛荆州站闭幕掷纸飞机、彩虹跑！
+2021年7月1日，在庆祝中国共产党成立100周年大会上，习近平总书记鲜明提出“两个结合”重大论断，成为又一次的思想解放，深刻指明了推进党的理论创新的根本途径。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+坚持“两个结合”，及时回答实践提出的重大时代课题，不断赋予马克思主义鲜明的实践特色、民族特色、时代特色，推动形成习近平新时代中国特色社会主义思想，开辟了马克思主义中国化时代化新境界。
 
-再见了屏幕！
+党的创新理论是马克思主义世界观、方法论的集中体现。
 
-未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创2034年能踢进世界杯吗？
+从党的十九大、十九届六中全会以“十个明确”“十四个坚持”“十三个方面成就”概括这一光辉思想的主要内容，到党的二十大以“六个必须坚持”概括阐述其世界观、方法论和贯穿其中的立场观点方法……习近平新时代中国特色社会主义思想不断丰富发展，以原创性理论贡献标注了马克思主义发展的新高度。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 17:46 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 17:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 17:49 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:02 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:50 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 18:00 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 17:40 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 17:41 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 18:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 17:52 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 17:50 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 17:42 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 17:36 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 17:46 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 17:52 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 18:04 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 18:06 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 18:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 17:51 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 18:02 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 17:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 17:56 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 17:42 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 17:54 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 18:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/733855012744.shtml)
-- 2026-06-29 18:01 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/0073921.shtml)
-- 2026-06-29 17:57 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/14990.shtml)
-- 2026-06-29 17:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/600295970.shtml)
-- 2026-06-29 17:52 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/71969518.shtml)
-- 2026-06-29 17:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/6806938.shtml)
-- 2026-06-29 17:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/58618425.shtml)
-- 2026-06-29 17:55 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/56122805768.shtml)
-- 2026-06-29 17:49 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/8110609.shtml)
-- 2026-06-29 17:55 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/66927028843.shtml)
-- 2026-06-29 17:59 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/99961.shtml)
-- 2026-06-29 17:51 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/186013511.shtml)
-- 2026-06-29 17:52 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/3913386542.shtml)
-- 2026-06-29 18:01 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/43069934090.shtml)
-- 2026-06-29 18:05 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/15740.shtml)
+- 2026-06-29 17:56 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/005340258.shtml)
+- 2026-06-29 17:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/050917185.shtml)
+- 2026-06-29 18:05 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/943221.shtml)
+- 2026-06-29 18:08 - [速度与激情9](https://www.blog.minike.top/Article/details/23197763568.shtml)
+- 2026-06-29 18:03 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/85681.shtml)
+- 2026-06-29 18:04 - [金刚川](http://www.share.kurohicncr.top/Article/details/911668976233.shtml)
+- 2026-06-29 17:52 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/63358840281.shtml)
+- 2026-06-29 17:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/77680280470.shtml)
+- 2026-06-29 18:09 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/203381101117.shtml)
+- 2026-06-29 17:53 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/568765906.shtml)
+- 2026-06-29 17:42 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/78536.shtml)
+- 2026-06-29 18:00 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/257369.shtml)
+- 2026-06-29 17:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/46007043944.shtml)
+- 2026-06-29 17:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/54529713.shtml)
+- 2026-06-29 17:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4085711.shtml)

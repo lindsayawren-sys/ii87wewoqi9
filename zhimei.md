@@ -1,59 +1,59 @@
-# 南方多地强降雨持续闷热感加剧 东北华北雨水送清凉
+# 美伊在瑞士开始谈判 万斯：预计将取得更多进展
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中国天气网讯 未来三天(6月16日至18日)，南方大范围降雨持续，强降雨区域将逐渐北抬至长江中下游地区，伴随较大湿度，多地闷热感加剧。在北方，东北、华北等地受频繁降雨影响，今明天体感较凉爽，后天起将迎来升温，而新疆、内蒙古西部、陕西关中到黄淮等地高温天气发展，需注意防暑。 华南等地强降雨持续需警惕次生灾害 后天起南方主雨带北抬 昨天，我国降雨主要出现在西南、华南以及东北、华北两
+中新网6月21日电 据卡塔尔半岛电视台报道，当地时间21日，卡塔尔外交部宣布，美国与伊朗代表团已开始在瑞士展开谈判。 这是美伊签署谅解备忘录后的首轮会谈。伊朗代表团包括伊朗外长阿拉格齐、伊朗伊斯兰议会议长卡利巴夫等人。美国方面，副总统万斯、总统特使威特科夫和美国总统特朗普的女婿库什纳参加谈判。 据英国天空电视台等多家外媒报道，万斯在瑞士表示，美伊面对面会谈是一次“历史性”的会议
 
 ## 正文
 
-中国天气网讯 未来三天(6月16日至18日)，南方大范围降雨持续，强降雨区域将逐渐北抬至长江中下游地区，伴随较大湿度，多地闷热感加剧。
+中新网6月21日电 据卡塔尔半岛电视台报道，当地时间21日，卡塔尔外交部宣布，美国与伊朗代表团已开始在瑞士展开谈判。
 
-在北方，东北、华北等地受频繁降雨影响，今明天体感较凉爽，后天起将迎来升温，而新疆、内蒙古西部、陕西关中到黄淮等地高温天气发展，需注意防暑。
+这是美伊签署谅解备忘录后的首轮会谈。
 
-华南等地强降雨持续需警惕次生灾害 后天起南方主雨带北抬 昨天，我国降雨主要出现在西南、华南以及东北、华北两片区域，其中广东、广西等地雨势猛烈。
+伊朗代表团包括伊朗外长阿拉格齐、伊朗伊斯兰议会议长卡利巴夫等人。
 
-监测显示，昨天8时至今天6时，福建东部、广东中东部、广西南部、云南东部、贵州西南部及台湾岛等地部分地区出现暴雨或大暴雨；黑龙江南部、吉林中部、辽宁中西部、河北中部等地部分地区出现大雨或暴雨，局地大暴雨。
+美国方面，副总统万斯、总统特使威特科夫和美国总统特朗普的女婿库什纳参加谈判。
 
-今明两天，南方强降雨依然集中在华南一带，后天起，随着副热带高压西进、北抬，冷暖气流对峙区域将转移到长江中下游地区，主雨带也将随之北抬。
+据英国天空电视台等多家外媒报道，万斯在瑞士表示，美伊面对面会谈是一次“历史性”的会议。
 
-在北方，未来三天东北、华北等地阵雨或雷阵雨天气依然频繁，局地需防范强对流天气。
+万斯称，“在过去几个小时内，我们已经取得了巨大的进展，预计在接下来的几个小时内我们将取得更多进展。
 
-中央气象台预计，今天，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨；北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区有大到暴雨，局地大暴雨。
+”据报道，伊朗方面称，其主要目标是确保各方全面落实结束战事的临时协议。
 
-明天，华南中南部、四川盆地东部、云南东北部、西藏东南部等地部分地区有大到暴雨，其中，广西东南部沿海、广东西南部和珠江口等地部分地区有大暴雨，广西东南部沿海等地局地特大暴雨。
+据此前报道，截至当地时间21日中午，已有多场双边会谈在瑞士中部下瓦尔登州的比尔根山举行，为美国和伊朗谈判做技术性准备。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 17:40 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 17:39 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 17:45 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 17:40 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 17:56 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 17:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 17:50 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 17:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 18:03 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 18:03 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 18:02 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 17:58 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 18:03 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 17:47 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 18:09 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 17:48 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 18:06 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 18:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 18:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 17:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 18:09 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 17:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 17:57 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/093766202.shtml)
-- 2026-06-29 17:50 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/854168117.shtml)
-- 2026-06-29 17:49 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/33442.shtml)
-- 2026-06-29 17:48 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/080340403296.shtml)
-- 2026-06-29 17:39 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/10172436.shtml)
-- 2026-06-29 17:45 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/638940.shtml)
-- 2026-06-29 17:53 - [叠纸](https://www.blog.kurohicncr.top/Article/details/917270.shtml)
-- 2026-06-29 17:44 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/7673219.shtml)
-- 2026-06-29 17:43 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/34922643899.shtml)
-- 2026-06-29 17:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/056686007.shtml)
-- 2026-06-29 17:53 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/39870298290.shtml)
-- 2026-06-29 17:37 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/022158388.shtml)
-- 2026-06-29 17:55 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/19166528401.shtml)
-- 2026-06-29 17:53 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/10099670.shtml)
-- 2026-06-29 17:50 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/81340071167.shtml)
+- 2026-06-29 18:07 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/9164002162.shtml)
+- 2026-06-29 18:01 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/057549751811.shtml)
+- 2026-06-29 17:57 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/0040477602.shtml)
+- 2026-06-29 17:51 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/980828.shtml)
+- 2026-06-29 17:49 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/90400793363.shtml)
+- 2026-06-29 18:09 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/6952965.shtml)
+- 2026-06-29 18:09 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/94468338446.shtml)
+- 2026-06-29 17:48 - [金刚川](https://www.share.minike.top/Article/details/80554684.shtml)
+- 2026-06-29 18:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/72260.shtml)
+- 2026-06-29 18:11 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/6244176429.shtml)
+- 2026-06-29 17:59 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/9114551.shtml)
+- 2026-06-29 17:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/00249897.shtml)
+- 2026-06-29 18:03 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/35761524.shtml)
+- 2026-06-29 17:57 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/40832018.shtml)
+- 2026-06-29 18:02 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/49117.shtml)

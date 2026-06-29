@@ -1,58 +1,59 @@
-# 【钢材半年报】看原料眼色行事
+# 日媒揭露侵华日军疑进行动物血液输入人体实验 网友：丧失人性
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-紫金天风期货 摘要 2026年上半年钢材行情呈现宽幅震荡状态，整体宏观预期较弱，但受到各方因素影响，底部抬升相对明显。2026年2月28日，中东地区发生军事冲突，直接导致原油价格暴涨，后期推动工业品价格均有不同幅度的上涨。2026年5月底受到煤矿安全事故影响，盘面黑色行情出现大幅反弹后回归基本面。国家发展改革委等部门发布开展重点行业节能降碳改造攻坚三年行动的通知：决定组织开展钢
+中新网6月22日电 据日本共同社20日报道，日军在侵华战争期间召开的会议上，军医学校的教官曾汇报反复进行将动物血液注入人体的“异种输血”实验情况。 报道称，这些实验疑似在中国进行，其名义上是研究如何在战场上应对大量输血的情况，但报道指出，日本军部在战败投降时曾试图销毁人体实验的证据，而共同社发现在官方组织“陆军军医团”的杂志中存在相关记录。 记录显示，实验对象为性别、年龄、国籍
 
 ## 正文
 
-紫金天风期货 摘要 2026年上半年钢材行情呈现宽幅震荡状态，整体宏观预期较弱，但受到各方因素影响，底部抬升相对明显。
+中新网6月22日电 据日本共同社20日报道，日军在侵华战争期间召开的会议上，军医学校的教官曾汇报反复进行将动物血液注入人体的“异种输血”实验情况。
 
-2026年2月28日，中东地区发生军事冲突，直接导致原油价格暴涨，后期推动工业品价格均有不同幅度的上涨。
+报道称，这些实验疑似在中国进行，其名义上是研究如何在战场上应对大量输血的情况，但报道指出，日本军部在战败投降时曾试图销毁人体实验的证据，而共同社发现在官方组织“陆军军医团”的杂志中存在相关记录。
 
-2026年5月底受到煤矿安全事故影响，盘面黑色行情出现大幅反弹后回归基本面。
+记录显示，实验对象为性别、年龄、国籍不详的23人。
 
-国家发展改革委等部门发布开展重点行业节能降碳改造攻坚三年行动的通知：决定组织开展钢铁、电解铝、水泥、平板玻璃、炼油、乙烯、合成氨、甲醇、煤电等重点行业节能降碳改造攻坚三年行动。
+该实验违背伦理，包括向人体内大量输入马血这种因可能出现排斥反应而被认为违反常识的行为，以及在手术中阻断颈部血流后注射血清等与治疗无关的处置。
 
-基本面来看，供应端根据Mysteel及富宝数据计算，2026年1-5月粗钢同比下降约0.97%，其中铁水累计同比下降约为0.63%，废钢累计同比下降约2.62%，全年预期保持小幅波动，约下降0.49%。
+上述会议于1940年3月召开，名为“陆军军阵医药学研究会”。
 
-需求端2026年粗钢需求预计将有所下降，其中房建部分仍为预期内下降状态，但整体下降幅度有所减缓，制造业中汽车产销情况转弱，主要受到购置税政策影响，机械、船舶、电力等需求稳定增加，家电部分中空调排产同比有所回落。
+当时的陆军省医务局局长及众多军医军官、药剂军官参加了会议。
 
-2026年1-5月钢材累计出口4455万吨，累计同比下降8.1%，1-4月钢坯累计出口494万吨，累计同比增长47.77%。
+该报道在日本社交媒体引发了激烈讨论，大量日本网友表示这一系列人体实验的恶行“极其卑劣”“丧失人性”。
 
-2026年上半年利润情况同比转差，4-5月份利润相对较高，6月开始转差。
+还有日本网友表示，“在得知曾经发生过这样的实验后，心理受到了巨大冲击”，并表示“难以想象当时的实验对象及其家人有多么痛苦”，“不能忘记中国等国曾在战争中受过深深伤害的这段历史”。
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 17:53 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 17:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 17:54 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 17:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 17:58 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 17:43 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 18:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 18:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 17:50 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 18:02 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 18:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 18:06 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 17:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 18:06 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 17:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 17:48 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 17:59 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 17:48 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 17:58 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 18:03 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 18:06 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 18:01 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 17:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/84940.shtml)
-- 2026-06-29 17:39 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/8923330720.shtml)
-- 2026-06-29 17:57 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/75500878261.shtml)
-- 2026-06-29 18:02 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/060101.shtml)
-- 2026-06-29 17:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/40294295.shtml)
-- 2026-06-29 18:02 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/242077259.shtml)
-- 2026-06-29 18:01 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/653905.shtml)
-- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/2985902512.shtml)
-- 2026-06-29 17:52 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/9820087.shtml)
-- 2026-06-29 17:39 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/511013.shtml)
-- 2026-06-29 17:51 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/0959463.shtml)
-- 2026-06-29 17:38 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/28277894.shtml)
-- 2026-06-29 17:52 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/87545086.shtml)
-- 2026-06-29 17:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/99644802.shtml)
-- 2026-06-29 17:51 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/55018.shtml)
+- 2026-06-29 18:05 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/17780.shtml)
+- 2026-06-29 18:11 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/43528366.shtml)
+- 2026-06-29 17:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/293593.shtml)
+- 2026-06-29 17:56 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/7932451.shtml)
+- 2026-06-29 17:48 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/374162508618.shtml)
+- 2026-06-29 17:56 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/87663091428.shtml)
+- 2026-06-29 17:48 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/257341232080.shtml)
+- 2026-06-29 18:04 - [一生一世](https://www.share.minike.top/Article/details/316640701631.shtml)
+- 2026-06-29 18:10 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/1660117.shtml)
+- 2026-06-29 17:45 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/6416103579.shtml)
+- 2026-06-29 17:59 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/79372309.shtml)
+- 2026-06-29 18:05 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/2371344.shtml)
+- 2026-06-29 18:11 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/74382.shtml)
+- 2026-06-29 17:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/87409034.shtml)
+- 2026-06-29 17:50 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/780265868842.shtml)

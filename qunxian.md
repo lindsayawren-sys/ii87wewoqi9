@@ -1,43 +1,58 @@
-# 俄罗斯总统与美国总统通电话
+# 第十一届“创客中国”医药健康中小企业创新创业大赛启动项目征集
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
+中新网北京6月22日电 第十一届“创客中国”医药健康中小企业创新创业大赛(以下简称“大赛”)日前全面启动项目征集。根据安排，大赛按照企业组、创业组分别进行初赛(线上)、决赛(线下)，需于2026年7月10日前通过大赛官网注册报名。大赛由工业和信息化部网络安全产业发展中心(工业和信息化部信息中心)、昆明高新技术产业开发区管理委员会联合主办，旨在集聚医药健康产业创业资源，营造创新创
 
 ## 正文
 
-发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
+中新网北京6月22日电 第十一届“创客中国”医药健康中小企业创新创业大赛(以下简称“大赛”)日前全面启动项目征集。
+
+根据安排，大赛按照企业组、创业组分别进行初赛(线上)、决赛(线下)，需于2026年7月10日前通过大赛官网注册报名。
+
+大赛由工业和信息化部网络安全产业发展中心(工业和信息化部信息中心)、昆明高新技术产业开发区管理委员会联合主办，旨在集聚医药健康产业创业资源，营造创新创业氛围，发掘和培育一批医药健康产业优秀项目和优秀团队，积极促进科研成果的快速落地转化，打造面向南亚东南亚的区域性医药健康产业高地。
+
+大赛紧扣医药健康产业创新前沿与云南特色产业禀赋，共设置六大细分赛道。
+
+其中，创新药赛道深挖本土资源势能，一方面聚焦云南特色中药材与民族医药宝库；另一方面面向全球征集针对重大疾病靶点的1类创新药、改良型新药、高端制剂等具备自主知识产权与明确临床价值的创新成果。
+
+生物制品赛道重点征集治疗性抗体、新型疫苗、重组蛋白等核心领域创新项目，同时鼓励依托云南及周边生物多样性资源，开展新资源发现与活性成分转化的特色项目。
+
+细胞与基因治疗(CGT)赛道聚焦生命科学最前沿，覆盖免疫细胞治疗、干细胞治疗、基因编辑、核酸药物等代表未来医疗方向的创新项目。
+
+合成生物学赛道征集基于基因编辑、代谢工程等前沿技术的生物制造项目，重点支持高值医药化合物、天然活性成分的绿色生物合成与生物基新材料产业化，推动传统制造模式转型升级。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 17:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 17:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 18:05 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 17:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 17:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 17:43 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 18:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 17:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 17:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 17:53 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 18:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 17:50 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 18:01 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 18:01 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 17:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 18:03 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 17:52 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 18:02 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 17:52 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 18:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 17:51 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0042400602.shtml)
-- 2026-06-29 17:42 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/87383135300.shtml)
-- 2026-06-29 17:36 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/53593514.shtml)
-- 2026-06-29 17:52 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/504539.shtml)
-- 2026-06-29 17:46 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/294205.shtml)
-- 2026-06-29 17:42 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/31191274.shtml)
-- 2026-06-29 17:50 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/86752.shtml)
-- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/676289194.shtml)
-- 2026-06-29 18:04 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/76857182.shtml)
-- 2026-06-29 17:38 - [金刚川](https://www.share.minike.top/Article/details/21508819.shtml)
-- 2026-06-29 17:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/3646989.shtml)
-- 2026-06-29 17:50 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/88001718651.shtml)
-- 2026-06-29 18:01 - [这一刀 会很帅](http://www.share.minike.top/Article/details/98096.shtml)
-- 2026-06-29 17:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/50593.shtml)
-- 2026-06-29 17:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/77465288548.shtml)
+- 2026-06-29 17:59 - [女心理师](https://www.blog.minike.top/Article/details/394695182.shtml)
+- 2026-06-29 17:58 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/791462906526.shtml)
+- 2026-06-29 17:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/769539234.shtml)
+- 2026-06-29 17:59 - [逆天祖国人](http://www.share.minike.top/Article/details/9273849.shtml)
+- 2026-06-29 17:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/970705495.shtml)
+- 2026-06-29 17:45 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/97193.shtml)
+- 2026-06-29 18:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/718971735485.shtml)
+- 2026-06-29 18:07 - [起风了](http://www.share.minike.top/Article/details/6430280.shtml)
+- 2026-06-29 17:46 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/07241181.shtml)
+- 2026-06-29 18:05 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/333348526.shtml)
+- 2026-06-29 17:57 - [一见倾心](https://www.share.kurohicncr.top/Article/details/7123975412.shtml)
+- 2026-06-29 17:51 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/1020082.shtml)
+- 2026-06-29 17:54 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/6599042412.shtml)
+- 2026-06-29 18:08 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/14499449247.shtml)
+- 2026-06-29 17:47 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/91661826201.shtml)

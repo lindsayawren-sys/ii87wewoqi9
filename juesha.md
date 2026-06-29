@@ -1,56 +1,56 @@
-# “一年5倍基”大涨，再次停牌
+# 雷军自曝：后悔跟董明珠打赌，小米汽车“1300公里只充一次电”被断章取义
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，科技成长板块飙涨，重仓科技板块的基金净值随之大涨。其中，财通多策略福鑫定开混合基金大幅上涨13.35%，其近一年的收益率更是接近5倍。作为一只LOF基金，财通多策略福鑫定开混合基金近期的场内溢价居高不下。 6月16日上午停牌一小时后，该基金开盘后再度大涨，午间公告再度停牌，截至收盘上涨9.72%
+6月21日，北京国家会议中心，第三十二届北京国际图书博览会“BIBF大使会客厅·特别场”。作家刘震云、小米集团董事长雷军、主持人张蕾三人对谈，聊刘震云的新书《咸的玩笑》。 雷军提起2013年和董明珠的赌局 雷军谈如何理解刘震云的新书《咸的玩笑》，说到自己人生里最贴合“咸的玩笑”的经历，主动提起2013年和董明珠的这场赌局。 “2013年我参加央视一个活动，我跟格力的董明珠董大姐
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月21日，北京国家会议中心，第三十二届北京国际图书博览会“BIBF大使会客厅·特别场”。
 
-6月15日，科技成长板块飙涨，重仓科技板块的基金净值随之大涨。
+作家刘震云、小米集团董事长雷军、主持人张蕾三人对谈，聊刘震云的新书《咸的玩笑》。
 
-其中，财通多策略福鑫定开混合基金大幅上涨13.35%，其近一年的收益率更是接近5倍。
+雷军提起2013年和董明珠的赌局 雷军谈如何理解刘震云的新书《咸的玩笑》，说到自己人生里最贴合“咸的玩笑”的经历，主动提起2013年和董明珠的这场赌局。
 
-作为一只LOF基金，财通多策略福鑫定开混合基金近期的场内溢价居高不下。
+“2013年我参加央视一个活动，我跟格力的董明珠董大姐打了个赌，本来就打个赌，本来开玩笑，后来麻烦了，董大姐当真了。
 
-6月16日上午停牌一小时后，该基金开盘后再度大涨，午间公告再度停牌，截至收盘上涨9.72%，溢价率高达33.64%。
+” 后果超出预期。
 
-近一年涨幅498.14% 6月15日，财通多策略福鑫定开混合基金净值飙涨13.35%，位居全市场涨幅第一。
+“董大姐在很多场合讲得都特别特别难听，我就不服了。
 
-截至6月15日，该基金最近一年净值上涨498.14%。
+”雷军说，后来董明珠甚至说她要做手机。
 
-对于组合投资的公募基金产品而言，近一年净值接近5倍的收益表现十分罕见。
+“那在这种局面下，我们压力很大，后来我们就做了空调。
 
 ## 相关推荐
 
-- 2026-06-29 17:59 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 17:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 17:40 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 17:40 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 17:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 17:44 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 17:56 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 17:59 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 17:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 17:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 18:04 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 17:59 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 18:03 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 17:59 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 17:46 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 17:59 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 18:03 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 18:02 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 18:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 17:59 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/32332536.shtml)
-- 2026-06-29 17:56 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/692443805.shtml)
-- 2026-06-29 17:48 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/34233698844.shtml)
-- 2026-06-29 17:46 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/7290307.shtml)
-- 2026-06-29 17:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/96632958.shtml)
-- 2026-06-29 17:53 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/779511202660.shtml)
-- 2026-06-29 18:01 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/7190962.shtml)
-- 2026-06-29 18:02 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/3898907558.shtml)
-- 2026-06-29 17:40 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/997010.shtml)
-- 2026-06-29 17:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/42740182.shtml)
-- 2026-06-29 17:39 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/09033640431.shtml)
-- 2026-06-29 18:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/199088416.shtml)
-- 2026-06-29 17:46 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/6889535.shtml)
-- 2026-06-29 17:50 - [叠纸](https://www.blog.minike.top/Article/details/268693851751.shtml)
-- 2026-06-29 17:59 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/723885.shtml)
+- 2026-06-29 17:50 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/0171373563.shtml)
+- 2026-06-29 17:44 - [NBA交易](https://www.share.kurohicncr.top/Article/details/4732634912.shtml)
+- 2026-06-29 17:55 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/2024093342.shtml)
+- 2026-06-29 18:09 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/596496566846.shtml)
+- 2026-06-29 18:04 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/3399749313.shtml)
+- 2026-06-29 17:45 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/649586363205.shtml)
+- 2026-06-29 17:54 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/82887186.shtml)
+- 2026-06-29 18:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/39622926.shtml)
+- 2026-06-29 17:53 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/481026709.shtml)
+- 2026-06-29 17:42 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/322887971.shtml)
+- 2026-06-29 17:52 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/16007151507.shtml)
+- 2026-06-29 17:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/27681076682.shtml)
+- 2026-06-29 18:00 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/109191764331.shtml)
+- 2026-06-29 17:43 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/910999188.shtml)
+- 2026-06-29 18:09 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/32592717539.shtml)

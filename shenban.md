@@ -1,61 +1,60 @@
-# 几十万亿“存款搬家”了吗？业内人士：真实存在但并非大规模迁移
+# 敦豪将采用新型风力货运船舶承运货物
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-今年，“存款搬家”话题热度仍居高不下，多机构测算年内到期定存规模可达30万亿至70余万亿元。但业内人士向记者表示：存款搬家真实存在，但绝非大规模迁移。 海量存款集中到期，并不意味着资金会大规模撤离银行体系，多数到期存款仍选择留存在银行：建行、交行等在一季度业绩会上均表示到期存款留存率超过90%，工行提到到期存款转存率超过90%。股份行群体存款留存率一般在60%-80%，低于大行
+旗下货运代理部门计划借助特制帆船开展大西洋跨洋货运业务 内容速览 敦豪全球货运将与维拉公司合作，从明年开始投入风力驱动货船运输货物，以此降低货运碳排放。 国际物流巨头敦豪宣布，将与一家运营风力驱动货船的法国企业达成合作，旨在削减货运环节的温室气体排放。 两家企业向《华尔街曰报》可持续商业专业版透露，敦豪旗下专业货运板块 —— 敦豪全球货运，将于明年启用维拉公司的风力船舶开展货运
 
 ## 正文
 
-今年，“存款搬家”话题热度仍居高不下，多机构测算年内到期定存规模可达30万亿至70余万亿元。
+旗下货运代理部门计划借助特制帆船开展大西洋跨洋货运业务 内容速览 敦豪全球货运将与维拉公司合作，从明年开始投入风力驱动货船运输货物，以此降低货运碳排放。
 
-但业内人士向记者表示：存款搬家真实存在，但绝非大规模迁移。
+国际物流巨头敦豪宣布，将与一家运营风力驱动货船的法国企业达成合作，旨在削减货运环节的温室气体排放。
 
-海量存款集中到期，并不意味着资金会大规模撤离银行体系，多数到期存款仍选择留存在银行：建行、交行等在一季度业绩会上均表示到期存款留存率超过90%，工行提到到期存款转存率超过90%。
+两家企业向《华尔街曰报》可持续商业专业版透露，敦豪旗下专业货运板块 —— 敦豪全球货运，将于明年启用维拉公司的风力船舶开展货运业务。
 
-股份行群体存款留存率一般在60%-80%，低于大行，但也维持在较高水平。
+该类船舶为三体船（拥有三个船体），船长 220 英尺，可运载 415 吨货物。
 
-中信证券表示：存款到期不等于存款搬家，存款搬家不等于入市，非银扩张不等于权益流入，真正触达权益市场的资金或小于市场期待。
+其载货容积约为货运飞机的五倍，不过船体长度仅为常规集装箱货轮的五分之一。
 
-当下低利率已成常态，保守型储户该如何配置资产？
+维拉公司联合创始人米歇尔・费尔南德斯 - 费里介绍，船舶采用铝合金材质打造，轻量化特性能够助力船只提速，设计目标航速约 14 节（折合每小时 16 英里）。
 
-业内人士建议，对于风险偏好极低的投资者，可以继续选择保本的存款类产品，不应盲目追求潜在的高收益而承受超出自身承受能力的波动。
+“这本质上是一艘巨型帆船，” 他介绍道，“我们依托风能，完全依靠风力为船舶提供航行动力。
 
-责任编辑：秦艺
+” 常规远洋货轮一般沿固定航线横渡大西洋，而这款三体船会避开常规航道，顺着风向选择最优航行路线。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 17:38 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 17:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 17:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 17:47 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 17:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 17:56 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 17:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 18:03 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:39 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 17:55 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 17:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 18:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 17:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 17:51 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 17:49 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 18:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:57 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 17:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 18:10 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 17:53 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 18:01 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 18:02 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 18:09 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:43 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 17:42 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:53 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/061299490831.shtml)
-- 2026-06-29 17:51 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/290501006.shtml)
-- 2026-06-29 17:54 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/590537842610.shtml)
-- 2026-06-29 17:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/783767.shtml)
-- 2026-06-29 17:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/39330703.shtml)
-- 2026-06-29 17:41 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/77535878.shtml)
-- 2026-06-29 17:57 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/13507.shtml)
-- 2026-06-29 17:43 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/034914.shtml)
-- 2026-06-29 17:48 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/3161315241.shtml)
-- 2026-06-29 18:00 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/2848036038.shtml)
-- 2026-06-29 18:04 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/953245.shtml)
-- 2026-06-29 17:40 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/07526940797.shtml)
-- 2026-06-29 17:41 - [第一炉香](https://www.blog.minike.top/Article/details/322074.shtml)
-- 2026-06-29 17:46 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/19865961755.shtml)
-- 2026-06-29 17:51 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/605494.shtml)
+- 2026-06-29 17:59 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/64735550526.shtml)
+- 2026-06-29 17:52 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/1256442.shtml)
+- 2026-06-29 17:56 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/64204985845.shtml)
+- 2026-06-29 18:02 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/6032811.shtml)
+- 2026-06-29 17:47 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/770573723140.shtml)
+- 2026-06-29 18:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/513811565873.shtml)
+- 2026-06-29 17:48 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/124674.shtml)
+- 2026-06-29 17:54 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/206937979.shtml)
+- 2026-06-29 17:52 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/39515485.shtml)
+- 2026-06-29 17:48 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/493166563577.shtml)
+- 2026-06-29 18:10 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/271837377838.shtml)
+- 2026-06-29 17:57 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/6607411367.shtml)
+- 2026-06-29 18:02 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/33191777.shtml)
+- 2026-06-29 17:58 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/19918.shtml)
+- 2026-06-29 17:47 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/4561933295.shtml)

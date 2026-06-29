@@ -1,57 +1,58 @@
-# 演绎都市爱情现实新貌 《爱情有烟火》开播
+# 希迪智驾盘中涨超8% 公司AI+远程操控创新技术方案引发广泛关注
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 高凯)由史成业执导，刘益、刘莉、秦晔编剧，檀健次、王楚然领衔主演，李乃文特邀主演的都市情感剧《爱情有烟火》15日正式登陆CCTV-8，并同步上线。 《爱情有烟火》改编自晋江文学城作者红九的热门小说《投行男女》(原名《我们住在一起》)，将镜头对准职场与都市青年生活，讲述投行精英李亦非(檀健次 饰)与沪漂女孩钱菲(王楚然 饰)从意外合租到携手成长，在
+希迪智驾（03881）盘中涨超8%，截至发稿，股价上涨2.85%，现报24.52港元，成交额2629.26万港元。 近日，据希迪智驾官微消息，希迪智驾携自主研发的远程操控挖掘机亮相澳大利亚2026珀斯技工博览会（Perth Tradie Expo），以AI+远程操控创新技术方案引发广泛关注，并获得澳大利亚7新闻（7 NEWS）重点报道。此次参展，标志着希迪智驾在海外市场拓展中迈
 
 ## 正文
 
-中新网北京6月15日电 (记者 高凯)由史成业执导，刘益、刘莉、秦晔编剧，檀健次、王楚然领衔主演，李乃文特邀主演的都市情感剧《爱情有烟火》15日正式登陆CCTV-8，并同步上线。
+希迪智驾（03881）盘中涨超8%，截至发稿，股价上涨2.85%，现报24.52港元，成交额2629.26万港元。
 
-《爱情有烟火》改编自晋江文学城作者红九的热门小说《投行男女》(原名《我们住在一起》)，将镜头对准职场与都市青年生活，讲述投行精英李亦非(檀健次 饰)与沪漂女孩钱菲(王楚然 饰)从意外合租到携手成长，在现实压力与情感考验中重新寻找爱情与自我的故事。
+近日，据希迪智驾官微消息，希迪智驾携自主研发的远程操控挖掘机亮相澳大利亚2026珀斯技工博览会（Perth Tradie Expo），以AI+远程操控创新技术方案引发广泛关注，并获得澳大利亚7新闻（7 NEWS）重点报道。
 
-《爱情有烟火》聚焦都市年轻人最真实的情感困境，与此同时避免脸谱化的对错判断，通过不同人物的选择，探讨爱情、物质、安全感与个人成长之间的复杂关系。
+此次参展，标志着希迪智驾在海外市场拓展中迈出重要一步，也展现了中国智能驾驶与工程机械远程操控技术的国际竞争力。
 
-《爱情有烟火》并未将故事局限于爱情本身，而是将投行职场与都市生活并置呈现，剧中既有项目博弈、职业竞争带来的高压挑战，也有合租生活中的琐碎摩擦与人情冷暖。
+中邮证券表示，希迪智驾自动驾驶解决方案已率先实现矿山场景的“全天候、全流程“常态化无人运营，商业化落地进程显著加速。
 
-职场与生活两条线相互交织，着力于让角色的每一次选择、每一次成长都更具说服力。
+从早期V2X测试区方案起步，逐步构建起“车路协同+商用车智能驾驶+矿卡/物流无人驾驶”全栈能力，公司当前重新聚焦自动驾驶核心赛道并实现快速放量。
 
-在创作层面，导演史成业曾参与打造《欢乐颂》等都市题材作品，编剧刘益、刘莉、秦晔深耕现实主义创作。
+该行认为，公司已实现极低的远程接管水平，目前1名监管员可同时管控100台无人矿卡。
 
-主创团队此番在保留爱情故事轻松氛围的同时，也尽可能还原投行职场生态与年轻人的真实生存状态。
+同时，海外商业化推进，打开向上天花板，公司有望借助海外渠道打开全球市场空间。
 
-与此同时选择以轻喜剧的方式化解沉重情绪。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:56 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 18:05 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 17:37 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 17:47 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 17:36 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 18:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 18:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 17:59 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 17:40 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 17:57 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:04 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 18:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 18:10 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 17:58 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 17:57 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 17:46 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 17:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 17:45 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 18:09 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 17:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:00 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 17:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/9398210.shtml)
-- 2026-06-29 17:50 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/81336305.shtml)
-- 2026-06-29 17:51 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/7717709.shtml)
-- 2026-06-29 17:36 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/616861.shtml)
-- 2026-06-29 17:40 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/3866310.shtml)
-- 2026-06-29 18:00 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/079475.shtml)
-- 2026-06-29 17:43 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/4756424055.shtml)
-- 2026-06-29 17:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/2626110776.shtml)
-- 2026-06-29 17:57 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/72414575.shtml)
-- 2026-06-29 17:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/53217.shtml)
-- 2026-06-29 17:59 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/48124311.shtml)
-- 2026-06-29 17:47 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/646868072527.shtml)
-- 2026-06-29 17:45 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/38828.shtml)
-- 2026-06-29 17:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/220332032.shtml)
-- 2026-06-29 17:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/237530839742.shtml)
+- 2026-06-29 17:42 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/97496.shtml)
+- 2026-06-29 17:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/35596.shtml)
+- 2026-06-29 17:57 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/36020631947.shtml)
+- 2026-06-29 17:44 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/18418.shtml)
+- 2026-06-29 17:47 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/1361475.shtml)
+- 2026-06-29 18:01 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/0289273.shtml)
+- 2026-06-29 18:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/030927.shtml)
+- 2026-06-29 17:47 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/68365022.shtml)
+- 2026-06-29 18:07 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/43679127.shtml)
+- 2026-06-29 18:04 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/51753.shtml)
+- 2026-06-29 18:10 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/202754767543.shtml)
+- 2026-06-29 17:44 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/0043956239.shtml)
+- 2026-06-29 17:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/33881333.shtml)
+- 2026-06-29 17:43 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/75082592491.shtml)
+- 2026-06-29 17:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/0046280.shtml)

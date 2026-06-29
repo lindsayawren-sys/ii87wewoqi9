@@ -1,56 +1,59 @@
-# 高通CEO：智能AI代理将取代各类应用，公司正研发超40款全新AI驱动设备
+# 李强会见几内亚总理乌里·巴
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-核心要点 高通首席执行官克里斯蒂亚诺・安蒙在接受采访时透露，这家芯片设计企业正为消费电子领域即将迎来的 AI 智能代理浪潮，布局超过 40 款全新 AI 设备设计方案。 在《科技下载》播客的深度专访中，安蒙分享了诸多观点：智能手机与手机应用的角色正在转变、智能眼镜有望成为下一款主流消费电子产品、即将推向市场的新型电子设备，以及微型便携设备所需的芯片架构革新方向。 安蒙的此番言论
+中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。 李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。当前，在习近平主席同敦布
 
 ## 正文
 
-核心要点 高通首席执行官克里斯蒂亚诺・安蒙在接受采访时透露，这家芯片设计企业正为消费电子领域即将迎来的 AI 智能代理浪潮，布局超过 40 款全新 AI 设备设计方案。
+中新社大连6月23日电 (记者 李京泽)6月23日上午，中国国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。
 
-在《科技下载》播客的深度专访中，安蒙分享了诸多观点：智能手机与手机应用的角色正在转变、智能眼镜有望成为下一款主流消费电子产品、即将推向市场的新型电子设备，以及微型便携设备所需的芯片架构革新方向。
+李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。
 
-安蒙的此番言论也提及消费电子赛道的新晋入局者，随着人工智能在各类设备中全面普及，苹果、三星等主流手机厂商或将被迫调整自身的竞争策略。
+过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。
 
-安蒙在节目中表示：“各行各业都会尝试探索多元化的硬件形态。
+当前，在习近平主席同敦布亚总统的战略引领下，中几关系持续深化发展。
 
-” “目前我们已经落地了 40 多款设备设计方案，硬件的形态种类十分丰富。
+今年两国迎来建立全面战略合作伙伴关系10周年，中方愿同几方以此为契机，进一步弘扬传统友谊，在涉及彼此核心利益问题上坚定相互支持，推动各领域合作走深走实，更好惠及两国人民。
 
-” 他介绍，这批可穿戴智能设备涵盖智能首饰、搭载摄像头的无线耳机、智能胸针以及智能手表。
+李强指出，中方愿同几方加强中国“十五五”规划和几内亚“西芒杜2040”战略规划对接，用好用足中方零关税、非洲农产品输华“绿色通道”升级等政策便利，提升贸易、农业、矿业等合作水平，确保西芒杜等重点项目稳定运营，发掘金融、产业园区、电力等领域合作潜力，实现更高水平的互利共赢。
 
-“这类产品的设计理念就是贴身佩戴、时刻相伴，能够感知周边环境，依托场景信息，让用户随时唤醒 AI 智能代理、与其语音交互。
+希望几方为中国企业赴几投资提供稳定政策保障和良好营商环境。
 
-” AI 智能代理 AI 智能代理被视作苹果 Siri、谷歌 Gemini 这类传统语音数字助手的迭代升级产物。
+双方还要深入落实中非合作论坛北京峰会“十大伙伴行动”，加强教育、减贫、医疗、人力资源开发等方面交流合作，提升民众对两国友好合作的获得感。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 17:40 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 17:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 17:44 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 17:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 17:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 17:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 18:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 17:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 18:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 18:06 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 18:07 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 17:42 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 17:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 18:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 17:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 17:44 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 17:45 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 18:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 18:05 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 17:52 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 17:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/250470680209.shtml)
-- 2026-06-29 18:01 - [金牌调解](http://www.share.minike.top/Article/details/76400.shtml)
-- 2026-06-29 17:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/063158210135.shtml)
-- 2026-06-29 18:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/6700206389.shtml)
-- 2026-06-29 18:00 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/39510.shtml)
-- 2026-06-29 18:05 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/307508029.shtml)
-- 2026-06-29 17:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/3349671.shtml)
-- 2026-06-29 18:02 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1425563.shtml)
-- 2026-06-29 17:59 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/673576645.shtml)
-- 2026-06-29 17:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/22459265.shtml)
-- 2026-06-29 17:47 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/27955921.shtml)
-- 2026-06-29 18:05 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/1780852.shtml)
-- 2026-06-29 17:42 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/7382882.shtml)
-- 2026-06-29 17:49 - [千与千寻](https://www.share.minike.top/Article/details/10914.shtml)
-- 2026-06-29 18:02 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/785987750.shtml)
+- 2026-06-29 18:05 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/14886.shtml)
+- 2026-06-29 18:00 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/85129.shtml)
+- 2026-06-29 18:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/46131053.shtml)
+- 2026-06-29 18:08 - [周生如故](https://www.blog.minike.top/Article/details/00317526.shtml)
+- 2026-06-29 17:46 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/671509.shtml)
+- 2026-06-29 17:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/616625.shtml)
+- 2026-06-29 18:01 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/501225024445.shtml)
+- 2026-06-29 17:44 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/9585658158.shtml)
+- 2026-06-29 17:50 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/77927984.shtml)
+- 2026-06-29 18:06 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/57830194.shtml)
+- 2026-06-29 17:43 - [急先锋](http://www.blog.minike.top/Article/details/5684365.shtml)
+- 2026-06-29 17:44 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/814883212.shtml)
+- 2026-06-29 18:04 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/9240936418.shtml)
+- 2026-06-29 18:00 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/59501125.shtml)
+- 2026-06-29 18:07 - [V8](http://www.share.minike.top/Article/details/39074.shtml)

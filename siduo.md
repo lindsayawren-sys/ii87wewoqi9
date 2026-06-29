@@ -1,60 +1,57 @@
-# 不再冲规模拼增速，小微信贷“无序竞争”到头了
+# 万基时代，告别“选基难”和“选工具难”，我选择新浪财经APP
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。 作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。 这让杨琛第一次感受到，银行小微
+2026年的中国公募基金市场，已正式迈入“万基时代”。根据中基协公布的数据，截至2026年4月底，境内公募基金产品总数已达1.41万只，资产净值合计39.36万亿元，再创历史新高。基金数量破万、规模逼近40万亿，看似选择更丰富了，但摆在每一位基民面前的，却是两道现实难题——“选基难”和“选工具难”。 一、海量产品之困：“选基难”从何而来 全市场基金数量已超13000只，投资者正
 
 ## 正文
 
-作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。
+2026年的中国公募基金市场，已正式迈入“万基时代”。
 
-同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。
+根据中基协公布的数据，截至2026年4月底，境内公募基金产品总数已达1.41万只，资产净值合计39.36万亿元，再创历史新高。
 
-作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。
+基金数量破万、规模逼近40万亿，看似选择更丰富了，但摆在每一位基民面前的，却是两道现实难题——“选基难”和“选工具难”。
 
-以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。
+一、海量产品之困：“选基难”从何而来 全市场基金数量已超13000只，投资者正面临“万里挑一”的困境。
 
-这让杨琛第一次感受到，银行小微普惠信贷的业务逻辑开始发生明显变化。
+更棘手的是，主动权益基金与ETF等被动产品共同扩容，产品同质化问题日趋严重。
 
-最近两周，他所在支行的领导不再强调小微普惠信贷“规模驱动、增速为王”，取而代之的是一句新口头禅：“质量优先、结构优化”。
+基金类型、风格稳定性、业绩持续性等筛选维度复杂，靠短期业绩选基效果堪忧。
 
-杨琛坦言，这种变化，源于国家金融监督管理总局（下称“金融监管总局”）在5月19日发布的《关于做好2026年小微企业金融服务工作的通知》（下称《通知》）。
+更深层的变化在于，公募产品正逐步褪去基金经理投资理念载体的属性，转向工具化的功能定位——选基逻辑必须从“单押一只绩优基金”转向“精准匹配需求的组合配置”。
 
-《通知》提出，推动小微企业金融服务“稳投放、优结构、提质量、可持续”。
+然而，绝大多数普通投资者既缺乏专业的研究能力，也缺少系统化的配置工具。
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 17:53 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 17:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 17:49 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 17:55 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 17:42 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 18:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 18:04 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 18:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 17:49 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 17:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 17:36 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 17:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 17:55 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 17:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 17:54 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 18:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 17:47 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 17:55 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:49 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 18:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 17:58 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 18:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 18:01 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 18:10 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/728531857.shtml)
-- 2026-06-29 17:36 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/24028230968.shtml)
-- 2026-06-29 18:05 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/49699037.shtml)
-- 2026-06-29 17:52 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/7050390516.shtml)
-- 2026-06-29 17:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/60289112.shtml)
-- 2026-06-29 17:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/760382501854.shtml)
-- 2026-06-29 17:38 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/263467.shtml)
-- 2026-06-29 17:52 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/3222053.shtml)
-- 2026-06-29 17:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/77516979925.shtml)
-- 2026-06-29 17:46 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/551519691354.shtml)
-- 2026-06-29 17:59 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/0896966355.shtml)
-- 2026-06-29 17:43 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/141409639336.shtml)
-- 2026-06-29 18:02 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/89847282.shtml)
-- 2026-06-29 17:46 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/89782566.shtml)
-- 2026-06-29 18:01 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/156587447.shtml)
+- 2026-06-29 18:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/741785.shtml)
+- 2026-06-29 18:10 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/5873754.shtml)
+- 2026-06-29 17:57 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/70130.shtml)
+- 2026-06-29 18:03 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/4189917.shtml)
+- 2026-06-29 17:45 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/72971841.shtml)
+- 2026-06-29 17:53 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/8750104.shtml)
+- 2026-06-29 17:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/902861170.shtml)
+- 2026-06-29 17:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/9650248.shtml)
+- 2026-06-29 17:56 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/08417395.shtml)
+- 2026-06-29 17:46 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/43119.shtml)
+- 2026-06-29 17:46 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/662124.shtml)
+- 2026-06-29 17:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/996253918532.shtml)
+- 2026-06-29 17:44 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/87724.shtml)
+- 2026-06-29 17:45 - [当我回母校教书](https://www.share.minike.top/Article/details/297939400.shtml)
+- 2026-06-29 18:10 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/45115804.shtml)

@@ -1,56 +1,59 @@
-# 台湾小吃业者冀“小摊位”撬动两岸“大市场”
+# 中原建业拟发行7.73亿股认购股份
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。 当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场
+中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。 认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣
 
 ## 正文
 
-中新社北京6月16日电 (张杨彬 姜姿屹)在16日北京一场台湾小吃市集上，“新北深坑臭豆腐”摊位前始终围着人，食客好奇打量着与长沙黑色臭豆腐迥异的金黄色豆腐。
+中原建业（09982）发布公告，于2026年6月18日，本公司与认购人（Star Bliss Investment Limited及Regulus Culture Limited）订立认购协议，认购人已有条件同意认购，而本公司已有条件同意配发及发行合共7.73亿股认购股份，认购价为每股认购股份0.09港元。
 
-台湾摊主苏明和介绍，他在福州大学城的档口生意不错，这次专程赶来，是首次在北京设摊。
+认购事项的所得款项总额为6957万港元，而认购事项的所得款项净额（经扣除本公司产生的相关开支后）将为6920万港元，相当于净认购价0.09港元。
 
-当日开市的“美丽乡村·洽洽GO”六月市集汇聚了三十多家台湾小吃摊，摊主大多在台湾夜市设有固定摊位，这次希望用“小摊位”探一探大陆的“大市场”。
+本公司一直积极监察行业内的结构性机遇，并探索与资产管理公司及地方不良资产纾困基金合作以发挥协同效应，为盘活不良资产及困境项目提供综合解决方案，同时发展困境项目管理的专业能力。
 
-在苏明和摊位不远处，24岁的林宗延和父亲林柏均正忙着烤制香葱肉卷。
+因此，认购人A的认购是一项策略性举措，透过将本集团的房地产代建专业知识与认购人A在不良资产领域的经验及交易寻源能力相结合，促进双方合作。
 
-“去年第一次来北京，产品特别火，今年就又来了。
+凭藉此潜在战略合作伙伴关係，本集团可获得更多接触中国及香港困境项目机遇的渠道，并增强其提供增值重组及盘活服务的能力。
 
-”林宗延说，这款小吃在台湾拥有专利认证，是林家父子打开市场的“利器”。
+认购事项筹集的资金将支持本集团扩展困境房地产代建业务，并投资于技术创新，以提高其房地产代建服务的效率及生产力。
 
-如今，林家“小摊位”背后，一个“大市场”初具规模。
+因此，认购事项的投资可增强本集团的竞争地位，使其收入来源多元化，并推动长期可持续增长。
 
-林柏均在厦门、贵阳开设合作工厂，开放加盟，统一发货。
+其亦表明认购人对本集团未来发展及前景的信心。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 17:56 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 18:00 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 18:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 17:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 17:53 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 17:53 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 18:04 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 17:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 17:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 17:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 18:08 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 17:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 18:01 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 18:01 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 17:48 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 18:06 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 17:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 18:01 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 18:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 17:52 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 17:46 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 18:11 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/545384.shtml)
-- 2026-06-29 18:01 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/819721851501.shtml)
-- 2026-06-29 17:52 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/64000296.shtml)
-- 2026-06-29 17:58 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/56799045.shtml)
-- 2026-06-29 17:54 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/957004586618.shtml)
-- 2026-06-29 17:52 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/05946329.shtml)
-- 2026-06-29 17:37 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/678766.shtml)
-- 2026-06-29 17:40 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/99350723.shtml)
-- 2026-06-29 17:46 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/29509.shtml)
-- 2026-06-29 17:40 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/4743285942.shtml)
-- 2026-06-29 18:03 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/02074998339.shtml)
-- 2026-06-29 17:55 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/143913538619.shtml)
-- 2026-06-29 17:42 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/6588947337.shtml)
-- 2026-06-29 18:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/157855472860.shtml)
-- 2026-06-29 17:45 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/5567680857.shtml)
+- 2026-06-29 17:53 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/517645.shtml)
+- 2026-06-29 18:01 - [沉睡花园](https://www.blog.minike.top/Article/details/719647020.shtml)
+- 2026-06-29 17:54 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/37075880.shtml)
+- 2026-06-29 18:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/44547107995.shtml)
+- 2026-06-29 17:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/176261375.shtml)
+- 2026-06-29 18:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/51696873.shtml)
+- 2026-06-29 17:44 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/117770854.shtml)
+- 2026-06-29 18:09 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/6450691.shtml)
+- 2026-06-29 17:59 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/0117856245.shtml)
+- 2026-06-29 18:04 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/446826759671.shtml)
+- 2026-06-29 18:00 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/981413.shtml)
+- 2026-06-29 18:04 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/1944081.shtml)
+- 2026-06-29 17:47 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/810063.shtml)
+- 2026-06-29 18:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/9310691329.shtml)
+- 2026-06-29 17:52 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/309048254430.shtml)

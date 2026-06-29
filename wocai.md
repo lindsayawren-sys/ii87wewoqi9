@@ -1,54 +1,59 @@
-# 德黑兰在美伊协议中寻求关于资金获取的“充分保证”
+# （乡村行·看振兴）山西万荣：老果园改出新“钱”景 特色油桃产业铺就增收路
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-据半官方的塔斯尼姆通讯社报道，伊朗央行行长Abdolnaser Hemmati称伊方将要求在周五与美国签署和平协议后，获得“关于有效获取资金的充分保证”。 Hemmati表示，“我们已采取措施确保协议中设想的机制能够为获取和利用这些资源提供最高程度的保障”。 称协议中“明确且具备可执行性地”规定了美国释放伊朗资金的义务。 称伊朗将自行决定如何使用这些资金，“具体基于国家的需求、
+中新网运城6月22日电 (高雨晴 董巨星 李瑶艳)夏至时节，山西省万荣县高村镇薛店村的珍珠枣油桃种植基地里，红艳小巧的果实挂满枝头，即将进入集中成熟期，批量上市。作为当地近年引进的特色优新品种，珍珠枣油桃凭借糖度高、风味独特等优势，迅速打开市场，成为果农增收的新抓手。 走进果农王建堂的桃园，三年树龄的珍珠枣油桃长势喜人。他告诉记者，据估算，今年平均亩产可达5000斤左右。由于品
 
 ## 正文
 
-据半官方的塔斯尼姆通讯社报道，伊朗央行行长Abdolnaser Hemmati称伊方将要求在周五与美国签署和平协议后，获得“关于有效获取资金的充分保证”。
+中新网运城6月22日电 (高雨晴 董巨星 李瑶艳)夏至时节，山西省万荣县高村镇薛店村的珍珠枣油桃种植基地里，红艳小巧的果实挂满枝头，即将进入集中成熟期，批量上市。
 
-Hemmati表示，“我们已采取措施确保协议中设想的机制能够为获取和利用这些资源提供最高程度的保障”。
+作为当地近年引进的特色优新品种，珍珠枣油桃凭借糖度高、风味独特等优势，迅速打开市场，成为果农增收的新抓手。
 
-称协议中“明确且具备可执行性地”规定了美国释放伊朗资金的义务。
+走进果农王建堂的桃园，三年树龄的珍珠枣油桃长势喜人。
 
-称伊朗将自行决定如何使用这些资金，“具体基于国家的需求、经济状况和外汇优先事项”。
+他告诉记者，据估算，今年平均亩产可达5000斤左右。
 
-责任编辑：丁文武
+由于品质优良，市场行情向好，已有客商提前上门收购。
+
+据其介绍，珍珠枣油桃8号糖度可达15度至16度，刚采摘时果肉紧实脆爽，七分桃香混着三分枣蜜清甜，几乎无酸；放软后又呈爆汁蜜香口感，脆软两吃，辨识度很高。
+
+王建堂深耕桃果产业30余年，是当地最早尝试新品种、新技术的果农。
+
+早在20世纪90年代，王建堂便率先响应当地果业部门号召，给红富士苹果套纸袋，成为万荣县首批亩收入超万元的农户。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 17:56 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 17:48 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 18:03 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 17:54 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 17:55 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:41 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 17:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 17:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 18:03 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 17:40 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 17:45 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 18:03 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 18:01 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 17:56 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 17:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 17:57 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 18:03 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 17:46 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 18:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 17:44 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 18:10 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 17:52 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 18:07 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 17:53 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 17:54 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 17:45 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/08707481.shtml)
-- 2026-06-29 17:47 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/16637118601.shtml)
-- 2026-06-29 17:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/573390922.shtml)
-- 2026-06-29 17:58 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/8952960013.shtml)
-- 2026-06-29 17:49 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/9695425062.shtml)
-- 2026-06-29 17:39 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/692718723848.shtml)
-- 2026-06-29 17:37 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/77855590447.shtml)
-- 2026-06-29 17:40 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/658783.shtml)
-- 2026-06-29 17:51 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/802279672.shtml)
-- 2026-06-29 18:02 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/05214491.shtml)
-- 2026-06-29 17:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/45198881.shtml)
-- 2026-06-29 18:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/67622192894.shtml)
-- 2026-06-29 17:38 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/880750498.shtml)
-- 2026-06-29 18:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/3933914.shtml)
-- 2026-06-29 17:41 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/4038922131.shtml)
+- 2026-06-29 18:11 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/163784348934.shtml)
+- 2026-06-29 17:53 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/1343691900.shtml)
+- 2026-06-29 18:09 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/212604803.shtml)
+- 2026-06-29 18:04 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/7669476826.shtml)
+- 2026-06-29 17:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/6190418.shtml)
+- 2026-06-29 18:01 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/47457364.shtml)
+- 2026-06-29 18:11 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/0109803.shtml)
+- 2026-06-29 18:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/58614316080.shtml)
+- 2026-06-29 17:44 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/981287288.shtml)
+- 2026-06-29 18:07 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/4545141.shtml)
+- 2026-06-29 17:45 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/1086577.shtml)
+- 2026-06-29 18:02 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/0157613668.shtml)
+- 2026-06-29 18:06 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/43916221745.shtml)
+- 2026-06-29 17:48 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/896647523.shtml)
+- 2026-06-29 17:47 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/75571126.shtml)

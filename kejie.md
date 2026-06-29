@@ -1,61 +1,53 @@
-# 山西千年壁画，启示何在？
+# 建设银行发行300亿元无固定期限资本债
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。 现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？如何挑战传统历史叙事？ 王志俊：最具代表
+来源：今日建行 近日，中国建设银行完成2026年第一期无固定期限资本债券（以下简称“永续债”）发行工作。本期永续债发行规模为300亿元，基础发行规模200亿元，超额增发100亿元，期限为5+N年期，票面利率1.92%，全场倍数2.4倍。 本次永续债在成本可控前提下合理平衡发行规模与价格，精准匹配市场投资需求。本次募集资金将用于补充其他一级资本，有助于我行持续巩固多层次资本实力、
 
 ## 正文
 
-中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。
+来源：今日建行 近日，中国建设银行完成2026年第一期无固定期限资本债券（以下简称“永续债”）发行工作。
 
-从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。
+本期永续债发行规模为300亿元，基础发行规模200亿元，超额增发100亿元，期限为5+N年期，票面利率1.92%，全场倍数2.4倍。
 
-近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。
+本次永续债在成本可控前提下合理平衡发行规模与价格，精准匹配市场投资需求。
 
-现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？
+本次募集资金将用于补充其他一级资本，有助于我行持续巩固多层次资本实力、夯实发展底盘，为国家重点领域金融服务提供长效资本保障。
 
-如何挑战传统历史叙事？
-
-王志俊：最具代表性的场景，当属山西忻州九原岗北朝壁画墓的墓道壁画。
-
-西壁是气势恢宏的《狩猎图》：骑士策马奔腾，弯弓射猎，队伍中可见深目高鼻的中亚人形象与身着鲜卑服饰者共同驰骋，充满草原“尚武”精神。
-
-然而，仅一壁之隔的北壁，却绘有一座结构严谨、斗拱清晰的汉式庑殿顶门楼，代表着中原高度的礼制建筑成就。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 17:55 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 17:36 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 18:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 17:36 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 17:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 17:44 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 18:04 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 17:52 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 17:52 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 18:04 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 18:03 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 17:44 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 17:59 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 17:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 18:00 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 17:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 18:02 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 17:42 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 18:01 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 17:51 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 17:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 17:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 17:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 17:59 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 17:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 18:11 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 18:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 17:59 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/5722295907.shtml)
-- 2026-06-29 17:51 - [机器人学校开学了](http://www.share.minike.top/Article/details/180707215552.shtml)
-- 2026-06-29 17:47 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/730320531.shtml)
-- 2026-06-29 17:39 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/633672.shtml)
-- 2026-06-29 17:57 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/8989238189.shtml)
-- 2026-06-29 17:40 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/50079133820.shtml)
-- 2026-06-29 18:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/82797.shtml)
-- 2026-06-29 18:01 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/960526.shtml)
-- 2026-06-29 18:00 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/208060058020.shtml)
-- 2026-06-29 18:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/58725283.shtml)
-- 2026-06-29 17:49 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/292028105955.shtml)
-- 2026-06-29 17:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/06528.shtml)
-- 2026-06-29 17:56 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/9654076093.shtml)
-- 2026-06-29 17:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/68686.shtml)
-- 2026-06-29 17:47 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/5228766649.shtml)
+- 2026-06-29 17:57 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/764773499170.shtml)
+- 2026-06-29 18:02 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/90857.shtml)
+- 2026-06-29 17:58 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/912344190.shtml)
+- 2026-06-29 17:52 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/95257930540.shtml)
+- 2026-06-29 17:48 - [一见倾心](http://www.share.kurohicncr.top/Article/details/6064496367.shtml)
+- 2026-06-29 17:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/0979300.shtml)
+- 2026-06-29 18:05 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/44458323795.shtml)
+- 2026-06-29 18:09 - [绘画区你赢了](https://www.share.minike.top/Article/details/478116098.shtml)
+- 2026-06-29 17:45 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/35105.shtml)
+- 2026-06-29 17:48 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/601993600752.shtml)
+- 2026-06-29 17:54 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/6266652722.shtml)
+- 2026-06-29 17:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/2593185.shtml)
+- 2026-06-29 17:59 - [啊啊啊](http://www.share.minike.top/Article/details/66390995275.shtml)
+- 2026-06-29 17:43 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/36700432004.shtml)
+- 2026-06-29 17:59 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/423693327949.shtml)

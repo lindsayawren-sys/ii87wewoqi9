@@ -1,58 +1,55 @@
-# 重庆市小面协会就渝见小面被诉发声：不支持单一企业独家垄断重庆小面
+# 美、伊、巴三方谈判代表均已抵达瑞士
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电(记者 左雨晴) 针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。 协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。重庆小面是承载巴渝
+当地时间21日，综合多方消息，伊朗谈判代表团、美国副总统万斯、巴基斯坦总理等三方代表均已抵达瑞士，准备开启技术性谈判。 △瑞士外交部发布的美国代表团车队照片 瑞士外交部在社交媒体上表示，美国代表团正在前往比尔根山的途中。 根据此前消息，万斯称美伊谈判重点为核问题与黎巴嫩停火；伊朗官员表示，结束黎巴嫩冲突是伊朗代表团此次议程中最重要的事项。 当地时间6月20日，巴基斯坦外交部宣布
 
 ## 正文
 
-中新网6月16日电(记者 左雨晴) 针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。
+当地时间21日，综合多方消息，伊朗谈判代表团、美国副总统万斯、巴基斯坦总理等三方代表均已抵达瑞士，准备开启技术性谈判。
 
-协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。
+△瑞士外交部发布的美国代表团车队照片 瑞士外交部在社交媒体上表示，美国代表团正在前往比尔根山的途中。
 
-重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业从业者，倡导全行业共享，不支持单一企业独家垄断。
+根据此前消息，万斯称美伊谈判重点为核问题与黎巴嫩停火；伊朗官员表示，结束黎巴嫩冲突是伊朗代表团此次议程中最重要的事项。
 
-协会还呼吁明晰法律适用边界。
+当地时间6月20日，巴基斯坦外交部宣布，根据美伊谅解备忘录的后续安排，技术层级会谈将于21日在瑞士举行。
 
-一方面甄别恶意侵权、仿冒品牌等行为，另一方面认可小微商户对地域文化符号、品类名称的正常使用，兼顾品牌方知识产权与小微经营主体的合法权益。
+本次谈判地点在比尔根山度假村，由巴基斯坦、卡塔尔、美国和伊朗共同提议。
 
-协会网站显示，重庆市小面协会成立于2015年，是一家非营利性且有法人资格的社会民间团体。
-
-(完)
+（总台记者 易歆） 责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 17:44 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 17:36 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 17:57 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 17:48 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 17:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:52 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 17:46 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 17:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 17:54 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 17:54 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 18:00 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 17:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 17:39 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 17:58 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 17:44 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 18:05 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 17:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 18:04 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 18:11 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 17:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 18:09 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 17:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 17:47 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:55 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:01 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/856809.shtml)
-- 2026-06-29 17:52 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/0664403.shtml)
-- 2026-06-29 17:49 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/3711268.shtml)
-- 2026-06-29 17:49 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/11529388.shtml)
-- 2026-06-29 17:38 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/314367515.shtml)
-- 2026-06-29 17:45 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/05298.shtml)
-- 2026-06-29 17:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/24471.shtml)
-- 2026-06-29 17:55 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/15183325300.shtml)
-- 2026-06-29 17:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/380952.shtml)
-- 2026-06-29 17:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/38630129520.shtml)
-- 2026-06-29 17:43 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/250817459050.shtml)
-- 2026-06-29 17:58 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/9894649.shtml)
-- 2026-06-29 18:03 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/078676780.shtml)
-- 2026-06-29 17:47 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/665321984300.shtml)
-- 2026-06-29 17:48 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/80743611.shtml)
+- 2026-06-29 17:57 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/551502966371.shtml)
+- 2026-06-29 18:11 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/2040602.shtml)
+- 2026-06-29 17:54 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/5287529.shtml)
+- 2026-06-29 18:10 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/334846631.shtml)
+- 2026-06-29 17:57 - [TTG KSG](https://www.share.minike.top/Article/details/41443.shtml)
+- 2026-06-29 18:06 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/46167020.shtml)
+- 2026-06-29 17:45 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/16320297.shtml)
+- 2026-06-29 17:57 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/15775.shtml)
+- 2026-06-29 17:50 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/952571387067.shtml)
+- 2026-06-29 17:56 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/847640.shtml)
+- 2026-06-29 17:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/590308759.shtml)
+- 2026-06-29 17:46 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3172669.shtml)
+- 2026-06-29 17:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/91934569513.shtml)
+- 2026-06-29 18:09 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/443933.shtml)
+- 2026-06-29 17:53 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/7836132838.shtml)

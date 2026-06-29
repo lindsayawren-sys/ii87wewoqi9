@@ -1,51 +1,59 @@
-# 西藏江孜氆氇织就致富路 雪域非遗走向国际舞台
+# 伊朗总统：不会制造核武器 不会放弃铀浓缩权利
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 11:15 来源：中国新闻网 6月15日，西藏日喀则市江孜县阿佳格桑氆氇农民专业合作社内，手工艺人正赶工编织藏毯、氆氇。合作社从最初5名妇女发展至20人，带动16名民众就近就业，培育12名当地手工艺骨干，2025年实现净利润30万元人民币，兼顾非遗传承与民众增收。 此外，合作社连续两年携氆氇产品亮相巴黎国际家居装饰艺术展、第79届联合国大会午宴
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月21日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社21日报道，伊朗总统佩泽希齐扬重申伊朗不会放弃铀浓缩的权利，并强调伊朗“明确表示不会制造原子弹”。 佩泽希齐扬表示，美国想确保伊朗不制造核武器，而多年来伊朗也无意制造核武器，“但有一点是明确的，伊朗绝不会放弃铀浓缩权利，美国也不得不接受这一点
 
 ## 正文
 
-发布时间：2026年06月16日 11:15 来源：中国新闻网 6月15日，西藏日喀则市江孜县阿佳格桑氆氇农民专业合作社内，手工艺人正赶工编织藏毯、氆氇。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-合作社从最初5名妇女发展至20人，带动16名民众就近就业，培育12名当地手工艺骨干，2025年实现净利润30万元人民币，兼顾非遗传承与民众增收。
+新华社德黑兰6月21日电（记者沙达提陈霄）据伊朗伊斯兰共和国通讯社21日报道，伊朗总统佩泽希齐扬重申伊朗不会放弃铀浓缩的权利，并强调伊朗“明确表示不会制造原子弹”。
 
-此外，合作社连续两年携氆氇产品亮相巴黎国际家居装饰艺术展、第79届联合国大会午宴，入驻海外高端商场，让高原传统手工艺走出雪域，在国际舞台绽放独特光彩。
+佩泽希齐扬表示，美国想确保伊朗不制造核武器，而多年来伊朗也无意制造核武器，“但有一点是明确的，伊朗绝不会放弃铀浓缩权利，美国也不得不接受这一点”。
 
-(贡嘎来松 制作 王嘉怡） 责任编辑：【罗攀】
+佩泽希齐扬说，伊朗与美国之间的谅解条款总体有利于伊朗人民。
+
+随着伊美谈判的启动，伊朗在卡塔尔持有的60亿美元资金将获解冻。
+
+伊朗中央银行行长赫马提参与相关谈判，旨在明确这些资金的投向领域。
+
+佩泽希齐扬表示，伊朗最高领袖已授权政府继续推进伊美谈判，所有人必须团结一致、共同建设伊朗。
+
+他说，仍有个人或政治力量不愿看到局势恢复平静，企图破坏伊朗国家内部团结，必须保持警惕，避免分裂内讧。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 17:59 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 17:45 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 17:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 17:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 17:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 17:51 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 17:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 17:44 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 17:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 18:04 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 18:03 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 17:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 18:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 18:03 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 17:52 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 18:02 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 17:50 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 17:43 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 17:46 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 18:09 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 18:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 17:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 17:48 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 17:57 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 17:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:56 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/13686.shtml)
-- 2026-06-29 18:04 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/6647003678.shtml)
-- 2026-06-29 17:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/796498637461.shtml)
-- 2026-06-29 17:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/79630434527.shtml)
-- 2026-06-29 17:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/38560752649.shtml)
-- 2026-06-29 17:44 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/3506326763.shtml)
-- 2026-06-29 17:37 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/5003454.shtml)
-- 2026-06-29 17:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/917520641995.shtml)
-- 2026-06-29 17:38 - [起风了](https://www.share.kurohicncr.top/Article/details/88866413.shtml)
-- 2026-06-29 18:00 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/75309675711.shtml)
-- 2026-06-29 17:59 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/3331074.shtml)
-- 2026-06-29 17:48 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/994772843360.shtml)
-- 2026-06-29 17:59 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/5264961.shtml)
-- 2026-06-29 17:40 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/19397.shtml)
-- 2026-06-29 17:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/0074457666.shtml)
+- 2026-06-29 17:46 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/1476995.shtml)
+- 2026-06-29 17:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/312204389.shtml)
+- 2026-06-29 18:08 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/84198062.shtml)
+- 2026-06-29 17:55 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/8754016.shtml)
+- 2026-06-29 17:54 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/5344494791.shtml)
+- 2026-06-29 17:43 - [斗破苍穹](https://www.blog.minike.top/Article/details/5526303.shtml)
+- 2026-06-29 18:03 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/70532.shtml)
+- 2026-06-29 17:43 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/189450517109.shtml)
+- 2026-06-29 18:01 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/47981217557.shtml)
+- 2026-06-29 17:50 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/1929700748.shtml)
+- 2026-06-29 17:42 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/3136530103.shtml)
+- 2026-06-29 17:47 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/90020850.shtml)
+- 2026-06-29 18:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/092417.shtml)
+- 2026-06-29 17:45 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/991503521.shtml)
+- 2026-06-29 17:54 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/1545976.shtml)

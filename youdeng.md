@@ -1,61 +1,56 @@
-# 四维材料冲刺北交所：招股书出现低级信披错误 产能计算准确性待考
+# 拨康视云-B拟向Abraham Dominguez Cinta发行认购股份
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，东莞四维材料科技股份有限公司（下称“四维材料”）北交所上市申请获受理，东莞证券保荐。 四维材料核心产品是定制铝板，报告期内收入占比皆超过了86%，但该产品的国内市占率连续下降，由2023年的2.42%降至2025年的1.75%。更重要的是，四维
+拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。 据悉，ARC Group International Limited
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 近日，东莞四维材料科技股份有限公司（下称“四维材料”）北交所上市申请获受理，东莞证券保荐。
+据悉，ARC Group International Limited是一间于香港注册成立的有限责任公司，为ARC Group Limited的直接全资附属公司。
 
-四维材料核心产品是定制铝板，报告期内收入占比皆超过了86%，但该产品的国内市占率连续下降，由2023年的2.42%降至2025年的1.75%。
+ARC Group Limited是一间深根于亚洲的全球金融服务及顾问公司，十多年来在投资银行、资产管理、财富管理及管理注询等领域表现卓越。
 
-更重要的是，四维材料的毛利率较低，尤其是研发费用率远低于同行可比公司均值。
+投资者的最终实益拥有人为Abraham Dominguez Cinta先生。
 
-在“双低”背后，四维材料原材料在主营业务成本中的占比超过95%，公司对前五大供应商的依赖程度超88%，对第一大供应商的依赖程度超50%，成本控制能力较弱。
+董事认为，认购事项乃透过减少本集团的负债、提供额外营运资金以应对未来发展及履行义务，以及扩大股东基础，从而强化本集团的财务状况的机会。
 
-此次IPO，四维材料计划募资不超过3.26亿元，2.7亿元用于扩产，但公司产能利用率2025年降至80%。
+本公司已探讨多个筹资方案，并认为于本公告日期，认购事项是本公司进一步支持本集团持续发展及业务增长的最合适且最高效的融资选择。
 
-假如按照其他口径（完全达产后）计算，公司2025年的产能利用率可能在60%左右，更不支持扩产逻辑。
+董事认为，股份认购协议乃参考市场状况及现行市场而厘定，并由本公司与投资者按公平基准及一般商业条款订立，且该协议的条款（包括但不限于认购价及承诺费）属公平合理，并符合本公司及股东的整体利益。
 
-核心产品市占率连年下降 招股书显示，四维材料主要从事定制工业材料的加工和销售，主要产品为定制铝件，为客户提供定制加工、现货仓储、物流配送、选材咨询等一站式服务。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 17:54 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 17:37 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 17:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 18:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 17:42 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 17:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 18:00 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 17:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:51 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 17:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 17:37 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 17:49 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 17:41 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 17:50 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:51 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 17:55 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 18:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 18:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 17:43 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 17:46 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 17:48 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 17:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:48 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/68733429.shtml)
-- 2026-06-29 17:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/709984.shtml)
-- 2026-06-29 18:03 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/032907047.shtml)
-- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/976407337592.shtml)
-- 2026-06-29 17:57 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/07341079703.shtml)
-- 2026-06-29 17:53 - [爱很美味](http://www.blog.minike.top/Article/details/2134132.shtml)
-- 2026-06-29 17:57 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/38251327.shtml)
-- 2026-06-29 17:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/98478735082.shtml)
-- 2026-06-29 18:05 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/74878106.shtml)
-- 2026-06-29 18:05 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/2657883984.shtml)
-- 2026-06-29 17:56 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/09243755671.shtml)
-- 2026-06-29 17:36 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/2610342429.shtml)
-- 2026-06-29 17:54 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/0668735.shtml)
-- 2026-06-29 17:50 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/809507.shtml)
-- 2026-06-29 17:49 - [叠纸](http://www.blog.kurohicncr.top/Article/details/11611.shtml)
+- 2026-06-29 17:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/5110504455.shtml)
+- 2026-06-29 18:05 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/80330824034.shtml)
+- 2026-06-29 17:49 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/027523371097.shtml)
+- 2026-06-29 17:43 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/970641510641.shtml)
+- 2026-06-29 18:08 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/8086458025.shtml)
+- 2026-06-29 17:53 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/6603285878.shtml)
+- 2026-06-29 18:04 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/30881609180.shtml)
+- 2026-06-29 18:11 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/58199176.shtml)
+- 2026-06-29 17:55 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/57675.shtml)
+- 2026-06-29 17:59 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/742618442011.shtml)
+- 2026-06-29 18:04 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/64926235.shtml)
+- 2026-06-29 17:56 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/736219191.shtml)
+- 2026-06-29 17:44 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/0451427599.shtml)
+- 2026-06-29 17:58 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/826373.shtml)
+- 2026-06-29 17:44 - [这一刀 会很帅](https://www.share.minike.top/Article/details/07458.shtml)

@@ -1,55 +1,60 @@
-# 韩国KOSPI指数收盘上涨2.1%
+# 大宗商品综述：油价下挫 铜价上涨 金价走高
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-韩国股市周二续涨，追随美伊和平协议推动的隔夜美股涨势。韩国KOSPI指数收盘上涨2.1%，报8726.60点。 华尔街股市周一上涨，纳斯达克指数攀升3%，道指创下收盘历史新高，因美伊达成初步协议以结束中东战争以及重新开放霍尔木兹海峡；油价下跌，通胀担忧缓解。“积极消息在昨日的涨幅中已得到一定程度的反映，”Kiwoom证券分析师Han Ji-young表示。责任编辑：王永生
+油价下挫，美国放松对伊朗的石油制裁提振了供应预期。伦铜上涨，中东紧张局势降温有助于改善需求前景。美伊谈判进展缓解能源与通胀忧虑，金价走高。 原油：油价下挫 美国放松对伊石油制裁提振供应预期 油价下跌，因为有迹象显示美伊和谈取得进展，包括美国发布豁免允许部分伊朗石油销售，提振了市场对波斯湾石油供应持续恢复的希望。 布伦特下跌约3%，收于每桶78美元下方；交投更为活跃的8月WTI合
 
 ## 正文
 
-韩国股市周二续涨，追随美伊和平协议推动的隔夜美股涨势。
+油价下挫，美国放松对伊朗的石油制裁提振了供应预期。
 
-韩国KOSPI指数收盘上涨2.1%，报8726.60点。
+伦铜上涨，中东紧张局势降温有助于改善需求前景。
 
-华尔街股市周一上涨，纳斯达克指数攀升3%，道指创下收盘历史新高，因美伊达成初步协议以结束中东战争以及重新开放霍尔木兹海峡；油价下跌，通胀担忧缓解。
+美伊谈判进展缓解能源与通胀忧虑，金价走高。
 
-“积极消息在昨日的涨幅中已得到一定程度的反映，”Kiwoom证券分析师Han Ji-young表示。
+原油：油价下挫 美国放松对伊石油制裁提振供应预期 油价下跌，因为有迹象显示美伊和谈取得进展，包括美国发布豁免允许部分伊朗石油销售，提振了市场对波斯湾石油供应持续恢复的希望。
 
-责任编辑：王永生
+布伦特下跌约3%，收于每桶78美元下方；交投更为活跃的8月WTI合约收于每桶74美元下方。
+
+美国发布了一项为期60天的许可，允许伊朗销售部分原油和石油产品，并表示瑞士会谈“富有成效”。
+
+此举将为德黑兰提供经济支撑，并有助于销售过去一周从伊朗运往亚洲的逾3000万桶原油。
+
+尽管谈判一开始进展并不顺利，但霍尔木兹海峡整体通行量也有所增加。
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:55 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 18:02 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 17:55 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 18:04 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 17:38 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 18:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 17:59 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:49 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 17:52 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:58 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 18:02 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 17:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 17:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 18:01 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 18:00 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 17:59 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 17:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 18:04 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 18:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 17:43 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 18:09 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 17:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 17:44 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 18:08 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 17:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 18:06 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 18:01 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/3311091.shtml)
-- 2026-06-29 17:49 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/75714863817.shtml)
-- 2026-06-29 17:53 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/839080.shtml)
-- 2026-06-29 17:49 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/969920898.shtml)
-- 2026-06-29 18:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/018283.shtml)
-- 2026-06-29 18:04 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/4408739.shtml)
-- 2026-06-29 17:43 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/644263008976.shtml)
-- 2026-06-29 17:40 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/312871.shtml)
-- 2026-06-29 17:49 - [V8](https://www.share.minike.top/Article/details/25555289744.shtml)
-- 2026-06-29 18:02 - [当我回母校教书](https://www.blog.minike.top/Article/details/97509361.shtml)
-- 2026-06-29 18:03 - [花万元相亲对象是50元雇的演员](https://www.share.kurohicncr.top/Article/details/69889665783.shtml)
-- 2026-06-29 17:40 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/50654517.shtml)
-- 2026-06-29 17:57 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/7891377280.shtml)
-- 2026-06-29 18:04 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/84786445.shtml)
-- 2026-06-29 17:55 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/16967037649.shtml)
+- 2026-06-29 17:55 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/88438.shtml)
+- 2026-06-29 17:50 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/0923772.shtml)
+- 2026-06-29 17:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/237612.shtml)
+- 2026-06-29 17:54 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/557044026838.shtml)
+- 2026-06-29 18:04 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/542624555.shtml)
+- 2026-06-29 17:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/92357969.shtml)
+- 2026-06-29 18:02 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0880401941.shtml)
+- 2026-06-29 17:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/68014.shtml)
+- 2026-06-29 18:01 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/47686892.shtml)
+- 2026-06-29 18:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/1612256245.shtml)
+- 2026-06-29 17:49 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/406119094855.shtml)
+- 2026-06-29 18:00 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/890754.shtml)
+- 2026-06-29 18:11 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/45074416626.shtml)
+- 2026-06-29 18:02 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/3541536.shtml)
+- 2026-06-29 17:44 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/2466138735.shtml)

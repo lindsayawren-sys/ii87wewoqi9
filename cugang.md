@@ -1,47 +1,48 @@
-# 浙江义乌“端午系产品”畅销海内外 宋锦元素成就爆款
+# 建滔积层板遭Kingboard Investments Limited减持1.55亿股 每股作价76港元
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。(董易鑫 刘富城 宋继添） 责任编辑：【李季】
+香港联交所最新资料显示，6月17日，Kingboard Investments Limited减持建滔积层板（01888）1.55亿股，每股作价76港元，总金额为117.8亿港元。减持后最新持股数目约为1.59亿股，最新持股比例为5.05%。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月16日 18:52 来源：中国新闻网 临近端午节，位于浙江的义乌国际商贸城相关产品销售火爆，五彩绳、香囊等传统时令好物走俏。
+香港联交所最新资料显示，6月17日，Kingboard Investments Limited减持建滔积层板（01888）1.55亿股，每股作价76港元，总金额为117.8亿港元。
 
-据悉，当地今年多款端午产品融入国潮元素，特别是融入入选第一批国家级非物质文化遗产名录——宋锦织造技艺的相关产品成为爆款。
+减持后最新持股数目约为1.59亿股，最新持股比例为5.05%。
 
-(董易鑫 刘富城 宋继添） 责任编辑：【李季】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:04 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:41 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 17:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 18:02 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 17:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 17:52 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 17:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 17:54 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 18:01 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 18:04 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 17:45 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 18:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 18:08 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 17:42 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 17:59 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 18:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 18:11 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 17:58 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 17:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 17:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 17:56 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 18:08 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:58 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/8114655188.shtml)
-- 2026-06-29 17:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/512360424641.shtml)
-- 2026-06-29 17:37 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/68009866.shtml)
-- 2026-06-29 17:49 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/55274949.shtml)
-- 2026-06-29 17:37 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/0297212.shtml)
-- 2026-06-29 17:40 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/495556.shtml)
-- 2026-06-29 17:51 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/75033153976.shtml)
-- 2026-06-29 17:50 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/9882371.shtml)
-- 2026-06-29 17:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/24155.shtml)
-- 2026-06-29 17:44 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/41412782.shtml)
-- 2026-06-29 17:47 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/39137.shtml)
-- 2026-06-29 17:57 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/41708547.shtml)
-- 2026-06-29 17:39 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/33097032502.shtml)
-- 2026-06-29 17:36 - [王俊凯命名方式](http://www.share.minike.top/Article/details/55447.shtml)
-- 2026-06-29 17:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/10992.shtml)
+- 2026-06-29 17:42 - [第一炉香](http://www.share.kurohicncr.top/Article/details/9403874879.shtml)
+- 2026-06-29 18:03 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/442285238.shtml)
+- 2026-06-29 18:01 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/32818373854.shtml)
+- 2026-06-29 18:11 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/128373540486.shtml)
+- 2026-06-29 18:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/8081853900.shtml)
+- 2026-06-29 18:05 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/9633406010.shtml)
+- 2026-06-29 17:55 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/69612657518.shtml)
+- 2026-06-29 17:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/4281549.shtml)
+- 2026-06-29 17:55 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/50918508.shtml)
+- 2026-06-29 17:50 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/211537761.shtml)
+- 2026-06-29 18:07 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/701090064.shtml)
+- 2026-06-29 18:11 - [花万元相亲对象是50元雇的演员](https://www.blog.kurohicncr.top/Article/details/2295456736.shtml)
+- 2026-06-29 18:02 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/28971572691.shtml)
+- 2026-06-29 18:03 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/5158906845.shtml)
+- 2026-06-29 17:53 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/38767492.shtml)

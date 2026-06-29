@@ -1,58 +1,56 @@
-# 山西大同直飞首尔仁川航线即将复航 畅通晋韩双向文旅交流通道
+# 恒润股份（603985）股票操纵索赔案再提交法院立案，凯撒旅业（000796）索赔案股民申报债权
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网太原6月15日电 (刘小红)记者15日从山西宝华国旅获悉，大同直飞首尔仁川国际航线将于7月9日正式复航。此次复航恰逢暑期旅游旺季，将深度激活两地双向客流，拓宽山西对外开放空中航线通道。 此次复航航线固定每周执飞两班，班期为周四、周日，单程飞行时长约2.5小时，所有航班时刻均参照当地时间执行。每周四，ZE8262航班16:00从大同起飞，19:10抵达仁川；ZE8261返程
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。 许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律
 
 ## 正文
 
-中新网太原6月15日电 (刘小红)记者15日从山西宝华国旅获悉，大同直飞首尔仁川国际航线将于7月9日正式复航。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月18日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。
 
-此次复航恰逢暑期旅游旺季，将深度激活两地双向客流，拓宽山西对外开放空中航线通道。
+许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-此次复航航线固定每周执飞两班，班期为周四、周日，单程飞行时长约2.5小时，所有航班时刻均参照当地时间执行。
+（许峰律师专栏） 2024年12月6日，证监会对江阴市恒润重工股份有限公司第二大股东、法定代表人、董事长承立新等作出行政处罚。
 
-每周四，ZE8262航班16:00从大同起飞，19:10抵达仁川；ZE8261返程航班13:30从仁川起飞，15:00抵达大同。
+经查明，承立新、丁键、张亚洲存在以下违法事实： 一、承立新、丁键和张亚洲商议合谋操纵股价。
 
-每周日，ZE8262航班18:00从大同起飞，21:15抵达仁川；ZE8261返程航班15:40从仁川起飞，17:00抵达大同。
+二、承立新、丁键和张亚洲合谋操纵股价过程 （一）承立新以他人名义代持“恒润股份” 承立新计划在2023年卖出“恒润股份”股票，2023年7月16日，承立新与阮某签订《代持协议书》，以某私募产品受让上述24，952，563股“恒润股份”。
 
-当前，中国对韩国游客实施单方面免签政策。
+（二）承立新、丁键和张亚洲信息发布情况 2023年7月29日至11月8日，承立新、丁键、张亚洲等人操控上市公司发布4份利好信息，拉抬“恒润股份”股价。
 
-持普通护照的韩国游客可免签入境，停留时长不超过15天。
+上述期间，“恒润股份”股价上涨96.65%，同期上证指数下跌6.86%，偏离103.51%，中证风电产业指数下跌10.30%，偏离106.95%，“恒润股份”股价涨幅明显优于同期上证指数和行业指数。
 
-免签政策叠加直飞航线优势，降低韩国游客入境出行门槛，扩大山西文旅资源的东北亚辐射范围，稳定入境游客源市场。
+（三）丁键控制使用相关证券账户维持“恒润股份”股价 许峰律师认为，在2023年7月10日到12月27日期间交易恒润股份股票而受损的投资者，目前已可发起索赔，最终索赔条件法院依法认定。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 17:57 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 17:51 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:44 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 18:05 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 17:53 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 18:05 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 18:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 18:00 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 18:00 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 18:01 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 17:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:49 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 18:09 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 17:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 18:10 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 18:05 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 18:06 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 17:49 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 17:44 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 17:56 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/02510.shtml)
-- 2026-06-29 17:56 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/956673.shtml)
-- 2026-06-29 17:51 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/847960280.shtml)
-- 2026-06-29 17:48 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/09724.shtml)
-- 2026-06-29 17:44 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/45829819.shtml)
-- 2026-06-29 17:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/54972724119.shtml)
-- 2026-06-29 17:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/77383826728.shtml)
-- 2026-06-29 17:45 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/858494475574.shtml)
-- 2026-06-29 17:54 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/88293.shtml)
-- 2026-06-29 17:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/0066425490.shtml)
-- 2026-06-29 17:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/33136298.shtml)
-- 2026-06-29 17:40 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/925988386.shtml)
-- 2026-06-29 17:58 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/279217990643.shtml)
-- 2026-06-29 17:45 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/73961.shtml)
-- 2026-06-29 17:58 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/080851.shtml)
+- 2026-06-29 17:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/682487.shtml)
+- 2026-06-29 17:54 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/9221630447.shtml)
+- 2026-06-29 17:49 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/9327317.shtml)
+- 2026-06-29 17:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/8762388924.shtml)
+- 2026-06-29 18:06 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/084211855010.shtml)
+- 2026-06-29 17:55 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/903322.shtml)
+- 2026-06-29 18:03 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/60869773.shtml)
+- 2026-06-29 18:11 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/274851760193.shtml)
+- 2026-06-29 17:50 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/834510.shtml)
+- 2026-06-29 17:46 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/5359401526.shtml)
+- 2026-06-29 17:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/76464181170.shtml)
+- 2026-06-29 18:01 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/2959720060.shtml)
+- 2026-06-29 18:04 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/038883.shtml)
+- 2026-06-29 18:03 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/8326116015.shtml)
+- 2026-06-29 18:10 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/857020018.shtml)

@@ -1,56 +1,58 @@
-# 光大期货0615黄金点评：本周关注美联储议息会议，谨慎对待黄金波动
+# 全球黑色星期二！AI交易“崩盘”，原因找到了
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-上周黄金波动加剧，伦敦现货周内跌幅超过2%，SHFE黄金周跌超3%。本周为超级央行周，全球主要央行将召开议息会议，重点关注美联储议息会议，季度点阵图调整以及会后沃什首秀是关键；另外美伊协议谈判取得关键进展，14日晚双方完成《伊斯兰堡谅解备忘录》谈判，伊朗于15日凌晨确认，后续将于19日举办签字仪式，周一早盘国际油价大幅低开，现货黄金高开超1%，若通胀预期缓解，黄金关注底部支撑。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】AI交易为何“崩盘”？ 中国基金报记者 泰勒 大家，你们今天还好吗？！ AI交易在全球范围内遭遇了黑色星期二，无论是日韩，还是美股期货，以及A股的相关板块，都在暴跌！ 一起找找原因吧。 “存为王”的韩国股市，指数几乎是跌停收盘，创3月4日以来最大单日跌幅。权重股方面，SK海力士下跌
 
 ## 正文
 
-上周黄金波动加剧，伦敦现货周内跌幅超过2%，SHFE黄金周跌超3%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本周为超级央行周，全球主要央行将召开议息会议，重点关注美联储议息会议，季度点阵图调整以及会后沃什首秀是关键；另外美伊协议谈判取得关键进展，14日晚双方完成《伊斯兰堡谅解备忘录》谈判，伊朗于15日凌晨确认，后续将于19日举办签字仪式，周一早盘国际油价大幅低开，现货黄金高开超1%，若通胀预期缓解，黄金关注底部支撑。
+来源：中国基金报 【导读】AI交易为何“崩盘”？
 
-宏观方面。
+中国基金报记者 泰勒 大家，你们今天还好吗？
 
-美国5月CPI同比攀升至4.2%，符合预期，但创2023年4月以来新高，较4月的3.8%显著回升，核心CPI同比2.9%同样符合预期。
+！
 
-5月PPI同比升至6.5%，超预期6.4%，环比0.7%，核心PPI同比5.4%，生产端通胀压力持续扩散。
+AI交易在全球范围内遭遇了黑色星期二，无论是日韩，还是美股期货，以及A股的相关板块，都在暴跌！
 
-6月密歇根大学消费者信心指数初值从5月创纪录低点44.8回升至48.9，高于市场预期的46，但一年期通胀预期仍高达4.6%，家庭对经济前景依然悲观。
+一起找找原因吧。
 
-全球央行方面，欧洲央行于6月11日宣布加息25个基点，全球主要央行对抗通胀形成紧缩共振。
+“存为王”的韩国股市，指数几乎是跌停收盘，创3月4日以来最大单日跌幅。
 
-地缘政治方面，美伊协议谈判取得关键进展，15日双方完成《伊斯兰堡谅解备忘录》最终谈判，将于6月19日在瑞士举办签字仪式，另外以色列空袭黎巴嫩首都贝鲁特，美方表示不利于协议达成。
+权重股方面，SK海力士下跌12.47%，三星电子下跌12.31%。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 17:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 18:05 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 17:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:50 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 17:40 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 17:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 17:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 17:54 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 17:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 17:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:45 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 18:09 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 18:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 18:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 18:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 17:56 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 18:06 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:59 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/75034365538.shtml)
-- 2026-06-29 17:38 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/8881596.shtml)
-- 2026-06-29 17:39 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/033214.shtml)
-- 2026-06-29 17:45 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/6814368341.shtml)
-- 2026-06-29 18:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/33395.shtml)
-- 2026-06-29 18:04 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/77289.shtml)
-- 2026-06-29 17:55 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/97353694.shtml)
-- 2026-06-29 17:53 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/0100165348.shtml)
-- 2026-06-29 17:40 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/796062.shtml)
-- 2026-06-29 18:01 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/67945640650.shtml)
-- 2026-06-29 18:04 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/8334652902.shtml)
-- 2026-06-29 17:48 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/1842599412.shtml)
-- 2026-06-29 17:50 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/153216335177.shtml)
-- 2026-06-29 18:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/449032.shtml)
-- 2026-06-29 17:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/69529.shtml)
+- 2026-06-29 17:54 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/6130922.shtml)
+- 2026-06-29 17:48 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/94689473311.shtml)
+- 2026-06-29 17:59 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/6939721500.shtml)
+- 2026-06-29 18:06 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/04615.shtml)
+- 2026-06-29 18:05 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/34065457.shtml)
+- 2026-06-29 18:00 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/76927.shtml)
+- 2026-06-29 17:53 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/73422155.shtml)
+- 2026-06-29 17:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/310265466526.shtml)
+- 2026-06-29 17:43 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/7676488942.shtml)
+- 2026-06-29 18:08 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/25747026.shtml)
+- 2026-06-29 17:51 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/926523.shtml)
+- 2026-06-29 18:03 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/09793542.shtml)
+- 2026-06-29 17:59 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/347036.shtml)
+- 2026-06-29 17:48 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/05218.shtml)
+- 2026-06-29 17:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/06728011329.shtml)

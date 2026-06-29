@@ -1,56 +1,57 @@
-# 谁说矿山只有灰？河北赞皇藏着一座开满紫色花海的“矿山公园”
+# 5连阳+创新高后，首度回调？资金加速布局！电子ETF华宝（515260）两日吸金9228万元！MACD提示关键信号！
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网石家庄6月16日电 (杨宏伟)初夏时节，“2026媒体走金隅”调研活动走进河北省石家庄市。作为传统高耗能建材行业，金隅冀东水泥石家庄区域锚定绿色低碳转型方向，依托矿山生态修复、布局光伏绿能、水泥窑协同处置固废等多元举措，走出一条“生态优先、绿色发展”的产业新路径。 走进赞皇金隅公司石灰石矿，全然不见传统矿山尘土飞扬的刻板模样，而是成片淡紫色苜蓿花海随风翻涌，空气中弥漫着草
+今日（6月23日）市场盘整，A股主要指数悉数飘绿，囊括苹果产业链、国产算力等热门方向的电子ETF华宝（515260）此前日线5连阳+创历史新高后，首度回调，场内价格现跌2.07%。 资金或迎逢跌布局时刻，事实上，上交所数据显示，该ETF此前两日连续吸金9228万元，近20日累计狂揽2.02亿元。 技术面分析来看，MACD指标实现金叉后，快线DIF持续运行在慢线DEA上方，是多头
 
 ## 正文
 
-中新网石家庄6月16日电 (杨宏伟)初夏时节，“2026媒体走金隅”调研活动走进河北省石家庄市。
+今日（6月23日）市场盘整，A股主要指数悉数飘绿，囊括苹果产业链、国产算力等热门方向的电子ETF华宝（515260）此前日线5连阳+创历史新高后，首度回调，场内价格现跌2.07%。
 
-作为传统高耗能建材行业，金隅冀东水泥石家庄区域锚定绿色低碳转型方向，依托矿山生态修复、布局光伏绿能、水泥窑协同处置固废等多元举措，走出一条“生态优先、绿色发展”的产业新路径。
+资金或迎逢跌布局时刻，事实上，上交所数据显示，该ETF此前两日连续吸金9228万元，近20日累计狂揽2.02亿元。
 
-走进赞皇金隅公司石灰石矿，全然不见传统矿山尘土飞扬的刻板模样，而是成片淡紫色苜蓿花海随风翻涌，空气中弥漫着草木清香。
+技术面分析来看，MACD指标实现金叉后，快线DIF持续运行在慢线DEA上方，是多头趋势延续信号，说明短期市场做多力量占据主导，股价上涨动能仍然较强。
 
-这里正在建设的赞皇金隅石灰石矿矿山公园，彻底抚平了以往竖切式开采遗留的生态创伤。
+成份股方面，果链龙头蓝思科技、立讯精密领涨超2%，半导体龙头晶合集成、华润微涨逾1%，国产算力龙头中科曙光涨超1%。
 
-“我们采用横切式开采工艺，在国内处于领先地位。
+另一方面，PCB龙头鹏鼎控股跌超8%，深南电路跌逾6%，跌幅居前，拖累指数表现。
 
-”赞皇金隅公司矿山运行部部长姚飞介绍，企业坚持“边开采、边治理、边恢复”原则，将矿山综合治理纳入《石灰石矿矿山生态修复方案》。
+苹果产业链方面，折叠屏iPhone供应链传来消息，供应链公司已开启小批量供货。
 
-开采形成的台阶平台经复垦植绿，由蜿蜒盘山公路串联成片，层层叠叠的生态园区雏形已然显现。
+财信证券指出，苹果预计于2026年推出首款折叠屏产品，凭借庞大的用户基础，有望提升折叠屏品类的市场接受度，并带动相关供应链需求增长。
 
-据姚飞介绍，企业规划累计投入1.5亿元，用于矿山全周期生态修复治理。
+建议关注折叠屏产业链中UTG（超薄柔性玻璃）、铰链及MIM（金属粉末注射成型）结构件等核心增量环节。
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 18:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 17:37 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:43 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 18:03 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 17:55 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 17:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 17:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 18:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 18:06 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 18:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 18:02 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 17:56 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 18:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 18:02 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 18:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 17:53 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 18:01 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 18:05 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 17:42 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/175085.shtml)
-- 2026-06-29 17:47 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/8743387106.shtml)
-- 2026-06-29 17:38 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/1226921786.shtml)
-- 2026-06-29 17:48 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/135812001.shtml)
-- 2026-06-29 17:54 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/60763.shtml)
-- 2026-06-29 18:00 - [AG 宫斗](https://www.blog.minike.top/Article/details/084489418.shtml)
-- 2026-06-29 17:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/13417544378.shtml)
-- 2026-06-29 18:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/32933054.shtml)
-- 2026-06-29 17:39 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/358966789001.shtml)
-- 2026-06-29 17:59 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/0042210073.shtml)
-- 2026-06-29 17:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/642210.shtml)
-- 2026-06-29 17:50 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/55830330.shtml)
-- 2026-06-29 17:54 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/80792899413.shtml)
-- 2026-06-29 17:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/52603.shtml)
-- 2026-06-29 18:04 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/27844061.shtml)
+- 2026-06-29 17:42 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/922655121.shtml)
+- 2026-06-29 18:01 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/5989068914.shtml)
+- 2026-06-29 17:51 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/1374514.shtml)
+- 2026-06-29 17:44 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/11521904.shtml)
+- 2026-06-29 18:12 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/0494392.shtml)
+- 2026-06-29 17:57 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/31461597333.shtml)
+- 2026-06-29 17:53 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/23796.shtml)
+- 2026-06-29 18:04 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/93363.shtml)
+- 2026-06-29 18:03 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/39136.shtml)
+- 2026-06-29 17:48 - [速度与激情9](https://www.share.minike.top/Article/details/24570823.shtml)
+- 2026-06-29 17:44 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/20864118894.shtml)
+- 2026-06-29 17:45 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/587238502691.shtml)
+- 2026-06-29 17:42 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/3976672.shtml)
+- 2026-06-29 17:58 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/53236666119.shtml)
+- 2026-06-29 18:00 - [第一炉香](https://www.share.minike.top/Article/details/527086.shtml)

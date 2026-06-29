@@ -1,60 +1,54 @@
-# 广农糖业（000911）被立案，股民索赔可期
+# 广西北流一油罐车与水泥罐车碰撞起火 致3人死亡
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月13日，广西农投糖业集团股份有限公司（简称：广农糖业、ST广糖，代码：000911）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《证券法》的有关规定，中国证监会决定对公司立案调查。 之前，2026年4月29日，广农糖业发布《关于前期会计差错更正及追溯调整的公告》。
+中新网北流6月23日电(记者 黄艳梅)广西北流市公安局23日通报，6月22日21时30分许，北流市六靖镇镇南村路口一辆油罐车与一辆水泥罐车发生碰撞，两车相继起火。该事故造成3人死亡。 事故发生后，当地公安、消防、应急、卫健等部门第一时间赶赴现场开展救援。经全力扑救，明火已于22日23时38分扑灭，车上3人死亡，未造成周边其他人员伤亡。 目前，后续处置工作正有序进行中。(完)
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月13日，广西农投糖业集团股份有限公司（简称：广农糖业、ST广糖，代码：000911）发布《关于收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《证券法》的有关规定，中国证监会决定对公司立案调查。
+中新网北流6月23日电(记者 黄艳梅)广西北流市公安局23日通报，6月22日21时30分许，北流市六靖镇镇南村路口一辆油罐车与一辆水泥罐车发生碰撞，两车相继起火。
 
-之前，2026年4月29日，广农糖业发布《关于前期会计差错更正及追溯调整的公告》。
+该事故造成3人死亡。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
+事故发生后，当地公安、消防、应急、卫健等部门第一时间赶赴现场开展救援。
 
-权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
+经全力扑救，明火已于22日23时38分扑灭，车上3人死亡，未造成周边其他人员伤亡。
 
-由于广农糖业涉嫌信息披露违法违规，被中国证监会立案调查，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过广农糖业的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
+目前，后续处置工作正有序进行中。
 
-（宋一欣律师专栏） 宋一欣律师认为，广农糖业案的索赔条件为：2026年4月29日前买入广农糖业股票或债券等证券市场公开发行产品，并在2026年4月29日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
-
-（*ST广糖维权入口） ★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
-
-索赔的最终条件将根据中国证监会行政处罚的结论进一步调整，并以相关法院最终生效的判决所认定的法律时点、赔付对象、赔付范围、赔付标准、会计计算方式为准。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 17:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 18:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 18:00 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 17:45 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 17:46 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 17:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 17:49 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 17:56 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 17:57 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 18:04 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 17:48 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 17:41 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 18:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 17:43 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 18:08 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 18:07 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 17:47 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 17:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 18:07 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 17:47 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 17:48 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 17:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:10 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 18:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/98290786065.shtml)
-- 2026-06-29 18:04 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/575497.shtml)
-- 2026-06-29 17:37 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/4280559.shtml)
-- 2026-06-29 17:44 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/2167836810.shtml)
-- 2026-06-29 17:44 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/55715.shtml)
-- 2026-06-29 18:00 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/7629088.shtml)
-- 2026-06-29 18:04 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/35036.shtml)
-- 2026-06-29 17:37 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/76032.shtml)
-- 2026-06-29 17:47 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/6849341.shtml)
-- 2026-06-29 18:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/388183477195.shtml)
-- 2026-06-29 18:01 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/9145674343.shtml)
-- 2026-06-29 17:53 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/790729.shtml)
-- 2026-06-29 17:42 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/560956082239.shtml)
-- 2026-06-29 17:56 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/43569055393.shtml)
-- 2026-06-29 17:43 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/4624006048.shtml)
+- 2026-06-29 17:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/936708341197.shtml)
+- 2026-06-29 17:48 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/786556.shtml)
+- 2026-06-29 17:44 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/43387088888.shtml)
+- 2026-06-29 17:45 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/27032.shtml)
+- 2026-06-29 18:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/2594943.shtml)
+- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/02580.shtml)
+- 2026-06-29 17:52 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/137056462023.shtml)
+- 2026-06-29 18:11 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/271456257074.shtml)
+- 2026-06-29 17:45 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/726776.shtml)
+- 2026-06-29 18:05 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/098991596.shtml)
+- 2026-06-29 18:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/91542518.shtml)
+- 2026-06-29 17:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/88443079812.shtml)
+- 2026-06-29 17:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/634468097.shtml)
+- 2026-06-29 17:51 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/6035767673.shtml)
+- 2026-06-29 17:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/834128775.shtml)

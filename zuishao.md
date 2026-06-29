@@ -1,56 +1,50 @@
-# “粽”情喜乐民俗体验留人心 端午元素点亮舌尖新品为传统文化注入新活力
+# 英国央行发布英国境内发行方稳定币监管规则
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-央视网消息：临近端午，在江西吉安新干县大东门历史文化街区，结合端午特色的文艺展演、民俗互动、农特产品展销等主题活动丰富多彩，激活了古街文旅消费。 这两天，街区内端午主题集市热闹开启。包粽子、制香囊、射五毒、投壶等传统民俗体验项目，让这里的节日氛围感十足，大家在互动中感受民俗魅力。 街区开设的“一村一品”乡村集市也人气十足，各类本土优质的农特产品吸引不少游客驻足选购。多样活动为古
+英格兰银行（英国央行）6月22日发布针对系统重要性稳定币发行商的政策声明及《行为准则》（规则）草案，标志着英国稳定币监管框架建设迈出关键一步。核心政策方面，框架作出两项重要调整：其一，稳定币储备资产中利息计息资产（短期英国国债）的最高比例从60%上调至70%，其余须存放于央行存款；其二，以发行上限取代此前咨询中提出的临时持有限额，每种系统重要性稳定币初始发行上限设为400亿英镑
 
 ## 正文
 
-央视网消息：临近端午，在江西吉安新干县大东门历史文化街区，结合端午特色的文艺展演、民俗互动、农特产品展销等主题活动丰富多彩，激活了古街文旅消费。
+英格兰银行（英国央行）6月22日发布针对系统重要性稳定币发行商的政策声明及《行为准则》（规则）草案，标志着英国稳定币监管框架建设迈出关键一步。
 
-这两天，街区内端午主题集市热闹开启。
+核心政策方面，框架作出两项重要调整：其一，稳定币储备资产中利息计息资产（短期英国国债）的最高比例从60%上调至70%，其余须存放于央行存款；其二，以发行上限取代此前咨询中提出的临时持有限额，每种系统重要性稳定币初始发行上限设为400亿英镑，该上限将定期审查，待信贷供给风险消除后予以取消。
 
-包粽子、制香囊、射五毒、投壶等传统民俗体验项目，让这里的节日氛围感十足，大家在互动中感受民俗魅力。
+框架征询意见截止日期为2026年9月22日，英格兰银行计划于2026年底最终确定《行为准则》，受监管的稳定币最早可于2027年起在英国合规运营。
 
-街区开设的“一村一品”乡村集市也人气十足，各类本土优质的农特产品吸引不少游客驻足选购。
-
-多样活动为古街聚拢了人气，有效带动了餐饮、农产品等消费。
-
-江西吉安新干县金川镇党委委员黎雅琴介绍，举办这次活动初衷是利用大东门古街的历史底蕴，把“流量”变成“留量”，用民俗体验留住人心，最终落到“一村一品”的消费上。
-
-端午将至 祁门粽茶香飘市场 在安徽省黄山市祁门县，多款外形酷似粽子的“粽茶”成为端午市场的热销产品。
-
-在黄山市祁门县一家茶叶企业的生产车间内，工人们正在为即将到来的端午节赶制“粽茶”，一个个迷你的三角“粽茶”在指尖快速成型。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 17:55 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 17:48 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:47 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 17:59 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 17:48 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 17:53 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 17:51 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 17:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 17:51 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 17:47 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 18:07 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 17:50 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 18:03 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 18:06 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 18:01 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 17:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 18:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 17:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 17:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 18:08 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 17:42 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/6473084919.shtml)
-- 2026-06-29 17:53 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/8617302.shtml)
-- 2026-06-29 18:00 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/8488850.shtml)
-- 2026-06-29 18:00 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/0112754.shtml)
-- 2026-06-29 18:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/905635799.shtml)
-- 2026-06-29 17:50 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/841979086366.shtml)
-- 2026-06-29 17:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/744727682301.shtml)
-- 2026-06-29 17:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/085745984033.shtml)
-- 2026-06-29 18:01 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/5677970.shtml)
-- 2026-06-29 18:03 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/039731.shtml)
-- 2026-06-29 17:38 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/99324.shtml)
-- 2026-06-29 18:05 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/82230522540.shtml)
-- 2026-06-29 17:57 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/810483.shtml)
-- 2026-06-29 18:05 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/93628480467.shtml)
-- 2026-06-29 18:03 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/403949093.shtml)
+- 2026-06-29 18:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/1190720.shtml)
+- 2026-06-29 18:11 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/05797936.shtml)
+- 2026-06-29 18:06 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/717130801376.shtml)
+- 2026-06-29 18:06 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/521919912.shtml)
+- 2026-06-29 18:10 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/45258661534.shtml)
+- 2026-06-29 17:42 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/53140.shtml)
+- 2026-06-29 17:46 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/8520200.shtml)
+- 2026-06-29 18:07 - [流金岁月](http://www.blog.minike.top/Article/details/675705132371.shtml)
+- 2026-06-29 17:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/974415386000.shtml)
+- 2026-06-29 18:11 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/2227372.shtml)
+- 2026-06-29 18:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/075872122.shtml)
+- 2026-06-29 17:54 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/06447483636.shtml)
+- 2026-06-29 17:43 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/41477.shtml)
+- 2026-06-29 17:49 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/460020.shtml)
+- 2026-06-29 17:46 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/30029502039.shtml)

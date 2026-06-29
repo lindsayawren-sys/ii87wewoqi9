@@ -1,53 +1,53 @@
-# CPT Markets:金银波动仍待沉淀
+# 在中东不确定性之际日经指数可能下跌
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。 从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。 这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间
+随着对中东冲突的不确定性持续，日本股市在近期大幅上涨后可能下跌。新加坡交易所的日经指数期货下跌0.2%，至71，485点。在美国总统特朗普警告称美国可能因伊朗支持真主党而对其进行打击后，投资者正关注原油价格和中东局势的发展。日经指数周五上涨0.3%，达到创纪录的71，250.06点。责任编辑：王永生
 
 ## 正文
 
-6月15日，贵金属在剧烈下跌后进入整理阶段，CPT Markets表示黄金与白银的波动尚未完全沉淀，市场仍在重新评估急跌后的合理定价区间。
+随着对中东冲突的不确定性持续，日本股市在近期大幅上涨后可能下跌。
 
-从价格行为看，CPT Markets认为大幅回撤之后的第一轮修复通常不会一气呵成，尤其是在收益率和宏观预期仍偏反复的情况下，金银更容易出现拉锯。
+新加坡交易所的日经指数期货下跌0.2%，至71，485点。
 
-这意味着贵金属虽然存在技术性回稳基础，但若缺少更清晰的资金回流和宏观配合，价格仍可能在关键区间反复震荡。
+在美国总统特朗普警告称美国可能因伊朗支持真主党而对其进行打击后，投资者正关注原油价格和中东局势的发展。
 
-综合来看，CPT Markets分析称后续仍需观察波动率是否继续回落，以及低位承接能否稳定下来，这将决定金银整理后的表现。
+日经指数周五上涨0.3%，达到创纪录的71，250.06点。
 
-责任编辑：陈平
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 17:44 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 17:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 17:43 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 18:02 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 17:50 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:42 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 17:38 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 18:01 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 17:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 17:50 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 17:39 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 17:39 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 18:07 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 18:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 17:50 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 17:50 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 18:04 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 18:01 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 17:49 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 17:58 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 18:05 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 18:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 17:47 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 17:55 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/07426983093.shtml)
-- 2026-06-29 17:42 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/35123416.shtml)
-- 2026-06-29 18:05 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/246304152.shtml)
-- 2026-06-29 17:53 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/2389683109.shtml)
-- 2026-06-29 17:38 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/79660.shtml)
-- 2026-06-29 17:48 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/5044235994.shtml)
-- 2026-06-29 17:50 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/874051110724.shtml)
-- 2026-06-29 18:03 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/594112.shtml)
-- 2026-06-29 17:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/807141.shtml)
-- 2026-06-29 17:37 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/8349762.shtml)
-- 2026-06-29 18:00 - [叠纸](http://www.share.minike.top/Article/details/80858573.shtml)
-- 2026-06-29 17:47 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/39207744167.shtml)
-- 2026-06-29 17:59 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/6469180650.shtml)
-- 2026-06-29 17:49 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/64954931.shtml)
-- 2026-06-29 17:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/794574559.shtml)
+- 2026-06-29 18:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/37419025890.shtml)
+- 2026-06-29 18:00 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/709918211.shtml)
+- 2026-06-29 17:49 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/0237240.shtml)
+- 2026-06-29 17:50 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/83796.shtml)
+- 2026-06-29 17:56 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/7221129775.shtml)
+- 2026-06-29 17:50 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/14218910.shtml)
+- 2026-06-29 18:02 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/18802380.shtml)
+- 2026-06-29 18:01 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/287717.shtml)
+- 2026-06-29 17:54 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/23068.shtml)
+- 2026-06-29 17:52 - [极限挑战第一季](http://www.blog.minike.top/Article/details/364215769432.shtml)
+- 2026-06-29 18:07 - [毒液2](https://www.share.minike.top/Article/details/68833254764.shtml)
+- 2026-06-29 17:55 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/617034.shtml)
+- 2026-06-29 18:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/51898132077.shtml)
+- 2026-06-29 18:01 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/72357.shtml)
+- 2026-06-29 17:47 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/84239013150.shtml)

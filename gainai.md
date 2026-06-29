@@ -1,58 +1,60 @@
-# 苹果：磨底阶段
+# 粽香里传承中华文化 云南宗教界端午迎佳节
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-来源：NB的农产品 观点小结 核心观点：震荡新季苹果来看，苹果主产区已经陆续进入套袋后期。天气整体平稳，未出现大范围持续性的倒春寒、冰雹等恶劣天气，盘面缺乏向上驱动，月差呈现C结构，01合约对应节日季节性消费旺季。有少数极早熟品种率先采摘上市，但早采果口感一般、体量极小，无法对冷库苹果形成实质性竞争。冷库苹果方面，6月中旬已正式步入清库收尾阶段，西部冷库余货所剩无极，但品质落差
+中新网昆明6月22日电 (陈静)仲夏端午，粽叶飘香。在2026年端午节期间，云南省佛教、道教、伊斯兰教、基督教、天主教等宗教团体及宗教活动场所主动开展形式多样、内涵丰富的主题文化活动。从包粽子、送香包到普法讲座、文艺汇演，云南宗教界以中华传统节日为载体，将民俗活动转化为传承中华文化、铸牢中华民族共同体意识的生动实践。 指尖上的端午：粽叶包裹中华文韵 2026年端午节期间，昆明市
 
 ## 正文
 
-来源：NB的农产品 观点小结 核心观点：震荡新季苹果来看，苹果主产区已经陆续进入套袋后期。
+中新网昆明6月22日电 (陈静)仲夏端午，粽叶飘香。
 
-天气整体平稳，未出现大范围持续性的倒春寒、冰雹等恶劣天气，盘面缺乏向上驱动，月差呈现C结构，01合约对应节日季节性消费旺季。
+在2026年端午节期间，云南省佛教、道教、伊斯兰教、基督教、天主教等宗教团体及宗教活动场所主动开展形式多样、内涵丰富的主题文化活动。
 
-有少数极早熟品种率先采摘上市，但早采果口感一般、体量极小，无法对冷库苹果形成实质性竞争。
+从包粽子、送香包到普法讲座、文艺汇演，云南宗教界以中华传统节日为载体，将民俗活动转化为传承中华文化、铸牢中华民族共同体意识的生动实践。
 
-冷库苹果方面，6月中旬已正式步入清库收尾阶段，西部冷库余货所剩无极，但品质落差大导致市场报价混乱。
+指尖上的端午：粽叶包裹中华文韵 2026年端午节期间，昆明市五华区顺城清真寺与富民县城区清真寺先后举办“粽香传情·文化润心”“弘扬中华优秀传统文化·端午安康”主题活动，向教职人员及穆斯林群众发放粽子、咸鸭蛋，现场讲述屈原的家国情怀，引导信教群众体悟端午节承载的民族精神。
 
-本周苹果走货量较上周略有减缓，应季水果品类丰富、价格亲民，分流了不少消费需求，挤占苹果销售空间。
+昆明盘龙区集大基督教会开展“情暖端午粽香传爱”活动，教牧人员与信众共同包粽相赠，以《圣经》中“爱是凡事包容”呼应端午粽叶包裹食材象征的包容与共融。
 
-价格表现：中性 栖霞一二级80#纸袋3.2元/斤，洛川半商品70#3.75元/斤。
+云南佛学院西双版纳分院邀请景洪市曼弄枫街道办事处工作人员走进学院，与师生共同开展“粽香传情·法治同行”端午节主题活动。
 
-上周五AP主力收于7698元/吨，主力基差-1198元/吨。
+大家一道包粽子、话习俗、参与普法小游戏，在欢声笑语中感受中华传统节日氛围。
 
-供应：中性偏空 2025年我国苹果产量3431.32万吨（同比-6.0%），种植面积1744.84千公顷。
+宁蒗县藏传佛教寺庙管理局联合扎美寺管理委员会，举办“粽香传情·同心筑梦”端午节主题系列活动，组织局机关全体干部职工、扎美寺教职人员代表前往阿七独支玛摩梭非遗博物馆开展传统文化观摩学习，解读中华优秀传统文化多元一体的深刻内涵。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 17:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 17:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:41 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 18:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 17:48 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 18:00 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 17:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 17:55 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 17:36 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 18:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 17:44 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 18:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 17:48 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 17:48 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 17:42 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 18:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 17:49 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 18:07 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 17:59 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 17:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:51 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 17:53 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/8748224.shtml)
-- 2026-06-29 17:59 - [7款高价创新药有望降价](https://www.blog.kurohicncr.top/Article/details/7267326064.shtml)
-- 2026-06-29 18:02 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/23189.shtml)
-- 2026-06-29 17:55 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/043969624.shtml)
-- 2026-06-29 18:01 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/73823558188.shtml)
-- 2026-06-29 17:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/9353022208.shtml)
-- 2026-06-29 17:50 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/4636131720.shtml)
-- 2026-06-29 17:50 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/4927954708.shtml)
-- 2026-06-29 18:01 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/2445536456.shtml)
-- 2026-06-29 17:48 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/4945177.shtml)
-- 2026-06-29 17:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/573848596.shtml)
-- 2026-06-29 17:38 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/055581623415.shtml)
-- 2026-06-29 17:50 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/01441.shtml)
-- 2026-06-29 17:36 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/749252269.shtml)
-- 2026-06-29 17:39 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/258648298902.shtml)
+- 2026-06-29 18:04 - [女心理师](http://www.blog.minike.top/Article/details/5717241637.shtml)
+- 2026-06-29 17:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/30520.shtml)
+- 2026-06-29 17:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5115046.shtml)
+- 2026-06-29 17:45 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/15414.shtml)
+- 2026-06-29 18:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/27060.shtml)
+- 2026-06-29 18:06 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/0830156.shtml)
+- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/882794261.shtml)
+- 2026-06-29 17:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/91846.shtml)
+- 2026-06-29 17:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/55833.shtml)
+- 2026-06-29 17:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/234263001.shtml)
+- 2026-06-29 17:46 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/369655433.shtml)
+- 2026-06-29 18:04 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/457823599.shtml)
+- 2026-06-29 17:51 - [扬名立万](http://www.blog.minike.top/Article/details/613077931380.shtml)
+- 2026-06-29 18:07 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/380113.shtml)
+- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/93187.shtml)

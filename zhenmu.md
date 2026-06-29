@@ -1,56 +1,57 @@
-# 欧洲央行Escriva：尽管达成和平协议 能源供应的复杂局面仍将持续
+# 南宁港六景作业区获广西内河首张《港口危险货物装卸作业附证》
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-欧洲央行管委会成员Jose Luis Escriva警告称，尽管达成了重开霍尔木兹海峡的协议，但能源供应方面的复杂局面可能仍将持续。 美伊协议已推动油价下跌，因为投资者认为这场持续逾3个月的冲突即将结束。但法兰克福的欧洲央行决策者并不认为危险已经过去，市场预计其仍将进一步加息。 “目前尚不确定市场能否充分反映供应中断的影响程度、规模以及恢复生产所需的时间，”Escriva周二在
+中新网南宁6月22日电(冯韵 何虹锫 吴其海)广西北部湾国际港务集团22日介绍，北港西江港口南宁港六景作业区近日正式取得《港口危险货物装卸作业附证》，成为广西首个成功增项危险货物装卸作业资质的内河普通货运码头，填补了区域功能空白。 此次获得的证书为锂电池等第9类危险货物的装卸作业资质，标志着南宁港六景作业区危险货物集装箱装卸作业实现了全流程合规运营。证书的获得，将助力作业区深度
 
 ## 正文
 
-欧洲央行管委会成员Jose Luis Escriva警告称，尽管达成了重开霍尔木兹海峡的协议，但能源供应方面的复杂局面可能仍将持续。
+中新网南宁6月22日电(冯韵 何虹锫 吴其海)广西北部湾国际港务集团22日介绍，北港西江港口南宁港六景作业区近日正式取得《港口危险货物装卸作业附证》，成为广西首个成功增项危险货物装卸作业资质的内河普通货运码头，填补了区域功能空白。
 
-美伊协议已推动油价下跌，因为投资者认为这场持续逾3个月的冲突即将结束。
+此次获得的证书为锂电池等第9类危险货物的装卸作业资质，标志着南宁港六景作业区危险货物集装箱装卸作业实现了全流程合规运营。
 
-但法兰克福的欧洲央行决策者并不认为危险已经过去，市场预计其仍将进一步加息。
+证书的获得，将助力作业区深度融入平陆运河经济带建设，打通了南宁东部新城储能、动力电池等新能源产品通江达海的“最后一公里”。
 
-“目前尚不确定市场能否充分反映供应中断的影响程度、规模以及恢复生产所需的时间，”Escriva周二在马德里表示。
+为取得广西首张内河普通货运码头“港口危险货物装卸作业附证”，南宁港项目团队逐一攻克技术与管理难关。
 
-“这仍然不确定，仍有疑问，而且将是一个在一段时间内伴随我们的因素。
+在区域服务层面，它有效破解了新能源产业内河水运通道“出运难”的堵点，进一步织密了广西内河危险货物运输网络，有力保障了区域新能源产业链供应链的安全稳定。
 
-” 推荐阅读：欧洲央行行长拉加德称能源价格上涨正蔓延至经济的其他领域责任编辑：刘明亮
+在行业发展层面，作为广西内河普通货运码头转型升级的首个成功案例，该资质打破了行业壁垒，显著提升了港口多元化、高端化、专业化的物流服务能力。
+
+下一步，北港西江港口将持续细化危险货物集装箱装卸作业标准，优化作业流程与现场管控体系，严格抓好全流程安全与环保管理，常态化开展人员技能培训和应急演练。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:57 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 17:40 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 17:42 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 18:01 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 17:47 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 18:02 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 17:39 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 17:48 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 17:42 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 17:42 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 17:46 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 17:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 17:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 17:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 17:48 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 18:06 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 17:43 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 17:47 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 17:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 18:00 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 17:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 18:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 18:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 17:47 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 17:57 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/01078.shtml)
-- 2026-06-29 17:53 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/6067147992.shtml)
-- 2026-06-29 18:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/15285002603.shtml)
-- 2026-06-29 18:05 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/7607812614.shtml)
-- 2026-06-29 17:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/058079080491.shtml)
-- 2026-06-29 17:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/6618099291.shtml)
-- 2026-06-29 17:59 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/487779.shtml)
-- 2026-06-29 17:45 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/831791302127.shtml)
-- 2026-06-29 17:49 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/5611836116.shtml)
-- 2026-06-29 17:52 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/77321147020.shtml)
-- 2026-06-29 17:38 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1285208.shtml)
-- 2026-06-29 17:54 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/0711808.shtml)
-- 2026-06-29 17:52 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/375700878.shtml)
-- 2026-06-29 17:38 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/73831981.shtml)
-- 2026-06-29 17:39 - [极限挑战第一季](https://www.blog.minike.top/Article/details/7900310016.shtml)
+- 2026-06-29 17:55 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/30742628.shtml)
+- 2026-06-29 17:43 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/2717918597.shtml)
+- 2026-06-29 18:03 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/466024102347.shtml)
+- 2026-06-29 18:01 - [南昌市委书记调整](https://www.share.minike.top/Article/details/73040.shtml)
+- 2026-06-29 18:01 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/8476678.shtml)
+- 2026-06-29 17:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/598678329.shtml)
+- 2026-06-29 17:58 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/42408434075.shtml)
+- 2026-06-29 17:56 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/76905612.shtml)
+- 2026-06-29 17:54 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/621758545.shtml)
+- 2026-06-29 18:10 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/0120419.shtml)
+- 2026-06-29 18:07 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/829711141463.shtml)
+- 2026-06-29 18:09 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/070529318720.shtml)
+- 2026-06-29 17:57 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/34094.shtml)
+- 2026-06-29 17:56 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/78820080899.shtml)
+- 2026-06-29 17:44 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/515908098160.shtml)

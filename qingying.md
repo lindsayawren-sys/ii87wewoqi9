@@ -1,60 +1,61 @@
-# 国际金价，再度大涨！“牛回，速归”，怎么个事？
+# 云南通报中考历史试卷问题：成立调查组 相关人员停职检查
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。这到底怎么个事？ 据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄
+中新网6月21日电 据云南省招生考试院网站消息，云南省招生考试院21日发布情况通报称，针对云南省2026年中考历史科目试卷第29题展板二内容有误的情况，云南省教育厅责成云南省招生考试院立即对命题工作开展核查，对答题影响开展评估。 现将有关情况通报如下： 一、试题核实情况 (一)爱迪生“1882年出生于纽约”表述错误，应为“1847年出生于俄亥俄州”。 (二)“爱迪生一生发明了电
 
 ## 正文
 
-来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。
+中新网6月21日电 据云南省招生考试院网站消息，云南省招生考试院21日发布情况通报称，针对云南省2026年中考历史科目试卷第29题展板二内容有误的情况，云南省教育厅责成云南省招生考试院立即对命题工作开展核查，对答题影响开展评估。
 
-黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。
+现将有关情况通报如下： 一、试题核实情况 (一)爱迪生“1882年出生于纽约”表述错误，应为“1847年出生于俄亥俄州”。
 
-这到底怎么个事？
+(二)“爱迪生一生发明了电灯、电话、电影等1000多项专利技术”表述不严谨，应为 “爱迪生一生取得了电灯、电话、电影等领域的1000多项发明专利”。
 
-据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。
+针对以上问题，云南省招生考试院及时组织历史学科专家、一线教师、基层招考机构负责人代表组成专家组，调阅命题素材，溯源命题、审题过程，从试题材料构成和设问、对考生答题影响、试题评分标准等方面开展审核评估。
 
-在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄金ETF遭遇净流出，基金规模明显缩水；另一边则是全球央行逆势增持黄金，官方储备需求持续释放。
+经综合研判认为：展板二内容包括人物姓名、国籍、早年经历和主要贡献，问题(2)要求简析爱迪生的发明对社会生产生活的影响，考生主要根据展板二中的“主要贡献”内容和所学知识作答。
 
-与此同时，此前借助金价上涨热销的挂钩黄金结构性存款也开始降温。
+评分标准不涉及爱迪生出生时间地点。
 
-短期交易资金加速撤离与长期战略资金持续流入并存，成为当前黄金市场最突出的结构性特征。
+云南省招生考试院已统一制定该题评分细则，将进一步加强监督指导，实事求是、客观公正组织评卷，并逐一认真复核评卷结果。
 
-加速流出，黄金ETF规模缩水 世界黄金协会6月公布的报告显示，5月全球实物黄金ETF结束了此前持续净流入的态势，转为净流出约20亿美元。
+二、有关处理情况 云南省教育厅已成立调查组，对相关责任单位和责任人进行调查。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 17:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 17:48 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 17:44 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 17:49 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 17:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 18:05 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 17:41 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 17:45 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 18:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 17:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 17:43 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 17:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 17:46 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 17:55 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 17:43 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 17:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 17:50 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 17:56 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 18:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 18:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 17:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 18:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 18:07 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 17:42 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 18:09 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/78750415.shtml)
-- 2026-06-29 17:48 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/45533153.shtml)
-- 2026-06-29 17:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/56565458.shtml)
-- 2026-06-29 18:05 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/39136797.shtml)
-- 2026-06-29 17:51 - [沉睡花园](http://www.blog.minike.top/Article/details/7696006.shtml)
-- 2026-06-29 17:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/619187.shtml)
-- 2026-06-29 17:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/62425.shtml)
-- 2026-06-29 17:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/05459143.shtml)
-- 2026-06-29 17:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/827478916.shtml)
-- 2026-06-29 17:43 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/021103.shtml)
-- 2026-06-29 17:53 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/000475646.shtml)
-- 2026-06-29 17:53 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/9954580694.shtml)
-- 2026-06-29 17:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/438581.shtml)
-- 2026-06-29 17:43 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/22559.shtml)
-- 2026-06-29 18:03 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/0649118777.shtml)
+- 2026-06-29 18:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/89260799.shtml)
+- 2026-06-29 17:51 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/442880542.shtml)
+- 2026-06-29 18:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/0884058.shtml)
+- 2026-06-29 17:46 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/37143.shtml)
+- 2026-06-29 18:12 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/46675980268.shtml)
+- 2026-06-29 17:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/23012520.shtml)
+- 2026-06-29 18:11 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/1276019593.shtml)
+- 2026-06-29 17:42 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/74051.shtml)
+- 2026-06-29 18:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/692840915678.shtml)
+- 2026-06-29 18:01 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/50529025.shtml)
+- 2026-06-29 18:02 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/55855056826.shtml)
+- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/054586.shtml)
+- 2026-06-29 17:50 - [中国战机大片上新](https://www.share.minike.top/Article/details/901060839.shtml)
+- 2026-06-29 18:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/8455090714.shtml)
+- 2026-06-29 17:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/187329761963.shtml)

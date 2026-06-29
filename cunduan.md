@@ -1,57 +1,44 @@
-# 美团：优化算法治理 保障骑手合法权益
+# 视频丨子公司补缴税款及滞纳金1.27亿元！华致酒行去年现上市首亏，新零售“华致优选”能救市吗？
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。 美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆
+来源：深圳商报 责任编辑：尉旖涵
 
 ## 正文
 
-新浪科技讯 6月16日下午消息，美团官方公众号发文称，将算法治理作为践行企业社会责任的重要方面，聚焦骑手反映强烈的问题诉求，推动算法从“效率优先”向“以人为本”转变，切实保障骑手合法权益，努力增强骑手的获得感、幸福感、安全感。
-
-美团称，“超时扣款”曾是骑手，特别是新骑手最担心的问题之一。
-
-为破解这一痛点，美团推出超时免罚措施，用得分体系代替负向扣款，于2025年实现超时免罚全国覆盖，激励骑手从“安全”“准时”“服务”三个维度获得正向积分，有效减轻骑手配送压力。
-
-同时，改进了针对新骑手的订单调度系统，使得“新手期”不会接到难度大的订单。
-
-美团还提到，鼓励骑手“慢下来赚更多”。
-
-正向激励骑手遵守交通规则，将骑手交通安全表现纳入考核体系，“安全分”等级越高，奖励越多。
-
-此外，还为保持零闯红灯记录的骑手发放“等灯等灯奖”。
-
-2025年，“等灯等灯奖”累计覆盖近200个城市，投入7000万元，奖励骑手近128万人次。
+来源：深圳商报 责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 17:57 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 17:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 17:45 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 18:02 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 17:54 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 17:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 17:50 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 18:01 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 17:46 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 17:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 17:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 18:11 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 18:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 17:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 17:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 17:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 17:49 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 17:46 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 18:12 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 18:06 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:46 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 17:47 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/84275.shtml)
-- 2026-06-29 17:49 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/50203.shtml)
-- 2026-06-29 17:48 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/02970.shtml)
-- 2026-06-29 18:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/363224759523.shtml)
-- 2026-06-29 17:37 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/39266679.shtml)
-- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/11330.shtml)
-- 2026-06-29 17:55 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/00073429889.shtml)
-- 2026-06-29 18:01 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/920546246.shtml)
-- 2026-06-29 17:49 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/1311081.shtml)
-- 2026-06-29 17:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/13486.shtml)
-- 2026-06-29 17:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/5949419.shtml)
-- 2026-06-29 18:02 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/7633093794.shtml)
-- 2026-06-29 17:45 - [南昌市委书记调整](http://www.share.minike.top/Article/details/93799.shtml)
-- 2026-06-29 17:38 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/05244.shtml)
-- 2026-06-29 18:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/72238436.shtml)
+- 2026-06-29 17:42 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/41009203.shtml)
+- 2026-06-29 17:45 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/04464.shtml)
+- 2026-06-29 17:45 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/880207.shtml)
+- 2026-06-29 18:00 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/34336255935.shtml)
+- 2026-06-29 18:04 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/72094.shtml)
+- 2026-06-29 17:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/9155409.shtml)
+- 2026-06-29 18:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/52956.shtml)
+- 2026-06-29 18:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9458653.shtml)
+- 2026-06-29 18:03 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/3336581.shtml)
+- 2026-06-29 17:48 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/081595026.shtml)
+- 2026-06-29 17:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/683671.shtml)
+- 2026-06-29 18:08 - [天道](http://www.share.minike.top/Article/details/002388.shtml)
+- 2026-06-29 17:48 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/2615903.shtml)
+- 2026-06-29 18:08 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/37366452.shtml)
+- 2026-06-29 18:10 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/716135005.shtml)

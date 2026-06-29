@@ -1,57 +1,58 @@
-# 海边玩水，小心这些“隐形刺客”
+# 中加消费优选A、中加新兴消费A风格漂移、中加优势企业连续踩雷，中加基金的风控呢？
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-炎炎夏日，去海边踏浪嬉戏是许多人消暑的首选。在享受清凉之前，建议先保存一份安全攻略，因为海蜇、海胆、魔鬼鱼和石头鱼这些“隐形刺客”常躲藏在我们脚下的沙滩与礁石间。为避免误伤，我们来认识一下海域的这些“原住民”。一、海蜇：随波逐流的“毒丝带” 海蜇会随潮汐和海流漂移，它们的杀手锏是伞盖下那些丝状的触手，上面布满微小的刺细胞，就像装了毒液的微型注射器。即使死去的海蜇，刺细胞仍能保持
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：资市会 原标题：风格漂移、主动连续踩雷，中加基金的风控呢？ 风控与合规出了问题？ 作者|资市分子 A股市场科技行情持续在线，消费赛道仍在低位徘徊。部分消费主题基金为了突破因持仓板块行情疲软的困局，另辟蹊径，借助“消费囊括万物”理念重仓科技股。 如中加基金何英慧单独管理的中加消费优选A、中加新兴消费A。截至2026年一季度末
 
 ## 正文
 
-炎炎夏日，去海边踏浪嬉戏是许多人消暑的首选。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：资市会 原标题：风格漂移、主动连续踩雷，中加基金的风控呢？
 
-在享受清凉之前，建议先保存一份安全攻略，因为海蜇、海胆、魔鬼鱼和石头鱼这些“隐形刺客”常躲藏在我们脚下的沙滩与礁石间。
+风控与合规出了问题？
 
-为避免误伤，我们来认识一下海域的这些“原住民”。
+作者|资市分子 A股市场科技行情持续在线，消费赛道仍在低位徘徊。
 
-一、海蜇：随波逐流的“毒丝带” 海蜇会随潮汐和海流漂移，它们的杀手锏是伞盖下那些丝状的触手，上面布满微小的刺细胞，就像装了毒液的微型注射器。
+部分消费主题基金为了突破因持仓板块行情疲软的困局，另辟蹊径，借助“消费囊括万物”理念重仓科技股。
 
-即使死去的海蜇，刺细胞仍能保持活性。
+如中加基金何英慧单独管理的中加消费优选A、中加新兴消费A。
 
-刺伤表现 接触皮肤后会立即产生剧烈灼痛和刺痒感，伤口呈现特征性的条索状或鞭痕状红斑，甚至会出现水疱。
+截至2026年一季度末，这两只基金前十大重仓股中持有工业富联、应流股份、寒武纪、沪电股份等科技股票。
 
-严重者可出现恶心、头晕、呼吸困难等全身反应，甚至过敏性休克。
+中加消费优选A、中加新兴消费A“风格漂移”后效果显著。
 
-处理与预防 牢记“三不”：不揉搓、不用淡水冲洗、不用酒精涂抹。
+从单位净值表现来看，截至6月18日，这2只产品今年以来收益率分别为17.27%、3.47%，均跑赢业绩比较基准。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 17:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 17:50 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 17:37 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 17:41 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 17:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 17:49 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 17:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 17:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 18:07 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 18:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 17:46 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 18:02 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 18:02 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 17:48 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 18:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 18:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 18:06 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 18:01 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 18:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 17:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/731139095.shtml)
-- 2026-06-29 17:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/36644.shtml)
-- 2026-06-29 17:45 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/0224882.shtml)
-- 2026-06-29 17:39 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/18096665564.shtml)
-- 2026-06-29 17:44 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/22717.shtml)
-- 2026-06-29 17:43 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/81209826603.shtml)
-- 2026-06-29 18:01 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/963099.shtml)
-- 2026-06-29 17:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/458789547202.shtml)
-- 2026-06-29 17:47 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/508617.shtml)
-- 2026-06-29 18:01 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/1961323826.shtml)
-- 2026-06-29 17:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/37329.shtml)
-- 2026-06-29 18:01 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/43590418.shtml)
-- 2026-06-29 18:02 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/13674210596.shtml)
-- 2026-06-29 17:42 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/5951405228.shtml)
-- 2026-06-29 17:44 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/1120095538.shtml)
+- 2026-06-29 18:05 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/02356777978.shtml)
+- 2026-06-29 18:04 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/63904.shtml)
+- 2026-06-29 18:00 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/01540420.shtml)
+- 2026-06-29 17:43 - [流金岁月](http://www.share.minike.top/Article/details/027955972511.shtml)
+- 2026-06-29 17:44 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/64763296641.shtml)
+- 2026-06-29 18:11 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/92727823.shtml)
+- 2026-06-29 18:02 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/098064659.shtml)
+- 2026-06-29 17:59 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/28295.shtml)
+- 2026-06-29 18:00 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/330476255.shtml)
+- 2026-06-29 17:59 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/6507819859.shtml)
+- 2026-06-29 17:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/83982643.shtml)
+- 2026-06-29 17:59 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/86724571.shtml)
+- 2026-06-29 17:58 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/72312514672.shtml)
+- 2026-06-29 18:03 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/285042.shtml)
+- 2026-06-29 18:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/97153195845.shtml)

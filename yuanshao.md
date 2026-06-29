@@ -1,61 +1,58 @@
-# 四川：情景剧+AI数字人+实操实训 这场安全宣传活动精彩纷呈
+# 海清智元首挂上市 盘初大涨超316%市场份额在中国多光谱AI行业中排名第一
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网成都6月16日电(记者 刘忠俊)6月16日，2026年四川省“安全宣传咨询日”主场活动在广安市举办。省、市、县三级相关部门代表、应急救援队伍、企业代表、社会救援力量及民众代表等300余人参与。 活动现场设置科普情景剧展演、安全隐患互动查找、安全知识闯关答题、非遗剪纸体验等多项特色内容，打造形式新颖、通俗易懂的安全科普宣传现场。现场视频连线泸州、广元、雅安、德阳四地，直观展
+海清智元（01392）首挂上市，公告显示，每股定价7.2港元，共发行8516.25万股股份，每手500股，所得款项净额约5.37亿港元。盘初大涨超316%，报30港元，截至发稿，股价上涨283.06%，现报27.58港元，成交额4.08亿港元。 公开资料显示，海清智元作为中国多光谱AI行业第一，多光谱AI大模型服务第一的双龙头企业，依托全栈自研技术体系，构建了从多光谱感知模组到
 
 ## 正文
 
-中新网成都6月16日电(记者 刘忠俊)6月16日，2026年四川省“安全宣传咨询日”主场活动在广安市举办。
+海清智元（01392）首挂上市，公告显示，每股定价7.2港元，共发行8516.25万股股份，每手500股，所得款项净额约5.37亿港元。
 
-省、市、县三级相关部门代表、应急救援队伍、企业代表、社会救援力量及民众代表等300余人参与。
+盘初大涨超316%，报30港元，截至发稿，股价上涨283.06%，现报27.58港元，成交额4.08亿港元。
 
-活动现场设置科普情景剧展演、安全隐患互动查找、安全知识闯关答题、非遗剪纸体验等多项特色内容，打造形式新颖、通俗易懂的安全科普宣传现场。
+公开资料显示，海清智元作为中国多光谱AI行业第一，多光谱AI大模型服务第一的双龙头企业，依托全栈自研技术体系，构建了从多光谱感知模组到端云协同解决方案的完整闭环，技术壁垒显著。
 
-现场视频连线泸州、广元、雅安、德阳四地，直观展示各地安全宣传推进、应急准备、隐患排查整治工作成效；现场还发布了四川省十大企业安全文化建设典型案例，集中展示省内企业安全管理、风险防控、应急体系建设成果与实操经验。
+弗若斯特沙利文数据显示，海清智元目前在中国多光谱AI市场份额为3.3%，位列第一，而前五企业合计市占率仅8%，可见海清智元凭借先发优势，稳居行业龙头，未来市场整合与份额提升空间广阔。
 
-活动现场，四川省第三届安全生产科普情景剧获奖剧目现场展演，剧目均由企业一线职工本色出演，立足危化品管控、水域救援、厂区巡逻值守等真实生产场景，以通俗台词、生动表演讲解专业安全生产知识，表演贴近工作、科普直击要点，现场掌声不断。
+财务层面，业绩增长表现亮眼：2023至2025年，其营业收入分别为1.17亿元、5.23亿元、6.69亿元，三年复合增长率达到138.9%。
 
-活动配套打造的广安市应急管理安全文化驿站同步对外开放。
+毛利率由2023年的12.2%逐年上升至2025年的22.3%，经营质量持续改善。
 
-驿站融合安全科普、文化浸润、物资储备、实操教学、互动体验五大功能，市民可沉浸式学习安全知识，还可与AI应急数字人“蜀小安”实时交互，咨询解决日常安全、应急处置各类问题。
+2025年，多光谱AI大模型服务收入占比达到53.1%，成为第一大收入来源。
 
-针对电瓶车入户充电劝阻、高层建筑火灾逃生等民众高频生活安全疑问，“蜀小安”均可给出精准、可落地的处置方案。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 17:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 17:47 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 17:37 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 17:44 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 18:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 17:55 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 18:05 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 18:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 17:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 17:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 17:50 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 17:46 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 18:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 18:06 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 17:51 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 18:02 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 17:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 17:58 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 18:08 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 17:58 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 17:52 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 18:07 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 18:03 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 17:43 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/42382737.shtml)
-- 2026-06-29 17:45 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/9343889.shtml)
-- 2026-06-29 18:03 - [《贺子珍》](http://www.blog.minike.top/Article/details/735737.shtml)
-- 2026-06-29 17:57 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/7972389.shtml)
-- 2026-06-29 17:41 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/57993.shtml)
-- 2026-06-29 17:44 - [一见倾心](https://www.share.kurohicncr.top/Article/details/856836408.shtml)
-- 2026-06-29 17:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/7781318.shtml)
-- 2026-06-29 18:04 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/7714672845.shtml)
-- 2026-06-29 18:02 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/18618109899.shtml)
-- 2026-06-29 17:59 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/090437075912.shtml)
-- 2026-06-29 17:47 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/78690619247.shtml)
-- 2026-06-29 17:46 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/2144485.shtml)
-- 2026-06-29 17:51 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/64328.shtml)
-- 2026-06-29 17:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/34264.shtml)
-- 2026-06-29 18:04 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/775093.shtml)
+- 2026-06-29 17:56 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/67328.shtml)
+- 2026-06-29 17:46 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/097118.shtml)
+- 2026-06-29 17:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/8113624.shtml)
+- 2026-06-29 18:03 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/7676315.shtml)
+- 2026-06-29 17:42 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/829408246.shtml)
+- 2026-06-29 17:45 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/4454559477.shtml)
+- 2026-06-29 17:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/333931813.shtml)
+- 2026-06-29 18:02 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/195983915.shtml)
+- 2026-06-29 17:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/554278582195.shtml)
+- 2026-06-29 18:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/28286171470.shtml)
+- 2026-06-29 18:00 - [时光音乐会](https://www.share.minike.top/Article/details/834664530086.shtml)
+- 2026-06-29 17:59 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/49335499.shtml)
+- 2026-06-29 17:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/635944347.shtml)
+- 2026-06-29 18:09 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/362054100704.shtml)
+- 2026-06-29 18:11 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/854182294143.shtml)

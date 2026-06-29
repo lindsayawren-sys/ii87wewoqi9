@@ -1,59 +1,58 @@
-# 2026中国（广东）—RCEP成员国跨境电商交流活动在穗开幕
+# 市场监管总局：今年前5月共查处广告违法案件1.5万件
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？斯坦利·约翰逊：为何要重走马可·波罗之路？多边主义保障世界人权面临何种挑战与机遇？“天下为公”为全球变局中的和平与秩序提供何种中国方案？两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东
+记者 | 张倩楠 编辑 | 刘海川 “据不完全统计，今年前5个月，全系统共查处广告违法案件1.5万件，处罚没款6929.89万元，有力维护了公平竞争的市场秩序和消费者合法权益。”2026年6月23日，市场监管总局召开《中国广告业发展指数报告（2026）》专题新闻发布会，总局广告监管司市场稽查专员谷保中介绍。 谷保中表示，近年来，市场监管部门始终把“广告宣传也要讲导向”放在广告监
 
 ## 正文
 
-“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+记者 | 张倩楠 编辑 | 刘海川 “据不完全统计，今年前5个月，全系统共查处广告违法案件1.5万件，处罚没款6929.89万元，有力维护了公平竞争的市场秩序和消费者合法权益。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+”2026年6月23日，市场监管总局召开《中国广告业发展指数报告（2026）》专题新闻发布会，总局广告监管司市场稽查专员谷保中介绍。
 
-多边主义保障世界人权面临何种挑战与机遇？
+谷保中表示，近年来，市场监管部门始终把“广告宣传也要讲导向”放在广告监管工作的第一位，切实履行广告监管职责，强化事中事后监管，持续保持整治虚假违法广告高压态势。
 
-“天下为公”为全球变局中的和平与秩序提供何种中国方案？
+市场监管总局聚焦执法重点、难点问题出台执法指南，帮助地方市场监管部门准确适用法律法规。
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+印发《医疗广告监管工作指南》《医疗广告认定指南》，有效破解医疗领域“准经营不准营销”的实践难题。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+出台《〈中华人民共和国广告法〉适用问题执法指南（一）》《〈中华人民共和国广告法〉适用问题执法指南（二）》，对困扰基层已久的广告认定及管辖等问题统一监管尺度。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+谷保中介绍，近期，总局发布了《广告引证内容执法指南》，针对“大字吸睛、小字免责”“萝卜坑冠军”等现象进一步细化监管规则和执法细则，指导经营主体依法合规开展广告活动。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+此外，市场监管总局制定工作指南，对广告导向违法形式作出细化规定，完善相关经营主体义务要求。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 17:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 18:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 18:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 17:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 17:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 17:59 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 18:03 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 17:43 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 17:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 18:04 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 17:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 18:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 17:48 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 18:05 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 17:58 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 18:11 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 17:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 17:52 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 17:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 17:58 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 17:42 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 17:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 18:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/7643793.shtml)
-- 2026-06-29 17:56 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/369100093820.shtml)
-- 2026-06-29 18:01 - [时光音乐会](https://www.blog.minike.top/Article/details/2444204.shtml)
-- 2026-06-29 18:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/82435.shtml)
-- 2026-06-29 17:41 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/019316.shtml)
-- 2026-06-29 18:04 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/6491734.shtml)
-- 2026-06-29 18:02 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/99935.shtml)
-- 2026-06-29 17:49 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/7185137783.shtml)
-- 2026-06-29 18:04 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/627175483668.shtml)
-- 2026-06-29 17:47 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/7755402240.shtml)
-- 2026-06-29 17:48 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/23398.shtml)
-- 2026-06-29 17:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/113130708522.shtml)
-- 2026-06-29 17:37 - [斛珠夫人](https://www.share.minike.top/Article/details/73246.shtml)
-- 2026-06-29 18:05 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/870826799.shtml)
-- 2026-06-29 17:36 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/8466879890.shtml)
+- 2026-06-29 18:08 - [爱很美味](https://www.share.kurohicncr.top/Article/details/63621816821.shtml)
+- 2026-06-29 17:57 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/24434.shtml)
+- 2026-06-29 17:51 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/83450579.shtml)
+- 2026-06-29 18:02 - [T1 KC](https://www.share.minike.top/Article/details/330136090193.shtml)
+- 2026-06-29 18:05 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/96989597892.shtml)
+- 2026-06-29 17:55 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/1228388.shtml)
+- 2026-06-29 17:54 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/24978245.shtml)
+- 2026-06-29 17:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/16873218.shtml)
+- 2026-06-29 17:52 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/1307915714.shtml)
+- 2026-06-29 18:01 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/492327.shtml)
+- 2026-06-29 18:03 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/27039.shtml)
+- 2026-06-29 18:09 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/4994069201.shtml)
+- 2026-06-29 17:54 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/551546.shtml)
+- 2026-06-29 17:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/9415275.shtml)
+- 2026-06-29 18:11 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/36895097410.shtml)

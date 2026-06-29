@@ -1,57 +1,60 @@
-# 荣昌卤鹅从街头卤味“飞”向全球餐桌
+# 中概股最痛恨的人栽了！ 华尔街“做空之王”面临最高265年刑期，曾“吓崩”新东方股价 | 硅谷观察
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月16日电 题：荣昌卤鹅从街头卤味“飞”向全球餐桌 作者 梁钦卿 今年1月，一批价值9万余元的荣昌卤鹅成功出口中国香港，1000多只特色卤鹅进入当地超市和餐厅。这道传承百年的重庆非遗美食首次以规模化、标准化形式走进中国香港。 融合粤菜卤制技艺与川菜麻辣风味的荣昌卤鹅，成品色泽红亮、五香味浓，已成为重庆极具代表性的地方美食名片之一，承载着浓郁的巴渝饮食文化底蕴。 记者
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《硅谷观察》栏目 郑峻 本月的洛杉矶联邦法院，陪审团经过两天审议，最终一致裁决：有罪。 今年56岁的安德鲁·莱夫特（Andrew Left）是美国最知名的做空机构之一的香橼研究（Citron Research）创始人。他被裁定犯有一项证券欺诈阴谋罪和12项证券欺诈罪，共13项罪名成立。 他曾经是中概
 
 ## 正文
 
-中新网重庆6月16日电 题：荣昌卤鹅从街头卤味“飞”向全球餐桌 作者 梁钦卿 今年1月，一批价值9万余元的荣昌卤鹅成功出口中国香港，1000多只特色卤鹅进入当地超市和餐厅。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这道传承百年的重庆非遗美食首次以规模化、标准化形式走进中国香港。
+文 | 《硅谷观察》栏目 郑峻 本月的洛杉矶联邦法院，陪审团经过两天审议，最终一致裁决：有罪。
 
-融合粤菜卤制技艺与川菜麻辣风味的荣昌卤鹅，成品色泽红亮、五香味浓，已成为重庆极具代表性的地方美食名片之一，承载着浓郁的巴渝饮食文化底蕴。
+今年56岁的安德鲁·莱夫特（Andrew Left）是美国最知名的做空机构之一的香橼研究（Citron Research）创始人。
 
-记者近日在重庆荣昌街头一家卤鹅店门口看到，排队购买的顾客络绎不绝。
+他被裁定犯有一项证券欺诈阴谋罪和12项证券欺诈罪，共13项罪名成立。
 
-“自从2025年4月荣昌卤鹅在网络走红后，门店销量持续攀升，2026年元旦期间日均销售量达六七十只。
+他曾经是中概股最痛恨的人。
 
-”店主甘光均介绍。
+新东方、360等诸多中概股公司，都曾经成为他的猎物。
 
-荣昌区商务委数据显示，目前荣昌卤鹅产业总产能提升至1200万只，成功培育出年销售收入超2亿元的龙头企业；截至2025年10月，辖区内获得食品生产许可证的企业增至40家，较年初增长250%，老字号企业达到54家，产业主体规模持续壮大。
+每次他发布做空报告，股价大多会应声下跌，数十亿美元市值灰飞烟灭。
 
-然而，荣昌卤鹅的出海之路并非一帆风顺。
+一直以来，华尔街叫他“赏金猎人”，中概股骂他是“做空流氓”。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 17:48 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 17:45 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 17:44 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 18:04 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 18:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 17:41 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 17:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 17:57 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 17:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 17:39 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 17:45 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 18:00 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 17:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 18:07 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 17:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 18:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 17:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 17:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 17:48 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 18:10 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 17:44 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 18:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 18:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/796458.shtml)
-- 2026-06-29 17:56 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/3218632.shtml)
-- 2026-06-29 18:00 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/570780064.shtml)
-- 2026-06-29 17:38 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/2723175.shtml)
-- 2026-06-29 17:41 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/2156627538.shtml)
-- 2026-06-29 17:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/55939269.shtml)
-- 2026-06-29 17:51 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/95652137.shtml)
-- 2026-06-29 17:56 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/11404403911.shtml)
-- 2026-06-29 17:37 - [扬名立万](http://www.share.minike.top/Article/details/95220003149.shtml)
-- 2026-06-29 17:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/90803.shtml)
-- 2026-06-29 17:40 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/479837402816.shtml)
-- 2026-06-29 17:51 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/0700008.shtml)
-- 2026-06-29 17:38 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/745396114157.shtml)
-- 2026-06-29 17:47 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/675447.shtml)
-- 2026-06-29 17:50 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/787668.shtml)
+- 2026-06-29 18:11 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/928444.shtml)
+- 2026-06-29 17:47 - [TFING全员黑西装](http://www.share.minike.top/Article/details/44139378.shtml)
+- 2026-06-29 17:46 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/5723235.shtml)
+- 2026-06-29 17:43 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/6488889.shtml)
+- 2026-06-29 18:06 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/343522870.shtml)
+- 2026-06-29 18:00 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/76226808.shtml)
+- 2026-06-29 18:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/04192.shtml)
+- 2026-06-29 17:45 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/0409967933.shtml)
+- 2026-06-29 17:42 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/229450.shtml)
+- 2026-06-29 17:52 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/95229.shtml)
+- 2026-06-29 17:47 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/044474.shtml)
+- 2026-06-29 18:06 - [东方风云榜](https://www.share.minike.top/Article/details/23052368.shtml)
+- 2026-06-29 17:55 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/991232114.shtml)
+- 2026-06-29 17:43 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/067336408.shtml)
+- 2026-06-29 17:43 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/896592.shtml)

@@ -1,46 +1,61 @@
-# 广西梧州：强降雨致电力设施受损 加紧抢修保供电
+# 金融科技显著领涨，大智慧涨停！软件开发ETF华宝（159036）大涨3%！日k线低位攀升，右侧信号显现？
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 13:40 来源：央视新闻 责任编辑：【王祎】
+今日（6月22日）午后，金融科技概念股显著领涨，大智慧涨停，艾融软件领涨超18%，同花顺涨超12%，囊括金融科技、AI应用等热门概念的——软件开发ETF华宝（159036）午后快速拉升，场内价格现涨3.15%，其标的指数（软件开发指数）冲击日线6连阳，日k线呈现低位攀升态势。 金融科技方面，业内人士指出，当前AI在金融领域的应用大多仍停留在“辅助工具”阶段，但未来3至5年，AI
 
 ## 正文
 
-发布时间：2026年06月16日 13:40 来源：央视新闻 责任编辑：【王祎】
+今日（6月22日）午后，金融科技概念股显著领涨，大智慧涨停，艾融软件领涨超18%，同花顺涨超12%，囊括金融科技、AI应用等热门概念的——软件开发ETF华宝（159036）午后快速拉升，场内价格现涨3.15%，其标的指数（软件开发指数）冲击日线6连阳，日k线呈现低位攀升态势。
+
+金融科技方面，业内人士指出，当前AI在金融领域的应用大多仍停留在“辅助工具”阶段，但未来3至5年，AI将深度渗透至金融全场景核心工作，中国“金融Agent”时代即将到来。
+
+这一变革将呈现三大特征：从被动响应到主动执行、从单点功能到全流程闭环、从黑箱操作到合规可溯。
+
+AI应用方面，中国银河证券指出，随着国内大模型的持续迭代与落地，AI应用商业化具备广阔发展空间，相关企业有望受益于需求上升带来的新增量，建议关注大模型厂商。
+
+同时，用户习惯的培育亦有利于AI垂类应用的发展，建议关注AI赋能不断深化的AI应用及产业链相关相关子板块。
+
+估值方面，截至上周五（6月19日），软件开发ETF华宝（159036）标的指数（软件开发指数）市盈率PE（TTM）为174.72倍，位于上市以来21.82%分位点，估值性价比、安全边际较高。
+
+【硬件的尽头，或是软件的春天】 纵观历次科技革命，利润皆由硬件流向应用，硬件的尽头，或是软件的春天。
+
+今年年初受“大模型吞噬软件”叙事发酵扰动，AI应用板块较算力、模型端估值折价显著，软件板块成为AI产业链中“水位”较低的细分领域，估值性价比、安全边际较高，叠加AI赋能+信创驱动，软件开发方向有望乘势而起。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 17:47 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 17:43 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 17:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 17:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 17:45 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 17:48 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 17:38 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 18:00 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 17:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 17:50 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 17:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 17:57 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 17:43 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 18:08 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 17:46 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 18:08 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 17:43 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 17:46 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 17:54 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 17:47 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 17:52 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 17:52 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 17:46 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 17:49 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 18:09 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 18:06 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:51 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/377072481667.shtml)
-- 2026-06-29 17:41 - [V8](http://www.share.kurohicncr.top/Article/details/5038352758.shtml)
-- 2026-06-29 17:48 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/80622.shtml)
-- 2026-06-29 17:36 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/35565941340.shtml)
-- 2026-06-29 18:03 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/44557255.shtml)
-- 2026-06-29 18:05 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/009863571.shtml)
-- 2026-06-29 17:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/3811743.shtml)
-- 2026-06-29 17:40 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/3214052.shtml)
-- 2026-06-29 17:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/7187496.shtml)
-- 2026-06-29 17:48 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/5325408.shtml)
-- 2026-06-29 17:50 - [毒液2](http://www.blog.minike.top/Article/details/7926846.shtml)
-- 2026-06-29 18:05 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/55139600916.shtml)
-- 2026-06-29 18:04 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/004655.shtml)
-- 2026-06-29 17:59 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/11186885.shtml)
-- 2026-06-29 17:54 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/3716438.shtml)
+- 2026-06-29 17:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/3873877.shtml)
+- 2026-06-29 17:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/6805940.shtml)
+- 2026-06-29 17:46 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/297318.shtml)
+- 2026-06-29 18:00 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/904514430798.shtml)
+- 2026-06-29 18:07 - [啊啊啊](http://www.blog.minike.top/Article/details/1587351.shtml)
+- 2026-06-29 18:10 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/657753525.shtml)
+- 2026-06-29 17:55 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/28345.shtml)
+- 2026-06-29 18:09 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/87820675.shtml)
+- 2026-06-29 17:58 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/8512454961.shtml)
+- 2026-06-29 18:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/476418318.shtml)
+- 2026-06-29 18:05 - [天道](https://www.blog.kurohicncr.top/Article/details/325367162640.shtml)
+- 2026-06-29 17:55 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/12339539.shtml)
+- 2026-06-29 17:53 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/31260732.shtml)
+- 2026-06-29 17:59 - [中国战机大片上新](https://www.blog.minike.top/Article/details/84365471888.shtml)
+- 2026-06-29 17:58 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/365654.shtml)

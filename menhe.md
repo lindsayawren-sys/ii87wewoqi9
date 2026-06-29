@@ -1,58 +1,46 @@
-# 一餐热饭里的社区新事：“AI大厨”炒出“家常味”
+# 高争民爆获最高1.8亿元股份回购专项贷款承诺函
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。 80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。” 未来食
+6月21日，高争民爆（002827.SZ）发布公告称，公司近日取得中信银行拉萨分行出具的《贷款承诺函》，该笔贷款额度不超过1.8亿元，贷款期限最长为3年，资金专项用于上市公司股份回购。（文章来源：央广财经）
 
 ## 正文
 
-中新网杭州6月15日电 题：一餐热饭里的社区新事：“AI大厨”炒出“家常味” 作者 钱晨菲 临近中午，位于浙江省杭州市拱墅区申花大运河幸福家园的社区未来食堂渐渐热闹起来。
+6月21日，高争民爆（002827.SZ）发布公告称，公司近日取得中信银行拉萨分行出具的《贷款承诺函》，该笔贷款额度不超过1.8亿元，贷款期限最长为3年，资金专项用于上市公司股份回购。
 
-80岁的居民张大爷选购了“一荤两素”，一边用餐一边和老邻居闲聊。
-
-过去，他最发愁的是每天的一日三餐，随着年纪增长，买菜、做饭都成了负担。
-
-如今，他有了新选择，“这里离家近，味道不错也方便，我几乎天天来。
-
-” 未来食堂里，没有传统后厨此起彼伏的炒菜声，也闻不到浓重油烟。
-
-几台智能设备正在运转，不一会儿，热气腾腾的鱼香肉丝、清炒土豆丝、西芹花菜等家常菜准备就绪，只需扫一扫取餐码便可拿取。
-
-对于不少居民而言，一顿热饭看似小事，却关系着日常生活的幸福感。
-
-据悉，该食堂所在的申沁社区成立于2025年，随着辖区内新小区交付，社区人口快速增长，其中既有老年居民，也有不少年轻家庭和新就业群体。
+（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 18:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 17:53 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 17:47 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 18:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 17:45 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 18:05 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 18:04 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 17:43 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 17:36 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 17:58 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 17:36 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 18:08 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 18:06 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 17:51 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 18:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 17:45 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 17:55 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 18:10 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 18:07 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 18:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 17:57 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/736815.shtml)
-- 2026-06-29 17:57 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.kurohicncr.top/Article/details/871809.shtml)
-- 2026-06-29 17:51 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/777732293.shtml)
-- 2026-06-29 17:37 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/8813980.shtml)
-- 2026-06-29 17:54 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/30299.shtml)
-- 2026-06-29 17:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/91699031265.shtml)
-- 2026-06-29 17:42 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/720882724.shtml)
-- 2026-06-29 17:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/197502170276.shtml)
-- 2026-06-29 17:36 - [急先锋](https://www.share.kurohicncr.top/Article/details/227650.shtml)
-- 2026-06-29 17:38 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5682857149.shtml)
-- 2026-06-29 17:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/3755429143.shtml)
-- 2026-06-29 17:47 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/4085218.shtml)
-- 2026-06-29 17:45 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/3786528589.shtml)
-- 2026-06-29 17:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/74120.shtml)
-- 2026-06-29 17:47 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/87843709.shtml)
+- 2026-06-29 17:58 - [一生一世](http://www.share.kurohicncr.top/Article/details/424930432156.shtml)
+- 2026-06-29 17:56 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/88774756244.shtml)
+- 2026-06-29 18:10 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/419845609.shtml)
+- 2026-06-29 17:44 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/88582113190.shtml)
+- 2026-06-29 17:52 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/603615894.shtml)
+- 2026-06-29 18:03 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/01452.shtml)
+- 2026-06-29 18:04 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/886759.shtml)
+- 2026-06-29 18:01 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/898495118210.shtml)
+- 2026-06-29 17:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2266956.shtml)
+- 2026-06-29 18:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/347939530929.shtml)
+- 2026-06-29 17:56 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/345148746746.shtml)
+- 2026-06-29 18:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/137442716.shtml)
+- 2026-06-29 17:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/49694.shtml)
+- 2026-06-29 18:11 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/214422181126.shtml)
+- 2026-06-29 17:50 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/566805.shtml)

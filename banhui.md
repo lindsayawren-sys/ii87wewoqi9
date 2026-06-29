@@ -1,61 +1,59 @@
-# 通用汽车洽谈为洛克希德马丁供应武器零部件
+# 对美稀土出口管控再度收紧！借道稀土ETF华泰柏瑞（516780）助力把握“算力金属”涨价潮窗口
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-在美国着手补充弹药库存的背景下，这家汽车制造商计划壮大旗下防务子公司 据知情人士透露，通用汽车（GM，涨幅 3.15%）正在和洛克希德・马丁（LMT，跌幅 1.85%）洽谈合作，拟为后者生产各类武器零部件。 知情人士表示，按照双方拟议的合作模式，通用汽车将量产通用型零部件，助力洛克希德・马丁提升弹药产能，目前两家企业正在敲定通用可承接的零部件品类。 相关合作协议尚未最终敲定，合
+消息面上，稀土出口端多项收紧信号接连释放。一方面，国内再度升级稀土出口监管，商务部于昨日发布2026年第23号公告，将美国稀土公司在内的10家美方实体列入出口管制清单，进一步强化对美稀土出口管控；另一方面，海外稀土贸易流通同样趋紧，据日本共同社数据，今年5月我国对日稀土磁体出口量仅123吨，环比下降34.6%，出口规模已连续三个月低于200吨。 从供给端来看，依托完整的全产业链
 
 ## 正文
 
-在美国着手补充弹药库存的背景下，这家汽车制造商计划壮大旗下防务子公司 据知情人士透露，通用汽车（GM，涨幅 3.15%）正在和洛克希德・马丁（LMT，跌幅 1.85%）洽谈合作，拟为后者生产各类武器零部件。
+消息面上，稀土出口端多项收紧信号接连释放。
 
-知情人士表示，按照双方拟议的合作模式，通用汽车将量产通用型零部件，助力洛克希德・马丁提升弹药产能，目前两家企业正在敲定通用可承接的零部件品类。
+一方面，国内再度升级稀土出口监管，商务部于昨日发布2026年第23号公告，将美国稀土公司在内的10家美方实体列入出口管制清单，进一步强化对美稀土出口管控；另一方面，海外稀土贸易流通同样趋紧，据日本共同社数据，今年5月我国对日稀土磁体出口量仅123吨，环比下降34.6%，出口规模已连续三个月低于200吨。
 
-相关合作协议尚未最终敲定，合作框架仍存在调整空间。
+从供给端来看，依托完整的全产业链优势，我国长期执行稀土开采配额管控与常态化出口统筹管理，再加上海外供应链稳定性不足，全球稀土市场整体处于持续去库存状态。
 
-受乌克兰冲突与伊朗战事影响，导弹及各类关键武器弹药库存持续走低。
+今年4月工信部、自然资源部敲定的《2026年第一批稀土开采、冶炼分离总量控制计划》显示，开采指标同比仅小幅上调2%，冶炼分离额度与去年持平，自上而下的供给刚性约束进一步夯实。
 
-为补齐军备库存，特朗普政府与美国国防部敦促各大军工企业提速产能，同时积极拉拢通用汽车这类非传统制造企业参与军备生产。
+需求端看，AI算力硬件的升级迭代，正在打开稀土行业全新的增量空间。
 
-通用汽车首席执行官玛丽・博拉已与本届政府官员会面，商讨这家车企深度参与军工领域的相关事宜，通用汽车正着力发展尚且规模不大的防务业务。
+据统计，AI服务器搭载的MLCC耗材用量达常规通用服务器的8至12倍。
 
-美国国防部官员表示，美军及盟友今年在中东战场消耗了大量打击类武器与防空拦截弹，传统军工承包商已难以满足订单需求，军方需要通用这类企业作为产能后备支撑。
+氧化钇、氧化镝等重稀土原料，是MLCC粉料与高压制品生产必不可少的掺杂原料，高端元器件产能扩张将直接带动相关材料需求。
 
-对通用汽车而言，本次合作洽谈是其拓展防务业务、开辟全新营收渠道的重要布局。
+与此同时，长鑫科技科创板IPO顺利过会，存储半导体行业景气度迎来积极信号，有望持续向上游稀土永磁等算力金属传导需求。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 17:44 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 17:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 17:52 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 17:55 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 18:03 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 18:03 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 17:51 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 17:38 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 17:57 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 17:43 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 17:59 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 17:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 18:04 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 17:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 18:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 17:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 17:52 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 18:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 18:00 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 17:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 17:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 18:03 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 18:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 18:09 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 18:11 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:58 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 18:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/8394982401.shtml)
-- 2026-06-29 17:56 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/08428814.shtml)
-- 2026-06-29 17:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/16543416.shtml)
-- 2026-06-29 17:45 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/47033.shtml)
-- 2026-06-29 17:44 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/246446549329.shtml)
-- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/78140.shtml)
-- 2026-06-29 17:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/5927253047.shtml)
-- 2026-06-29 17:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/203654785.shtml)
-- 2026-06-29 17:43 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/06918115654.shtml)
-- 2026-06-29 17:52 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/7150328.shtml)
-- 2026-06-29 17:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/1546376.shtml)
-- 2026-06-29 17:39 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/1614153.shtml)
-- 2026-06-29 17:39 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/237382.shtml)
-- 2026-06-29 18:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/751718162729.shtml)
-- 2026-06-29 17:38 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/639691806457.shtml)
+- 2026-06-29 18:08 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/2589326521.shtml)
+- 2026-06-29 17:47 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/758618.shtml)
+- 2026-06-29 18:09 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/074105964132.shtml)
+- 2026-06-29 17:55 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/90168044387.shtml)
+- 2026-06-29 17:45 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/454745716707.shtml)
+- 2026-06-29 17:48 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/051832021.shtml)
+- 2026-06-29 17:51 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/924911556241.shtml)
+- 2026-06-29 17:45 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/95795.shtml)
+- 2026-06-29 18:06 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/9872203057.shtml)
+- 2026-06-29 18:09 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/64483941.shtml)
+- 2026-06-29 17:44 - [T1 KC](https://www.share.kurohicncr.top/Article/details/0428867.shtml)
+- 2026-06-29 18:07 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/34923125.shtml)
+- 2026-06-29 17:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/297969612753.shtml)
+- 2026-06-29 17:52 - [韩国小学生都来吐槽了](http://www.blog.kurohicncr.top/Article/details/7150767.shtml)
+- 2026-06-29 18:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/100004.shtml)

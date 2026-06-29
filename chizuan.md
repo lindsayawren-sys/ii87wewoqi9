@@ -1,47 +1,60 @@
-# 江苏宁沪高速公路将于7月13日派发末期股息每股0.56港元
+# 中国商务部：今年前5个月近4000家外企追加对华投资
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-江苏宁沪高速公路（00177）公布，将于2026年7月13日派发末期股息每股0.56港元。责任编辑：卢昱君
+中新社北京6月22日电 (记者 王梦瑶)中国商务部副部长兼国际贸易谈判副代表凌激22日在北京表示，中国存量外资稳中有升、增量外资总体稳定。这些年外资有进也有出，但是总体来看进大于出。今年1至5月，有近4000家外资企业追加投资。凌激在当天举办的国新办新闻发布会上表示，近年来，全球经济增长乏力、地缘政治冲突、全球跨境直接投资下行等外部不利因素对中国吸引外资造成了一定影响，但这些影
 
 ## 正文
 
-江苏宁沪高速公路（00177）公布，将于2026年7月13日派发末期股息每股0.56港元。
+中新社北京6月22日电 (记者 王梦瑶)中国商务部副部长兼国际贸易谈判副代表凌激22日在北京表示，中国存量外资稳中有升、增量外资总体稳定。
 
-责任编辑：卢昱君
+这些年外资有进也有出，但是总体来看进大于出。
+
+今年1至5月，有近4000家外资企业追加投资。
+
+凌激在当天举办的国新办新闻发布会上表示，近年来，全球经济增长乏力、地缘政治冲突、全球跨境直接投资下行等外部不利因素对中国吸引外资造成了一定影响，但这些影响主要反映在中国吸引外资增量上的波动，对存量外资的影响并不是很大。
+
+当前，中国外资企业数量不断增加，到2025年底，外资企业数量达到53.3万家，与2020年底相比，年均增长4.5%。
+
+到2025年底，存量外资规模已接近4万亿美元。
+
+据不完全统计，2025年有8000多家外资企业增加对华投资，同比增长超过10%。
+
+今年1至5月，有近4000家外资企业追加投资。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 17:59 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 17:44 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 17:54 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 17:37 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 17:52 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 18:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 17:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 17:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 18:00 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 18:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 17:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 17:50 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 18:09 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 17:48 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 18:04 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 17:49 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:10 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 17:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 18:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 18:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 17:51 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:10 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 17:57 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 17:46 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 17:45 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/141364818.shtml)
-- 2026-06-29 17:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/18961887289.shtml)
-- 2026-06-29 17:58 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/732586578.shtml)
-- 2026-06-29 18:05 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/09270.shtml)
-- 2026-06-29 17:40 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/85319.shtml)
-- 2026-06-29 18:05 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/0952604374.shtml)
-- 2026-06-29 17:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/945851.shtml)
-- 2026-06-29 17:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/841236.shtml)
-- 2026-06-29 17:51 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/4007094.shtml)
-- 2026-06-29 17:48 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/824666852580.shtml)
-- 2026-06-29 17:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/66398.shtml)
-- 2026-06-29 17:36 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/3039270.shtml)
-- 2026-06-29 17:44 - [东方风云榜](http://www.share.minike.top/Article/details/960980653.shtml)
-- 2026-06-29 17:55 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/514546.shtml)
-- 2026-06-29 17:46 - [起风了](https://www.blog.minike.top/Article/details/013299181.shtml)
+- 2026-06-29 17:59 - [当我回母校教书](https://www.blog.minike.top/Article/details/346139066.shtml)
+- 2026-06-29 17:45 - [女心理师](http://www.blog.kurohicncr.top/Article/details/883907027566.shtml)
+- 2026-06-29 17:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/28545071.shtml)
+- 2026-06-29 17:51 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/39935350721.shtml)
+- 2026-06-29 18:09 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/487680498367.shtml)
+- 2026-06-29 17:54 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/34424.shtml)
+- 2026-06-29 18:11 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/74862216.shtml)
+- 2026-06-29 17:43 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/520409192943.shtml)
+- 2026-06-29 18:01 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/5925921849.shtml)
+- 2026-06-29 18:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/25057.shtml)
+- 2026-06-29 17:59 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/038454135815.shtml)
+- 2026-06-29 18:10 - [叠纸](http://www.blog.minike.top/Article/details/8226280947.shtml)
+- 2026-06-29 17:58 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/35278287964.shtml)
+- 2026-06-29 17:45 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.minike.top/Article/details/7322094420.shtml)
+- 2026-06-29 17:57 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/10507915.shtml)

@@ -1,58 +1,56 @@
-# 不得将比价、运费险等与促销活动绑定 市场监管总局发布“618”合规提示
+# 跨越语言的此刻 《十一月的此刻》分享会举办
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，针对今年618网络集中促销，总局提前介入、靠前监管，向各大平台发布618网络集中促销合规提示，明确六大合规责任，全方位护航消费旺季。 第一，严把准入关口。落实“守门人”职责，严格资质核验登记，坚决清退无证无照、吊销注销、不合规经
+中新网北京6月22日电 (记者 高凯)BIBF·首都文化科技集团系列活动“跨越语言的此刻——普利策小说奖得主约瑟芬·约翰逊《十一月的此刻》分享会”日前在京举行。 活动邀请到该书译者、北京师范大学外国语言文学学院教授郭乙瑶，中国人民大学外国语学院副教授许小凡，共同展开一场跨越时空与语言的文学对话。 约瑟芬·约翰逊是美国小说家、诗人和散文家，她曾在《大西洋月刊》《名利场》《圣路易斯
 
 ## 正文
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
+中新网北京6月22日电 (记者 高凯)BIBF·首都文化科技集团系列活动“跨越语言的此刻——普利策小说奖得主约瑟芬·约翰逊《十一月的此刻》分享会”日前在京举行。
 
-会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，针对今年618网络集中促销，总局提前介入、靠前监管，向各大平台发布618网络集中促销合规提示，明确六大合规责任，全方位护航消费旺季。
+活动邀请到该书译者、北京师范大学外国语言文学学院教授郭乙瑶，中国人民大学外国语学院副教授许小凡，共同展开一场跨越时空与语言的文学对话。
 
-第一，严把准入关口。
+约瑟芬·约翰逊是美国小说家、诗人和散文家，她曾在《大西洋月刊》《名利场》《圣路易斯评论》等发表短篇小说。
 
-落实“守门人”职责，严格资质核验登记，坚决清退无证无照、吊销注销、不合规经营主体。
+多次获欧·亨利奖。
 
-第二，严管价格秩序。
+1935年，年仅25岁的约翰逊凭借自己的首部小说《十一月的此刻》获得普利策小说奖。
 
-落实明码标价，公开动态定价规则，严查虚假降价、误导促销、刷单炒信，保障平台内经营者公平竞争。
+《十一月的此刻》中，麦格一家在美国大萧条时期因负债不得不举家回到农村生活。
 
-第三，规范平台规则。
+生活的沉重时刻挤压着家庭里的每一个人，他们只好拼命劳作，换取收成。
 
-清理不合理捆绑条款，推动规则公开透明，不得将“比价”“跟价”“运费险”等与促销活动绑定。
+大自然偶尔以温柔的力量治愈着麦格与这个家庭，但幸福在贫瘠的生活面前几乎没有绽放的可能。
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 17:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 17:49 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 18:02 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 17:39 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 17:51 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 18:03 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 17:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 17:42 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 17:46 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 17:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:48 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 17:48 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 18:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 18:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 18:06 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 17:59 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:01 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 17:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 18:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 18:06 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 18:04 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/33399.shtml)
-- 2026-06-29 17:51 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/47166.shtml)
-- 2026-06-29 18:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/54171982802.shtml)
-- 2026-06-29 17:54 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/28885692.shtml)
-- 2026-06-29 17:53 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/21948797.shtml)
-- 2026-06-29 17:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/14932303286.shtml)
-- 2026-06-29 17:56 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/043381.shtml)
-- 2026-06-29 17:54 - [沙丘](http://www.blog.minike.top/Article/details/721238207519.shtml)
-- 2026-06-29 17:39 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1221633.shtml)
-- 2026-06-29 17:44 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/6805929863.shtml)
-- 2026-06-29 17:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/54818684785.shtml)
-- 2026-06-29 17:58 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/865212.shtml)
-- 2026-06-29 17:38 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/865694214527.shtml)
-- 2026-06-29 18:03 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/120343.shtml)
-- 2026-06-29 17:36 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/1669971687.shtml)
+- 2026-06-29 18:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/558530118650.shtml)
+- 2026-06-29 17:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/97668820.shtml)
+- 2026-06-29 17:48 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/536264.shtml)
+- 2026-06-29 18:09 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/61799.shtml)
+- 2026-06-29 17:42 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/933691841.shtml)
+- 2026-06-29 17:43 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/26996878066.shtml)
+- 2026-06-29 18:10 - [扬名立万](http://www.blog.minike.top/Article/details/36022884522.shtml)
+- 2026-06-29 17:50 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/20447760955.shtml)
+- 2026-06-29 17:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/47523353.shtml)
+- 2026-06-29 18:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/865626.shtml)
+- 2026-06-29 17:56 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/27532227611.shtml)
+- 2026-06-29 18:08 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/9884039669.shtml)
+- 2026-06-29 18:07 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/955240.shtml)
+- 2026-06-29 18:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/810799.shtml)
+- 2026-06-29 18:10 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/397793496.shtml)

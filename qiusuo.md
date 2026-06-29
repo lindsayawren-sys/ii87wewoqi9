@@ -1,60 +1,56 @@
-# 科学守护世界最高峰：珠峰站助攀“科技高峰”创造“精神高峰”
+# 哪些“双一流”高校参与扩招？重点投向哪些领域？
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网西藏珠峰站6月15日电 (记者 孙自法)“在高原上工作，最稀缺的是氧气，最宝贵的是精神”“缺氧不缺信仰”“这里开展观测研究，不仅是科研发现，更在于科学守护”…… 在中国科学院青藏高原研究所西藏珠穆朗玛特殊大气过程与环境变化国家野外科学观测研究站(珠峰站)，这是科研人员最常说的几句话。 珠峰站位于西藏自治区日喀则市定日县扎西宗乡附近绒布河畔，海拔4276米，距离珠峰登山大本
+原标题：高校招生你问我答 | 哪些“双一流”高校参与扩招？重点投向哪些领域？ 央视网消息：“十五五”时期，“双一流”高校本科将扩招10万人以上。今年，众多优质本科高校都宣布扩大招生规模。很多考生和家长关心都有哪些高校参与扩招？将扩充多大规模？重点投向哪些领域？一起来看《高校招生你问我答》的梳理。 今年，“双一流”高校中，东南大学扩招人数将达600人，西安电子科技大学将扩招400
 
 ## 正文
 
-中新网西藏珠峰站6月15日电 (记者 孙自法)“在高原上工作，最稀缺的是氧气，最宝贵的是精神”“缺氧不缺信仰”“这里开展观测研究，不仅是科研发现，更在于科学守护”…… 在中国科学院青藏高原研究所西藏珠穆朗玛特殊大气过程与环境变化国家野外科学观测研究站(珠峰站)，这是科研人员最常说的几句话。
+原标题：高校招生你问我答 | 哪些“双一流”高校参与扩招？
 
-珠峰站位于西藏自治区日喀则市定日县扎西宗乡附近绒布河畔，海拔4276米，距离珠峰登山大本营约30公里，是喜马拉雅山中段、珠峰北坡唯一的长期综合观测研究站。
+重点投向哪些领域？
 
-历经20多年持续建设，珠峰站现已发展成为中国在喜马拉雅地区最重要的综合观测与科学研究平台之一。
+央视网消息：“十五五”时期，“双一流”高校本科将扩招10万人以上。
 
-珠峰地区自然环境极端恶劣，低氧、低温、强风、高辐射是标配。
+今年，众多优质本科高校都宣布扩大招生规模。
 
-记者近日探访珠峰站，对此就有切身感受：步伐快了一点，都要喘上几喘；盛夏时节，穿着抓绒冲锋衣还有些凉意；午后强风来袭，脸被吹得生疼；到站上刚半天时间，皮肤颜色肉眼可见地变深。
+很多考生和家长关心都有哪些高校参与扩招？
 
-不过，这一切对于珠峰站的科研工作人员来说，早已司空见惯。
+将扩充多大规模？
 
-他们更关心的是科研观测仪器设备运行情况、数据采集传输效果和如何科学守护好世界最高峰。
+重点投向哪些领域？
 
-在珠峰站创站站长、现任学术站长马耀明研究员看来，珠峰站不仅是一座科研观测站，也是一种精神象征，代表着中国科学家攀登“科技高峰”、创造“精神高峰”的追求，也体现出中国科学家在极端环境中坚持自主创新、长期观测和服务国家需求的科学品格。
+一起来看《高校招生你问我答》的梳理。
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 17:37 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 17:41 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 17:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 17:53 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 17:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 17:36 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 17:57 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 17:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 18:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 18:03 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:59 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 17:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 18:11 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 17:43 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 17:48 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 18:11 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 18:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 17:47 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 18:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 18:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 18:11 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:57 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/5575891910.shtml)
-- 2026-06-29 18:02 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/4634260.shtml)
-- 2026-06-29 17:44 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/01658.shtml)
-- 2026-06-29 17:57 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/47418.shtml)
-- 2026-06-29 17:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/3118259544.shtml)
-- 2026-06-29 17:37 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/2618355.shtml)
-- 2026-06-29 17:57 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/86999589.shtml)
-- 2026-06-29 17:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/29069365643.shtml)
-- 2026-06-29 18:01 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/34825670.shtml)
-- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/2132521.shtml)
-- 2026-06-29 17:49 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/7019773183.shtml)
-- 2026-06-29 17:46 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/417583687624.shtml)
-- 2026-06-29 17:55 - [起风了](https://www.blog.kurohicncr.top/Article/details/401555678985.shtml)
-- 2026-06-29 18:04 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/425634526306.shtml)
-- 2026-06-29 18:03 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/537556709.shtml)
+- 2026-06-29 18:10 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/237584475.shtml)
+- 2026-06-29 18:05 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/3147244411.shtml)
+- 2026-06-29 18:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/429606824161.shtml)
+- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/8295277175.shtml)
+- 2026-06-29 18:01 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/84540.shtml)
+- 2026-06-29 17:52 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/4650198.shtml)
+- 2026-06-29 17:44 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/84334.shtml)
+- 2026-06-29 17:47 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/99198810.shtml)
+- 2026-06-29 17:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/86329345507.shtml)
+- 2026-06-29 17:52 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/87478.shtml)
+- 2026-06-29 17:45 - [周生如故](http://www.share.minike.top/Article/details/494836459.shtml)
+- 2026-06-29 17:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/585187.shtml)
+- 2026-06-29 17:59 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/95505781830.shtml)
+- 2026-06-29 17:55 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/09060667.shtml)
+- 2026-06-29 17:53 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/51313843.shtml)

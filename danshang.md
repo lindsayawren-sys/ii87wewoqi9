@@ -1,55 +1,57 @@
-# 自动盘点、实时监测…… “AI养猪”为生猪产业装上“智慧大脑”
+# AH硬科技巨震！规模最大港股通信息技术ETF华宝（159131）新高后首回调跌逾5%，实时申购9900万份！
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。 在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。据介绍，这些猪场均采取全封闭式管理，猪舍内采用的
+今日（6月23日），AH硬科技大幅回调，港股方面，智谱、胜宏科技、澜起科技、建滔集团等多股跌逾10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日创上市新高后迎来回踩，场内价格现跌5.75%，溢价走阔，实时申购9900万份，净申购6400万份！ 银河证券指出，展望2026年下半年，港股市场“洼地”是事实，“迷局”是现状，“长坡”是方向，“蓄力”是过
 
 ## 正文
 
-发布时间：2026年06月15日 20:19 来源：中国新闻网 6月15日，记者走进位于重庆荣昌区的国家级生猪大数据中心，猪只自动盘点、智能环控监测、实时体征数据……一项项生猪数据汇聚到大屏之上。
+今日（6月23日），AH硬科技大幅回调，港股方面，智谱、胜宏科技、澜起科技、建滔集团等多股跌逾10%。
 
-生猪养殖统计、价格趋势、产品生产走势、养殖户与屠宰场数量等信息一目了然。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）继昨日创上市新高后迎来回踩，场内价格现跌5.75%，溢价走阔，实时申购9900万份，净申购6400万份！
 
-在中心的智能猪场养殖监测屏幕上，显示着各个猪场的实时猪舍画面。
+银河证券指出，展望2026年下半年，港股市场“洼地”是事实，“迷局”是现状，“长坡”是方向，“蓄力”是过程。
 
-据介绍，这些猪场均采取全封闭式管理，猪舍内采用的智能风机、水帘等设备根据实时环境参数自动调节，保持舍内舒适；饲喂系统通过智能耳标识别身份后，为每头猪投喂量身定制的营养餐，从而提升饲料转化效率。
+当前基本面（营收、盈利、ROE）已确认拐点，但市场信心和资金流向尚未形成合力。
 
-此外，该大数据中心推出的智慧“阳光码”能够精准识别来源不明的猪肉，有效保障食品安全。
+在加快科技创新、扩大内需等利好政策带动下，若中美关系于四季度明显改善，基本面反弹信号确认，港股上市公司盈利水平有望实现实质性提升，港股总体有望迎来盈利与估值共振上行的行情。
 
-据悉，国家级生猪大数据中心是农业农村部批准建设的全国首个、目前唯一的畜牧单品种国家级大数据服务平台。
+配置方面，科技创新将是港股投资的一大主线。
 
-(贾楠 景诗雁） 责任编辑：【李季】
+随着AI行情从纯硬件向算力租赁、云服务、半导体、人形机器人、MaaS服务全产业链等领域扩散，港股结构劣势有望转化为相对优势。
+
+数据来源：iFind，截至2026.6.22。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 17:59 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 17:59 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 17:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 18:04 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 18:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 18:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 17:49 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 18:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 17:45 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 17:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 18:08 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 18:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 18:06 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 17:58 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 17:53 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 17:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 18:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 17:52 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/625123.shtml)
-- 2026-06-29 18:01 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/55461.shtml)
-- 2026-06-29 17:36 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/91479.shtml)
-- 2026-06-29 17:59 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/83151885241.shtml)
-- 2026-06-29 18:00 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/94050.shtml)
-- 2026-06-29 17:55 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/519915.shtml)
-- 2026-06-29 18:01 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/1194481.shtml)
-- 2026-06-29 17:49 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/1683327842.shtml)
-- 2026-06-29 18:02 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/5420778207.shtml)
-- 2026-06-29 17:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/836998.shtml)
-- 2026-06-29 17:41 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/312279408.shtml)
-- 2026-06-29 17:43 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/582556912.shtml)
-- 2026-06-29 17:41 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/281355997.shtml)
-- 2026-06-29 17:45 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/602913452609.shtml)
-- 2026-06-29 17:46 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/84932103.shtml)
+- 2026-06-29 17:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/432736452.shtml)
+- 2026-06-29 17:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/7534470.shtml)
+- 2026-06-29 17:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/23424.shtml)
+- 2026-06-29 18:09 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/1853586.shtml)
+- 2026-06-29 18:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/355810.shtml)
+- 2026-06-29 18:08 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/18231179.shtml)
+- 2026-06-29 18:00 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/024059.shtml)
+- 2026-06-29 17:52 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/38993043.shtml)
+- 2026-06-29 17:51 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/93268623.shtml)
+- 2026-06-29 17:56 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/95892.shtml)
+- 2026-06-29 17:51 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/766632249.shtml)
+- 2026-06-29 17:53 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/3994174.shtml)
+- 2026-06-29 17:45 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/05716599293.shtml)
+- 2026-06-29 18:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8822457430.shtml)
+- 2026-06-29 17:52 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/839303108.shtml)

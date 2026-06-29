@@ -1,56 +1,61 @@
-# “学习的苦是苦中带甜” 51岁工地大叔9年考下13证 月薪过万
+# 李强会见几内亚总理乌里·巴
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 20:39 来源：中国新闻网 近日，51岁的河南大叔苏小锋走红网络，被网友誉为“逆袭范本”。2017年，他从老家来到杭州一处建筑工地做杂工，因受技术工友的启发，开始自学考取建筑电工证。此后9年间，他利用业余时间先后拿下13本专业技术证书，并完成中专和大专课程。如今，苏小锋担任管理40余个工地的安全监督员，月收入过万元，并带领30多名工友一起学习
+新华社大连6月23日电(记者孙楠、武江民)6月23日上午，国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。 李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。当前，在习近平主席同敦布亚
 
 ## 正文
 
-发布时间：2026年06月16日 20:39 来源：中国新闻网 近日，51岁的河南大叔苏小锋走红网络，被网友誉为“逆袭范本”。
+新华社大连6月23日电(记者孙楠、武江民)6月23日上午，国务院总理李强在大连会见来华出席夏季达沃斯论坛的几内亚总理乌里·巴。
 
-2017年，他从老家来到杭州一处建筑工地做杂工，因受技术工友的启发，开始自学考取建筑电工证。
+李强表示，几内亚是同新中国建交的第一个撒哈拉以南非洲国家，两国虽然相隔万里，但是友好情谊源远流长。
 
-此后9年间，他利用业余时间先后拿下13本专业技术证书，并完成中专和大专课程。
+过去数十年，无论是在捍卫国家主权和独立的斗争中，还是在推动经济社会发展的道路上，中几始终风雨同舟、守望相助，取得一系列合作成果。
 
-如今，苏小锋担任管理40余个工地的安全监督员，月收入过万元，并带领30多名工友一起学习。
+当前，在习近平主席同敦布亚总统的战略引领下，中几关系持续深化发展。
 
-他表示，学习的苦是苦中带甜，晚一步出发，靠努力同样能抵达高峰。
+今年两国迎来建立全面战略合作伙伴关系10周年，中方愿同几方以此为契机，进一步弘扬传统友谊，在涉及彼此核心利益问题上坚定相互支持，推动各领域合作走深走实，更好惠及两国人民。
 
-(孙琳茹 代春梅 杜海涛 马尧 制作 徐妙巧） 责任编辑：【李季】
+李强指出，中方愿同几方加强中国“十五五”规划和几内亚“西芒杜2040”战略规划对接，用好用足中方零关税、非洲农产品输华“绿色通道”升级等政策便利，提升贸易、农业、矿业等合作水平，确保西芒杜等重点项目稳定运营，发掘金融、产业园区、电力等领域合作潜力，实现更高水平的互利共赢。
+
+希望几方为中国企业赴几投资提供稳定政策保障和良好营商环境。
+
+双方还要深入落实中非合作论坛北京峰会“十大伙伴行动”，加强教育、减贫、医疗、人力资源开发等方面交流合作，提升民众对两国友好合作的获得感。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 17:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 17:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 17:53 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 17:50 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 18:03 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 18:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 18:05 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 17:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 17:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 17:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 17:53 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 17:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 17:54 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 18:00 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 17:43 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 18:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 17:44 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 18:01 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 18:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 17:56 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 18:01 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 17:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 17:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 18:00 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 17:49 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 18:01 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 17:57 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/060070.shtml)
-- 2026-06-29 17:37 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4669514593.shtml)
-- 2026-06-29 17:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/62843.shtml)
-- 2026-06-29 17:40 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/9318825162.shtml)
-- 2026-06-29 17:53 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/07036683667.shtml)
-- 2026-06-29 18:00 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/679377447642.shtml)
-- 2026-06-29 17:38 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/397309341.shtml)
-- 2026-06-29 17:58 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/78944.shtml)
-- 2026-06-29 17:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/87629890.shtml)
-- 2026-06-29 18:03 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/3223356.shtml)
-- 2026-06-29 17:36 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/380593739651.shtml)
-- 2026-06-29 17:47 - [女心理师](http://www.share.minike.top/Article/details/1301646414.shtml)
-- 2026-06-29 17:38 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/7268090.shtml)
-- 2026-06-29 17:48 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/32219680944.shtml)
-- 2026-06-29 17:45 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/95525.shtml)
+- 2026-06-29 17:58 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/378984.shtml)
+- 2026-06-29 18:03 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/9774392410.shtml)
+- 2026-06-29 17:55 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/0546088197.shtml)
+- 2026-06-29 18:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/760449.shtml)
+- 2026-06-29 17:52 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/25820125453.shtml)
+- 2026-06-29 17:48 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/134559.shtml)
+- 2026-06-29 17:44 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/226708.shtml)
+- 2026-06-29 17:51 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/943141.shtml)
+- 2026-06-29 18:02 - [周生如故](https://www.share.minike.top/Article/details/429588.shtml)
+- 2026-06-29 17:51 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/3906665.shtml)
+- 2026-06-29 17:53 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/2428439.shtml)
+- 2026-06-29 18:01 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/60749466903.shtml)
+- 2026-06-29 18:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/47329317.shtml)
+- 2026-06-29 18:02 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/2042497091.shtml)
+- 2026-06-29 17:53 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/867636892.shtml)

@@ -1,60 +1,58 @@
-# 湖南“红背包”行动走进侗乡苗寨 夯实地质灾害群测群防体系
+# 四家A股公司，“摘星脱帽”！明日复牌
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网长沙6月15日电(周昌琪)湖南省自然资源厅15日透露，第十届湖南省地质灾害防治宣传“红背包”行动于9日至12日先后在怀化市会同县、湘西土家族苗族自治州泸溪县实施。此次活动紧扣武陵山区临坡建房等地质灾害防控痛点，采用“流动宣传—定点科普—入校培训”三维一体科普体系，让地质灾害防治知识进村寨、入校园。两场活动累计覆盖群众、师生1400余人次。 活动期间，搭载科普设备的“红背包
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！*ST金比、*ST星光（维权）、*ST新研、*ST天山6月17日晚分别公告称，撤销退市风险警示。 四家公司于6月18日停牌一天，6月22日（明日）开市起复牌并“摘星脱帽”。此前，四家公司均因触及财务类退市红线，而被实施退市风险警示。 *ST金比：6月22日起撤销退市风险警示 股票简称变更为“金发拉比” *S
 
 ## 正文
 
-中新网长沙6月15日电(周昌琪)湖南省自然资源厅15日透露，第十届湖南省地质灾害防治宣传“红背包”行动于9日至12日先后在怀化市会同县、湘西土家族苗族自治州泸溪县实施。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次活动紧扣武陵山区临坡建房等地质灾害防控痛点，采用“流动宣传—定点科普—入校培训”三维一体科普体系，让地质灾害防治知识进村寨、入校园。
+*ST金比、*ST星光（维权）、*ST新研、*ST天山6月17日晚分别公告称，撤销退市风险警示。
 
-两场活动累计覆盖群众、师生1400余人次。
+四家公司于6月18日停牌一天，6月22日（明日）开市起复牌并“摘星脱帽”。
 
-活动期间，搭载科普设备的“红背包”流动宣传车深入村寨腹地，滚动播放“住上不住下、住前不住后”等朗朗上口的安全口诀，以及《挪床行动》情景剧、地质灾害防治花鼓戏等本土化科普视频，让专业内容听得懂、记得住、用得上。
+此前，四家公司均因触及财务类退市红线，而被实施退市风险警示。
 
-由地质专家与志愿者组成“移动宣讲队”分片包干，走进村寨广场、便民服务点等设置流动咨询台，面对面答疑解惑、手把手发放资料。
+*ST金比：6月22日起撤销退市风险警示 股票简称变更为“金发拉比” *ST金比（002762.SZ）公告称，公司股票将于2026年6月18日开市起停牌1天，并于2026年6月22日开市起撤销退市风险警示并复牌。
 
-同时，工作人员聚焦重点人群，主动上门为独居老人、临坡建房户、切坡修路农户自查实操教学，从屋后排水沟清理到山体裂缝识别，从简易监测方法到日常巡查要点，点对点补短板、实打实强能力，切实打通基层防灾科普“最后一米”。
+公司证券简称将由“*ST金比”变更为“金发拉比”，证券代码仍为“002762”，股票交易的日涨跌幅限制由“5%”变更为“10%”。
 
-依托乡镇赶集日人流高峰，会同县金子岩侗族苗族乡与泸溪县部分乡镇同步搭建“红背包”科普铺，通过图文展板讲原理、实景模拟练反应、有奖答题激兴趣、互动体验促理解四类标准化互动形式，系统普及降雨预警、边坡滑移避让、山洪逃生等地质灾害核心避险技能，在轻松氛围中提升山区群众安全素养与应急本领。
+*ST星光：6月22日起撤销退市风险警示 股票简称变更为“星光股份” *ST星光（002076.SZ）公告称，公司撤销退市风险警示的申请已获得深圳证券交易所审核同意。
 
-“红背包”进校园活动在会同县王家坪明德学校和泸溪县两所乡镇中小学同步推进。
+根据《深圳证券交易所股票上市规则》有关规定，公司股票将于2026年6月18日开市起停牌1天，并于2026年6月22日开市起撤销退市风险警示并复牌，股票简称由“*ST星光”变更为“星光股份”，股票代码仍为“002076”，股票交易日涨跌幅限制由“5%”变更为“10%”。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 17:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 18:03 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 17:50 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 17:46 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:45 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 17:47 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 18:00 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 17:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 17:42 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 17:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 17:50 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 17:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 17:44 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:48 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 17:43 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 18:08 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 17:47 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 17:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 18:00 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 17:52 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 17:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 17:44 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 18:08 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 17:50 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 18:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:05 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/88436652464.shtml)
-- 2026-06-29 18:04 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/585092911.shtml)
-- 2026-06-29 17:45 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/985912591.shtml)
-- 2026-06-29 17:38 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/065111448.shtml)
-- 2026-06-29 17:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/978518.shtml)
-- 2026-06-29 17:42 - [爱很美味](http://www.share.kurohicncr.top/Article/details/24660.shtml)
-- 2026-06-29 17:51 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/51034032895.shtml)
-- 2026-06-29 17:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/45284.shtml)
-- 2026-06-29 17:41 - [逃狱兄弟](https://www.blog.minike.top/Article/details/14593357103.shtml)
-- 2026-06-29 17:49 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/53115139999.shtml)
-- 2026-06-29 17:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/30284898.shtml)
-- 2026-06-29 17:58 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/56371570667.shtml)
-- 2026-06-29 17:47 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/6131800654.shtml)
-- 2026-06-29 18:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/9250378830.shtml)
-- 2026-06-29 18:05 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9228688927.shtml)
+- 2026-06-29 17:57 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/13360164.shtml)
+- 2026-06-29 17:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/942849880.shtml)
+- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/862046593820.shtml)
+- 2026-06-29 18:08 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/87599077.shtml)
+- 2026-06-29 17:50 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/26132.shtml)
+- 2026-06-29 17:46 - [AG 宫斗](https://www.blog.minike.top/Article/details/73234436534.shtml)
+- 2026-06-29 17:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/97473716872.shtml)
+- 2026-06-29 17:59 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/14413.shtml)
+- 2026-06-29 17:46 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/97584.shtml)
+- 2026-06-29 17:44 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/339052184466.shtml)
+- 2026-06-29 17:53 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/489561580.shtml)
+- 2026-06-29 18:04 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/80740333.shtml)
+- 2026-06-29 18:10 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/79292.shtml)
+- 2026-06-29 17:53 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/35542998513.shtml)
+- 2026-06-29 18:09 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/6831238.shtml)

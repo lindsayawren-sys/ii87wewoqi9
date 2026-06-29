@@ -1,56 +1,58 @@
-# “中国茭白之乡”浙江缙云采收忙
+# 王毅会见伊朗最高国家安全委员会副秘书内扎米普尔
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发
+中新社北京6月22日电 6月22日，中共中央政治局委员、中央外办主任王毅在新德里会见伊朗最高国家安全委员会副秘书内扎米普尔。 王毅表示，中方欢迎伊美双方在巴基斯坦、卡塔尔协助下启动谅解备忘录后续磋商，并就下步谈判机制形成共识。谅解备忘录十四点核心条款来之不易，明确提出立即永久停止敌对行动，不再使用或威胁使用武力，相互尊重彼此主权和领土完整，避免干涉对方内政等，这些内容体现了平等
 
 ## 正文
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+中新社北京6月22日电 6月22日，中共中央政治局委员、中央外办主任王毅在新德里会见伊朗最高国家安全委员会副秘书内扎米普尔。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+王毅表示，中方欢迎伊美双方在巴基斯坦、卡塔尔协助下启动谅解备忘录后续磋商，并就下步谈判机制形成共识。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+谅解备忘录十四点核心条款来之不易，明确提出立即永久停止敌对行动，不再使用或威胁使用武力，相互尊重彼此主权和领土完整，避免干涉对方内政等，这些内容体现了平等精神，符合联合国宪章宗旨，符合国际关系准则。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+维护和落实好谅解备忘录，有助于巩固得来不易的停火局面，有助于开启伊美关系新的前景，有助于让和平重返中东地区，不仅符合伊方国家和民族的根本利益，也顺应国际社会的共同期待。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐河南三门峡：端午节香包走俏 传统手艺焕新彩封关半年看海南：中外巨轮频频“打卡”！
+中方作为伊朗全面战略伙伴，始终秉持公正立场，支持一切有助于和平的努力，支持伊方维护主权安全和民族尊严，支持伊朗改善同海湾各国及地区国家关系，愿继续以自己的方式提供协助，为早日恢复地区和平安宁发挥建设性作用。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+王毅说，伊朗是中国的全面战略伙伴，双方有着传统友谊。
 
-感觉遍地是机会直击武警多课目比武竞赛现场西藏羊卓雍错：夏日限定高原盛景幼儿园举行自理能力大赛 淡定小孩哥不慌不忙2034年能踢进世界杯吗？
+中方始终从战略和长远角度把握推进中伊关系，愿同伊方一道，加强高层交往、巩固政治互信、深化务实合作，推动中伊关系行稳致远。
 
-中国足球小将“空翻哥”的回答很棒南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁中广核福建宁德核电5号机组穹顶吊装成功 “中国最美小鸟”蓝喉蜂虎现身闽北 2026年世界杯美国赛区揭幕战在洛杉矶举行 “太阳神鸟金饰”亮相中国国家博物馆 西藏那曲铁路护路队：羌塘草原上的“白杨礼 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 分享 评论 顶部
+内扎米普尔通报了中东局势和伊美谈判最新情况，衷心感谢中方坚持劝和止战，高度赞赏习近平主席就维护中东和平稳定提出的四点主张，期待中方继续发挥重要作用，助推伊美第一阶段谅解备忘录得到切实执行。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 17:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 18:04 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 17:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 17:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 17:40 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 18:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 18:03 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 17:46 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 17:46 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 18:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 18:03 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 17:50 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 17:47 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 18:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 18:00 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 17:49 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 17:53 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 17:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 18:00 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/80505756875.shtml)
-- 2026-06-29 17:39 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/60793.shtml)
-- 2026-06-29 17:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/55557319.shtml)
-- 2026-06-29 17:48 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/792650.shtml)
-- 2026-06-29 17:46 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/178755.shtml)
-- 2026-06-29 18:01 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/82356669669.shtml)
-- 2026-06-29 17:36 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/693341922242.shtml)
-- 2026-06-29 18:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/97822792732.shtml)
-- 2026-06-29 17:55 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/200686.shtml)
-- 2026-06-29 17:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/50596.shtml)
-- 2026-06-29 18:00 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/98798505.shtml)
-- 2026-06-29 17:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/77137989221.shtml)
-- 2026-06-29 17:38 - [金刚川](http://www.blog.minike.top/Article/details/293165203.shtml)
-- 2026-06-29 17:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/32722.shtml)
-- 2026-06-29 17:47 - [人类对空调和其他家电有多双标](https://www.blog.kurohicncr.top/Article/details/2817098942.shtml)
+- 2026-06-29 18:05 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/2334498692.shtml)
+- 2026-06-29 17:49 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/95502.shtml)
+- 2026-06-29 17:43 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/91634080.shtml)
+- 2026-06-29 17:57 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/491576814169.shtml)
+- 2026-06-29 17:52 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/081339244.shtml)
+- 2026-06-29 17:48 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/421405540.shtml)
+- 2026-06-29 18:01 - [NBA交易](https://www.blog.minike.top/Article/details/00386867952.shtml)
+- 2026-06-29 17:51 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/740306770978.shtml)
+- 2026-06-29 17:44 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/052261.shtml)
+- 2026-06-29 17:53 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/68992226590.shtml)
+- 2026-06-29 18:11 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/83811848010.shtml)
+- 2026-06-29 18:02 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/775241956466.shtml)
+- 2026-06-29 17:50 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/567348301.shtml)
+- 2026-06-29 17:51 - [速度与激情9](https://www.blog.minike.top/Article/details/78373.shtml)
+- 2026-06-29 17:54 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/610246.shtml)

@@ -1,57 +1,53 @@
-# 市场监管总局修订严重违法失信名单管理办法 这些行为将被严惩
+# 渠水湖南靖州段迎战最大洪峰 1264人安全转移
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，有记者问：近日，市场监管总局修订出台了《市场监督管理严重违法失信名单管理办法》，请问主要修订了哪些内容？ 对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，本次失信名单办法修订，是完善信用监管、净化市场环境、护航高质量发展的重要制度升级，重点从4个维度，补短板、强弱项、立
+发布时间：2026年06月22日 18:15 来源：中国新闻网 在湖南靖州苗族侗族自治县，受上游持续强降雨汇流影响，渠水流域水位迅猛攀升。6月21日18时，本轮汛期关键洪峰过境，沿河堤防全面进入高水位戒备状态。靖州迅速启动洪水防御Ⅳ级响应，水利、应急、公安、自然资源、交通等多部门全员在岗、联动值守，排查处置汛期风险隐患，提前安全转移民众485户1264人，严密防范汛期各类险情。
 
 ## 正文
 
-中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
+发布时间：2026年06月22日 18:15 来源：中国新闻网 在湖南靖州苗族侗族自治县，受上游持续强降雨汇流影响，渠水流域水位迅猛攀升。
 
-会上，有记者问：近日，市场监管总局修订出台了《市场监督管理严重违法失信名单管理办法》，请问主要修订了哪些内容？
+6月21日18时，本轮汛期关键洪峰过境，沿河堤防全面进入高水位戒备状态。
 
-对此，市场监管总局新闻发言人、新闻宣传司司长王秋苹介绍，本次失信名单办法修订，是完善信用监管、净化市场环境、护航高质量发展的重要制度升级，重点从4个维度，补短板、强弱项、立新规。
+靖州迅速启动洪水防御Ⅳ级响应，水利、应急、公安、自然资源、交通等多部门全员在岗、联动值守，排查处置汛期风险隐患，提前安全转移民众485户1264人，严密防范汛期各类险情。
 
-第一，优化监管机制。
-
-打通行政处罚与失信认定流程，完善告知、异议、复核全流程，既提升了监管效能，又保障了企业合法权益。
-
-第二，严惩虚假公示。
-
-从严约束企业信息公示行为，对隐瞒实情、弄虚作假、情节严重的，列入严重违法失信名单，进一步压实企业信息公示主体责任，强化对企业信息公示行为的刚性约束。
-
-第三，紧盯民生安全。
+(付敬懿 刘水华 许梦娟 制作 王佳琪) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 17:45 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 17:43 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 17:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 17:54 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 17:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 17:40 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 18:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 17:42 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 17:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 18:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 18:07 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 17:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 17:59 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 17:59 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 17:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 18:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 18:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 17:50 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 17:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 18:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 18:09 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 18:00 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 17:54 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 17:52 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/9340004719.shtml)
-- 2026-06-29 17:41 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/3415922942.shtml)
-- 2026-06-29 17:47 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/67910327628.shtml)
-- 2026-06-29 17:54 - [王楚钦开门红](http://www.share.minike.top/Article/details/570566616.shtml)
-- 2026-06-29 17:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/52174.shtml)
-- 2026-06-29 17:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/77564767613.shtml)
-- 2026-06-29 17:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/891369.shtml)
-- 2026-06-29 17:47 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/387073466.shtml)
-- 2026-06-29 17:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/18507711690.shtml)
-- 2026-06-29 17:49 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/83652946165.shtml)
-- 2026-06-29 17:36 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/21670035381.shtml)
-- 2026-06-29 17:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/590982.shtml)
-- 2026-06-29 17:48 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/02679302.shtml)
-- 2026-06-29 18:00 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/50847149594.shtml)
-- 2026-06-29 17:41 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/03049.shtml)
+- 2026-06-29 18:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/3086483.shtml)
+- 2026-06-29 17:56 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/79250.shtml)
+- 2026-06-29 17:44 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/567982525.shtml)
+- 2026-06-29 17:52 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/07134705488.shtml)
+- 2026-06-29 17:53 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/5984930914.shtml)
+- 2026-06-29 17:50 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/480018252230.shtml)
+- 2026-06-29 17:42 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/94227.shtml)
+- 2026-06-29 18:08 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/124043588716.shtml)
+- 2026-06-29 18:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/474933.shtml)
+- 2026-06-29 18:11 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/89704577024.shtml)
+- 2026-06-29 18:08 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/93242.shtml)
+- 2026-06-29 17:47 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/098441.shtml)
+- 2026-06-29 17:57 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/86508983142.shtml)
+- 2026-06-29 18:00 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.minike.top/Article/details/92840.shtml)
+- 2026-06-29 18:04 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/253891182935.shtml)

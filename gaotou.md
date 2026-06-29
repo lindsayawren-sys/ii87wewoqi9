@@ -1,44 +1,58 @@
-# 总书记的人民情怀｜“现代化最重要的指标还是人民健康”
+# 黄金越来越“不听话”：不是规律失效，是世界变了
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 09:06 来源：人民日报 责任编辑：【杨彦宇】
+来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！ 同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。 例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。 传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。 问题或许不在黄金
 
 ## 正文
 
-发布时间：2026年06月16日 09:06 来源：人民日报 责任编辑：【杨彦宇】
+来源：中新经纬 中新经纬6月22日电 （宋亚芬）国际金价的走势，越来越让人看不懂了！
+
+同样是地缘冲突升级，有时候黄金上涨，有时候却不涨反跌；同样是美联储降息预期升温，黄金有时大涨，有时却表现平平。
+
+例如，6月22日美伊谈判达成协议，油价下跌，金价反涨；而6月17日协议即将签署时金价却连跌3日。
+
+传统的“乱世买黄金”经验似乎不再适用，黄金正变得越来越“不听话”。
+
+问题或许不在黄金 “乱世黄金”并非空话。
+
+回顾历史上几次军事冲突，这条规律曾多次得到印证。
+
+根据国海证券研报，在第四次中东战争、第二次石油危机、2003年伊拉克战争等时期，黄金价格在3个月和一年内均大幅上涨。
+
+但也有例外。
 
 ## 相关推荐
 
-- 2026-06-29 18:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 17:52 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 17:55 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 17:40 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 17:55 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 18:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 17:40 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 18:04 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 18:01 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 17:46 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 17:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 18:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 18:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 17:59 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 18:02 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 17:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 18:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 17:49 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 18:11 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 18:10 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 17:55 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 17:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 18:11 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/49570139087.shtml)
-- 2026-06-29 17:50 - [T1 KC](https://www.share.minike.top/Article/details/47054401366.shtml)
-- 2026-06-29 17:41 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/399358945212.shtml)
-- 2026-06-29 17:41 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/735554344.shtml)
-- 2026-06-29 17:55 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/0627172040.shtml)
-- 2026-06-29 17:36 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/586727592.shtml)
-- 2026-06-29 17:52 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/464240960.shtml)
-- 2026-06-29 18:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/851026677385.shtml)
-- 2026-06-29 17:45 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/5013713932.shtml)
-- 2026-06-29 17:52 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/8199967361.shtml)
-- 2026-06-29 18:01 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/36117438974.shtml)
-- 2026-06-29 17:50 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/559668.shtml)
-- 2026-06-29 17:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/296757297.shtml)
-- 2026-06-29 17:58 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/908433.shtml)
-- 2026-06-29 17:50 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/75897.shtml)
+- 2026-06-29 17:59 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/942456.shtml)
+- 2026-06-29 18:06 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/05927133968.shtml)
+- 2026-06-29 17:42 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/554857.shtml)
+- 2026-06-29 17:45 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/37716.shtml)
+- 2026-06-29 17:47 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/8852977.shtml)
+- 2026-06-29 17:51 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/255811.shtml)
+- 2026-06-29 17:49 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/471079.shtml)
+- 2026-06-29 18:08 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/61119.shtml)
+- 2026-06-29 17:49 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/4167274663.shtml)
+- 2026-06-29 17:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/632269.shtml)
+- 2026-06-29 17:58 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/8248860.shtml)
+- 2026-06-29 18:01 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/581691607015.shtml)
+- 2026-06-29 17:53 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/53076.shtml)
+- 2026-06-29 18:11 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/1210008897.shtml)
+- 2026-06-29 17:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/49767626.shtml)

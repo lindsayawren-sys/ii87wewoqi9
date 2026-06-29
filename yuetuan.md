@@ -1,56 +1,58 @@
-# 更换套餐阻碍重重 运营商“新老用户不同权”问题如何破解
+# 酒价内参6月22日价格发布：五粮液1618上涨2元
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。 有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
 
 ## 正文
 
-近日，多地消费者投诉，三大电信运营商普遍存在“新老用户不同权”现象。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。
 
-大量网友发文吐槽三大电信运营商的“杀熟”行为，反映办理低价套餐时，客服频繁使用“系统不支持”“套餐已下线”“只能线下办理”等话术反复推诿。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。
 
-只有反复交涉，甚至明确表态要“携号转网”或“向工信部投诉”，运营商才会“勉为其难地抛出一点优惠把你留住”。
+今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
 
-有网友提出，“运营商将低价套餐仅限新用户办理，老用户却无法同权获取，算不算价格歧视？
+今日11大白酒单品四涨七跌，输家占据明显优势。
 
-”“客服以‘系统不支持’‘套餐已下线’为由拒绝老用户降档，但新用户却能正常办理同款套餐，这是否涉嫌欺诈？
+上涨方面，青花汾20涨幅居前，上涨6元/瓶，低位四连涨，平进入六月以来最高价纪录；习酒君品上涨5元/瓶，重新逼近630元关口；五粮液1618与古井贡古20均上涨2元/瓶，其中自昨日创下的近一月最低价小幅反弹，仍处于近一月次低位。
 
-”还有网友提出，“如果当时办理月租时没有特殊约定的话，这种‘新老用户不同权’的做法，是否已经违反了消费者权益保护法中关于知情权、选择权和公平交易权的规定？
+下跌方面，精品茅台与国窖1573跌幅居前，均下跌4元/瓶，其中前者回落至近一月次低位，后者结束此前两日反弹，但仍守住880元关口；水晶剑南春下跌3元/瓶；飞天茅台与青花郎均下跌2元/瓶；五粮液普五八代与洋河梦之蓝M6+均小幅下跌1元/瓶，其中前者已五连阴，失守800元关口后继续下探，创今年2月2日以来最低价，后者结束此前连续三日上扬走势，但价格回落后仍处于近一月次高位。
 
-”“消费者可以通过何种途径维护自己的权益？
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-” 老用户要更换优惠套餐被设置各种阻碍 大量消费者投诉的“新老用户不同权”的一个主要问题就是：高性价比优惠套餐只向新用户或升档用户开放，老用户想改更便宜的套餐，却变得很难。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 17:58 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 18:05 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 17:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 18:05 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 17:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 17:52 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 18:05 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 17:46 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 17:55 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 17:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 18:07 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 18:06 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 17:55 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 18:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 17:52 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 18:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 17:43 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 18:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 18:00 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 18:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 17:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/05445911093.shtml)
-- 2026-06-29 17:42 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/43109319.shtml)
-- 2026-06-29 17:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/712762875.shtml)
-- 2026-06-29 17:36 - [流金岁月](http://www.blog.minike.top/Article/details/884227949592.shtml)
-- 2026-06-29 18:00 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/2628672447.shtml)
-- 2026-06-29 17:58 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/20729250.shtml)
-- 2026-06-29 17:51 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/93565555.shtml)
-- 2026-06-29 17:46 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/8877875.shtml)
-- 2026-06-29 17:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/875887055584.shtml)
-- 2026-06-29 17:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/30413546.shtml)
-- 2026-06-29 17:59 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/5226447993.shtml)
-- 2026-06-29 17:57 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/127475.shtml)
-- 2026-06-29 17:41 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/96985.shtml)
-- 2026-06-29 18:05 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/44910319694.shtml)
-- 2026-06-29 17:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/83720764.shtml)
+- 2026-06-29 18:01 - [博主：AI泡沫必须破灭](http://www.share.kurohicncr.top/Article/details/442114286.shtml)
+- 2026-06-29 18:08 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/90074613679.shtml)
+- 2026-06-29 18:11 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/6993652113.shtml)
+- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/91436.shtml)
+- 2026-06-29 17:52 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/48794.shtml)
+- 2026-06-29 17:58 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/606327886.shtml)
+- 2026-06-29 18:09 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/88662.shtml)
+- 2026-06-29 18:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/959578.shtml)
+- 2026-06-29 17:58 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/651695.shtml)
+- 2026-06-29 18:06 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/65318.shtml)
+- 2026-06-29 18:05 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/643025810945.shtml)
+- 2026-06-29 18:00 - [毒液2](https://www.share.kurohicncr.top/Article/details/6974151035.shtml)
+- 2026-06-29 18:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/870137081.shtml)
+- 2026-06-29 18:03 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/47887825195.shtml)
+- 2026-06-29 17:47 - [一生一世](http://www.share.minike.top/Article/details/545374225103.shtml)

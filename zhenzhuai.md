@@ -1,57 +1,43 @@
-# 200亿银业巨头盛达资源“爆雷”！公司及实控人均被立案
+# 以色列称将继续维持在黎南部“安全区”
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，国内白银龙头企业盛达资源（维权）（000603）发布公告称，因涉嫌信息披露违法违规，中国证监会决定对盛达资源及公司实际控制人赵满堂立案调查。 盛达资源主营贵金属、有色金属矿的采选和销售，是国内银业龙头企业，其白银储备量在A股上市公司中居前列。 这一消息让这家市值超200亿元的上市公司瞬间站在了风口浪尖。
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月15日晚间，国内白银龙头企业盛达资源（维权）（000603）发布公告称，因涉嫌信息披露违法违规，中国证监会决定对盛达资源及公司实际控制人赵满堂立案调查。
-
-盛达资源主营贵金属、有色金属矿的采选和销售，是国内银业龙头企业，其白银储备量在A股上市公司中居前列。
-
-这一消息让这家市值超200亿元的上市公司瞬间站在了风口浪尖。
-
-今日开盘（6月16日）公司股价跌停，不少投资者遭受损失。
-
-存在7.92亿巨额资金占用 此次立案调查并非毫无端倪。
-
-据公告显示，监管机构的立案原因直指上市公司涉嫌信息披露违法违规，而这背后牵出的是控股股东长达近一年的非经营性资金占用问题。
-
-盛达资源在2025年4月29日披露的一则《自查报告》。
-
-报告显示，公司在自查中发现，2024年2月至12月期间，控股股东甘肃盛达集团有限公司及其附属企业存在间歇性非经营性占用上市公司资金的情形。
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 17:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 17:50 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 17:44 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 17:41 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 17:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 18:01 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 17:56 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 17:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 17:58 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 18:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 17:59 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 17:59 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 17:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 17:59 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 17:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 17:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 18:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 18:01 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 17:54 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 17:56 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:03 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/26236.shtml)
-- 2026-06-29 17:45 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5013102.shtml)
-- 2026-06-29 17:56 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/0276884571.shtml)
-- 2026-06-29 17:39 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/05472349090.shtml)
-- 2026-06-29 17:43 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6404929.shtml)
-- 2026-06-29 17:42 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/723965.shtml)
-- 2026-06-29 17:57 - [小娘惹](https://www.share.minike.top/Article/details/93006239398.shtml)
-- 2026-06-29 17:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/02929.shtml)
-- 2026-06-29 17:56 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/9582086727.shtml)
-- 2026-06-29 17:41 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/6459370.shtml)
-- 2026-06-29 17:39 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/8753828178.shtml)
-- 2026-06-29 18:04 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/696229838434.shtml)
-- 2026-06-29 17:56 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/860712898087.shtml)
-- 2026-06-29 17:40 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/4212919.shtml)
-- 2026-06-29 17:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/00068.shtml)
+- 2026-06-29 18:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/231296538054.shtml)
+- 2026-06-29 17:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/62511.shtml)
+- 2026-06-29 17:50 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/72117.shtml)
+- 2026-06-29 18:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/03997757.shtml)
+- 2026-06-29 17:42 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/171854.shtml)
+- 2026-06-29 17:47 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/98442.shtml)
+- 2026-06-29 18:07 - [95后小伙突然确诊癌症 医生提醒](http://www.share.kurohicncr.top/Article/details/0824026250.shtml)
+- 2026-06-29 17:44 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/0844481.shtml)
+- 2026-06-29 17:48 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/805421.shtml)
+- 2026-06-29 17:51 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/47024.shtml)
+- 2026-06-29 18:02 - [乔家的儿女](https://www.blog.minike.top/Article/details/34353.shtml)
+- 2026-06-29 17:58 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/763775121359.shtml)
+- 2026-06-29 17:45 - [四川达州发生一起交通事故致2死](https://www.share.minike.top/Article/details/01591006.shtml)
+- 2026-06-29 18:07 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/764192183173.shtml)
+- 2026-06-29 18:03 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/076353.shtml)

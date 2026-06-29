@@ -1,61 +1,60 @@
-# 六网织就新未来丨地下管网焕新 你的城市将迎来哪些改变？
+# 【讲习所】跨越山海的牵挂
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-地下管网作为城市重要基础设施，担负着输送物质、能量和传输信息的作用，维系城市正常运行和生产生活，是城市的“生命线”。我国拥有位居世界首位的地下管网规模，也面临着大量管网已达或超设计寿命的挑战，管网老化漏损、排水防涝不足、管线多头开挖等问题突出。尤其夏季强降雨来临，城市内涝问题愈发凸显。“十五五”时期，全国管网改造总投资将超过5万亿元。那么这笔资金将为我们的城市带来一张什么样的网
+“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。 “我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。 在闽工作期间，习近平高
 
 ## 正文
 
-地下管网作为城市重要基础设施，担负着输送物质、能量和传输信息的作用，维系城市正常运行和生产生活，是城市的“生命线”。
+“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。
 
-我国拥有位居世界首位的地下管网规模，也面临着大量管网已达或超设计寿命的挑战，管网老化漏损、排水防涝不足、管线多头开挖等问题突出。
+”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。
 
-尤其夏季强降雨来临，城市内涝问题愈发凸显。
+无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。
 
-“十五五”时期，全国管网改造总投资将超过5万亿元。
+“我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。
 
-那么这笔资金将为我们的城市带来一张什么样的网？
+在闽工作期间，习近平高度重视“引侨、引台、引外”工作。
 
-一起来看。
+1990年10月底，离乡多年的侨领林绍良率队来闽进行经济考察，在福州受到时任福州市委书记习近平的热情接待。
 
-全国管网改造总投资超5万亿 城市地下管网包括燃气、供水、排水、污水、热力市政管线和综合管廊等，目前我国城市地下管网总长度约390万公里，累计建成地下综合管廊约7700公里。
+林绍良表达了自己的期待，希望福建改革开放方面的政策更加健全些。
 
-“十五五”期间，全国将继续建设改造城市地下管网约77万公里，其中，燃气管网约20万公里、排水管网约17.5万公里、供水管网约17.5万公里、污水管网约10万公里、供热管网约12万公里。
+1991年8月，习近平带领考察组访问印度尼西亚，专程拜访了林绍良。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:40 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 17:43 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 18:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 17:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 18:06 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 18:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 17:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 17:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 17:39 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 17:46 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:56 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 17:50 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 17:38 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:59 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 17:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 18:06 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 18:01 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 18:02 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 17:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:52 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 18:04 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 17:43 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 17:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 17:47 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 17:51 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 18:07 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:06 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/43717789723.shtml)
-- 2026-06-29 17:40 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/28224364.shtml)
-- 2026-06-29 17:43 - [AG 宫斗](http://www.share.minike.top/Article/details/662077.shtml)
-- 2026-06-29 17:58 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/02082949276.shtml)
-- 2026-06-29 17:55 - [急先锋](https://www.share.minike.top/Article/details/2062074.shtml)
-- 2026-06-29 17:41 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/23424888.shtml)
-- 2026-06-29 18:03 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/97554.shtml)
-- 2026-06-29 17:47 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/64889601.shtml)
-- 2026-06-29 18:01 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/460570083.shtml)
-- 2026-06-29 18:00 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/48924691185.shtml)
-- 2026-06-29 18:00 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/9805242.shtml)
-- 2026-06-29 17:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/34371394.shtml)
-- 2026-06-29 17:54 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/481218612.shtml)
-- 2026-06-29 17:58 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/845952966.shtml)
-- 2026-06-29 17:55 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/241536551.shtml)
+- 2026-06-29 17:46 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/00342001.shtml)
+- 2026-06-29 18:02 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/0727224.shtml)
+- 2026-06-29 17:47 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/9929720.shtml)
+- 2026-06-29 18:05 - [起风了](http://www.share.kurohicncr.top/Article/details/44206.shtml)
+- 2026-06-29 17:44 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/30440.shtml)
+- 2026-06-29 18:00 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/57271162.shtml)
+- 2026-06-29 18:08 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/6570001008.shtml)
+- 2026-06-29 18:09 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/57670512.shtml)
+- 2026-06-29 17:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/20986.shtml)
+- 2026-06-29 17:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/25154.shtml)
+- 2026-06-29 18:07 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6389875123.shtml)
+- 2026-06-29 18:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/03422717827.shtml)
+- 2026-06-29 17:44 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/0670082284.shtml)
+- 2026-06-29 18:03 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/26320223793.shtml)
+- 2026-06-29 18:03 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/16241015764.shtml)

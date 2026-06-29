@@ -1,56 +1,59 @@
-# 酒价内参6月16日价格发布：青花郎青花汾20领跌 总价自23天高位回落
+# 2026世界中学生排球锦标赛将于陕西商洛开赛
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌
+中新网西安6月22日电 (记者 党田野 张一辰)“本届赛事参赛队伍、参与国家和地区数量较上届明显增加，我们统筹各相关单位细化竞赛、场地、后勤各项保障工作，全力办好国际赛事，搭建中外青少年交流互动平台，充分展现商洛城市风貌。”商洛市体育局副局长孟军22日在发布会上表示。 当日，2026世界中学生排球锦标赛新闻发布会在陕西省商洛市举行。世界中学生排球锦标赛1972年创办，是国际中学
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月16日整体温和回落。
+中新网西安6月22日电 (记者 党田野 张一辰)“本届赛事参赛队伍、参与国家和地区数量较上届明显增加，我们统筹各相关单位细化竞赛、场地、后勤各项保障工作，全力办好国际赛事，搭建中外青少年交流互动平台，充分展现商洛城市风貌。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9927元，较昨日下跌18元，结束此前连续两日回升走势，自昨日创下的23天以来最高位回落。
+”商洛市体育局副局长孟军22日在发布会上表示。
 
-今日总价仍处于进入六月以来的次高位，终端交投情绪环比有所修复，但核心单品的涨跌分化依然显著。
+当日，2026世界中学生排球锦标赛新闻发布会在陕西省商洛市举行。
 
-今日11大白酒单品三涨八跌，输家数量占据明显优势。
+世界中学生排球锦标赛1972年创办，是国际中学生体育联合会主办的全球中学生顶级排球赛事。
 
-上涨方面，习酒君品涨幅居前，上涨5元/瓶，收获三连阳，价格快速升至5月20日以来最高位；洋河梦之蓝M6+上涨3元/瓶，重返600元大关；飞天茅台小幅上涨1元/瓶。
+2025年至2028年连续四年在商洛举办，今年为第二届，由中国学生体育联合会、商洛市人民政府承办，商洛市体育局、商州区政府、丹凤县政府配合协办。
 
-下跌方面，青花郎跌幅居前，下跌6元/瓶，再度回落至700元关口下方；青花汾20与古井贡古20均下跌5元/瓶，其中前者价格已落至月内次低位；五粮液普五八代下跌4元/瓶，回吐昨日全部涨幅，结束此前连续三日反弹，重回810元一线；国窖1573下跌3元/瓶；水晶剑南春下跌2元/瓶，平进入六月份以来最低价纪录；精品茅台与五粮液1618均小幅下跌1元/瓶，其中后者创下近一月最低点。
+据介绍，该赛事将于7月2日20时举行开幕式，7月2日至5日、7月7日至9日开展正式比赛，7月9日举办闭幕式。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+本次赛事共有法国、德国、美国等29个国家和地区、31个代表团、62支队伍参赛，运动员、教练员、国际技术官员总人数近2000人。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+商洛市官方表示，全市多部门协同推进赛事筹备，面向社会招募164名赛事志愿者。
 
 ## 相关推荐
 
-- 2026-06-29 17:54 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 17:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 17:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 18:03 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 17:41 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 17:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 17:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 17:44 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 17:41 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 17:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 17:53 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 18:06 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 17:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 17:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 18:08 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 18:08 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 17:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 18:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:42 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 17:53 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 18:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 18:08 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 17:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/515634506322.shtml)
-- 2026-06-29 17:54 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/150451023.shtml)
-- 2026-06-29 17:56 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/916342.shtml)
-- 2026-06-29 17:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/03603086.shtml)
-- 2026-06-29 18:00 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/95734.shtml)
-- 2026-06-29 17:36 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/2609157987.shtml)
-- 2026-06-29 17:58 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/15780496.shtml)
-- 2026-06-29 17:57 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/95161.shtml)
-- 2026-06-29 17:41 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/198132365639.shtml)
-- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/91915486589.shtml)
-- 2026-06-29 17:47 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/70036121.shtml)
-- 2026-06-29 17:49 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/05358.shtml)
-- 2026-06-29 17:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8968476.shtml)
-- 2026-06-29 17:44 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/303596687.shtml)
-- 2026-06-29 17:47 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/2450059888.shtml)
+- 2026-06-29 18:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/304479130804.shtml)
+- 2026-06-29 18:10 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/749221.shtml)
+- 2026-06-29 18:01 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/475215325074.shtml)
+- 2026-06-29 17:56 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/901246189711.shtml)
+- 2026-06-29 17:57 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/87644101.shtml)
+- 2026-06-29 18:09 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/30858.shtml)
+- 2026-06-29 18:07 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/25081929115.shtml)
+- 2026-06-29 17:57 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/3811935.shtml)
+- 2026-06-29 17:59 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/62213276.shtml)
+- 2026-06-29 17:48 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/806875.shtml)
+- 2026-06-29 18:11 - [逆天祖国人](https://www.blog.minike.top/Article/details/4094017264.shtml)
+- 2026-06-29 17:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/5605932771.shtml)
+- 2026-06-29 17:56 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/155520068.shtml)
+- 2026-06-29 17:45 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/97147.shtml)
+- 2026-06-29 18:00 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/8035355.shtml)

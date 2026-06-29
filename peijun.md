@@ -1,58 +1,56 @@
-# 大牌品牌、风投与网红MrBeast重金押注短视频“剪辑分销”营销模式
+# 中金：巨子生物维持“跑赢行业”评级 目标价降至40港元
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-塔可贝尔、达达外卖（DoorDash）、Cricket 无线均采用该营销手段，但部分实操案例引发大众对热门短视频真实度的质疑 内容速览 塔可贝尔、动视暴雪等头部品牌如今普遍采用剪辑分销营销：付费招募社交媒体创作者批量制作爆款短视频，持续满足平台源源不断的内容需求。 剪辑分销是一套营销打法：品牌批量雇佣创作者，把长视频拆解成适合传播的短视频片段投放社交平台。该模式也引发热议 ——
+中金发布研报称，维持巨子生物（02367）“跑赢行业”评级，基于港股消费板块整体估值中枢承压，下调目标价18%至40港元。该行维持巨子生物26至27年盈利预测。当前股价对应预测26及27年市盈率12及11倍。 报告中称，巨子生物旗下“交联重组胶原蛋白填充剂”三类医疗器械获批，该产品为全球首款颈纹适应症的交联重组III型全长序列胶原蛋白填充剂，差异化优势突出。同时公司首款获批医美
 
 ## 正文
 
-塔可贝尔、达达外卖（DoorDash）、Cricket 无线均采用该营销手段，但部分实操案例引发大众对热门短视频真实度的质疑 内容速览 塔可贝尔、动视暴雪等头部品牌如今普遍采用剪辑分销营销：付费招募社交媒体创作者批量制作爆款短视频，持续满足平台源源不断的内容需求。
+中金发布研报称，维持巨子生物（02367）“跑赢行业”评级，基于港股消费板块整体估值中枢承压，下调目标价18%至40港元。
 
-剪辑分销是一套营销打法：品牌批量雇佣创作者，把长视频拆解成适合传播的短视频片段投放社交平台。
+该行维持巨子生物26至27年盈利预测。
 
-该模式也引发热议 ——TikTok、Instagram 上的高人气内容究竟有多少真实流量？
+当前股价对应预测26及27年市盈率12及11倍。
 
-如果创作者隐瞒身份、不标注付费推广属性，普通网友根本无从分辨艺人、政客、网红的热度是否经过人为造势。
+报告中称，巨子生物旗下“交联重组胶原蛋白填充剂”三类医疗器械获批，该产品为全球首款颈纹适应症的交联重组III型全长序列胶原蛋白填充剂，差异化优势突出。
 
-但对绝大多数营销从业者而言，剪辑分销只是抓住用户碎片化注意力、最大化单条内容商业价值的新手段。
+同时公司首款获批医美产品已于6月9日正式发布上市，化妆品业务边际提速趋势显现，看好公司基本面改善趋势，建议关注底部布局机会。
 
-风投机构、YouTube 顶流网红 MrBeast 等资本方纷纷入局，推动这套模式走向专业化，借机掘金。
-
-达达外卖社媒负责人扎里亚・帕尔维兹表示：“剪辑分销换个说法，就是优秀营销人一直在做的事 —— 去到流量聚集地，放出高光集锦、幕后花絮，抓住用户眼球。
-
-” 品牌实操案例 这家外卖巨头此前围绕说唱歌手 50 美分出演的超级碗广告、一档邀请 10 岁网红 “里兹勒” 参与的赞助播客，提取原生短视频素材，通过官方账号自主分发传播。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:05 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 18:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 17:38 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 17:59 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 18:04 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 17:58 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:49 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 17:37 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 18:01 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 17:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 18:04 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 17:44 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 17:55 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 18:09 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 17:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 17:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 18:07 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 18:04 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 18:04 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 17:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 18:02 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 18:00 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 18:04 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 17:43 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [5万块的威力](https://www.blog.minike.top/Article/details/0468111698.shtml)
-- 2026-06-29 17:43 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/3991983643.shtml)
-- 2026-06-29 17:53 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/3216380.shtml)
-- 2026-06-29 18:02 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/734769.shtml)
-- 2026-06-29 17:53 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/826023736.shtml)
-- 2026-06-29 17:53 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/48394134558.shtml)
-- 2026-06-29 17:57 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/986241243964.shtml)
-- 2026-06-29 17:36 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/761238715.shtml)
-- 2026-06-29 17:44 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/77841908547.shtml)
-- 2026-06-29 17:49 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/0687141570.shtml)
-- 2026-06-29 18:00 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/539186.shtml)
-- 2026-06-29 17:51 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/331539.shtml)
-- 2026-06-29 17:49 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/073025328211.shtml)
-- 2026-06-29 17:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/7509403.shtml)
-- 2026-06-29 17:49 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/060660.shtml)
+- 2026-06-29 17:58 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/373224.shtml)
+- 2026-06-29 17:54 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/363595.shtml)
+- 2026-06-29 17:44 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9522023893.shtml)
+- 2026-06-29 18:09 - [金牌调解](http://www.blog.minike.top/Article/details/63686.shtml)
+- 2026-06-29 17:55 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/5716305.shtml)
+- 2026-06-29 18:09 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/7498404444.shtml)
+- 2026-06-29 18:00 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/5377366279.shtml)
+- 2026-06-29 17:47 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/5735370.shtml)
+- 2026-06-29 18:08 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/65616565.shtml)
+- 2026-06-29 18:09 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/85665316586.shtml)
+- 2026-06-29 18:06 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/098907436319.shtml)
+- 2026-06-29 18:09 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/38499.shtml)
+- 2026-06-29 17:47 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/01014.shtml)
+- 2026-06-29 18:04 - [人形机器人](https://www.blog.minike.top/Article/details/89771092.shtml)
+- 2026-06-29 17:58 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/72482125483.shtml)

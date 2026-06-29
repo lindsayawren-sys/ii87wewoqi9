@@ -1,52 +1,60 @@
-# 缅甸总统敏昂莱抵达北京开始访华
+# 西北师大携手田家炳基金会二十五载深耕西部教育育英才
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电(记者马卓言)应国家主席习近平邀请，缅甸总统敏昂莱6月15日下午抵达北京，开始对中国进行为期5天的国事访问。 中缅是传统友好邻邦和命运共同体。建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足进展。 外交部发言人日前表示，中方期待同缅方一道，通过敏昂莱总统这次访问，赓续传统胞波情谊，深化全面战略合作，推动中
+中新网兰州6月21日电 (白忠兴)从捐资兴建教学楼宇，到深耕师资培育、赋能基础教育发展；从单向公益捐助，到双向协同育人……二十五年来，西北师范大学与田家炳基金会深度携手，立足陇原大地辐射整个西部地区，持续完善教师培养体系，培育新时代教育领域“大先生”，助力中国西部基础教育实现高质量升级。 缘起金城：公益捐资筑基，携手开启育人之约 位于甘肃兰州的西北师范大学校园里，“田家炳教育书
 
 ## 正文
 
-新华社北京6月15日电(记者马卓言)应国家主席习近平邀请，缅甸总统敏昂莱6月15日下午抵达北京，开始对中国进行为期5天的国事访问。
+中新网兰州6月21日电 (白忠兴)从捐资兴建教学楼宇，到深耕师资培育、赋能基础教育发展；从单向公益捐助，到双向协同育人……二十五年来，西北师范大学与田家炳基金会深度携手，立足陇原大地辐射整个西部地区，持续完善教师培养体系，培育新时代教育领域“大先生”，助力中国西部基础教育实现高质量升级。
 
-中缅是传统友好邻邦和命运共同体。
+缘起金城：公益捐资筑基，携手开启育人之约 位于甘肃兰州的西北师范大学校园里，“田家炳教育书院”大楼静静伫立，这座2001年正式落成的现代化建筑，是双方合作的起点，也是香港知名实业家、慈善家田家炳先生“中国的希望在教育”理念落地西北的重要载体。
 
-建交76年来，双方秉持共同倡导的和平共处五项原则精神，同甘共苦、守望相助、团结协作，中缅关系取得长足进展。
+彼时，田家炳先生捐资500万元人民币，助力西北师大打造总面积一万六千余平方米的专业化教育教学场馆。
 
-外交部发言人日前表示，中方期待同缅方一道，通过敏昂莱总统这次访问，赓续传统胞波情谊，深化全面战略合作，推动中缅命运共同体建设取得更多务实成果，更好造福两国人民。
+作为西北地区老牌师范类高校，西北师大深耕教师教育领域百年，是区域内公认的“教师摇篮”，深厚的办学底蕴与服务西部教育的使命担当，成为双方合作的重要基石。
+
+“我并非甘肃人，在甘肃也无投资，但得知这里需要我的支持，我非常重视。
+
+”田家炳先生质朴的话语至今仍激励着该校学子。
+
+历经二十余年发展，双方合作模式与时俱进、迭代升级。
+
+2025年底，田家炳基金会行政总裁田立仁专程到访西北师大。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 17:42 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 17:57 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:46 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 18:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 17:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 17:52 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 17:43 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 17:43 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 17:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 17:57 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 17:51 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 18:04 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 17:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 18:01 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 18:03 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 17:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 18:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:09 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 18:03 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 18:04 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 18:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 17:46 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 18:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 17:52 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 17:49 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 18:06 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 18:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/112200573401.shtml)
-- 2026-06-29 17:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/466324505.shtml)
-- 2026-06-29 17:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/4478929162.shtml)
-- 2026-06-29 17:57 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/2201938.shtml)
-- 2026-06-29 17:43 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/4530233769.shtml)
-- 2026-06-29 17:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/266429221.shtml)
-- 2026-06-29 17:44 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/872536835991.shtml)
-- 2026-06-29 17:41 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/94788.shtml)
-- 2026-06-29 17:50 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/8881257114.shtml)
-- 2026-06-29 18:02 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/18770358584.shtml)
-- 2026-06-29 17:58 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/50815.shtml)
-- 2026-06-29 17:41 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/17406.shtml)
-- 2026-06-29 17:42 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/955076.shtml)
-- 2026-06-29 17:47 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/557460358.shtml)
-- 2026-06-29 17:58 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/542762864038.shtml)
+- 2026-06-29 17:56 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/4653398278.shtml)
+- 2026-06-29 18:01 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/5218147459.shtml)
+- 2026-06-29 17:54 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5685924967.shtml)
+- 2026-06-29 17:47 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/80640178250.shtml)
+- 2026-06-29 18:03 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/81653240560.shtml)
+- 2026-06-29 17:45 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/23218661036.shtml)
+- 2026-06-29 17:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/045726.shtml)
+- 2026-06-29 18:01 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/029907.shtml)
+- 2026-06-29 18:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/57963720230.shtml)
+- 2026-06-29 17:52 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/381259691.shtml)
+- 2026-06-29 17:57 - [扬名立万](http://www.share.minike.top/Article/details/6663618.shtml)
+- 2026-06-29 18:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/3341878722.shtml)
+- 2026-06-29 17:46 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/140486600.shtml)
+- 2026-06-29 17:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/8132172.shtml)
+- 2026-06-29 18:09 - [扬名立万](https://www.blog.minike.top/Article/details/5437990091.shtml)

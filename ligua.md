@@ -1,60 +1,59 @@
-# 广东湛江：“绿色通道”助推世界级项目建设“加速度”
+# 解读：2026年1—5月我国进口糖浆以及预混糖粉分析与简述
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。 巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。该基地于2026年3月26日全面建成投产，成为巴
+云糖网 海关总署最新数据显示，2026年1—5月，我国进口糖浆以及预混糖粉51.60万吨（包含下述5个品类），同比上年同期增加17.35万吨，同比增长50.6%；综合进口均价3161元/吨，比2025年1—5月下降895元/吨，同比下降22.1%。 整体呈现“进口量增加、综合均价下降、品类和来源国明显”的特征。 五个品类进口量价对比 单位：万吨、元/吨、% 商品编码 商品名称
 
 ## 正文
 
-中新网广东湛江6月15日电 (记者 梁盛)雨后初霁的广东湛江东海岛，空气清新中带点甜。
+云糖网 海关总署最新数据显示，2026年1—5月，我国进口糖浆以及预混糖粉51.60万吨（包含下述5个品类），同比上年同期增加17.35万吨，同比增长50.6%；综合进口均价3161元/吨，比2025年1—5月下降895元/吨，同比下降22.1%。
 
-记者站在巴斯夫湛江基地不远处，看到蓝天白云下错落有致的银色管廊四下延伸，海风扑鼻而过，没有刺激的油气味。
+整体呈现“进口量增加、综合均价下降、品类和来源国明显”的特征。
 
-巴斯夫湛江基地项目总投资87亿欧元，建设年产100万吨乙烯的蒸汽裂解装置以及多个下游产品生产装置，是德国企业在华投资规模最大的独资单体项目。
+五个品类进口量价对比 单位：万吨、元/吨、% 商品编码 商品名称 2025年1—5月进口量 2026年1—5月进口量 进口量同比 2025年1—5月均价 2026年1—5月均价 均价同比 21069062 甘蔗糖、甜菜糖与其他食品原料的简单固体混合物，蔗糖含量超过50% 11.46 6.01 -47.6% 4，317 4，065 -5.8% 17029011 甘蔗糖或甜菜糖水溶液 9.49 40.32 +325.1% 3，130 2，811 -10.2% 17029012 甘蔗糖、甜菜糖与其他糖的简单固体混合物，蔗糖含量超过50% 8.74 4.67 -46.6% 4，452 3，926 -11.8% 17029090 其他固体糖及未加香料或着色剂的糖浆、人造蜜及焦糖 0.68 0.59 -12.8% 11，982 11，459 -4.4% （表格可
 
-该基地于2026年3月26日全面建成投产，成为巴斯夫在全球的第三大生产基地，仅次于德国路德维希港基地和比利时安特卫普基地。
+该品类的增量超过五个品类合计增量，抵消了其他四个品类的下降。
 
-巴斯夫集团执行董事会成员兼首席技术官柯迪文在接受媒体采访时表示，巴斯夫湛江基地的全面投产，将为汽车、电子、医药、服装、日化等产业提供稳定的高品质原材料，有助于降低中国市场对高端产品的进口依赖，为广东加快打造世界级绿色石化产业集群、构建更加强大的现代化产业体系提供有力支撑，还有利于发挥跨国化工企业资源、技术、管理等优势，推动中国高端石化产品发展，促进产业结构调整和绿色低碳转型。
+2026年1—5月可比品类进口量对比 ▌二、进口均价 2026年1—5月，五个品类综合进口均价3161元/吨，2025年1—5月为4056元/吨，同比下降895元/吨。
 
-据湛江市发展和改革局介绍，巴斯夫湛江基地的全面投产是外资企业把握中国发展新机遇、深度融入中国市场的典范，也再次印证中国市场是跨国企业实现长期盈利与可持续增长的核心战略支点。
+综合均价下降主要受17029011甘蔗糖或甜菜糖水溶液进口占比大幅上升影响，该品类2026年1—5月均价仅2811元/吨，低于五品类综合水平。
 
-巴斯夫湛江基地从一开始便积极推动智能制造、数字化与绿色低碳等先进技术在基地落地。
+2026年1—5月，17029011甘蔗糖或甜菜糖水溶液均价同比下降10.2%；21069062蔗糖含量超过50%的食品原料简单固体混合物均价同比下降5.8%；17029012蔗糖含量超过50%的糖类简单固体混合物均价同比下降11.8%；17029090其他固体糖及未加香料或着色剂的糖浆、人造蜜及焦糖均价同比下降4.4%。
 
-从智能管理平台到安全、公用工程、技术服务、生产、物流与供应链、智能仓库等，智能化与数字化渗透在基地的每一个角落。
+2026年1—5月可比品类进口均价对比 ▌三、进口来源国情况 商品编码 商品名称 2025年1—5月主要来源国（进口量、占比） 2026年1—5月主要来源国（进口量、占比） 21069062 甘蔗糖、甜菜糖与其他食品原料的简单固体混合物，蔗糖含量超过50% 泰国11.08万吨（96.7%）巴基斯坦0.26万吨（2.2%） 老挝3.78万吨（62.9%）马来西亚1.83万吨（30.5%）新加坡0.18万吨（3.0%） 17029011 甘蔗糖或甜菜糖水溶液 泰国3.96万吨（41.8%）越南2.60万吨（27.4%）马来西亚1.71万吨（18.1%） 老挝32.65万吨（81.0%）马来西亚3.92万吨（9.7%）印度尼西亚1.97万吨（4.9%） 17029012 甘蔗糖、甜菜糖与其他糖的简单固体混合物，蔗糖含量超过50% 越南7.45万吨（85.2
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 17:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 18:02 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 17:56 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 17:59 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 17:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 17:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 17:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 18:00 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 18:04 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 18:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 17:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 17:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 18:03 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 17:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 18:05 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 17:47 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 17:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 17:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 17:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 18:03 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 18:11 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 18:07 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 17:59 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 18:07 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 17:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/0076284.shtml)
-- 2026-06-29 17:47 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/290933.shtml)
-- 2026-06-29 17:53 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/01158103.shtml)
-- 2026-06-29 17:56 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/1776940270.shtml)
-- 2026-06-29 17:59 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/7440999.shtml)
-- 2026-06-29 17:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0484984.shtml)
-- 2026-06-29 17:55 - [一生一世](http://www.share.kurohicncr.top/Article/details/5896105.shtml)
-- 2026-06-29 18:05 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/430255.shtml)
-- 2026-06-29 18:03 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/198274.shtml)
-- 2026-06-29 17:41 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/9731981462.shtml)
-- 2026-06-29 17:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/22425.shtml)
-- 2026-06-29 18:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/984530.shtml)
-- 2026-06-29 18:05 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/3057437.shtml)
-- 2026-06-29 18:04 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/416262.shtml)
-- 2026-06-29 17:40 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/106186.shtml)
+- 2026-06-29 17:50 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/00026069514.shtml)
+- 2026-06-29 18:03 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/56765.shtml)
+- 2026-06-29 17:45 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/73746884.shtml)
+- 2026-06-29 17:42 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/12496967.shtml)
+- 2026-06-29 17:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/5687103358.shtml)
+- 2026-06-29 18:01 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/38655.shtml)
+- 2026-06-29 17:49 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7455584.shtml)
+- 2026-06-29 18:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/0532458847.shtml)
+- 2026-06-29 17:48 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/49473716.shtml)
+- 2026-06-29 17:45 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/38981514.shtml)
+- 2026-06-29 18:11 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/8031476940.shtml)
+- 2026-06-29 17:57 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/562561694.shtml)
+- 2026-06-29 17:55 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/70537257.shtml)
+- 2026-06-29 17:46 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/72287244.shtml)
+- 2026-06-29 17:59 - [机器人学校开学了](https://www.blog.minike.top/Article/details/34419.shtml)

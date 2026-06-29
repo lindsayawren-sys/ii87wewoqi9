@@ -1,52 +1,46 @@
-# 厦门高崎国际机场口岸今年以来出入境旅客破200万人次
+# 温馨提醒：请抓紧办理！2025年度个税汇算6月30日截止
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超
+来源：国家税务总局微信公众号
 
 ## 正文
 
-发布时间：2026年06月15日 20:18 来源：中国新闻网 据厦门边检总站高崎边检站统计，6月15日，厦门高崎国际机场口岸今年出入境旅客量突破200万人次，同比增长6%，创同期历史新高。
-
-随着跨境商务洽谈、活动交流、旅游出行活动日益频繁，出入境外籍旅客数量显著增加。
-
-截至6月15日，今年以来经由厦门高崎国际机场出入境的外籍旅客近60万人次，同比增长超17%，免签入境的外籍旅客超17万人次，同比增长超35%。
-
-目前，厦门高崎国际机场执飞国际(地区)客运航线27条，平均每周出入境客运航班500余架次。
-
-(记者 李思源 视频来源 厦门边检总站高崎边检站） 责任编辑：【李季】
+来源：国家税务总局微信公众号
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 17:42 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 17:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 18:03 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:51 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 17:40 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 17:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 17:49 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 17:58 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 17:50 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 17:59 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 18:00 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 18:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 18:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 17:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 17:58 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 17:48 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 18:02 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 17:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 18:08 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 17:43 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:42 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 18:07 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 18:03 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 17:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:59 - [小娘惹](https://www.blog.minike.top/Article/details/40829.shtml)
-- 2026-06-29 17:58 - [急先锋](http://www.blog.minike.top/Article/details/740541881.shtml)
-- 2026-06-29 17:54 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/86467336769.shtml)
-- 2026-06-29 17:50 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/683462.shtml)
-- 2026-06-29 17:44 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/16856.shtml)
-- 2026-06-29 17:58 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/295561.shtml)
-- 2026-06-29 17:43 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/4489965884.shtml)
-- 2026-06-29 17:41 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/4270159.shtml)
-- 2026-06-29 17:54 - [金牌调解](http://www.blog.minike.top/Article/details/12984983282.shtml)
-- 2026-06-29 17:56 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/84881.shtml)
-- 2026-06-29 17:55 - [叠纸](https://www.share.minike.top/Article/details/66967.shtml)
-- 2026-06-29 18:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/759778109.shtml)
-- 2026-06-29 17:54 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/21832463049.shtml)
-- 2026-06-29 17:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/807336.shtml)
-- 2026-06-29 17:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/9534119585.shtml)
+- 2026-06-29 17:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/736289486553.shtml)
+- 2026-06-29 18:04 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/25587.shtml)
+- 2026-06-29 17:54 - [美人鱼](https://www.share.kurohicncr.top/Article/details/981270663.shtml)
+- 2026-06-29 18:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/56423.shtml)
+- 2026-06-29 17:55 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/880079832.shtml)
+- 2026-06-29 17:47 - [中国战机大片上新](https://www.share.minike.top/Article/details/419843736508.shtml)
+- 2026-06-29 18:02 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/52743211.shtml)
+- 2026-06-29 17:50 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/1797706.shtml)
+- 2026-06-29 17:44 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/5396881.shtml)
+- 2026-06-29 18:03 - [叠纸](http://www.share.minike.top/Article/details/65068902567.shtml)
+- 2026-06-29 17:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/4915159.shtml)
+- 2026-06-29 17:57 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/00684727114.shtml)
+- 2026-06-29 18:01 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/4628908778.shtml)
+- 2026-06-29 17:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/83223826.shtml)
+- 2026-06-29 18:08 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/109315505.shtml)

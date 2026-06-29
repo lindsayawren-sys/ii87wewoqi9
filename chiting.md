@@ -1,59 +1,54 @@
-# 李强主持国务院第二十次专题学习
+# 年内大涨300%！长盈通，明起复牌
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-新华社北京6月15日电 6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量
+停牌三个交易日后，光纤牛股长盈通（688143）今日盘后公告，其股票将于明日复牌。因公司股价自2026年5月6日至2026年6月16日期间多次触及股票交易异常波动及严重异常波动情形，长盈通股票自6月17日起停牌核查。今年以来，长盈通股价实现飙涨，累计涨幅达334.18%。公告中，长盈通就其光纤业务再次予以提醒。截至目前，公司器件保偏光纤相关业务营收占比不足1%，用于通信领域的光
 
 ## 正文
 
-新华社北京6月15日电 6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。
+停牌三个交易日后，光纤牛股长盈通（688143）今日盘后公告，其股票将于明日复牌。
 
-国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量发展的国土空间开发保护新格局，为推动区域协调发展、优化重大生产力布局提供有力支撑。
+因公司股价自2026年5月6日至2026年6月16日期间多次触及股票交易异常波动及严重异常波动情形，长盈通股票自6月17日起停牌核查。
 
-中国科学院院士、中科院地理科学与资源研究所研究员樊杰作讲解。
+今年以来，长盈通股价实现飙涨，累计涨幅达334.18%。
 
-国务院副总理何立峰、刘国中，国务委员谌贻琴作交流发言。
+公告中，长盈通就其光纤业务再次予以提醒。
 
-李强在听取讲解和交流发言后指出，这些年来，主体功能区战略从理念到实践取得重大进展，战略格局基本形成，“三区三线”全面划定。
+截至目前，公司器件保偏光纤相关业务营收占比不足1%，用于通信领域的光纤在手或意向订单较少，目前暂未新增通信领域重大客户。
 
-进入“十五五”时期，面对新的形势和任务，要深刻认识主体功能区战略的基础性作用、全局性影响，强化主体功能区战略实施，以钉钉子精神抓好推进落实。
+与此同时，长盈通称，其子公司生一升存在业绩承诺无法实现的风险。
 
-李强指出，要聚焦突出矛盾，找准切入点，更大力度推动主体功能区战略有效落地。
-
-要优化主体功能区划，推动空间治理更加精准精细。
+今年一季度，长盈通实现营收0.85亿元，同比增长29.54%；归母净利润589.87万元，同比下降28.72%。
 
 ## 相关推荐
 
-- 2026-06-29 17:56 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 17:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 17:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 18:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 17:42 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 17:56 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 17:42 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 17:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 17:56 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 17:57 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 17:49 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 17:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 17:48 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 17:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 18:08 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:43 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 17:51 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 18:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 17:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 17:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 17:54 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 17:54 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/65947572.shtml)
-- 2026-06-29 18:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/198653594.shtml)
-- 2026-06-29 17:54 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/7683151500.shtml)
-- 2026-06-29 17:47 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/171458585.shtml)
-- 2026-06-29 17:42 - [V8](http://www.share.kurohicncr.top/Article/details/216589719337.shtml)
-- 2026-06-29 17:43 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/847927.shtml)
-- 2026-06-29 18:01 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/0725531922.shtml)
-- 2026-06-29 17:51 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/5134726.shtml)
-- 2026-06-29 17:37 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/1259916293.shtml)
-- 2026-06-29 17:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/49562233572.shtml)
-- 2026-06-29 17:43 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/3658899456.shtml)
-- 2026-06-29 17:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/78078007.shtml)
-- 2026-06-29 17:56 - [东方风云榜](https://www.blog.minike.top/Article/details/703671994.shtml)
-- 2026-06-29 17:48 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/496729.shtml)
-- 2026-06-29 17:54 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/79170253.shtml)
+- 2026-06-29 18:04 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/791371.shtml)
+- 2026-06-29 18:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/08025783009.shtml)
+- 2026-06-29 17:46 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/475920338122.shtml)
+- 2026-06-29 17:44 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/83400770.shtml)
+- 2026-06-29 17:52 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/4669837897.shtml)
+- 2026-06-29 17:44 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/080227.shtml)
+- 2026-06-29 17:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/67128836.shtml)
+- 2026-06-29 18:05 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/3943631585.shtml)
+- 2026-06-29 17:57 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/830005784.shtml)
+- 2026-06-29 17:58 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/43675580509.shtml)
+- 2026-06-29 18:04 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/7454358307.shtml)
+- 2026-06-29 18:11 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/952784785.shtml)
+- 2026-06-29 17:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/84075.shtml)
+- 2026-06-29 17:52 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/89220715.shtml)
+- 2026-06-29 18:10 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/6929942.shtml)

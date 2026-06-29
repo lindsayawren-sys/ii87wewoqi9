@@ -1,60 +1,56 @@
-# 首批自动化带斗门机运抵钦州港 可匹配运河通航大宗散粮装运需求
+# 透过端午出游“热力图”看文旅市场活力奔涌 “文博游”“入境游”持续火热
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。 此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，
+央视网消息：记者6月21日从北京市文化和旅游局了解到，端午假期，北京累计接待游客846.6万人次，实现旅游总花费113.5亿元。入境游市场持续火热，北京接待入境游客8.7万人次，同比增长31.2%；实现入境游客花费9.5亿元，同比增长31.4%。上海共接待游客711.96万人次 端午假期，上海多项文旅消费数据迎来增长。据上海旅游大数据监测，假期三天，上海共接待游客711.96万
 
 ## 正文
 
-中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。
+央视网消息：记者6月21日从北京市文化和旅游局了解到，端午假期，北京累计接待游客846.6万人次，实现旅游总花费113.5亿元。
 
-此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，能够高效承接玉米、大豆等大宗散粮装卸任务，充分匹配运河通航后的大宗粮食散货货运需求，是适配平陆运河江海联运装卸作业需求的关键设施。
+入境游市场持续火热，北京接待入境游客8.7万人次，同比增长31.2%；实现入境游客花费9.5亿元，同比增长31.4%。
 
-这批设备在智能、安全、环保等方面融合了多项前沿技术与全面突破创新。
+上海共接待游客711.96万人次 端午假期，上海多项文旅消费数据迎来增长。
 
-在智能化方面，设备集成三维激光扫描仪、北斗定位、视频安防等技术。
+据上海旅游大数据监测，假期三天，上海共接待游客711.96万人次，同比增长9.86%；全市宾旅馆平均客房出租率为60.80%，同比增加1.6个百分点。
 
-在全自动模式下可自主完成抓取、提升、旋转、卸料等全流程作业，大幅减少人工干预，有效提升作业安全性与稳定性。
+综合测算，上海地区涵盖吃、住、行、游、购、娱等全要素的旅游交易总金额为125.80亿元，同比增长5.10%。
 
-此外，绿色低碳是这批门机的另一大亮点。
+陕西文博单位接待游客161万人次 记者从陕西省文物局了解到，端午假期，陕西全省文博单位共接待游客超161万人次。
 
-设备搭载高效除尘系统，搭建起“船上取料—皮带输送—粮仓入库”的全封闭式作业链路，实现作业全程低扬尘，有效优化港区及周边生态环境。
+其中，陕西历史博物馆本馆接待游客4.6万人次，同比增长9.18%。
 
-同时，设备配备能量回馈装置，可回收设备下降、制动环节产生的电能，并存入超级电容系统进行二次利用，有效降低能耗与运营成本，契合港口绿色发展理念。
+为应对客流高峰，部分热门博物馆在假期采取了延长开放时间、增加门票投放量等措施，保障游客参观体验。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 17:48 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 17:59 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 17:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 17:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:52 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 17:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 18:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 18:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 17:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 17:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 17:56 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 17:47 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 17:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 18:01 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 17:56 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 18:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 17:48 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 18:06 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 17:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 17:53 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 17:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 18:03 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 18:06 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/112137568.shtml)
-- 2026-06-29 17:56 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/711114725.shtml)
-- 2026-06-29 18:04 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/25798429700.shtml)
-- 2026-06-29 18:03 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/119085.shtml)
-- 2026-06-29 17:59 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/732225.shtml)
-- 2026-06-29 18:03 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/69410.shtml)
-- 2026-06-29 17:42 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/782552.shtml)
-- 2026-06-29 17:36 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/974188046.shtml)
-- 2026-06-29 17:59 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/643298237.shtml)
-- 2026-06-29 17:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/3280697032.shtml)
-- 2026-06-29 18:04 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/23003.shtml)
-- 2026-06-29 17:47 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/804061933.shtml)
-- 2026-06-29 17:56 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/669263091092.shtml)
-- 2026-06-29 18:01 - [逆天祖国人](https://www.blog.minike.top/Article/details/184675983.shtml)
-- 2026-06-29 17:42 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/30079306709.shtml)
+- 2026-06-29 17:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/60864198.shtml)
+- 2026-06-29 17:46 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/35503.shtml)
+- 2026-06-29 18:09 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/178662816029.shtml)
+- 2026-06-29 17:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/520613807.shtml)
+- 2026-06-29 17:50 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/817594846863.shtml)
+- 2026-06-29 18:08 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/447137487965.shtml)
+- 2026-06-29 17:48 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/914740366.shtml)
+- 2026-06-29 17:57 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/07613.shtml)
+- 2026-06-29 18:08 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/094299682.shtml)
+- 2026-06-29 18:08 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/3761336.shtml)
+- 2026-06-29 18:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/442678746.shtml)
+- 2026-06-29 17:48 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/9278592292.shtml)
+- 2026-06-29 18:03 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/3791906.shtml)
+- 2026-06-29 17:53 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/937976647.shtml)
+- 2026-06-29 17:58 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/91292.shtml)

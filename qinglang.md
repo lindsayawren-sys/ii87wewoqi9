@@ -1,61 +1,58 @@
-# 前5月中国固定资产投资约17.85万亿元
+# “陀思妥耶夫斯基的世界”展览在上海开幕
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 陈溯)中国国家统计局16日公布的数据显示，1至5月，中国固定资产投资(不含农户)178512亿元(人民币，下同)，同比下降4.1%；扣除房地产开发的固定资产投资下降1.2%。 在当天举行的国新办新闻发布会上，国家统计局新闻发言人付凌晖表示，1至5月，固定资产投资降幅有所扩大，有局部地区高温多雨因素的影响，也是新旧发展动能转换、投资由总量扩张向质量
+中新网上海6月23日电 (记者 王笈)“陀思妥耶夫斯基的世界——停止阅读意味着停止思考”展览23日在中国近现代新闻出版博物馆开幕，引进费·米·陀思妥耶夫斯基文学纪念博物馆、俄罗斯科学院俄罗斯文学研究院(普希金之家)文学博物馆珍藏的157件实物藏品及大量电子藏品，完整呈现陀思妥耶夫斯基的创作轨迹与人生故事。 费奥多尔·米哈伊洛维奇·陀思妥耶夫斯基(1821—1881)是19世纪俄
 
 ## 正文
 
-中新社北京6月16日电 (记者 陈溯)中国国家统计局16日公布的数据显示，1至5月，中国固定资产投资(不含农户)178512亿元(人民币，下同)，同比下降4.1%；扣除房地产开发的固定资产投资下降1.2%。
+中新网上海6月23日电 (记者 王笈)“陀思妥耶夫斯基的世界——停止阅读意味着停止思考”展览23日在中国近现代新闻出版博物馆开幕，引进费·米·陀思妥耶夫斯基文学纪念博物馆、俄罗斯科学院俄罗斯文学研究院(普希金之家)文学博物馆珍藏的157件实物藏品及大量电子藏品，完整呈现陀思妥耶夫斯基的创作轨迹与人生故事。
 
-在当天举行的国新办新闻发布会上，国家统计局新闻发言人付凌晖表示，1至5月，固定资产投资降幅有所扩大，有局部地区高温多雨因素的影响，也是新旧发展动能转换、投资由总量扩张向质量提升转变的客观反映。
+费奥多尔·米哈伊洛维奇·陀思妥耶夫斯基(1821—1881)是19世纪俄国文学的巅峰人物。
 
-“尽管投资增速下降，但在政策持续发力、创新引领增强、民生保障加力这些因素带动下，我们看到，投资结构持续优化，投资在强基础、促转型、惠民生方面发挥了不可替代的重要作用。
+其作品对人性、苦难、灵魂与命运的深刻探索享誉世界，至今仍在全球读者心中引发共鸣。
 
-”付凌晖说。
+早在20世纪20年代，这位文学巨匠的作品便传入中国，百年来译本不断涌现，对陀氏的研究与解读从未停歇。
 
-付凌晖表示，中国基础设施投资稳步增长。
+本次展览由中国近现代新闻出版博物馆、中国文物交流中心、费·米·陀思妥耶夫斯基文学纪念博物馆共同主办，通过“童年与青年时期”“命运转折”“重返文坛”“巨作”“心灵的不朽”五个部分，完整还原陀思妥耶夫斯基跌宕起伏的人生轨迹，展品涵盖作家手稿、绝版书籍、插图原稿及陀氏个人物品等。
 
-今年以来，一批重大基建项目持续推进，“六张网”(水网、新型电网、算力网、新一代通信网、城市地下管网、物流网)等基础设施建设加快布局。
+陀思妥耶夫斯基生于莫斯科，成长在热爱阅读的家庭之中，自幼饱读经典；24岁时凭借《穷人》在文坛崭露头角，后又陆续写下《双重人格》《白夜》等作品，逐步形成独有的创作风格。
 
-1至5月，基础设施投资保持小幅增长，增长0.6%。
+19世纪60年代起，陀思妥耶夫斯基步入创作高峰期，相继完成《罪与罚》《白痴》《群魔》等经典长篇小说。
 
-算力网和新一代通信设施等新基建有序推进，前5月信息传输业投资增长30.4%。
+今年是《罪与罚》出版160周年。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 18:01 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 17:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 17:51 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 17:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 18:00 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 17:49 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 17:59 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 17:39 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 17:39 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 17:39 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:40 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 18:03 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 17:42 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 17:49 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 17:48 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 18:05 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 17:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 18:08 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 18:00 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 18:11 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 18:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 17:53 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 17:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 18:03 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 18:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/46209.shtml)
-- 2026-06-29 17:59 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/936556412794.shtml)
-- 2026-06-29 18:00 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/94171892287.shtml)
-- 2026-06-29 18:03 - [《贺子珍》](https://www.blog.minike.top/Article/details/25506136202.shtml)
-- 2026-06-29 17:49 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/582997182048.shtml)
-- 2026-06-29 17:55 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/055608306667.shtml)
-- 2026-06-29 18:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/200797289.shtml)
-- 2026-06-29 17:53 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/128250.shtml)
-- 2026-06-29 17:53 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/2727356955.shtml)
-- 2026-06-29 17:46 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/718932.shtml)
-- 2026-06-29 18:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/43194.shtml)
-- 2026-06-29 18:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/025908.shtml)
-- 2026-06-29 17:45 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/182646595526.shtml)
-- 2026-06-29 17:53 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/71614839930.shtml)
-- 2026-06-29 17:53 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/464297500.shtml)
+- 2026-06-29 18:06 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/76046164.shtml)
+- 2026-06-29 18:06 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8759953.shtml)
+- 2026-06-29 17:51 - [V8](https://www.blog.minike.top/Article/details/65306.shtml)
+- 2026-06-29 18:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/63032145.shtml)
+- 2026-06-29 17:59 - [东方风云榜](https://www.blog.minike.top/Article/details/40198409.shtml)
+- 2026-06-29 17:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/8830662442.shtml)
+- 2026-06-29 18:11 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/8403804.shtml)
+- 2026-06-29 17:48 - [一生一世](https://www.share.kurohicncr.top/Article/details/13555.shtml)
+- 2026-06-29 17:55 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/236306230.shtml)
+- 2026-06-29 17:59 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/15156977.shtml)
+- 2026-06-29 17:59 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/06948542967.shtml)
+- 2026-06-29 17:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/316833197311.shtml)
+- 2026-06-29 17:52 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/5116222.shtml)
+- 2026-06-29 17:46 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/4161688818.shtml)
+- 2026-06-29 17:53 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/5279329.shtml)

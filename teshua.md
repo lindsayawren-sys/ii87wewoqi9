@@ -1,58 +1,49 @@
-# 美伊，突传大消息！原油直线跳水，黄金拉升！特朗普：美国将把重心转向俄乌问题
+# 我国成功发射通信技术试验卫星二十六号A星
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-美伊，传来大消息。伊朗外长说伊美新一轮谈判可能19日在瑞士举行。市场方面，国际原油盘中大跳水。截至发稿，WTI原油跌逾2%。 国际金银拉升，截至发稿，现货黄金涨超0.6%，现货白银转为小幅上涨。 央视新闻报道，据伊朗方面16日消息，伊朗外交部长阿拉格齐当天表示，伊朗与美国新一轮谈判可能将于19日在瑞士开始举行，具体地点尚未确定。 阿拉格齐表示，伊朗将谈判分为两个阶段。第一阶段将
+中新网北京6月23日电 (马帅莎 徐斌如)北京时间6月23日10时10分，我国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十六号A星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。该卫星主要用于卫星通信、广播电视、数据传输等业务，并开展相关技术试验验证。 此次任务是长征系列运载火箭的第653次飞行。(完)
 
 ## 正文
 
-美伊，传来大消息。
+中新网北京6月23日电 (马帅莎 徐斌如)北京时间6月23日10时10分，我国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十六号A星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-伊朗外长说伊美新一轮谈判可能19日在瑞士举行。
+该卫星主要用于卫星通信、广播电视、数据传输等业务，并开展相关技术试验验证。
 
-市场方面，国际原油盘中大跳水。
+此次任务是长征系列运载火箭的第653次飞行。
 
-截至发稿，WTI原油跌逾2%。
-
-国际金银拉升，截至发稿，现货黄金涨超0.6%，现货白银转为小幅上涨。
-
-央视新闻报道，据伊朗方面16日消息，伊朗外交部长阿拉格齐当天表示，伊朗与美国新一轮谈判可能将于19日在瑞士开始举行，具体地点尚未确定。
-
-阿拉格齐表示，伊朗将谈判分为两个阶段。
-
-第一阶段将讨论结束战事、开放霍尔木兹海峡、解冻伊朗被冻结资产及战后重建等议题。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 17:54 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 18:04 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 17:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 17:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 17:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 17:50 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 17:46 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 17:45 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 17:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 18:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:44 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 18:03 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 18:09 - [谢依霖夸杨幂靠谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 18:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 17:56 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 17:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 17:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 17:51 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 18:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 17:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/241395032426.shtml)
-- 2026-06-29 17:52 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/050325874.shtml)
-- 2026-06-29 18:01 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/1725015.shtml)
-- 2026-06-29 17:43 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/815489.shtml)
-- 2026-06-29 17:49 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/91052.shtml)
-- 2026-06-29 18:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/54648512325.shtml)
-- 2026-06-29 17:59 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/140528229525.shtml)
-- 2026-06-29 17:48 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/0402601.shtml)
-- 2026-06-29 17:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/98007.shtml)
-- 2026-06-29 17:54 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/686206.shtml)
-- 2026-06-29 17:45 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/60620888.shtml)
-- 2026-06-29 17:54 - [一见倾心](http://www.share.kurohicncr.top/Article/details/976706.shtml)
-- 2026-06-29 18:01 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/85416215691.shtml)
-- 2026-06-29 17:49 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/22843511.shtml)
-- 2026-06-29 17:55 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/80791.shtml)
+- 2026-06-29 18:09 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/295218523681.shtml)
+- 2026-06-29 18:00 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/15480769320.shtml)
+- 2026-06-29 18:10 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/4717917.shtml)
+- 2026-06-29 17:49 - [急先锋](https://www.share.minike.top/Article/details/108590.shtml)
+- 2026-06-29 17:57 - [斗破苍穹](http://www.share.minike.top/Article/details/319312764.shtml)
+- 2026-06-29 18:07 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/3480458609.shtml)
+- 2026-06-29 17:52 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/8195841.shtml)
+- 2026-06-29 17:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/005749944673.shtml)
+- 2026-06-29 18:10 - [一见倾心](http://www.share.minike.top/Article/details/34202379.shtml)
+- 2026-06-29 17:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/29371536.shtml)
+- 2026-06-29 17:55 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/203455.shtml)
+- 2026-06-29 18:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/209687945.shtml)
+- 2026-06-29 18:06 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/86899119243.shtml)
+- 2026-06-29 17:48 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/607024733168.shtml)
+- 2026-06-29 17:51 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/494410859.shtml)

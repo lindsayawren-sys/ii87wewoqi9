@@ -1,56 +1,60 @@
-# 爱立信首席执行官鲍毅康即将卸任，公司资深高管纳文格将继任
+# “是我们！”张雪和台湾车主连线出现温情一幕
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。 这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。 纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，
+近日，“张雪机车”创始人张雪在个人线上售后直播中，专门连线了一位特殊车主——台湾岛内首位820RR车主。连线中，车主由衷赞叹“你们的工业技术真先进”，张雪随即温柔回应：“是我们。”这句话迅速刷屏全网，也让“我们”一词所承载的两岸情感共鸣引发广泛关注。 拆件海运，车友“自找苦吃”也要圆梦 这台820RR冠军版“张雪机车”的到来，背后是一段曲折的故事。由于台湾现行贸易政策禁止大陆产
 
 ## 正文
 
-现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。
+近日，“张雪机车”创始人张雪在个人线上售后直播中，专门连线了一位特殊车主——台湾岛内首位820RR车主。
 
-这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。
+连线中，车主由衷赞叹“你们的工业技术真先进”，张雪随即温柔回应：“是我们。
 
-纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，去年年初开始执掌网络业务板块。
+”这句话迅速刷屏全网，也让“我们”一词所承载的两岸情感共鸣引发广泛关注。
 
-爱立信董事长扬・卡尔森表示：“他深耕通信行业，拥有扎实的专业技术储备与丰富的商业运营经验，在多个关键管理岗位上均交出了亮眼的业绩答卷。
+拆件海运，车友“自找苦吃”也要圆梦 这台820RR冠军版“张雪机车”的到来，背后是一段曲折的故事。
 
-” 本次管理层更迭之际，爱立信正面临多重经营挑战。
+由于台湾现行贸易政策禁止大陆产摩托车以整车形式进口，车主只能将车辆拆解为零部件，分批海运抵台，再自行组装，前后耗时约一个半月，才完成了岛内第一台820RR的拼装。
 
-受宏观经济、地缘政治不确定性影响，运营商资本开支前景不明，今年网络设备市场需求预计将陷入停滞；与此同时，人工智能产业爆发推高半导体等元器件价格，企业生产成本持续攀升。
+尽管无法上牌、不能上路，但这丝毫没有影响台湾车友们的热情——这台颜色鲜艳的冠军版820RR近日亮相新北街头时，瞬间吸引大批车友围观捧场，不少人惊呼“太帅了”，就连执勤巡警都认出了这台世界冠军赛车，主动上前合影。
 
-爱立信押注，随着人工智能行业不断扩张、商业化落地提速，各大网络运营商将加大基础设施升级投入，以此承载海量激增的数据流量。
+“张雪机车”在WSBK一战成名后，冠军同款的量产820RR早已成为两岸摩托车迷心中的“神车”。
 
-在鲍毅康任职期间，爱立信还瞄准全球国防开支增长的机遇，加码防务及关键任务类产品布局，重点研发通信系统、基于 5G 的无人机探测传感系统等产品，拓展军工领域业务。
+然而受政策影响，无数车友只能“望车兴叹”。
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 17:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 17:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 17:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 17:42 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 17:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 18:02 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 17:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 17:36 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 18:03 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 17:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 17:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 18:05 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 17:47 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 17:57 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 17:44 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 18:00 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 17:42 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 18:02 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:49 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 18:10 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 18:04 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 17:43 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:58 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:02 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/137112079.shtml)
-- 2026-06-29 17:56 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/280210.shtml)
-- 2026-06-29 17:45 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/61089367852.shtml)
-- 2026-06-29 18:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/776315.shtml)
-- 2026-06-29 17:36 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/95285774.shtml)
-- 2026-06-29 17:56 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.kurohicncr.top/Article/details/98289626.shtml)
-- 2026-06-29 17:50 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/7250373.shtml)
-- 2026-06-29 17:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/77564387971.shtml)
-- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/59517313485.shtml)
-- 2026-06-29 18:02 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/7711306.shtml)
-- 2026-06-29 17:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/280449.shtml)
-- 2026-06-29 17:48 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/682895127.shtml)
-- 2026-06-29 17:36 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/38608.shtml)
-- 2026-06-29 18:01 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/151595.shtml)
-- 2026-06-29 17:39 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/480071809.shtml)
+- 2026-06-29 17:58 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/126230790980.shtml)
+- 2026-06-29 17:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/815328745.shtml)
+- 2026-06-29 18:05 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/49092.shtml)
+- 2026-06-29 17:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/521334.shtml)
+- 2026-06-29 17:51 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/03565122516.shtml)
+- 2026-06-29 17:47 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/8600191.shtml)
+- 2026-06-29 18:07 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/28583388.shtml)
+- 2026-06-29 18:05 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/201085888363.shtml)
+- 2026-06-29 18:00 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/0344755.shtml)
+- 2026-06-29 18:02 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/108575237.shtml)
+- 2026-06-29 17:56 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/20359.shtml)
+- 2026-06-29 18:09 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/99417537.shtml)
+- 2026-06-29 18:04 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/6211514.shtml)
+- 2026-06-29 17:50 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/286721037.shtml)
+- 2026-06-29 18:03 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/3671256.shtml)

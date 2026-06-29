@@ -1,60 +1,61 @@
-# “新疆小羊”爆火，折射哪些文旅市场新变化？
+# 特朗普签署量子研究行政令 以推动技术应用并提振网络防御能力
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-中新经纬6月15日电 (董湘依)近日，一只新疆毛绒小羊火爆全网，一句“小羊，和你的新疆户籍说再见吧”在社交媒体上大量传播。据新疆广播电视台报道，有人拖着行李箱专程赶来，有人一口气选走10只，排队3小时起步。摊主阿卜都拉从早做到晚，一天拼出200只，还是供不应求。北京旅游学会理事吴若山表示，从消费者行为学审视，“新疆小羊”的爆火绝非偶然，而是对当代年轻群体情绪价值的精准回应。经过
+特朗普周一签署旨在加速量子研究的行政命令，为联邦机构采用该技术、加强美国抵御网络攻击的能力奠定基础。 特朗普在白宫表示，这些行政命令将提升美国“在这个非常重要的新兴领域中的全球领导地位。我们已经遥遥领先，现在我们将进一步扩大领先优势。” 量子计算是一个新兴领域，但它对国家安全有着深远的影响，美国和中国都在竞相确立自己的主导地位。与特朗普一道现身的还有Alphabet高管Ruth
 
 ## 正文
 
-中新经纬6月15日电 (董湘依)近日，一只新疆毛绒小羊火爆全网，一句“小羊，和你的新疆户籍说再见吧”在社交媒体上大量传播。
+特朗普周一签署旨在加速量子研究的行政命令，为联邦机构采用该技术、加强美国抵御网络攻击的能力奠定基础。
 
-据新疆广播电视台报道，有人拖着行李箱专程赶来，有人一口气选走10只，排队3小时起步。
+特朗普在白宫表示，这些行政命令将提升美国“在这个非常重要的新兴领域中的全球领导地位。
 
-摊主阿卜都拉从早做到晚，一天拼出200只，还是供不应求。
+我们已经遥遥领先，现在我们将进一步扩大领先优势。
 
-北京旅游学会理事吴若山表示，从消费者行为学审视，“新疆小羊”的爆火绝非偶然，而是对当代年轻群体情绪价值的精准回应。
+” 量子计算是一个新兴领域，但它对国家安全有着深远的影响，美国和中国都在竞相确立自己的主导地位。
 
-经过多年深耕，旅游业向内容端发力、以文化为“活水”的鲜明特征日益凸显，旅游文创更是如此。
+与特朗普一道现身的还有Alphabet高管Ruth Porat以及IBM首席执行官Arvind Krishna。
 
-吴若山提到，此前，甘肃省博物馆依托铜奔马IP打造的“红运马”系列文创，线下短时售罄、线上销量暴涨背后，将厚重的地域历史文化拆解为贴合当代青年审美、适配社交传播的文创产品。
+IBM股票在盘后交易中上涨2.4%。
 
-此番凭借艾德莱斯绸、宝石花帽等本土民族元素出圈的“新疆小羊”，亦是遵循这一逻辑生长出的现象级文旅样本。
+特朗普表示，第一项行政命令将启动项目，以研发能够执行重要科学计算的量子计算机。
 
-吴若山表示，“新疆小羊”主打现场挑选配饰、手工量身装扮的微型私人定制，让游客全程参与创作。
+不愿透露姓名的白宫官员在签署仪式前向记者透露，他们相信到2028年就能研制出这样的计算机。
 
 ## 相关推荐
 
-- 2026-06-29 18:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 17:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 17:36 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 17:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 18:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 18:02 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 17:47 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 17:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 17:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 18:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 17:42 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 17:44 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 18:04 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 17:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 17:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 18:10 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 17:45 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:56 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 18:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 17:54 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 18:08 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 17:53 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 18:06 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 18:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 17:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 18:10 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 17:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 18:06 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 17:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/282649852.shtml)
-- 2026-06-29 18:02 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/15187.shtml)
-- 2026-06-29 17:47 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/37994577.shtml)
-- 2026-06-29 18:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/763580209.shtml)
-- 2026-06-29 18:02 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/6744033.shtml)
-- 2026-06-29 17:37 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/171521094531.shtml)
-- 2026-06-29 17:42 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/410543.shtml)
-- 2026-06-29 17:43 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/11882435.shtml)
-- 2026-06-29 17:36 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/0418377281.shtml)
-- 2026-06-29 17:55 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/800669.shtml)
-- 2026-06-29 17:39 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/3311459.shtml)
-- 2026-06-29 18:03 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/19208284.shtml)
-- 2026-06-29 17:40 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/05907972.shtml)
-- 2026-06-29 17:55 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/9400216222.shtml)
-- 2026-06-29 18:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/49905.shtml)
+- 2026-06-29 18:06 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/17093.shtml)
+- 2026-06-29 18:09 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/69177991.shtml)
+- 2026-06-29 18:09 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/792596543324.shtml)
+- 2026-06-29 17:48 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/79837119.shtml)
+- 2026-06-29 17:42 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/077860678905.shtml)
+- 2026-06-29 17:51 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/4192578.shtml)
+- 2026-06-29 18:04 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/80611.shtml)
+- 2026-06-29 18:04 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/19918.shtml)
+- 2026-06-29 17:48 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/285443803560.shtml)
+- 2026-06-29 18:04 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/31754.shtml)
+- 2026-06-29 17:58 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/3707242515.shtml)
+- 2026-06-29 17:54 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/54652.shtml)
+- 2026-06-29 18:09 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/252184282897.shtml)
+- 2026-06-29 17:49 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/3271032.shtml)
+- 2026-06-29 17:54 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/27183592348.shtml)

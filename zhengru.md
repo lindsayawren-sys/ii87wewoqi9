@@ -1,57 +1,56 @@
-# 政策预期落空，多晶硅期货重回弱现实交易
+# 现货黄金持续下挫，大摩仍看好长线行情
 
-> 更新时间：2026-06-29 18:06:03 UTC+8
+> 更新时间：2026-06-29 18:12:03 UTC+8
 
 ## 摘要
 
-来源：广发期货研究证监许可【2011】1292号 纪元菲 Z0013180 | 2026年6月16日 星期二 行情点评： 2026年6月16日，多晶硅期货大幅下跌，主力合约跌幅超7%，下跌2770元/吨至35420元/吨。前期炒作供给侧反内卷、能效指标的热情减退，期价向现货回归，大幅下跌。 下跌主要驱动因素1：炒作热情减退，期货价格向现货均价收敛 上周多晶硅再次表现出弱现实，强
+截至13：52，现货黄金报4119.27美元/盎司，日内大跌61.60美元，跌幅1.47%。宏观面多空交织：美联储6月维持利率3.75%不变，但点阵图显示年内仍有加息可能，美债10年期收益率上行施压无息资产黄金。但中东地缘局势持续紧张、全球央行购金趋势未改，金价下方支撑依然牢固。上期所黄金库存111639千克，周减少24千克，维持平稳。 市场资金面上，COMEX黄金期货持仓维持
 
 ## 正文
 
-来源：广发期货研究证监许可【2011】1292号 纪元菲 Z0013180 | 2026年6月16日 星期二 行情点评： 2026年6月16日，多晶硅期货大幅下跌，主力合约跌幅超7%，下跌2770元/吨至35420元/吨。
+截至13：52，现货黄金报4119.27美元/盎司，日内大跌61.60美元，跌幅1.47%。
 
-前期炒作供给侧反内卷、能效指标的热情减退，期价向现货回归，大幅下跌。
+宏观面多空交织：美联储6月维持利率3.75%不变，但点阵图显示年内仍有加息可能，美债10年期收益率上行施压无息资产黄金。
 
-下跌主要驱动因素1：炒作热情减退，期货价格向现货均价收敛 上周多晶硅再次表现出弱现实，强预期走势。
+但中东地缘局势持续紧张、全球央行购金趋势未改，金价下方支撑依然牢固。
 
-现货价格承压下跌近3%，但期货价格上涨约4.5%。
+上期所黄金库存111639千克，周减少24千克，维持平稳。
 
-期货上涨，现货下跌，主力套利窗口持续扩大至4015元/吨。
+市场资金面上，COMEX黄金期货持仓维持高位，ETF持仓近期小幅流入，黄金避险资产属性持续获得资金认可。
 
-多重供给侧反内卷消息传出，主要涉及组件、逆变器、单晶硅环节的能耗/能效指标有望在近期发布，市场预计多晶硅的能耗指标也即将发布带动多晶硅期货价格大幅上涨。
+摩根士丹利表示，如果没有ETF资金流入的显著回升，其关于下半年金价达到5200美元的看涨目标将变得更加难以实现。
 
-单纯的从消息面来看，能效等级落地助力光伏产业提升产品质量，淘汰落后产能，高能效的产品产能将更有优势。
+摩根士丹利仍看好黄金的长期前景，因为中东紧张局势缓和以及油价下跌有助于缓解对通胀的担忧。
 
-但是站在多晶硅的角度来看，短期内预计影响较小，即便有减产预期，主要涉及下游需求方反而利空需求。
+不过，美联储在最近一次会议上措辞偏鹰，强化了利率将在更长时间内维持高位的预期，增加了持有黄金等不生息资产的机会成本。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:49 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 17:49 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 18:04 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 17:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 17:45 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 18:02 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 17:56 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 17:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 17:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 18:08 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 17:50 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 18:07 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 17:43 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 17:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 17:59 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 17:45 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:55 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 18:01 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 18:06 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/83778.shtml)
-- 2026-06-29 17:57 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/1475031.shtml)
-- 2026-06-29 18:01 - [天道](http://www.share.kurohicncr.top/Article/details/052564226.shtml)
-- 2026-06-29 18:02 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/1062662202.shtml)
-- 2026-06-29 17:45 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/3439365.shtml)
-- 2026-06-29 17:59 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/7155898232.shtml)
-- 2026-06-29 17:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/5340193.shtml)
-- 2026-06-29 17:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/311153532661.shtml)
-- 2026-06-29 18:05 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/8303362251.shtml)
-- 2026-06-29 17:48 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/682256286.shtml)
-- 2026-06-29 17:42 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/0901831.shtml)
-- 2026-06-29 18:00 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/931512657.shtml)
-- 2026-06-29 18:03 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/0504381505.shtml)
-- 2026-06-29 17:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/17716730.shtml)
-- 2026-06-29 17:43 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/849020.shtml)
+- 2026-06-29 17:56 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/78422798.shtml)
+- 2026-06-29 17:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/67251733045.shtml)
+- 2026-06-29 17:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/16826.shtml)
+- 2026-06-29 18:08 - [沙丘](http://www.share.kurohicncr.top/Article/details/515009071.shtml)
+- 2026-06-29 17:57 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/158208771481.shtml)
+- 2026-06-29 17:57 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4799907.shtml)
+- 2026-06-29 17:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/9824136399.shtml)
+- 2026-06-29 18:00 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/376283934811.shtml)
+- 2026-06-29 17:47 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/4176559.shtml)
+- 2026-06-29 18:10 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/899722992.shtml)
+- 2026-06-29 18:03 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/032132967372.shtml)
+- 2026-06-29 17:54 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/37710929.shtml)
+- 2026-06-29 17:58 - [扬名立万](http://www.blog.minike.top/Article/details/33726.shtml)
+- 2026-06-29 18:02 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/62845119412.shtml)
+- 2026-06-29 17:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/66584.shtml)
