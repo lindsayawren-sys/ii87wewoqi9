@@ -1,50 +1,61 @@
-# 中国人保原党委委员、副总裁于泽被“双开”
+# 黑石集团完成其最大亚洲私募股权基金募集，规模超130亿美元
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对中国人民保险集团股份有限公司原党委委员、副总裁于泽严重违纪违法问题进行了立案审查调查。 经查，于泽丧失理想信念，背弃初心使命，私自携带、阅看有严重政治问题的书籍，对抗组织审查；违反中央八项规定精神，违规借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；在职务晋升等工作中为他人谋取利益并收受财物
+黑石集团周二表示，已为其最新的亚洲私募股权基金募集了131亿美元，这是该公司在亚洲规模最大的一笔私募股权融资。 这家另类资产管理公司称，“黑石资本伙伴亚洲三期基金”超过了100亿美元的目标，募集规模是其前一期基金的两倍多。 黑石私募股权策略全球负责人乔·巴拉塔在一份声明中表示：“亚太地区是全球增长最快的区域，为围绕我们的高确信主题进行大规模投资提供了极具吸引力的机会。” 黑石还
 
 ## 正文
 
-中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对中国人民保险集团股份有限公司原党委委员、副总裁于泽严重违纪违法问题进行了立案审查调查。
+黑石集团周二表示，已为其最新的亚洲私募股权基金募集了131亿美元，这是该公司在亚洲规模最大的一笔私募股权融资。
 
-经查，于泽丧失理想信念，背弃初心使命，私自携带、阅看有严重政治问题的书籍，对抗组织审查；违反中央八项规定精神，违规借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；在职务晋升等工作中为他人谋取利益并收受财物，私自扣压检举、控告材料；廉洁底线失守，借用管理和服务对象大额钱款，违规报销个人费用；玩物丧志；毫无纪法底线，将公权力异化为谋取个人私利的工具，大搞权钱交易，利用职务便利为他人在项目承揽、职工录用等方面谋利，并非法收受巨额财物。
+这家另类资产管理公司称，“黑石资本伙伴亚洲三期基金”超过了100亿美元的目标，募集规模是其前一期基金的两倍多。
 
-于泽严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+黑石私募股权策略全球负责人乔·巴拉塔在一份声明中表示：“亚太地区是全球增长最快的区域，为围绕我们的高确信主题进行大规模投资提供了极具吸引力的机会。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予于泽开除党籍处分；由国家监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+” 黑石还表示，在过去24个月中，已在亚洲完成了12笔交易，投资总额超过70亿美元，进一步巩固了其在印度、日本等关键市场的存在。
+
+近期的投资包括：印度人工智能云平台Neysa、日本工程技术服务提供商TechnoPro，以及韩国美发沙龙连锁品牌JUNO。
+
+随着公开市场回暖，该公司在亚洲也完成了15笔退出，包括国际宝石学院和印度Aadhar Housing Finance的上市，以及日本Alinamin Pharmaceutical的退出。
+
+此次融资正值亚洲聚焦型私募资本活动升温之际，此前EQT刚刚完成了156亿美元的亚洲收购基金募集。
+
+黑石亚洲私募股权负责人阿米特·迪克西特表示，公司“以控股权为导向的策略”以及区域规模优势使其投资方式与众不同。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 15:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 15:16 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 15:14 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 15:25 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 15:14 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 15:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 15:10 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 15:00 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 15:22 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 15:25 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 15:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 15:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:31 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:06 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 15:16 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 15:21 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 15:27 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 15:34 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 15:32 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 15:17 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:16 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 15:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 15:32 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 15:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/0130548.shtml)
-- 2026-06-29 15:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/607934636097.shtml)
-- 2026-06-29 15:02 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/408564102.shtml)
-- 2026-06-29 15:09 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/370334507403.shtml)
-- 2026-06-29 15:08 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/7057651.shtml)
-- 2026-06-29 15:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0356757248.shtml)
-- 2026-06-29 15:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/60410.shtml)
-- 2026-06-29 15:10 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/3591933.shtml)
-- 2026-06-29 15:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/11675.shtml)
-- 2026-06-29 15:26 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/236414239090.shtml)
-- 2026-06-29 15:27 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/765567074546.shtml)
-- 2026-06-29 15:05 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/821220187870.shtml)
-- 2026-06-29 15:19 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/393247723.shtml)
-- 2026-06-29 15:04 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/30897729925.shtml)
-- 2026-06-29 15:07 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/151520.shtml)
+- 2026-06-29 15:15 - [灿如繁星定档](http://www.share.minike.top/Article/details/09506742012.shtml)
+- 2026-06-29 15:18 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/78333392780.shtml)
+- 2026-06-29 15:19 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/690230074967.shtml)
+- 2026-06-29 15:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/291829.shtml)
+- 2026-06-29 15:15 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/5387252345.shtml)
+- 2026-06-29 15:25 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/7181513.shtml)
+- 2026-06-29 15:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/969910198329.shtml)
+- 2026-06-29 15:14 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/365122242334.shtml)
+- 2026-06-29 15:26 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/5376216556.shtml)
+- 2026-06-29 15:21 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/88561626632.shtml)
+- 2026-06-29 15:17 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/73874028367.shtml)
+- 2026-06-29 15:20 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/114642465348.shtml)
+- 2026-06-29 15:07 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/678038814.shtml)
+- 2026-06-29 15:06 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/44834.shtml)
+- 2026-06-29 15:15 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/680029.shtml)

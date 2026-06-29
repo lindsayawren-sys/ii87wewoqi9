@@ -1,61 +1,59 @@
-# 阿曼一处核心原油出口码头爆炸事故后恢复运营
+# 中国—东盟人工智能创新合作研修班启动
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-据知情交易商透露，阿曼一处核心原油出口码头本周五早些时候因爆炸中断装船作业，目前相关运营已恢复。 交易商不愿具名（无对外受访权限）称，法赫尔港码头泊位未在此次爆炸中遭到直接损毁，爆炸具体起因暂未查明。 据阿曼官方通讯社报道，负责码头原油装船作业的阿曼国家石油开发公司（PDO）表示码头现已恢复常态化作业；阿曼国家石油开发公司与法赫尔港方面暂未回应彭博社的置评问询。 该码头坐落于霍
+中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。 中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动
 
 ## 正文
 
-据知情交易商透露，阿曼一处核心原油出口码头本周五早些时候因爆炸中断装船作业，目前相关运营已恢复。
+中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。
 
-交易商不愿具名（无对外受访权限）称，法赫尔港码头泊位未在此次爆炸中遭到直接损毁，爆炸具体起因暂未查明。
+来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。
 
-据阿曼官方通讯社报道，负责码头原油装船作业的阿曼国家石油开发公司（PDO）表示码头现已恢复常态化作业；阿曼国家石油开发公司与法赫尔港方面暂未回应彭博社的置评问询。
+中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动力。
 
-该码头坐落于霍尔木兹海峡外围，是战乱环境下中东地区为数不多仍可外运原油的关键枢纽。
+中国—东盟自贸区3.0版即将实施，双方人工智能合作前景广阔。
 
-上月受法国道达尔能源大批量提货订单影响，这座港口曾出现油轮扎堆滞港拥堵情况。
+中国—东盟博览会已举办22届，搭建双边合作的重要平台，也开展了一系列面向东盟的研修培训项目，包括中国—东盟青年领军者成长计划研修班、中国—东盟农产品电商贸易研修班、中国—东盟东部增长区电子商务(新业态)研修班等，受到东盟国家参训学员的广泛好评。
 
-阿曼长期充当美伊斡旋中间人，在本轮冲突中遭受的袭击少于波斯湾沿岸其他国家，但今年 3 月法赫尔港曾遭遇袭击，当时多艘油轮出于避险需要紧急驶离港区。
+老挝科技与通信部国家信息中心副主任瓦拉赛·达拉莱作为学员代表发言。
 
-伊朗方面提议与阿曼共同管控霍尔木兹海峡，该提议遭到美国反对。
+他表示，人工智能已经成为推动全球发展的变革力量，中国引领人工智能研究、创新和应用场景落地，东盟各国正致力于将AI技术融入各行各业。
 
-阿曼上周曾发布预警，在本国海域发现水雷踪迹。
+此次研修班项目为东盟国家提供了绝佳平台，让各国学员更好地学习中国的先进经验、交流心得，有助于整体提升东盟国家人工智能运用能力。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 15:05 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 15:23 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:22 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 15:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 15:12 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 15:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:16 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 15:16 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 15:26 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:27 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:29 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 15:20 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 15:07 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 15:16 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:27 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:07 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 15:25 - [普京介绍前线战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 15:25 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 15:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 15:22 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:30 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 15:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:29 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 15:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 15:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 15:08 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/78897237.shtml)
-- 2026-06-29 15:26 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/140447128877.shtml)
-- 2026-06-29 15:21 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/116872374.shtml)
-- 2026-06-29 15:24 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/608431.shtml)
-- 2026-06-29 15:13 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/9646931475.shtml)
-- 2026-06-29 15:11 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/038800103.shtml)
-- 2026-06-29 15:10 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/952678634.shtml)
-- 2026-06-29 15:06 - [沙丘](http://www.blog.minike.top/Article/details/18185.shtml)
-- 2026-06-29 15:22 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/2089619125.shtml)
-- 2026-06-29 15:01 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/28224.shtml)
-- 2026-06-29 15:16 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/427442.shtml)
-- 2026-06-29 15:09 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/2850222.shtml)
-- 2026-06-29 15:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/11366683656.shtml)
-- 2026-06-29 15:19 - [金牌调解](http://www.share.kurohicncr.top/Article/details/561955.shtml)
-- 2026-06-29 15:28 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/002842787.shtml)
+- 2026-06-29 15:10 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/912503901.shtml)
+- 2026-06-29 15:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/12509477160.shtml)
+- 2026-06-29 15:09 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/3666969.shtml)
+- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/219315559290.shtml)
+- 2026-06-29 15:18 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2644715325.shtml)
+- 2026-06-29 15:18 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/55497624366.shtml)
+- 2026-06-29 15:23 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/239723358.shtml)
+- 2026-06-29 15:06 - [抓特务票房破亿](http://www.share.minike.top/Article/details/61790001.shtml)
+- 2026-06-29 15:34 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/42880401998.shtml)
+- 2026-06-29 15:24 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/450834234187.shtml)
+- 2026-06-29 15:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/093308146036.shtml)
+- 2026-06-29 15:26 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/10387.shtml)
+- 2026-06-29 15:24 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/98424484.shtml)
+- 2026-06-29 15:27 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/717182505.shtml)
+- 2026-06-29 15:09 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/3800953.shtml)

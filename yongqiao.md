@@ -1,59 +1,52 @@
-# 多只热门牛股，密集提示风险
+# 韩国简化极紫外光刻机进口审批流程
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月4日晚间，华特气体、江海股份、鼎通科技等多只热门股密集发布股票交易异常波动公告说明相关情况，并提示风险。 华特气体：氦气产品价格已有明显下降趋势 华特气体6月4日晚间公告，公司股票于6月3日、6月4日连续2个交易日内日收盘价格涨幅偏离值累计超过30%。根据有关规定，属于股票交易异常波动。 截至公告披露日，公司关注到市场出现关于氦气产品价格调整的传闻，经公司核实，截至目前，氦
+韩国产业通商资源部在一份声明中表示，为助力本土蓬勃发展的芯片产业维系竞争力，韩国将简化半导体生产所用极紫外（EUV）光刻机的进口通关手续。根据内阁批准的修订版《高压气体安全控制法》实施细则，EUV 设备进口办理周期将从此前的34天缩短至约9天。韩国产业部表示，此项新政将利好三星电子与 SK 海力士，两家企业可更快完成高端芯片生产设备的装机投产。责任编辑：王永生
 
 ## 正文
 
-6月4日晚间，华特气体、江海股份、鼎通科技等多只热门股密集发布股票交易异常波动公告说明相关情况，并提示风险。
+韩国产业通商资源部在一份声明中表示，为助力本土蓬勃发展的芯片产业维系竞争力，韩国将简化半导体生产所用极紫外（EUV）光刻机的进口通关手续。
 
-华特气体：氦气产品价格已有明显下降趋势 华特气体6月4日晚间公告，公司股票于6月3日、6月4日连续2个交易日内日收盘价格涨幅偏离值累计超过30%。
+根据内阁批准的修订版《高压气体安全控制法》实施细则，EUV 设备进口办理周期将从此前的34天缩短至约9天。
 
-根据有关规定，属于股票交易异常波动。
+韩国产业部表示，此项新政将利好三星电子与 SK 海力士，两家企业可更快完成高端芯片生产设备的装机投产。
 
-截至公告披露日，公司关注到市场出现关于氦气产品价格调整的传闻，经公司核实，截至目前，氦气相关产品销售价格距高位已经有明显下降的趋势，价格受地缘政治、全球供应等因素影响波动较大，未来价格仍存在回落的可能，提请投资者理性看待相关市场传闻，勿过度放大单一产品价格波动对公司业绩的影响。
-
-Wind数据显示，6月4日，华特气体股价收报203.6元/股，涨幅为15.5%，总市值为255亿元，今年以来，该股股价累计涨幅为254.77%。
-
-江海股份：没有片式多层陶瓷电容器业务 江海股份6月4日晚发布公告称，公司股票连续3个交易日收盘价格涨幅偏离值累计超过20%，属于交易异常波动。
-
-公司表示，公司目前超级电容器、MLPC的规模、营收占比及其在AI服务器电源上的应用都较小。
-
-另外，公司没有片式多层陶瓷电容器（MLCC）业务，也没有投产MLCC的计划。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 15:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 15:14 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 15:04 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 15:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 15:17 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 15:25 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 15:21 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 15:13 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 15:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 15:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 15:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 15:29 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 15:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 15:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 15:06 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:08 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 15:22 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 15:21 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 15:20 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:12 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 15:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 15:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 15:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/857606.shtml)
-- 2026-06-29 15:11 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/04051.shtml)
-- 2026-06-29 15:26 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/3829527181.shtml)
-- 2026-06-29 15:14 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/2444249.shtml)
-- 2026-06-29 15:28 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/294202314953.shtml)
-- 2026-06-29 15:11 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/093490280697.shtml)
-- 2026-06-29 15:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/7849901681.shtml)
-- 2026-06-29 15:16 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/00941.shtml)
-- 2026-06-29 15:04 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/06534.shtml)
-- 2026-06-29 15:20 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/38127918.shtml)
-- 2026-06-29 15:09 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/88086663339.shtml)
-- 2026-06-29 15:05 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/4664808861.shtml)
-- 2026-06-29 15:19 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/68451.shtml)
-- 2026-06-29 15:16 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/55008.shtml)
-- 2026-06-29 15:02 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/882809283758.shtml)
+- 2026-06-29 15:18 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/6786687.shtml)
+- 2026-06-29 15:29 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/098212328530.shtml)
+- 2026-06-29 15:17 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/0077181.shtml)
+- 2026-06-29 15:30 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/51926.shtml)
+- 2026-06-29 15:23 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/0708148.shtml)
+- 2026-06-29 15:19 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/777666153610.shtml)
+- 2026-06-29 15:22 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/412996.shtml)
+- 2026-06-29 15:12 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/8965555069.shtml)
+- 2026-06-29 15:21 - [天道](https://www.share.minike.top/Article/details/782849.shtml)
+- 2026-06-29 15:30 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/423620456601.shtml)
+- 2026-06-29 15:17 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/10128.shtml)
+- 2026-06-29 15:35 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/811013.shtml)
+- 2026-06-29 15:14 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/940533.shtml)
+- 2026-06-29 15:23 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/68367.shtml)
+- 2026-06-29 15:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/073247.shtml)

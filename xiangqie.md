@@ -1,56 +1,57 @@
-# 国际友谊赛中国男足2：1胜新加坡
+# 菲利普莫里斯拟对加拿大子公司计提5亿美元资产减值
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 当地时间6月5日在新加坡惹兰勿刹体育场举行的一场国际足球友谊赛中，中国男足2:1战胜新加坡队，替补出场的老将武磊达成国家队百场成就。 中国男足在6月国际比赛日窗口期迎来两场友谊赛，分别与新加坡队和泰国队交手。两场友谊赛均为国际足联A级赛事，比赛结果计入世界排名积分系统，中国队需抢分提升国际足联排名，并为2027年亚洲杯备战练兵。 赛前中国队排名世界第94位
+专题：聚焦美股2026年第一季度财报 内容摘要 菲利普莫里斯国际二季度将计提约 5 亿美元减值损失，对应每股账面收益减少 0.33 美元。 菲利普莫里斯国际（股票代码：PM）公告，二季度计提约5 亿美元资产减值，下调旗下加拿大联营公司乐富门本森赫奇斯（RBH）项目的投资账面价值。 这家总部位于康涅狄格州斯坦福的烟草企业周二披露，本次减值将使账面每股收益减少 0.33 美元；受减
 
 ## 正文
 
-中新社北京6月5日电 当地时间6月5日在新加坡惹兰勿刹体育场举行的一场国际足球友谊赛中，中国男足2:1战胜新加坡队，替补出场的老将武磊达成国家队百场成就。
+专题：聚焦美股2026年第一季度财报 内容摘要 菲利普莫里斯国际二季度将计提约 5 亿美元减值损失，对应每股账面收益减少 0.33 美元。
 
-中国男足在6月国际比赛日窗口期迎来两场友谊赛，分别与新加坡队和泰国队交手。
+菲利普莫里斯国际（股票代码：PM）公告，二季度计提约5 亿美元资产减值，下调旗下加拿大联营公司乐富门本森赫奇斯（RBH）项目的投资账面价值。
 
-两场友谊赛均为国际足联A级赛事，比赛结果计入世界排名积分系统，中国队需抢分提升国际足联排名，并为2027年亚洲杯备战练兵。
+这家总部位于康涅狄格州斯坦福的烟草企业周二披露，本次减值将使账面每股收益减少 0.33 美元；受减值计提与汇率变动因素影响，公司下调全年每股收益指引：由 4 月预期的 7.56–7.71 美元，修正至7.18–7.33 美元。
 
-赛前中国队排名世界第94位，新加坡队第147位。
+受汇率波动拖累，全年调整后每股收益预期同步下调，从此前 8.36–8.51 美元降至8.31–8.46 美元。
 
-尽管纸面实力占优，但在两年前的美加墨世界杯亚洲区预选赛36强赛中，国足客场2:2遭新加坡逼平。
+FactSet 汇总分析师一致预期全年调整后每股收益 8.40 美元。
 
-此役，两位U23球员李昊、毛伟杰首发迎来国家队首秀。
+菲利普莫里斯表示，本次针对 RBH 的减值依据该子公司结合当下行业环境更新的五年财务测算；计提后，剩余投资账面价值将不足 1 亿美元。
 
-比赛伊始，中国队快速进入状态。
+RBH 连同加拿大其余头部烟草品牌去年达成和解，合计支付325 亿加元（折合 235 亿美元），了结加拿大境内全部吸烟相关诉讼赔偿。
 
-上半场第16分钟，谢文能传中，塞尔吉尼奥头球攻入个人国足生涯首球，中国队1:0领先。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 15:23 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 15:29 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 15:24 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 15:13 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:18 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 15:18 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 15:04 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 15:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 15:19 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 15:09 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 15:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 15:07 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 15:17 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 15:26 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 15:25 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 15:06 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 15:27 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 15:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/2445997250.shtml)
-- 2026-06-29 15:09 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/4871088520.shtml)
-- 2026-06-29 15:02 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/8405185.shtml)
-- 2026-06-29 15:06 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/635999.shtml)
-- 2026-06-29 15:10 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/47555928.shtml)
-- 2026-06-29 15:02 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/387734.shtml)
-- 2026-06-29 15:24 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/34074246464.shtml)
-- 2026-06-29 15:09 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/554953609776.shtml)
-- 2026-06-29 15:20 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/5629628549.shtml)
-- 2026-06-29 15:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/09116305.shtml)
-- 2026-06-29 15:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/220385.shtml)
-- 2026-06-29 15:26 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/434093036282.shtml)
-- 2026-06-29 15:04 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/1597474.shtml)
-- 2026-06-29 15:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/60202931717.shtml)
-- 2026-06-29 15:19 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/119957536.shtml)
+- 2026-06-29 15:11 - [我和我的家乡](https://www.share.minike.top/Article/details/35734604.shtml)
+- 2026-06-29 15:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/335089.shtml)
+- 2026-06-29 15:34 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/7526983.shtml)
+- 2026-06-29 15:09 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/7129021621.shtml)
+- 2026-06-29 15:24 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/73538311568.shtml)
+- 2026-06-29 15:06 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/031028928.shtml)
+- 2026-06-29 15:29 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/979584.shtml)
+- 2026-06-29 15:06 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/690920.shtml)
+- 2026-06-29 15:28 - [青春环游记第三季](http://www.blog.minike.top/Article/details/19554750.shtml)
+- 2026-06-29 15:12 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/68202619.shtml)
+- 2026-06-29 15:24 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/77281657.shtml)
+- 2026-06-29 15:10 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/360995086.shtml)
+- 2026-06-29 15:21 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/995500.shtml)
+- 2026-06-29 15:16 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/88707356968.shtml)
+- 2026-06-29 15:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/668157.shtml)

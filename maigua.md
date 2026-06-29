@@ -1,51 +1,58 @@
-# 上海钢联：公司及其控股子公司无逾期对外担保情形
+# 全美汽车工人联合会将对通用汽车核心卡车零部件供应商工厂发起罢工
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，上海钢联发布公告称，截至本公告日，公司及子公司对下属公司的担保余额为5.49亿元，公司对外担保（不包含对子公司的担保）总额为0万元，公司对外担保总额占最近一期经审计归属于上市公司股东净资产的25.08%。公司及其控股子公司无逾期对外担保情形，亦无涉及诉讼的担保金额及因担保被判决败诉而应承担的损失金额。（文章来源：证券日报）
+车桥企业美车轴密歇根工厂负责生产雪佛兰索罗德、GMC 塞拉皮卡的核心零部件 内容速览 美车轴近千名工人即将举行罢工，通用汽车皮卡核心零部件生产将陷入停滞。 密歇根州一家汽车零部件供应商的近千名工人计划发起罢工，导致通用汽车旗下中型及全尺寸皮卡的核心零部件生产中断。 美车轴位于密歇根州三河城的工厂，劳资双方就新劳动合同谈判陷入僵局。工人们表示，2008 年经济形势严峻时，为保住工
 
 ## 正文
 
-证券日报网讯 6月5日，上海钢联发布公告称，截至本公告日，公司及子公司对下属公司的担保余额为5.49亿元，公司对外担保（不包含对子公司的担保）总额为0万元，公司对外担保总额占最近一期经审计归属于上市公司股东净资产的25.08%。
+车桥企业美车轴密歇根工厂负责生产雪佛兰索罗德、GMC 塞拉皮卡的核心零部件 内容速览 美车轴近千名工人即将举行罢工，通用汽车皮卡核心零部件生产将陷入停滞。
 
-公司及其控股子公司无逾期对外担保情形，亦无涉及诉讼的担保金额及因担保被判决败诉而应承担的损失金额。
+密歇根州一家汽车零部件供应商的近千名工人计划发起罢工，导致通用汽车旗下中型及全尺寸皮卡的核心零部件生产中断。
 
-（文章来源：证券日报）
+美车轴位于密歇根州三河城的工厂，劳资双方就新劳动合同谈判陷入僵局。
+
+工人们表示，2008 年经济形势严峻时，为保住工厂运营，他们同意将薪资减半；如今依托通用皮卡热销，美车轴近年利润丰厚，但工人薪资始终未能恢复至当年水平。
+
+全美汽车工人联合会主席肖恩・费恩于周日晚间直播宣布罢工决定：“18 年来，工人们为公司创造了巨额利润，却一直遭受不公对待。
+
+他们接受降薪、削减福利，全心投入工作。
+
+” 本次罢工自周一凌晨 0 点 01 分正式开始。
+
+费恩补充道：“我们将持续罢工，直到公司正视问题，给予工人应有的尊严与尊重。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:23 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 15:20 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 15:03 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 15:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 15:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 15:21 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 15:24 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 15:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 15:24 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 15:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 15:03 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 15:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 15:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 15:07 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 15:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 15:20 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 15:15 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 15:31 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 15:35 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:35 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 15:32 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 15:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 15:30 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 15:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 15:06 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/9349704.shtml)
-- 2026-06-29 15:02 - [NBA交易](https://www.blog.minike.top/Article/details/95285.shtml)
-- 2026-06-29 15:14 - [金刚川](https://www.share.minike.top/Article/details/759446725231.shtml)
-- 2026-06-29 15:09 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/88898521.shtml)
-- 2026-06-29 15:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/8178384828.shtml)
-- 2026-06-29 15:28 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/781619923750.shtml)
-- 2026-06-29 15:09 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/5122680332.shtml)
-- 2026-06-29 15:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/32595619.shtml)
-- 2026-06-29 15:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/73626049969.shtml)
-- 2026-06-29 15:07 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/604831444.shtml)
-- 2026-06-29 15:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/4171561.shtml)
-- 2026-06-29 15:19 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/76055.shtml)
-- 2026-06-29 15:24 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/92480527.shtml)
-- 2026-06-29 15:02 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/4010338.shtml)
-- 2026-06-29 15:10 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/11977.shtml)
+- 2026-06-29 15:30 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/64692.shtml)
+- 2026-06-29 15:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/108213095578.shtml)
+- 2026-06-29 15:08 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/806342489.shtml)
+- 2026-06-29 15:17 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/8738600680.shtml)
+- 2026-06-29 15:22 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/3128411.shtml)
+- 2026-06-29 15:15 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/34637.shtml)
+- 2026-06-29 15:25 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/57436219.shtml)
+- 2026-06-29 15:28 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/2648277.shtml)
+- 2026-06-29 15:13 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/946952489566.shtml)
+- 2026-06-29 15:16 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/22573853660.shtml)
+- 2026-06-29 15:13 - [流金岁月](https://www.share.kurohicncr.top/Article/details/8897939.shtml)
+- 2026-06-29 15:34 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/379348.shtml)
+- 2026-06-29 15:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/01831267302.shtml)
+- 2026-06-29 15:24 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/369959944275.shtml)
+- 2026-06-29 15:10 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/568904398.shtml)

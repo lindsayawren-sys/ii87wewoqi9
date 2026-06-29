@@ -1,58 +1,46 @@
-# 一封寄给董事长的手写信
+# 新疆库车：独库公路恢复开通首日车水马龙
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-5月初的一天，一封厚厚的挂号信，寄到了我爱我家上海公司总部。牛皮纸信封上工工整整地写着地址和收件人。在微信可以秒回、邮件可以群发的今天，这样一封手写信，显得格外郑重。 这是一封感谢信。写信的是一位70多岁的上海业主，汪阿姨。她在信里感谢了一位经纪人——我爱我家上海公司瑞浦路店的刘舜尧。但奇怪的是，汪阿姨的房子，并没有在我爱我家成交。 没有成交，为什么还要专门写一封感谢信呢？故事
+发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。(作者：张镭、李东) 责任编辑：【魏聪聪】
 
 ## 正文
 
-5月初的一天，一封厚厚的挂号信，寄到了我爱我家上海公司总部。
+发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。
 
-牛皮纸信封上工工整整地写着地址和收件人。
+在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。
 
-在微信可以秒回、邮件可以群发的今天，这样一封手写信，显得格外郑重。
-
-这是一封感谢信。
-
-写信的是一位70多岁的上海业主，汪阿姨。
-
-她在信里感谢了一位经纪人——我爱我家上海公司瑞浦路店的刘舜尧。
-
-但奇怪的是，汪阿姨的房子，并没有在我爱我家成交。
-
-没有成交，为什么还要专门写一封感谢信呢？
+(作者：张镭、李东) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 15:22 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:06 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:14 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 15:28 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 15:11 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 15:04 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 15:11 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 15:15 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 15:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 15:19 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 15:11 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 15:15 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 15:11 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 15:25 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 15:12 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 15:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 15:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 15:32 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:06 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:17 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/8088850660.shtml)
-- 2026-06-29 15:05 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/919276186897.shtml)
-- 2026-06-29 15:24 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/575490605455.shtml)
-- 2026-06-29 15:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/753351245076.shtml)
-- 2026-06-29 15:20 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/115863.shtml)
-- 2026-06-29 15:03 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/701346.shtml)
-- 2026-06-29 15:05 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/0071743.shtml)
-- 2026-06-29 15:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/0111938278.shtml)
-- 2026-06-29 15:05 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/5254192422.shtml)
-- 2026-06-29 15:10 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/55008349776.shtml)
-- 2026-06-29 15:22 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/02894592.shtml)
-- 2026-06-29 15:12 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/76488135.shtml)
-- 2026-06-29 15:04 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/65878.shtml)
-- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/8893512.shtml)
-- 2026-06-29 15:17 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/804052401674.shtml)
+- 2026-06-29 15:18 - [沉睡花园](http://www.share.minike.top/Article/details/818594946362.shtml)
+- 2026-06-29 15:27 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/167752660.shtml)
+- 2026-06-29 15:06 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/2867484547.shtml)
+- 2026-06-29 15:25 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/0329417.shtml)
+- 2026-06-29 15:12 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/27484111816.shtml)
+- 2026-06-29 15:31 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1214396.shtml)
+- 2026-06-29 15:14 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/563194976.shtml)
+- 2026-06-29 15:33 - [时光音乐会](http://www.share.minike.top/Article/details/076198.shtml)
+- 2026-06-29 15:29 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/84684711641.shtml)
+- 2026-06-29 15:09 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/03136808.shtml)
+- 2026-06-29 15:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/326011.shtml)
+- 2026-06-29 15:11 - [起风了](http://www.blog.minike.top/Article/details/670329940245.shtml)
+- 2026-06-29 15:06 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/636725.shtml)
+- 2026-06-29 15:31 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/93456.shtml)
+- 2026-06-29 15:30 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/435506764650.shtml)

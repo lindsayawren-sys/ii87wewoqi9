@@ -1,53 +1,60 @@
-# 海内外侨胞参访重庆新能源汽车工厂 点赞智能制造水平领跑全球
+# 空气炸锅纸加热致癌？咖啡滤纸含荧光剂？真相来了
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 15:13 来源：中国新闻网 6月5日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆沙坪坝区，参访智能网联新能源汽车生产基地，实地感受重庆新能源汽车产业发展的强劲动能。 参访过程中，先进的智造设备、高效的生产流程、前沿的技术应用，让参访侨胞纷纷赞叹，中国新能源汽车的智能化制造水平已经领跑全球。 近年来，中国新能源汽车产业快速发
+近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。 25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。 检测
 
 ## 正文
 
-发布时间：2026年06月05日 15:13 来源：中国新闻网 6月5日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆沙坪坝区，参访智能网联新能源汽车生产基地，实地感受重庆新能源汽车产业发展的强劲动能。
+近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？
 
-参访过程中，先进的智造设备、高效的生产流程、前沿的技术应用，让参访侨胞纷纷赞叹，中国新能源汽车的智能化制造水平已经领跑全球。
+上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。
 
-近年来，中国新能源汽车产业快速发展，不仅产量规模位居世界前列，核心技术、智能制造能力更是不断突破。
+25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。
 
-重庆依托雄厚的工业基础，聚力发展新能源汽车产业，打造出完整的产业链、供应链与创新链，成为国内新能源汽车产业发展的重要标杆。
+检测人员模拟蒸笼纸接触油性、酸性等不同食物的实际使用场景开展安全检测，本次共检测了25款烹饪用纸，包含7款空气炸锅纸、6款蒸笼垫纸、6款食物吸油纸和6款咖啡滤纸。
 
-侨胞们表示，将积极发挥自身资源优势，助力重庆新能源汽车走向更广阔的国际舞台。
+蒸发残渣值，是指纸张在特定高温下，析出并迁移到食物中的非挥发性物质总量。
 
-(记者 肖江川) 责任编辑：【罗攀】
+本次检测结果显示，所有样品的蒸发残渣值均在标准限值内，也并未检出3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP(1,3-二氯-2-丙醇)等致癌物。
+
+网传“空气炸锅纸加热有毒、会致癌”？
+
+除了蒸笼纸，有关空气炸锅纸的安全问题也有不少争议，有网友担心高温加热会释放致癌物。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 15:14 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 15:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 15:24 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 15:00 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 15:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 15:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 15:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 15:10 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 15:12 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 15:21 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 15:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 15:27 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:24 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 15:13 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 15:29 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 15:33 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 15:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 15:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 15:08 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 15:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:35 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 15:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 15:18 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 15:22 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/256756628657.shtml)
-- 2026-06-29 15:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/32026.shtml)
-- 2026-06-29 15:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/714569750.shtml)
-- 2026-06-29 15:22 - [双高胎](http://www.blog.kurohicncr.top/Article/details/208960025.shtml)
-- 2026-06-29 15:28 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/437281506166.shtml)
-- 2026-06-29 15:02 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/4517298.shtml)
-- 2026-06-29 15:14 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/26985479.shtml)
-- 2026-06-29 15:27 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/77544768810.shtml)
-- 2026-06-29 15:15 - [周生如故](http://www.blog.minike.top/Article/details/80828.shtml)
-- 2026-06-29 15:22 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/75502475.shtml)
-- 2026-06-29 15:01 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/38746.shtml)
-- 2026-06-29 15:01 - [东部机场集团新增釜山航线](http://www.blog.kurohicncr.top/Article/details/140505091966.shtml)
-- 2026-06-29 15:01 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/23602764990.shtml)
-- 2026-06-29 15:26 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/635546166.shtml)
-- 2026-06-29 15:02 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2649796.shtml)
+- 2026-06-29 15:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/43375968.shtml)
+- 2026-06-29 15:10 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/4690606.shtml)
+- 2026-06-29 15:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7383295.shtml)
+- 2026-06-29 15:26 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/06531.shtml)
+- 2026-06-29 15:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/611335.shtml)
+- 2026-06-29 15:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/08416801.shtml)
+- 2026-06-29 15:06 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/77271671.shtml)
+- 2026-06-29 15:24 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/19399301.shtml)
+- 2026-06-29 15:22 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/92647952.shtml)
+- 2026-06-29 15:14 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/074625897486.shtml)
+- 2026-06-29 15:10 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/877542343549.shtml)
+- 2026-06-29 15:06 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/262071905005.shtml)
+- 2026-06-29 15:06 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/60506878.shtml)
+- 2026-06-29 15:26 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/93621829319.shtml)
+- 2026-06-29 15:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/986097.shtml)

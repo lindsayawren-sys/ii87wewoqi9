@@ -1,58 +1,59 @@
-# 王毅会见下任联合国秘书长候选人巴切莱特
+# 2026年世界环境日主题活动在北京举行
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月4日电 6月4日，中共中央政治局委员、外交部长王毅在北京会见下任联合国秘书长候选人、智利前总统巴切莱特。 巴切莱特介绍了对国际形势和联合国作用的看法，表示联合国是国际社会合力应对全球性挑战不可或缺的平台。当今世界乱象丛生，我们需要更多而不是更少的多边主义。联合国应通过改革回归初心理念，维护宪章权威，聚焦行动导向，统筹推进和平、发展、人权三大支柱，与时俱进更好应对风
+中新社北京6月2日电 (记者 肖玉笛)2026年世界环境日主题活动6月2日在北京联合国大楼举行，来自联合国机构、企业及社会组织的代表齐聚一堂，共同探讨气候变化挑战，呼吁全社会积极参与气候行动。 2026年世界环境日聚焦气候变化，倡导“为气候争分夺秒”，呼吁人们关注地球发出的紧迫信号，以实际行动应对全球气候危机。 联合国秘书长古特雷斯在视频致辞中说，过去11年是有记录以来最热的1
 
 ## 正文
 
-中新社北京6月4日电 6月4日，中共中央政治局委员、外交部长王毅在北京会见下任联合国秘书长候选人、智利前总统巴切莱特。
+中新社北京6月2日电 (记者 肖玉笛)2026年世界环境日主题活动6月2日在北京联合国大楼举行，来自联合国机构、企业及社会组织的代表齐聚一堂，共同探讨气候变化挑战，呼吁全社会积极参与气候行动。
 
-巴切莱特介绍了对国际形势和联合国作用的看法，表示联合国是国际社会合力应对全球性挑战不可或缺的平台。
+2026年世界环境日聚焦气候变化，倡导“为气候争分夺秒”，呼吁人们关注地球发出的紧迫信号，以实际行动应对全球气候危机。
 
-当今世界乱象丛生，我们需要更多而不是更少的多边主义。
+联合国秘书长古特雷斯在视频致辞中说，过去11年是有记录以来最热的11年。
 
-联合国应通过改革回归初心理念，维护宪章权威，聚焦行动导向，统筹推进和平、发展、人权三大支柱，与时俱进更好应对风险挑战。
+气候变化带来的破坏远不止气温上升，还有空气污染加剧、土地退化、生态系统失衡和生物多样性减少，并且导致人类健康受损、家园被毁、饥饿加剧。
 
-我坚定奉行一个中国政策，高度赞赏中方长期致力于推动多边主义和联合国事业，愿同中方及国际社会一道，共同强化联合国地位和作用。
+他呼吁各国加快减排步伐，将全球升温幅度和持续时间控制在最低水平。
 
-王毅表示，巴切莱特女士的阐述体现了你对联合国工作的深入思考和推进人类进步事业的责任感与热情。
+联合国驻华协调员杰思衡在视频致辞中说，联合国正与中国政府、合作伙伴以及社会各界携手合作，迈向更加绿色的未来。
 
-中国始终是联合国事业的坚定支持者和积极建设者。
+他表示，“在中国，一片由最佳实践构成的‘森林’正在茁壮成长。
 
-上个月我赴纽约主持安理会高级别会议，同各方深入交流。
+” 联合国环境规划署驻华代表处代办王茜在现场致辞时指出，气候影响虽然正在加剧，但解决方案也在增多，关键是要立刻采取行动。
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 15:23 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 15:00 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 15:20 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 15:18 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 15:25 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 15:01 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 15:02 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 15:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 15:03 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 15:16 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 15:16 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 15:31 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 15:13 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 15:18 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 15:07 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 15:19 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 15:28 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 15:27 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 15:30 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 15:20 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:25 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/32498437.shtml)
-- 2026-06-29 15:07 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/26923021.shtml)
-- 2026-06-29 15:15 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/2151217206.shtml)
-- 2026-06-29 15:25 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/4870751.shtml)
-- 2026-06-29 15:05 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/4167814181.shtml)
-- 2026-06-29 15:01 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/8541518393.shtml)
-- 2026-06-29 15:20 - [一生一世](https://www.blog.kurohicncr.top/Article/details/81081.shtml)
-- 2026-06-29 15:28 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/0689931937.shtml)
-- 2026-06-29 15:14 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/73424.shtml)
-- 2026-06-29 15:03 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/9749454.shtml)
-- 2026-06-29 15:26 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/4008901777.shtml)
-- 2026-06-29 15:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/858505580889.shtml)
-- 2026-06-29 15:04 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/0798498614.shtml)
-- 2026-06-29 15:19 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/73937093185.shtml)
-- 2026-06-29 15:26 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/521309639887.shtml)
+- 2026-06-29 15:16 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/52692.shtml)
+- 2026-06-29 15:26 - [金刚川](https://www.blog.minike.top/Article/details/14389.shtml)
+- 2026-06-29 15:23 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/76139.shtml)
+- 2026-06-29 15:33 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/952425.shtml)
+- 2026-06-29 15:07 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/58202315.shtml)
+- 2026-06-29 15:27 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/881970289736.shtml)
+- 2026-06-29 15:30 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/609936145.shtml)
+- 2026-06-29 15:10 - [恋与深空 731](http://www.share.minike.top/Article/details/08418174.shtml)
+- 2026-06-29 15:09 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/4651553.shtml)
+- 2026-06-29 15:22 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/50139001094.shtml)
+- 2026-06-29 15:28 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/87872.shtml)
+- 2026-06-29 15:07 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/738351031.shtml)
+- 2026-06-29 15:18 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/4451052469.shtml)
+- 2026-06-29 15:33 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/1872354180.shtml)
+- 2026-06-29 15:21 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/462280472.shtml)

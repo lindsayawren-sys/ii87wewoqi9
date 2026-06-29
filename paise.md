@@ -1,52 +1,61 @@
-# 易票联支付被罚近4835万元：违反支付结算、金融科技、反洗钱管理有关规定
+# 从“地理毗邻”到“情感共鸣” 重庆秀山探索跨省民族工作现代化新范式
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，中国人民银行广东省分行行政处罚决定信息公示表显示，易票联支付有限公司因违反支付结算、金融科技、反洗钱管理有关规定，被给予警告、通报批评，没收违法所得1005.155263万元，合计处罚款3829.743967万元，罚没款合计近4835万元。 苏某安对易票联支付有限公司违反支付结算、反洗钱管理有关规定负有责任，被给予警告、通报批评，并处罚款37.5万元。陈某
+中新网重庆6月2日电 题：从“地理毗邻”到“情感共鸣” 重庆秀山探索跨省民族工作现代化新范式 中新网记者 刘相琳 初夏时节，武陵山腹地满目苍翠。沿渝湘高速驶入重庆秀山土家族苗族自治县，洪安边城的吊脚楼沿河而立，三省风情街游人如织，土家织锦工坊里银针穿梭，苗族山歌在梅江河畔回荡。 地处渝、湘、黔、鄂四省(市)交界的秀山，聚居着土家族、苗族、汉族等31个民族，少数民族人口占总人口的
 
 ## 正文
 
-6月4日金融一线消息，中国人民银行广东省分行行政处罚决定信息公示表显示，易票联支付有限公司因违反支付结算、金融科技、反洗钱管理有关规定，被给予警告、通报批评，没收违法所得1005.155263万元，合计处罚款3829.743967万元，罚没款合计近4835万元。
+中新网重庆6月2日电 题：从“地理毗邻”到“情感共鸣” 重庆秀山探索跨省民族工作现代化新范式 中新网记者 刘相琳 初夏时节，武陵山腹地满目苍翠。
 
-苏某安对易票联支付有限公司违反支付结算、反洗钱管理有关规定负有责任，被给予警告、通报批评，并处罚款37.5万元。
+沿渝湘高速驶入重庆秀山土家族苗族自治县，洪安边城的吊脚楼沿河而立，三省风情街游人如织，土家织锦工坊里银针穿梭，苗族山歌在梅江河畔回荡。
 
-陈某（易票联支付有限公司技术运维部）对公司违反金融科技管理有关规定负有责任，被罚款2万元。
+地处渝、湘、黔、鄂四省(市)交界的秀山，聚居着土家族、苗族、汉族等31个民族，少数民族人口占总人口的59.47%。
 
-责任编辑：曹睿潼
+昔日的“边陲之地”，如今正把省际边缘地带打造为各民族交往交流交融、共建共治共享的前沿阵地，在民族团结、产业共富、边区治理上走出一条民族地区现代化治理新路。
+
+非遗“活”起来：从指尖技艺到团结纽带 走进秀山职教中心非遗文创基地，14个非遗技艺传承工作坊一字排开。
+
+龙凤花烛坊里，学生们捏制粉色花朵蜡烛，用刻刀勾花瓣、蜡液点花蕊；苗绣坊中，绣娘指尖飞舞，一针一线勾勒出古老图腾。
+
+“我们依托‘非遗+教育+研学’模式，将教学研修、文创开发、技艺体验等功能融合在一起，既让非遗活态传承，也让各族学生在共学共做中增进感情。
+
+”基地负责人冷进说。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:12 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 15:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 15:23 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 15:14 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 15:04 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 15:22 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 15:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 15:02 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 15:29 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 15:04 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 15:19 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 15:13 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:13 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 15:28 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 15:19 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 15:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 15:15 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 15:06 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 15:31 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 15:08 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 15:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 15:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 15:16 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 15:18 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 15:10 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 15:11 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/8735405705.shtml)
-- 2026-06-29 15:22 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/53758842.shtml)
-- 2026-06-29 15:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/46929243.shtml)
-- 2026-06-29 15:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/5809212627.shtml)
-- 2026-06-29 15:00 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/01486.shtml)
-- 2026-06-29 15:03 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/55558034.shtml)
-- 2026-06-29 15:20 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/6043668895.shtml)
-- 2026-06-29 15:16 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/90007867333.shtml)
-- 2026-06-29 15:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/95798.shtml)
-- 2026-06-29 15:21 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/148340815340.shtml)
-- 2026-06-29 15:17 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/5755765642.shtml)
-- 2026-06-29 15:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/5028625.shtml)
-- 2026-06-29 15:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/96312990707.shtml)
-- 2026-06-29 15:05 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/93330121.shtml)
-- 2026-06-29 15:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/674645.shtml)
+- 2026-06-29 15:27 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/8937276.shtml)
+- 2026-06-29 15:16 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/77731904339.shtml)
+- 2026-06-29 15:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/45395.shtml)
+- 2026-06-29 15:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/14356.shtml)
+- 2026-06-29 15:30 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/3018042.shtml)
+- 2026-06-29 15:09 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/50796.shtml)
+- 2026-06-29 15:34 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/9326623.shtml)
+- 2026-06-29 15:31 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/3968385.shtml)
+- 2026-06-29 15:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/5730993513.shtml)
+- 2026-06-29 15:07 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/563488.shtml)
+- 2026-06-29 15:34 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/13515.shtml)
+- 2026-06-29 15:35 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/039238987.shtml)
+- 2026-06-29 15:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/875591626771.shtml)
+- 2026-06-29 15:31 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/583297556917.shtml)
+- 2026-06-29 15:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/8454667.shtml)

@@ -1,61 +1,56 @@
-# 北京交通部门多措并举护航高考出行
+# 红杉中国沈南鹏向母校上海交通大学捐资 3 亿元，设立“红杉书院建设基金”
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
+IT之家 6 月 1 日消息，据上海交通大学官方今日消息，值上海交通大学建校 130 周年之际，1985 级首届教改试点班杰出校友、红杉中国创始及执行合伙人沈南鹏先生慷慨捐资 3 亿元，设立“红杉书院建设基金”。IT之家注：红杉中国是专注于投资科技、医疗健康、消费三大领域的私募股权投资机构。红杉中国投资超 1,600 家企业，最成功的案例包括京东、拼多多、美团网、Shein、唯
 
 ## 正文
 
-中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。
+IT之家 6 月 1 日消息，据上海交通大学官方今日消息，值上海交通大学建校 130 周年之际，1985 级首届教改试点班杰出校友、红杉中国创始及执行合伙人沈南鹏先生慷慨捐资 3 亿元，设立“红杉书院建设基金”。
 
-公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
+IT之家注：红杉中国是专注于投资科技、医疗健康、消费三大领域的私募股权投资机构。
 
-高考期间，针对途经考点周边的414条公交线路，结合各场考试开考时间，加强运力安排，在开考前1小时增配运力，加密行车间隔，方便考生乘车。
+红杉中国投资超 1,600 家企业，最成功的案例包括京东、拼多多、美团网、Shein、唯品会、泡泡玛特、极兔速递和字节跳动等。
 
-对考点周边线路采取灵活的调度措施，在大木仓胡同、彰化村、嘉园一里、龙跃苑一区西门、北京八中大兴分校、丽园北、海子角北口、海子角东口、绿色庄园、海子角等10处公交站点部分时段采取临时甩站措施，线路临时甩站和绕行期间，车内考生要求下车时，在保证安全的前提下方便考生就近下车。
+上海交通大学将依托致远学院打造拔尖人才培养的新平台 —— 红杉书院，聘请沈南鹏先生担任名誉院长，丁奎岭校长兼任首任院长。
 
-同时，严密监控道路情况和运送速度的变化，采取场站备车、区间车、快车等措施，妥善处置突发事件，确保安全平稳运营。
+据介绍，红杉书院将聚焦本科阶段拔尖学生培养，设立“红杉学子计划”，学生完成第一学期学业后，可自主申请参加红杉学子遴选，入选后可突破专业边界，在校本部范围内任选专业方向。
 
-结合考试期间交通变化特点，开展驾驶员遵法守纪、按道行驶、控制车速、遵守路口通行规定的教育，注意避让考生和接送考生的人员及车辆，杜绝与考生及家长发生服务纠纷及行车事故。
+红杉书院实行学分制管理，为红杉学子量身定制培养方案，夯实数理化基础，强化人工智能素养。
 
-此外，在重点考点周边设置“高考加油站”服务岗67处，一线管理及乘务巡检员500余名在岗服务，准备2B铅笔、橡皮、尺子等应考物资以及消毒纸巾、防暑降温用品等应急物资，方便考生应急使用。
+书院实行 3~6 年的弹性学制，学生可依据自身学习和发展情况申请提前毕业，也可因科研实践、企业实习或创新创业等需求灵活调整学习进程，在规定年限内完成学业。
 
-地铁开通“三优”绿色通道 高考期间，北京地铁继续推行“三优”绿色通道，即乘坐地铁前往考点的考生及家长，可凭准考证享受“优先购票、优先安检、优先进站”服务。
+红杉书院为红杉学子提供专项奖学金资助，并支持海外研学和科研实践等；专设领导力培养课程和顶尖企业就业绿色通道，提供创新创业指导，支持学生在更广阔的舞台上探索未来方向。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 15:17 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 15:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 15:00 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:07 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 15:10 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 15:14 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:03 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:08 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 15:30 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 15:25 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 15:06 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 15:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 15:11 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 15:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 15:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 15:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 15:15 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 15:18 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 15:09 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/223952027.shtml)
-- 2026-06-29 15:13 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/7997216626.shtml)
-- 2026-06-29 15:21 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/186590917751.shtml)
-- 2026-06-29 15:04 - [极限挑战第一季](http://www.blog.minike.top/Article/details/64654231685.shtml)
-- 2026-06-29 15:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/7975441.shtml)
-- 2026-06-29 15:09 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/144159.shtml)
-- 2026-06-29 15:10 - [NBA交易](https://www.share.minike.top/Article/details/21277.shtml)
-- 2026-06-29 15:09 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/5128087.shtml)
-- 2026-06-29 15:00 - [斗破苍穹](https://www.share.minike.top/Article/details/634208000736.shtml)
-- 2026-06-29 15:21 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/358274527479.shtml)
-- 2026-06-29 15:20 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/3977343.shtml)
-- 2026-06-29 15:17 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/6221637.shtml)
-- 2026-06-29 15:17 - [把古诗里的动作换成加班](https://www.share.minike.top/Article/details/62044885.shtml)
-- 2026-06-29 15:28 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/78944276572.shtml)
-- 2026-06-29 15:06 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/658884.shtml)
+- 2026-06-29 15:33 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/807945160.shtml)
+- 2026-06-29 15:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/55901443.shtml)
+- 2026-06-29 15:24 - [起风了](https://www.blog.kurohicncr.top/Article/details/5296714441.shtml)
+- 2026-06-29 15:28 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/167900.shtml)
+- 2026-06-29 15:16 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/37116695.shtml)
+- 2026-06-29 15:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/91697165413.shtml)
+- 2026-06-29 15:16 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/245437873.shtml)
+- 2026-06-29 15:16 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/17687922.shtml)
+- 2026-06-29 15:06 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/1196033486.shtml)
+- 2026-06-29 15:09 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/562033.shtml)
+- 2026-06-29 15:33 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/7424056.shtml)
+- 2026-06-29 15:23 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/3516226.shtml)
+- 2026-06-29 15:07 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/639223336142.shtml)
+- 2026-06-29 15:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/35475679654.shtml)
+- 2026-06-29 15:30 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/4655504.shtml)

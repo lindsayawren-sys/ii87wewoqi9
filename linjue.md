@@ -1,57 +1,60 @@
-# 用友网络申请20亿银行授信，SaaS软件AI替代叙事被证伪
+# 6月1日外卖新规施行，美团外卖“放心外卖”十大举措全面落地
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-2026年上半年，全球软件市场走出一轮从极致悲观到预期修复的剧烈行情。年初AIAgent技术加速落地，市场普遍担忧SaaS席位收费模式被智能体颠覆，IGV软件指数一季度最大回撤近30%，板块总市值蒸发超万亿美元。 悲观情绪顺着跨境资本与产业预期传导至A股国产软件板块，用友网络作为国内ERP与云SaaS龙头，成为本轮AI替代恐慌下国产软件的核心观测标的，其股价年初至今累计下跌19
+6月1日起，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，对网络餐饮服务经营者落实主体责任提出了全面、系统的规定和指引，标志着餐饮外卖食品安全治理迈入新阶段。 据从美团获悉，美团已全面落地“放心外卖”十大举措，覆盖商家准入、透明经营、社会共治三大环节，确保新规要求逐条落地。 在商家准入环节，美团外卖已从今年5月起在全国推行“一镜到底”门店验真。餐饮商家入驻平台
 
 ## 正文
 
-2026年上半年，全球软件市场走出一轮从极致悲观到预期修复的剧烈行情。
+6月1日起，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，对网络餐饮服务经营者落实主体责任提出了全面、系统的规定和指引，标志着餐饮外卖食品安全治理迈入新阶段。
 
-年初AIAgent技术加速落地，市场普遍担忧SaaS席位收费模式被智能体颠覆，IGV软件指数一季度最大回撤近30%，板块总市值蒸发超万亿美元。
+据从美团获悉，美团已全面落地“放心外卖”十大举措，覆盖商家准入、透明经营、社会共治三大环节，确保新规要求逐条落地。
 
-悲观情绪顺着跨境资本与产业预期传导至A股国产软件板块，用友网络作为国内ERP与云SaaS龙头，成为本轮AI替代恐慌下国产软件的核心观测标的，其股价年初至今累计下跌19.83%，同期上证指数上涨2.24%，显著跑输大盘，直观体现出市场对国产SaaS席位制商业模式被AI颠覆的集体担忧，也是国产软件板块承压的缩影。
+在商家准入环节，美团外卖已从今年5月起在全国推行“一镜到底”门店验真。
 
-6月2日，用友网络公告披露，6月1日，公司以通讯表决方式召开第十届董事会第二次会议，会议一致审议通过《公司关于向银行申请综合授信额度的议案》，公司拟向6家银行申请综合授信额度不超过23.5亿元，似乎也为下一步产业部署做准备。
+餐饮商家入驻平台时，必须完整拍摄并提交从门头招牌到后厨、连续不间断带定位的视频，经门店真实校验与证照资质、线下巡检、消费者实拍交叉验证后才能通过审核。
 
-此前全市场普遍质疑，依托订阅席位变现的本土ERP厂商会被通用企业智能体快速替代，国产SaaS行业一度笼罩在生存危机之中。
+已入驻商家也会定期收到核验通知，未在180天内完成真实性验证的，将受到平台相应处置。
 
-进入4—5月财报季，海外头部SaaS企业密集披露的业绩全线优于市场预期，“AI吞噬软件价值”的投资叙事被基本面证伪，IGV指数5月单月大涨21.11%，创下该指数2001年7月上市以来最佳月度收益。
+同时，美团已与全国20余省市对接许可证数据接口，实现商家证照与监管部门数据库直接穿透式比对验真。
 
-工银瑞信基金6月3日发布观点称，AI并非软件行业的颠覆者，原有软件价值没有消失，而是向产业基础设施与垂直行业场景持续转移。
+今年3月，美团“食安智能监测平台”全面升级，在入驻审核环节新增AI门头图识别能力，已主动拦截超45万张AI生成的虚假门头图。
 
-伴随技术迭代与商业化场景落地，全球AI产业正式迈入规模化商用周期，AI正在重塑并抬升底层软件基础设施价值。
+在透明经营方面，美团“明厨亮灶”专项计划已覆盖全国40万商家。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:27 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:06 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 15:28 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 15:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 15:00 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 15:14 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 15:22 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 15:25 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 15:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 15:06 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 15:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 15:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:19 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 15:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 15:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 15:27 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 15:08 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 15:16 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 15:23 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 15:29 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 15:13 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 15:06 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/28566611.shtml)
-- 2026-06-29 15:20 - [20年前的周杰伦](http://www.share.minike.top/Article/details/123800.shtml)
-- 2026-06-29 15:14 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/266653920418.shtml)
-- 2026-06-29 15:15 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/649603440.shtml)
-- 2026-06-29 15:16 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/2177042.shtml)
-- 2026-06-29 15:14 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/134088042311.shtml)
-- 2026-06-29 15:28 - [周生如故](http://www.share.minike.top/Article/details/8843414097.shtml)
-- 2026-06-29 15:15 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/47926.shtml)
-- 2026-06-29 15:05 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/8893563447.shtml)
-- 2026-06-29 15:04 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/51479515.shtml)
-- 2026-06-29 15:06 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/0510683431.shtml)
-- 2026-06-29 15:10 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/245377835.shtml)
-- 2026-06-29 15:00 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/150063.shtml)
-- 2026-06-29 15:03 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/612708668.shtml)
-- 2026-06-29 15:06 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/532354.shtml)
+- 2026-06-29 15:22 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/35142576872.shtml)
+- 2026-06-29 15:30 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/8563023.shtml)
+- 2026-06-29 15:34 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/51830681.shtml)
+- 2026-06-29 15:33 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/111183039315.shtml)
+- 2026-06-29 15:32 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/402766263878.shtml)
+- 2026-06-29 15:21 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/11766712.shtml)
+- 2026-06-29 15:09 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/17606221327.shtml)
+- 2026-06-29 15:14 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/5059559.shtml)
+- 2026-06-29 15:33 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/6409205.shtml)
+- 2026-06-29 15:22 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/08538.shtml)
+- 2026-06-29 15:26 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/8429125.shtml)
+- 2026-06-29 15:10 - [行程万里不忘初心](http://www.share.minike.top/Article/details/48554.shtml)
+- 2026-06-29 15:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/87128384.shtml)
+- 2026-06-29 15:11 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/440698.shtml)
+- 2026-06-29 15:33 - [毒液2](https://www.blog.kurohicncr.top/Article/details/0822622859.shtml)

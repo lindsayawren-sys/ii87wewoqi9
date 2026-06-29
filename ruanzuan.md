@@ -1,49 +1,44 @@
-# 中越举行北部湾湾口外海域工作组和海上共同开发磋商工作组新一轮磋商
+# 黎以4月17日的临时停火如今已名存实亡
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-2026年6月3日，外交部边界与海洋事务代表胡炜与越南外交部国家边界委主任阮登胜在越南头顿共同主持中越北部湾湾口外海域工作组第十八轮磋商和海上共同开发磋商工作组第十五轮磋商，两国有关部门代表参加。 双方就北部湾湾口外海域划界和南海共同开发深入交换意见，一致表示要认真落实两党两国领导人达成的重要共识，加快同步推进北部湾湾口外海域划界和南海共同开发，争取早日取得实质进展。双方还就其
+发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-2026年6月3日，外交部边界与海洋事务代表胡炜与越南外交部国家边界委主任阮登胜在越南头顿共同主持中越北部湾湾口外海域工作组第十八轮磋商和海上共同开发磋商工作组第十五轮磋商，两国有关部门代表参加。
-
-双方就北部湾湾口外海域划界和南海共同开发深入交换意见，一致表示要认真落实两党两国领导人达成的重要共识，加快同步推进北部湾湾口外海域划界和南海共同开发，争取早日取得实质进展。
-
-双方还就其他涉海问题进行了沟通，一致认为应妥善管控海上分歧，积极推进涉海合作，共同维护南海和平稳定。
+发布时间：2026年06月02日 09:35 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 15:04 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 15:26 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 15:00 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 15:29 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 15:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 15:29 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:28 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 15:05 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 15:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 15:15 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 15:15 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 15:30 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 15:28 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 15:24 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 15:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 15:30 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 15:28 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 15:15 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 15:21 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 15:22 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 15:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 15:19 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 15:16 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/759374578.shtml)
-- 2026-06-29 15:08 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/26620020.shtml)
-- 2026-06-29 15:18 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/4742521654.shtml)
-- 2026-06-29 15:14 - [爸爸当家](https://www.share.minike.top/Article/details/836279.shtml)
-- 2026-06-29 15:28 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/21332694814.shtml)
-- 2026-06-29 15:05 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/33853033471.shtml)
-- 2026-06-29 15:11 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/8979942523.shtml)
-- 2026-06-29 15:06 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/217259317.shtml)
-- 2026-06-29 15:01 - [斛珠夫人](http://www.share.minike.top/Article/details/259312.shtml)
-- 2026-06-29 15:12 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/810870951.shtml)
-- 2026-06-29 15:01 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/99993.shtml)
-- 2026-06-29 15:20 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/74907595.shtml)
-- 2026-06-29 15:10 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/2673700.shtml)
-- 2026-06-29 15:18 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/517426.shtml)
-- 2026-06-29 15:10 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/53717450.shtml)
+- 2026-06-29 15:35 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/91095913793.shtml)
+- 2026-06-29 15:26 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/93443331.shtml)
+- 2026-06-29 15:16 - [急先锋](http://www.share.kurohicncr.top/Article/details/844291595648.shtml)
+- 2026-06-29 15:20 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/5692065634.shtml)
+- 2026-06-29 15:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/06743158515.shtml)
+- 2026-06-29 15:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/9597619399.shtml)
+- 2026-06-29 15:09 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/8441510559.shtml)
+- 2026-06-29 15:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/83474118.shtml)
+- 2026-06-29 15:27 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/97002.shtml)
+- 2026-06-29 15:35 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/811795235175.shtml)
+- 2026-06-29 15:24 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/088715433.shtml)
+- 2026-06-29 15:07 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/6495501.shtml)
+- 2026-06-29 15:07 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/47475601731.shtml)
+- 2026-06-29 15:15 - [天道](https://www.blog.kurohicncr.top/Article/details/6441056465.shtml)
+- 2026-06-29 15:12 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/7160885.shtml)

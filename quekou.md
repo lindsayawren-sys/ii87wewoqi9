@@ -1,53 +1,52 @@
-# 郑商所增设指定尿素交割厂库及提货点
+# 桂林—香港航线加密至每日一班 架起桂港便捷空中桥梁
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。相关信息如下。 一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联
+中新网桂林6月2日电(欧惠兰 杨飏)6月1日起，桂林—香港航线加密至每日一班，由大湾区航空采用波音737-800机型执飞。 该航线飞行时间约1小时30分钟，高效便捷的空中通道，让商务人士出差、亲子家庭出游、购物休闲出行都更加从容省心，进一步强化广西桂林市与粤港澳大湾区的航空联系。 据介绍，香港是重要的国际航空枢纽，拥有通达全球的航线网络。桂林—香港航线加密至每日一班后，国际旅客
 
 ## 正文
 
-关于增设指定尿素交割厂库及提货点的公告 〔2026〕82号 根据企业申请，经研究决定，增设安徽泉盛化工有限公司为指定尿素交割厂库，增设成都云图控股股份有限公司指定尿素交割厂库提货点；自本公告发布之日起开展尿素期货业务。
+中新网桂林6月2日电(欧惠兰 杨飏)6月1日起，桂林—香港航线加密至每日一班，由大湾区航空采用波音737-800机型执飞。
 
-相关信息如下。
+该航线飞行时间约1小时30分钟，高效便捷的空中通道，让商务人士出差、亲子家庭出游、购物休闲出行都更加从容省心，进一步强化广西桂林市与粤港澳大湾区的航空联系。
 
-一、交割厂库具体信息 厂库名称：安徽泉盛化工有限公司 厂库简称：泉盛化工 厂库代码：2035 厂库地址：安徽省定远县炉桥镇盐化工业园区中能大道 联 系 人：许聪 联系电话：17505506866 日最低发货量：1000吨/天 升 贴 水：0元/吨 二、交割提货点具体信息 成都云图控股股份有限公司的厂库简称、厂库代码、联系人保持不变。
+据介绍，香港是重要的国际航空枢纽，拥有通达全球的航线网络。
 
-新增提货点：湖北省应城市城中办事处古盐大道以南、大智路以北（应城市新都化工有限责任公司），双方另有约定的除外。
+桂林—香港航线加密至每日一班后，国际旅客中转通道更加畅通，将为欧美、亚太地区的国际旅客入桂提供更便捷的中转选择，有效拓展桂林入境旅游客源市场，助力桂林打造世界级旅游城市。
 
-日最低发货量：1500吨/天 升 贴 水：0元/吨 特此公告。
-
-郑州商品交易所 2026年6月4日责任编辑：李铁民
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 15:04 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 15:29 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 15:08 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:07 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 15:23 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 15:23 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 15:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 15:21 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 15:18 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 15:12 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 15:26 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 15:15 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 15:27 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 15:23 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 15:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:20 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 15:18 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 15:11 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 15:27 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 15:32 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/2544110.shtml)
-- 2026-06-29 15:00 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/46994931572.shtml)
-- 2026-06-29 15:11 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/52067.shtml)
-- 2026-06-29 15:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/1771724.shtml)
-- 2026-06-29 15:22 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/28233721999.shtml)
-- 2026-06-29 15:05 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/803885.shtml)
-- 2026-06-29 15:23 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/81817000.shtml)
-- 2026-06-29 15:13 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/356162619323.shtml)
-- 2026-06-29 15:26 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/069128529302.shtml)
-- 2026-06-29 15:04 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/836432.shtml)
-- 2026-06-29 15:29 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/80179.shtml)
-- 2026-06-29 15:14 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/399716.shtml)
-- 2026-06-29 15:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/27217918913.shtml)
-- 2026-06-29 15:28 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/5236598.shtml)
-- 2026-06-29 15:24 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/11046623128.shtml)
+- 2026-06-29 15:28 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/4762664050.shtml)
+- 2026-06-29 15:12 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/2471098.shtml)
+- 2026-06-29 15:11 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/383757875.shtml)
+- 2026-06-29 15:10 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/980765219732.shtml)
+- 2026-06-29 15:26 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/9671085.shtml)
+- 2026-06-29 15:18 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/24201306.shtml)
+- 2026-06-29 15:25 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/2941368.shtml)
+- 2026-06-29 15:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/990474835979.shtml)
+- 2026-06-29 15:31 - [金刚川](https://www.share.kurohicncr.top/Article/details/690448013756.shtml)
+- 2026-06-29 15:06 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/1449720451.shtml)
+- 2026-06-29 15:12 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/257729942.shtml)
+- 2026-06-29 15:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/00581.shtml)
+- 2026-06-29 15:09 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/636942855.shtml)
+- 2026-06-29 15:13 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/3734185.shtml)
+- 2026-06-29 15:29 - [金牌调解](https://www.share.minike.top/Article/details/496300598971.shtml)

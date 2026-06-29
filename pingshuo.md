@@ -1,61 +1,57 @@
-# 华裔青年企业家走进江西萍乡 探寻红色历史了解辣文化
+# 东北亚具身智能创新中心在沈阳正式运营
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-赖清德批小红书，是在怕什么？高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定
+中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。 论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。 东北亚具身智能创新中心由沈阳产业投资集团与浑南区
 
 ## 正文
 
-赖清德批小红书，是在怕什么？
+中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？
+论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。
 
-医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？
+东北亚具身智能创新中心由沈阳产业投资集团与浑南区联合共建，定位为沈阳市具身智能创新发展公共服务平台、国家级创新平台与国际化交流平台。
 
-端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户吐槽“越来越难用”“频频出错”，AI开始偷懒了？
+中心锚定具身智能领域国际前沿技术方向，以产业真实应用场景为牵引，深度融合数字技术与沈阳本土制造优势、市场优势，为机器人企业、科研院所及智慧城市建设赋能，推动沈阳市具身智能产业链上下游企业协同创新、联动发展，助力“数字沈阳、智造强市”建设。
 
-1290万人将赶赴高考，教育部：提高对智能眼镜等检出率千万不要大意！
+中心按照“一平台、两实验室、三中心”的总体发展格局布局建设，打造具身智能基础实验室与联合创新实验室，配套设立具身智能机器人数采中心(训练场)、人才培养认证中心与具身智能产业孵化中心。
 
-早上起床“眼屎”增多，当心是这些眼病！
+未来将围绕应用场景需求，联合本地高校开展高端人才培养与实训，同时依托沈阳产投集团的产业投资优势，为初创企业成长赋能、为龙头企业升级助力。
 
-104场比赛39天精彩不停 美加墨世界杯观赛指南来了杜祥琬院士声明 未参与核技术应用于垃圾焚烧日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束内蒙古一残疾大哥救下受伤骆驼悉心照料雨天路滑老人接连摔倒 热心路人纷纷上前帮扶体验“中式生活”！
+活动现场，东北亚具身智能创新中心展厅首次对外开放，展厅覆盖工业应用、商业服务、特种作业、本体生态等多个核心领域，包括人形机器人、协作机械臂、四足机器狗、VR交互设备等30余种多样态的创新展品集体亮相，全方位展现了沈阳具身智能产业的最新成果。
 
-美国青少年从味蕾开始钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京天坛的奠基土来自山西后土祠？
+当天，沈阳市具身智能专家委员会正式宣告成立，6位来自产学研界的专家代表现场获颁聘书，为产业业态创新、跨主体协作搭建起高端智力纽带。
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 15:10 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 15:04 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 15:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 15:06 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 15:20 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 15:18 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 15:23 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 15:02 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 15:11 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 15:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 15:29 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:11 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 15:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 15:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:27 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 15:12 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:33 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 15:13 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 15:10 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 15:18 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 15:25 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 15:26 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 15:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 15:22 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 15:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/627558772.shtml)
-- 2026-06-29 15:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/767671826163.shtml)
-- 2026-06-29 15:10 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/76782054797.shtml)
-- 2026-06-29 15:26 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/09601077.shtml)
-- 2026-06-29 15:02 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/32628551.shtml)
-- 2026-06-29 15:16 - [5万块的威力](http://www.blog.minike.top/Article/details/404483.shtml)
-- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/915367.shtml)
-- 2026-06-29 15:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/3294420793.shtml)
-- 2026-06-29 15:09 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/7278590.shtml)
-- 2026-06-29 15:03 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/604338.shtml)
-- 2026-06-29 15:12 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/8205566.shtml)
-- 2026-06-29 15:01 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/23609728.shtml)
-- 2026-06-29 15:11 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/28424680.shtml)
-- 2026-06-29 15:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/20882.shtml)
-- 2026-06-29 15:03 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/78824.shtml)
+- 2026-06-29 15:27 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/18796198594.shtml)
+- 2026-06-29 15:25 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/153524100696.shtml)
+- 2026-06-29 15:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/630142.shtml)
+- 2026-06-29 15:11 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/73549193680.shtml)
+- 2026-06-29 15:08 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/5630088.shtml)
+- 2026-06-29 15:25 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/30844967.shtml)
+- 2026-06-29 15:30 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/739212.shtml)
+- 2026-06-29 15:09 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/380414.shtml)
+- 2026-06-29 15:21 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/635846.shtml)
+- 2026-06-29 15:23 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/0471376331.shtml)
+- 2026-06-29 15:21 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/5916496.shtml)
+- 2026-06-29 15:26 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/43744765.shtml)
+- 2026-06-29 15:21 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/9353444.shtml)
+- 2026-06-29 15:32 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/694620722.shtml)
+- 2026-06-29 15:26 - [扫黑风暴](http://www.share.minike.top/Article/details/88510.shtml)

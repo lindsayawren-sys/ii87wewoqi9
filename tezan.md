@@ -1,45 +1,61 @@
-# 昭衍新药将于8月4日派发末期现金股息每股0.13786港元
+# 蒙曼：只要《敕勒歌》还在，敕勒人就永远不朽；《越人歌》的故事更早，也更传奇……
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-昭衍新药（06127）发布公告，将于2026年8月4日派发截至2025年12月31日止年度的末期现金股息每股0.13786港元。责任编辑：卢昱君
+作者 蒙曼 中央民族大学教授 中华民族是一个诗的民族。 《公羊传》云：“饥者歌其食，劳者歌其事。”这里的“饥者”和“劳者”，其实已经涵盖了中华历史上的各个民族。每个民族都有属于自己的歌声，与此同时，用汉语吟诵、汉文书写的古典诗词则具有更为广泛的包容力和感染力，让生活在中国这片土地上的各民族都以它为媒介，歌唱生活，抒发情感，也熔铸出中华民族共享的审美情趣和共同的精神气质。 古典诗
 
 ## 正文
 
-昭衍新药（06127）发布公告，将于2026年8月4日派发截至2025年12月31日止年度的末期现金股息每股0.13786港元。
+作者 蒙曼 中央民族大学教授 中华民族是一个诗的民族。
 
-责任编辑：卢昱君
+《公羊传》云：“饥者歌其食，劳者歌其事。
+
+”这里的“饥者”和“劳者”，其实已经涵盖了中华历史上的各个民族。
+
+每个民族都有属于自己的歌声，与此同时，用汉语吟诵、汉文书写的古典诗词则具有更为广泛的包容力和感染力，让生活在中国这片土地上的各民族都以它为媒介，歌唱生活，抒发情感，也熔铸出中华民族共享的审美情趣和共同的精神气质。
+
+古典诗词作为中国灿烂文化中的一颗明珠，本身就映照出中华民族和衷共济的历史进程，情感交融的精神光辉。
+
+中华各民族的共同创造 中国古人按地理方位，把人群分成了诸夏、“东夷”、“西戎”、“北狄”和“南蛮”。
+
+《诗经》中已包含了不同人群的心声。
+
+《诗经·商颂·玄鸟》云：“天命玄鸟，降而生商。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 15:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 15:05 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 15:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 15:05 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 15:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 15:01 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 15:28 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 15:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 15:25 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 15:21 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:23 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 15:14 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 15:21 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 15:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 15:19 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 15:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 15:09 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 15:23 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 15:27 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:14 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 15:22 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 15:29 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/086377715.shtml)
-- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/151316982.shtml)
-- 2026-06-29 15:18 - [锐评浪姐7总决赛](https://www.blog.kurohicncr.top/Article/details/929570.shtml)
-- 2026-06-29 15:05 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/19662.shtml)
-- 2026-06-29 15:12 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/0985011.shtml)
-- 2026-06-29 15:05 - [T1零封KC MSI](http://www.share.minike.top/Article/details/2614409.shtml)
-- 2026-06-29 15:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/7811062.shtml)
-- 2026-06-29 15:10 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/32715.shtml)
-- 2026-06-29 15:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/606682041470.shtml)
-- 2026-06-29 15:01 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/14708593.shtml)
-- 2026-06-29 15:01 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/6084354063.shtml)
-- 2026-06-29 15:16 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/77060.shtml)
-- 2026-06-29 15:22 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/36051518855.shtml)
-- 2026-06-29 15:05 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/000838.shtml)
-- 2026-06-29 15:14 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/54205.shtml)
+- 2026-06-29 15:32 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/245223364.shtml)
+- 2026-06-29 15:33 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/55659764535.shtml)
+- 2026-06-29 15:31 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/260262728669.shtml)
+- 2026-06-29 15:09 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/32142.shtml)
+- 2026-06-29 15:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/10346149712.shtml)
+- 2026-06-29 15:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/47030936334.shtml)
+- 2026-06-29 15:31 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/43527.shtml)
+- 2026-06-29 15:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/120159558.shtml)
+- 2026-06-29 15:13 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/44459976690.shtml)
+- 2026-06-29 15:11 - [天道](https://www.blog.minike.top/Article/details/91240103115.shtml)
+- 2026-06-29 15:22 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/70408.shtml)
+- 2026-06-29 15:07 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/68639587.shtml)
+- 2026-06-29 15:10 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/76713694974.shtml)
+- 2026-06-29 15:13 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/497043773691.shtml)
+- 2026-06-29 15:13 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/16177.shtml)

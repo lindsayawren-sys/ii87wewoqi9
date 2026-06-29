@@ -1,61 +1,60 @@
-# 黎真主党拒绝停火谈判结果 黎以冲突持续
+# 港交所与哈萨克斯坦金融机构签约 深化两地资本市场互联互通
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 综合消息：黎巴嫩真主党领导人纳伊姆·卡西姆当地时间4日通过黎“灯塔”电视台发表声明，称黎真主党完全拒绝此前停火谈判的结果。与此同时，黎以交火持续，并造成多人伤亡。 卡西姆强调，以色列必须从黎巴嫩撤军，这是关键步骤。以军撤离后，黎真主党能够完成在利塔尼河以南的部署，从而增强地区稳定。他同时呼吁黎巴嫩政府采取措施应对当前挑战，推动黎各方加强对话、解决分歧，团结
+中新社香港6月2日电 香港交易及结算所有限公司(简称“港交所”)2日表示，已分别同负责哈萨克斯坦阿斯塔纳国际金融中心(AIFC)战略发展的AIFC管理局及其旗下阿斯塔纳国际交易所(AIX)签署两份合作备忘录，深化协作，推动香港与中亚资本市场互联互通。 根据同AIFC管理局签署的合作备忘录，港交所将推进气候转型、降碳及绿色金融等领域合作，涵盖可持续航空项目的开发、融资与落地；双方
 
 ## 正文
 
-中新社北京6月5日电 综合消息：黎巴嫩真主党领导人纳伊姆·卡西姆当地时间4日通过黎“灯塔”电视台发表声明，称黎真主党完全拒绝此前停火谈判的结果。
+中新社香港6月2日电 香港交易及结算所有限公司(简称“港交所”)2日表示，已分别同负责哈萨克斯坦阿斯塔纳国际金融中心(AIFC)战略发展的AIFC管理局及其旗下阿斯塔纳国际交易所(AIX)签署两份合作备忘录，深化协作，推动香港与中亚资本市场互联互通。
 
-与此同时，黎以交火持续，并造成多人伤亡。
+根据同AIFC管理局签署的合作备忘录，港交所将推进气候转型、降碳及绿色金融等领域合作，涵盖可持续航空项目的开发、融资与落地；双方还将围绕大宗商品市场交易与产业生态建设合作，助力矿业早期项目融资。
 
-卡西姆强调，以色列必须从黎巴嫩撤军，这是关键步骤。
+依托与AIX签署的合作备忘录，两家交易所将携手拓展跨境上市渠道，推进股票双重上市、债券在两地交易所跨境挂牌上市。
 
-以军撤离后，黎真主党能够完成在利塔尼河以南的部署，从而增强地区稳定。
+双方将搭建常态化沟通机制，研判市场走势，深挖后续业务合作空间。
 
-他同时呼吁黎巴嫩政府采取措施应对当前挑战，推动黎各方加强对话、解决分歧，团结起来以维护黎巴嫩的利益和稳定。
+港交所集团行政总裁陈翊庭表示，中亚在全球大宗商品与可持续发展领域的战略地位不断攀升，此次多边合作能够为全球发行人及投资者开辟全新发展机遇。
 
-黎巴嫩、以色列、美国3日发表联合声明称，黎以同意停火，前提是真主党彻底停止袭击以色列，并完全撤离利塔尼河以南地区。
+依托和AIX的跨境上市合作、同AIFC管理局在绿色金融与大宗商品领域的协作，港交所可以进一步夯实跨境资本桥梁定位，助推香港与中亚资本双向流通。
 
-据黎巴嫩国家通讯社报道，以军4日继续在黎巴嫩南部及东部贝卡谷地发动一系列袭击，造成多人死伤。
+AIFC管理局管委会主席巴赫季亚尔·特列别科夫(Bakhtiyar Tleubekov)表示，未来将在碳市场、绿色金融、可持续航空、创新风控方案等领域协同发力，整合资源与专业优势，推动跨区域行业标准对接、经验互通与投资落地，合力打造一体化、抗风险能力更强的可持续金融生态圈，赋能区域经济长远增长。
 
-其中，以军无人机袭击黎南部一村庄，造成1人死亡、4人受伤；黎南部阿巴西耶镇遭以军空袭，造成3人死亡；黎东部贝卡谷地索赫穆尔镇遭空袭，造成3人死亡、多人受伤。
+阿斯塔纳国际交易所首席执行官阿塞尔·穆卡扎诺娃表示，AIX正稳步建设区域性资本市场平台，牵手港交所能够加速自身接轨国际市场，互通行业经验、创新成果与成熟运营范式，夯实两地经贸与投资纽带。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 15:00 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 15:11 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 15:11 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 15:02 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 15:01 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:08 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 15:01 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 15:05 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:17 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 15:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 15:25 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 15:06 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 15:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:10 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 15:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 15:08 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:28 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 15:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 15:27 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:32 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 15:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 15:23 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 15:17 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 15:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 15:34 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 15:29 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:22 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 15:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/352730379.shtml)
-- 2026-06-29 15:02 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/43317.shtml)
-- 2026-06-29 15:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/42515853684.shtml)
-- 2026-06-29 15:21 - [沙丘](http://www.share.minike.top/Article/details/764201415.shtml)
-- 2026-06-29 15:11 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/8855481.shtml)
-- 2026-06-29 15:01 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/726067.shtml)
-- 2026-06-29 15:00 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/79876414.shtml)
-- 2026-06-29 15:13 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/40212.shtml)
-- 2026-06-29 15:20 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/27757020.shtml)
-- 2026-06-29 15:21 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/9567875809.shtml)
-- 2026-06-29 15:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/8559549581.shtml)
-- 2026-06-29 15:01 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/580194110.shtml)
-- 2026-06-29 15:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/10655720.shtml)
-- 2026-06-29 15:28 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/52959410119.shtml)
-- 2026-06-29 15:29 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/790317550.shtml)
+- 2026-06-29 15:15 - [20年前的周杰伦](https://www.share.minike.top/Article/details/739388.shtml)
+- 2026-06-29 15:10 - [沙丘](http://www.blog.minike.top/Article/details/502503184824.shtml)
+- 2026-06-29 15:07 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/7547693.shtml)
+- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/5740135476.shtml)
+- 2026-06-29 15:12 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/1975911609.shtml)
+- 2026-06-29 15:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/7039845838.shtml)
+- 2026-06-29 15:11 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/07537060.shtml)
+- 2026-06-29 15:09 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/570877.shtml)
+- 2026-06-29 15:13 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/282400.shtml)
+- 2026-06-29 15:13 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/52429579.shtml)
+- 2026-06-29 15:34 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/83088251536.shtml)
+- 2026-06-29 15:21 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/181293847529.shtml)
+- 2026-06-29 15:30 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/9542506689.shtml)
+- 2026-06-29 15:09 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/063635.shtml)
+- 2026-06-29 15:14 - [吴建豪老婆](https://www.blog.minike.top/Article/details/621008075724.shtml)

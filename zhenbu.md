@@ -1,50 +1,58 @@
-# 中国卫星：面对激烈的市场竞争与成本压力，公司采取了多种措施降本增效
+# 橡胶热点评论：NR交割品调整的影响
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，中国卫星在互动平台回答投资者提问时表示，面对激烈的市场竞争与成本压力，公司采取了多种措施降本增效。公司将以“十五五”规划为抓手，在巩固传统业务领域优势地位的同时增加新质新域业务占比，深化技术创新打造持久竞争力，通过规模化降本、精益运营等措施严控成本，不断提升经营质量与盈利能力，进一步提升公司投资价值和股东回报能力。（文章来源：证券日报）
+大地期货研究院 核心观点 NR新增非洲胶交割品，贴水400交割，立马实施；NR11之后对印尼胶也设置400的贴水。 NR06、NR07仍然是以印尼胶定价。 NR08-NR10是以印尼胶为底，非洲胶船货+400为顶，对于NR08挤仓的资金有一定打击，情绪会有所回落。 NR11之后以非洲+400定价，NR10-11价差或许要继续拉开。 无论是近端还是远期，目前非洲胶还无法交割进入N
 
 ## 正文
 
-证券日报网讯 6月5日，中国卫星在互动平台回答投资者提问时表示，面对激烈的市场竞争与成本压力，公司采取了多种措施降本增效。
+大地期货研究院 核心观点 NR新增非洲胶交割品，贴水400交割，立马实施；NR11之后对印尼胶也设置400的贴水。
 
-公司将以“十五五”规划为抓手，在巩固传统业务领域优势地位的同时增加新质新域业务占比，深化技术创新打造持久竞争力，通过规模化降本、精益运营等措施严控成本，不断提升经营质量与盈利能力，进一步提升公司投资价值和股东回报能力。
+NR06、NR07仍然是以印尼胶定价。
 
-（文章来源：证券日报）
+NR08-NR10是以印尼胶为底，非洲胶船货+400为顶，对于NR08挤仓的资金有一定打击，情绪会有所回落。
+
+NR11之后以非洲+400定价，NR10-11价差或许要继续拉开。
+
+无论是近端还是远期，目前非洲胶还无法交割进入NR，都没有交割利润，理论上NR远期需要给到16050以上。
+
+目前上游仍然没有卖货到中国的利润，尤其是泰国和印尼，目前正在通过价格上涨来解决这个矛盾。
+
+01 调整内容 新增非洲胶交割品。
+
+NR新增非洲胶交割品（两个牌号），贴水400（60美金），立马实施，对可交割的仓单生产日期没有明确（一般NR的交割品是必须要在生产日期三个月内）。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 15:12 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 15:05 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 15:24 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 15:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 15:16 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 15:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 15:06 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 15:17 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 15:09 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 15:06 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 15:11 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 15:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 15:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 15:22 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 15:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 15:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 15:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 15:09 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 15:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 15:23 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 15:10 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 15:27 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/6784928303.shtml)
-- 2026-06-29 15:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/772759.shtml)
-- 2026-06-29 15:07 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/8917196.shtml)
-- 2026-06-29 15:18 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/102670.shtml)
-- 2026-06-29 15:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/257824.shtml)
-- 2026-06-29 15:01 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/934585.shtml)
-- 2026-06-29 15:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/1195787001.shtml)
-- 2026-06-29 15:23 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/267060.shtml)
-- 2026-06-29 15:22 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/501971912351.shtml)
-- 2026-06-29 15:08 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/989115451.shtml)
-- 2026-06-29 15:28 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/21185.shtml)
-- 2026-06-29 15:22 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/201127.shtml)
-- 2026-06-29 15:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/34284025574.shtml)
-- 2026-06-29 15:12 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/656313079547.shtml)
-- 2026-06-29 15:11 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/50851137051.shtml)
+- 2026-06-29 15:23 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5374202182.shtml)
+- 2026-06-29 15:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/83874.shtml)
+- 2026-06-29 15:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/486228279.shtml)
+- 2026-06-29 15:24 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/208118489535.shtml)
+- 2026-06-29 15:16 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/58976030131.shtml)
+- 2026-06-29 15:15 - [当我回母校教书](http://www.share.minike.top/Article/details/374336.shtml)
+- 2026-06-29 15:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/42200282.shtml)
+- 2026-06-29 15:33 - [沉睡花园](https://www.blog.minike.top/Article/details/281953422.shtml)
+- 2026-06-29 15:23 - [光与夜之恋](https://www.share.minike.top/Article/details/90007.shtml)
+- 2026-06-29 15:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/704402233333.shtml)
+- 2026-06-29 15:26 - [极限挑战第一季](http://www.blog.minike.top/Article/details/41927.shtml)
+- 2026-06-29 15:33 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/580057.shtml)
+- 2026-06-29 15:27 - [绘画区你赢了](https://www.share.minike.top/Article/details/47948.shtml)
+- 2026-06-29 15:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/15499986586.shtml)
+- 2026-06-29 15:20 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/176973140875.shtml)

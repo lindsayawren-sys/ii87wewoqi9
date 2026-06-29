@@ -1,57 +1,51 @@
-# S4 Capital：公司需采取更多措施推动营收增长
+# 特朗普称与内塔尼亚胡进行了“富有成效”的通话
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-S4 Capital执行董事长马丁·索雷尔（Martin Sorrell）表示，这家数字广告公司在推动营收增长和盈利能力方面进展不足。他还预计，因不确定性增加，客户在短期内将保持谨慎。 索雷尔在周四举行的这家英国数字广告公司年度股东大会前发表讲话说，在市场环境充满挑战、客户态度谨慎的情况下，S4 Capital今年迄今的业绩表现符合其预期。 该公司执行董事长表示，S4 Capi
+特朗普在社交媒体发帖表示，“我与以色列总理内塔尼亚胡进行了一次非常富有成效的通话，不会有军队前往贝鲁特。” 特朗普表示，所有正在途中的部队都已被下令返回。 特朗普补充说，他与真主党进行了“非常好的”通话，他们同意停止一切交火。责任编辑：李桐
 
 ## 正文
 
-S4 Capital执行董事长马丁·索雷尔（Martin Sorrell）表示，这家数字广告公司在推动营收增长和盈利能力方面进展不足。
+特朗普在社交媒体发帖表示，“我与以色列总理内塔尼亚胡进行了一次非常富有成效的通话，不会有军队前往贝鲁特。
 
-他还预计，因不确定性增加，客户在短期内将保持谨慎。
+” 特朗普表示，所有正在途中的部队都已被下令返回。
 
-索雷尔在周四举行的这家英国数字广告公司年度股东大会前发表讲话说，在市场环境充满挑战、客户态度谨慎的情况下，S4 Capital今年迄今的业绩表现符合其预期。
+特朗普补充说，他与真主党进行了“非常好的”通话，他们同意停止一切交火。
 
-该公司执行董事长表示，S4 Capital正专注于恢复营收增长，并提高盈利能力和流动性。
-
-索雷尔表示，可比净收入预计将符合6.32亿至6.63亿英镑（合8.48亿至8.895亿美元）的平均预期，与去年相比将出现低个位数百分比的降幅。
-
-他补充说，S4 Capital赢得了一些新客户，如三星（Samsung）和Square，并扩大了与其它客户的合作关系。
-
-他表示，过去一年，该公司的员工人数减少了11%，至6，200人左右，公司将继续严格控制成本以提高盈利能力。
-
-责任编辑：刘明亮
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 15:05 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 15:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 15:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 15:09 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 15:04 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 15:20 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 15:27 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 15:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 15:12 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:01 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 15:27 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 15:21 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 15:08 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 15:11 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 15:14 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 15:32 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 15:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 15:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 15:26 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 15:26 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:13 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:30 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 15:29 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/662476.shtml)
-- 2026-06-29 15:25 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/67361508410.shtml)
-- 2026-06-29 15:13 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/6784558839.shtml)
-- 2026-06-29 15:13 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/654879315.shtml)
-- 2026-06-29 15:21 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/33034142.shtml)
-- 2026-06-29 15:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/83921675.shtml)
-- 2026-06-29 15:21 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/04581018.shtml)
-- 2026-06-29 15:02 - [德国VS巴拉圭前瞻](http://www.blog.minike.top/Article/details/1522081266.shtml)
-- 2026-06-29 15:08 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/78503.shtml)
-- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/1132127583.shtml)
-- 2026-06-29 15:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/57072355.shtml)
-- 2026-06-29 15:05 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/4825781.shtml)
-- 2026-06-29 15:25 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/36305514694.shtml)
-- 2026-06-29 15:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/59055205.shtml)
-- 2026-06-29 15:14 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/42060428880.shtml)
+- 2026-06-29 15:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/7497234685.shtml)
+- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/1005179621.shtml)
+- 2026-06-29 15:14 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/0707929493.shtml)
+- 2026-06-29 15:21 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/45323.shtml)
+- 2026-06-29 15:07 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/25751912.shtml)
+- 2026-06-29 15:23 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/550012.shtml)
+- 2026-06-29 15:12 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/43273015824.shtml)
+- 2026-06-29 15:25 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/6085468161.shtml)
+- 2026-06-29 15:12 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/81766920.shtml)
+- 2026-06-29 15:26 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/0883286.shtml)
+- 2026-06-29 15:29 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/711369.shtml)
+- 2026-06-29 15:27 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/116876852054.shtml)
+- 2026-06-29 15:31 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/229710.shtml)
+- 2026-06-29 15:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/5834925389.shtml)
+- 2026-06-29 15:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/89712494996.shtml)

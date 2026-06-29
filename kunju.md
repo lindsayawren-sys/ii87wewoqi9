@@ -1,52 +1,58 @@
-# 四川省成都市委原副书记、原市长王凤朝被“双开”
+# 苏辽携手打通产销通道 “辽品入苏、苏品入辽”正式落地
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对四川省成都市委原副书记、原市长王凤朝严重违纪违法问题进行了立案审查调查。 经查，王凤朝丧失理想信念，背弃初心使命，政绩观严重偏差，违背国有企业高质量发展要求，为谋求职务晋升搞“形象工程”“政绩工程”，妄议党中央大政方针，对抗组织审查，搞迷信活动；违反中央八项规定精神，接受可能影响公正执行公务的宴请、
+中新网沈阳6月1日电 (记者 李晛)“辽供产品品鉴交流会”近日在沈阳举行。 本次活动由苏辽经贸交流中心与辽宁供销益农供应链有限公司联合主办。当日，与会嘉宾与苏辽两地企业家一同品鉴辽宁优质农产品，对接供需合作。这标志着“辽品出辽入苏”与“苏品入辽落地”的双向商贸闭环，正式从战略共识走向实践落地。 据悉，辽宁省供销合作社联合社一行27日曾到访苏辽经贸交流中心，双方围绕信息互通、渠道
 
 ## 正文
 
-中新网6月5日电 据中央纪委国家监委网站消息，经中共中央批准，中央纪委国家监委对四川省成都市委原副书记、原市长王凤朝严重违纪违法问题进行了立案审查调查。
+中新网沈阳6月1日电 (记者 李晛)“辽供产品品鉴交流会”近日在沈阳举行。
 
-经查，王凤朝丧失理想信念，背弃初心使命，政绩观严重偏差，违背国有企业高质量发展要求，为谋求职务晋升搞“形象工程”“政绩工程”，妄议党中央大政方针，对抗组织审查，搞迷信活动；违反中央八项规定精神，接受可能影响公正执行公务的宴请、旅游、健身活动安排；违反组织原则，不按规定报告个人有关事项，在干部选拔任用工作中为他人谋利并收受财物；廉洁底线失守，违规收受礼品、礼金，违规从事营利活动；违规干预和插手市场经济活动、司法活动，懒政怠政；贪欲膨胀，将党和人民赋予的公权力异化为谋取私利的工具，大搞权钱交易，利用职务便利为他人在工程承揽、融资借款、企业经营等方面谋利，并非法收受巨额财物。
+本次活动由苏辽经贸交流中心与辽宁供销益农供应链有限公司联合主办。
 
-王凤朝严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+当日，与会嘉宾与苏辽两地企业家一同品鉴辽宁优质农产品，对接供需合作。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予王凤朝开除党籍处分；由国家监委给予其开除公职处分；终止其党的二十大代表、四川省第十二次党代会代表、成都市第十四次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+这标志着“辽品出辽入苏”与“苏品入辽落地”的双向商贸闭环，正式从战略共识走向实践落地。
+
+据悉，辽宁省供销合作社联合社一行27日曾到访苏辽经贸交流中心，双方围绕信息互通、渠道共建、品牌共创等议题深入交流，达成签署战略合作框架协议的意向，并明确提出要推动“辽品出辽入苏”与“苏品入辽落地”双向商贸闭环。
+
+这场品鉴会是落实双方战略座谈共识的“第一个落地动作”。
+
+从纸面共识到货架上的真实合作，这场品鉴会只用两天时间便完成了从“握手”到“开张”的转化。
+
+辽宁省供销合作社联合社党组书记、理事会主任刘立国表示，“供销社的使命，就是把藏在深山的优质农产品送到百姓的餐桌上。
 
 ## 相关推荐
 
-- 2026-06-29 15:04 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 15:02 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 15:09 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 15:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 15:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 15:01 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 15:12 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 15:03 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 15:06 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 15:22 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 15:09 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:04 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 15:02 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 15:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 15:14 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 15:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:20 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 15:10 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 15:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 15:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 15:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 15:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 15:27 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 15:33 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 15:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/538865.shtml)
-- 2026-06-29 15:19 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/099835922820.shtml)
-- 2026-06-29 15:17 - [天道](https://www.share.minike.top/Article/details/5378043448.shtml)
-- 2026-06-29 15:24 - [光与夜之恋](https://www.share.minike.top/Article/details/9277476.shtml)
-- 2026-06-29 15:18 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/55895.shtml)
-- 2026-06-29 15:08 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/87745.shtml)
-- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/63828.shtml)
-- 2026-06-29 15:07 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/227511.shtml)
-- 2026-06-29 15:06 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/3339431.shtml)
-- 2026-06-29 15:02 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/21108.shtml)
-- 2026-06-29 15:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/3911542958.shtml)
-- 2026-06-29 15:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/48642.shtml)
-- 2026-06-29 15:09 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/335207649165.shtml)
-- 2026-06-29 15:15 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/99623.shtml)
-- 2026-06-29 15:29 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/4843685.shtml)
+- 2026-06-29 15:26 - [青春环游记第三季](https://www.blog.minike.top/Article/details/6515147591.shtml)
+- 2026-06-29 15:28 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/99677506.shtml)
+- 2026-06-29 15:18 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/8875895130.shtml)
+- 2026-06-29 15:18 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/343126.shtml)
+- 2026-06-29 15:24 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/277958626891.shtml)
+- 2026-06-29 15:13 - [一生一世](http://www.share.minike.top/Article/details/0646131.shtml)
+- 2026-06-29 15:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/948575114.shtml)
+- 2026-06-29 15:28 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/19771704071.shtml)
+- 2026-06-29 15:11 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/395781.shtml)
+- 2026-06-29 15:26 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/163956987.shtml)
+- 2026-06-29 15:23 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/5149128.shtml)
+- 2026-06-29 15:26 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/46141881.shtml)
+- 2026-06-29 15:09 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/032710590.shtml)
+- 2026-06-29 15:08 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/481416.shtml)
+- 2026-06-29 15:26 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/08153.shtml)

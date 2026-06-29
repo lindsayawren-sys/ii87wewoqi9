@@ -1,57 +1,56 @@
-# AI数据中心战略推动PowerBank全面品牌重塑
+# 广西北海：“共享空间”画出民族团结“同心圆”
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。 此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算
+中新网北海6月1日电 题：广西北海：“共享空间”画出民族团结“同心圆” 作者 余俊永 在广西北海市海城区，“同心厨房”“同心舞蹈室”等50多个功能共享空间，让来自天南海北的“候鸟”人群与本地居民在共居共乐中实现心相通、情相融，“新、老北海人”亲如一家的和谐图景正在社区里徐徐展开。 近日，走进海城区东街街道茶亭路社区，“同心厨房”里飘出阵阵香气——东北的饺子、西北的面食、南方的海
 
 ## 正文
 
-北美独立能源开发与资产运营商PowerBank Corporation近日宣布完成公司品牌重塑，以反映其将AI计算基础设施和模块化数据中心确立为公司核心战略增长极的转型。
+中新网北海6月1日电 题：广西北海：“共享空间”画出民族团结“同心圆” 作者 余俊永 在广西北海市海城区，“同心厨房”“同心舞蹈室”等50多个功能共享空间，让来自天南海北的“候鸟”人群与本地居民在共居共乐中实现心相通、情相融，“新、老北海人”亲如一家的和谐图景正在社区里徐徐展开。
 
-此次品牌重塑包括启用全新公司网站，并将纳斯达克及Cboe加拿大交易所的股票代码由“SUUN”和“SUNN”统一变更为“PBK”。
+近日，走进海城区东街街道茶亭路社区，“同心厨房”里飘出阵阵香气——东北的饺子、西北的面食、南方的海鲜琳琅满目，在一道道美食制作中，地域的界限悄然消融。
 
-此举标志着PowerBank的业务版图已从太阳能光伏和电池储能，拓展至为AI计算基础设施提供解决方案的新战略领域。
+不远处的“同心舞蹈室”同样热闹非凡，社区舞蹈队的成员们伴随着音乐翩翩起舞，欢笑声此起彼伏。
 
-PowerBank首席执行官Richard Lu博士表示，新品牌向合作伙伴和投资者传递了一个明确信号：公司正坚定地站在能源与数字基础设施的交汇点。
+“刚来北海那会儿，人生地不熟，整天闷在屋里。
 
-他指出，公司在美国和加拿大拥有超过1吉瓦的太阳能及储能项目储备，这些资产正日益成为分布式AI计算部署的基础。
+后来社区工作人员邀请我来‘同心厨房’包饺子，一进门就看到天南海北的姐妹都在忙活，一下子就找到了家的感觉。
 
-随着市场对电力保障可靠、成本较低的AI基础设施需求不断增长，PowerBank凭借这一独特优势，能够有效服务于该新兴市场。
+”来自黑龙江的“候鸟”居民吴冬荣一边擀着饺子皮，一边笑着说。
 
-此前，PowerBank已宣布与Nodiac Corp．签署了一份不具约束力的意向书，计划利用其项目组合中的合适站点，共同部署分布式AI计算基础设施。
+如今，她不仅成为“同心厨房”的常客，还主动教本地居民做东北菜，“老北海人”也手把手教她烹制海鲜。
 
-在推进AI新战略的同时，公司的既定项目也在稳步落地，包括2026年春季在纽约州的九个太阳能及储能项目的启动，以及安大略省SFF 06电池储能项目的商业运营。
+这些看似寻常的共享空间，恰恰成为社区融合最有效的催化剂。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 15:12 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 15:29 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 15:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 15:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 15:23 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 15:11 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 15:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 15:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 15:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 15:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 15:32 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 15:14 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:13 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 15:20 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 15:08 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 15:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 15:10 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/04632221.shtml)
-- 2026-06-29 15:01 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/18142113382.shtml)
-- 2026-06-29 15:22 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/761823.shtml)
-- 2026-06-29 15:08 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/551550616.shtml)
-- 2026-06-29 15:03 - [以前不让妆女二可以艳压女主](http://www.blog.kurohicncr.top/Article/details/084054.shtml)
-- 2026-06-29 15:21 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/7365792553.shtml)
-- 2026-06-29 15:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/06449289.shtml)
-- 2026-06-29 15:05 - [毒液2](http://www.share.kurohicncr.top/Article/details/992441.shtml)
-- 2026-06-29 15:02 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/69770.shtml)
-- 2026-06-29 15:23 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/57031831.shtml)
-- 2026-06-29 15:18 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/63123.shtml)
-- 2026-06-29 15:27 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/71186918.shtml)
-- 2026-06-29 15:10 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/564090.shtml)
-- 2026-06-29 15:19 - [美人鱼](http://www.blog.minike.top/Article/details/829195279625.shtml)
-- 2026-06-29 15:14 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/709881987.shtml)
+- 2026-06-29 15:12 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/34214.shtml)
+- 2026-06-29 15:14 - [普京介绍前线战事](https://www.share.minike.top/Article/details/40475469.shtml)
+- 2026-06-29 15:10 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/2956659.shtml)
+- 2026-06-29 15:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/705281353281.shtml)
+- 2026-06-29 15:09 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/948172.shtml)
+- 2026-06-29 15:19 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/8941845.shtml)
+- 2026-06-29 15:07 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/74034909.shtml)
+- 2026-06-29 15:29 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/2200292388.shtml)
+- 2026-06-29 15:17 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/60917284.shtml)
+- 2026-06-29 15:28 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/879211.shtml)
+- 2026-06-29 15:20 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/8682552.shtml)
+- 2026-06-29 15:11 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/8217837.shtml)
+- 2026-06-29 15:22 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/602263.shtml)
+- 2026-06-29 15:29 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/925709813.shtml)
+- 2026-06-29 15:12 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/254433225.shtml)

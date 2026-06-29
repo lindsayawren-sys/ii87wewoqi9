@@ -1,46 +1,54 @@
-# 江西银行：将于8月25日派发末期股息每10股0.34元
+# 谌贻琴在出席“六一”主题活动时勉励少年儿童 牢记习近平总书记嘱托 在新征程上跑好历史接力赛
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，江西银行发布公告，将于2026年8月25日派发末期股息每10股0.34元人民币。 责任编辑：秦艺
+新华社北京6月1日电 6月1日，国务委员、国务院妇女儿童工作委员会主任谌贻琴来到中国妇女儿童博物馆，出席“童绘共同体——少年儿童美术作品展”主题活动，向孩子们致以节日祝贺。她指出，“六一”国际儿童节来临之际，习近平总书记回信勉励少先队红领巾讲解员，祝全国的少年儿童节日快乐。希望孩子们把总书记嘱托牢记于心，坚定理想信念、厚植爱国情怀、培养奋斗精神、增强综合素质，在新征程上跑好历史
 
 ## 正文
 
-6月4日金融一线消息，江西银行发布公告，将于2026年8月25日派发末期股息每10股0.34元人民币。
+新华社北京6月1日电 6月1日，国务委员、国务院妇女儿童工作委员会主任谌贻琴来到中国妇女儿童博物馆，出席“童绘共同体——少年儿童美术作品展”主题活动，向孩子们致以节日祝贺。
 
-责任编辑：秦艺
+她指出，“六一”国际儿童节来临之际，习近平总书记回信勉励少先队红领巾讲解员，祝全国的少年儿童节日快乐。
+
+希望孩子们把总书记嘱托牢记于心，坚定理想信念、厚植爱国情怀、培养奋斗精神、增强综合素质，在新征程上跑好历史接力赛。
+
+节日里的博物馆充满童真童趣，身着民族服饰的儿童唱响《爱我中华》，700多幅以多元一体、家国锦绣、命运与共、春蕾花开、大爱无疆为主题的美术作品精彩呈现。
+
+谌贻琴和孩子们亲切互动，勉励小朋友手足相亲、胸怀大爱，从小树立中华民族共同体意识、人类命运共同体理念；希望家长当好孩子的第一任老师，培养儿童好思想好品行好习惯；希望广大儿童工作者坚持立德树人，当好儿童成长的引路人、守护人、筑梦人；希望全社会关心关爱少年儿童，用心用情守护孩子们健康成长。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 15:28 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 15:29 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 15:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 15:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 15:24 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 15:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 15:06 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 15:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 15:11 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 15:09 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 15:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 15:17 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 15:33 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 15:18 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 15:07 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 15:13 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 15:15 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 15:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 15:31 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 15:10 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 15:33 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/659079114.shtml)
-- 2026-06-29 15:23 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/79744186994.shtml)
-- 2026-06-29 15:09 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/635018.shtml)
-- 2026-06-29 15:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/750756.shtml)
-- 2026-06-29 15:14 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/80951329.shtml)
-- 2026-06-29 15:18 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/453626855.shtml)
-- 2026-06-29 15:11 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/755246656.shtml)
-- 2026-06-29 15:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/73148.shtml)
-- 2026-06-29 15:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/602292883.shtml)
-- 2026-06-29 15:08 - [斛珠夫人](http://www.share.minike.top/Article/details/78539922.shtml)
-- 2026-06-29 15:15 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/687733478.shtml)
-- 2026-06-29 15:25 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/916075405086.shtml)
-- 2026-06-29 15:07 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/300230779536.shtml)
-- 2026-06-29 15:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/017709908424.shtml)
-- 2026-06-29 15:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/3820917820.shtml)
+- 2026-06-29 15:25 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/954875882793.shtml)
+- 2026-06-29 15:21 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/9092909943.shtml)
+- 2026-06-29 15:15 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/470239758.shtml)
+- 2026-06-29 15:11 - [时光音乐会](http://www.blog.minike.top/Article/details/11093.shtml)
+- 2026-06-29 15:15 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/1536045241.shtml)
+- 2026-06-29 15:15 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/460616539670.shtml)
+- 2026-06-29 15:27 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/2926655715.shtml)
+- 2026-06-29 15:17 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/4092900234.shtml)
+- 2026-06-29 15:25 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/33453.shtml)
+- 2026-06-29 15:14 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/29602413.shtml)
+- 2026-06-29 15:06 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/45912049328.shtml)
+- 2026-06-29 15:09 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/225876671715.shtml)
+- 2026-06-29 15:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/93176610600.shtml)
+- 2026-06-29 15:28 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/67416254.shtml)
+- 2026-06-29 15:22 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/20036112.shtml)

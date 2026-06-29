@@ -1,60 +1,61 @@
-# 古巴方面回应美国最新对古制裁
+# 2026年西江干流首次生态敏感期水量调度开展
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 当地时间4日，美国宣布将古巴国家主席迪亚斯-卡内尔及其妻子等多人和多个实体列入制裁名单。古巴方面当日对此予以回应。 美国财政部外国资产控制办公室4日发布消息称，新增针对古巴的制裁名单中包括5名个人和5个实体。除古巴国家主席夫妇外，还包括古巴革命领袖劳尔·卡斯特罗的儿子亚历杭德罗·卡斯特罗等人。 迪亚斯-卡内尔当日在社交媒体上说，美方这些措施旨在进一步强化对
+中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙
 
 ## 正文
 
-中新社北京6月5日电 当地时间4日，美国宣布将古巴国家主席迪亚斯-卡内尔及其妻子等多人和多个实体列入制裁名单。
+中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。
 
-古巴方面当日对此予以回应。
+该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。
 
-美国财政部外国资产控制办公室4日发布消息称，新增针对古巴的制裁名单中包括5名个人和5个实体。
+珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙滩、岩滩等其他水库，优化各水库下泄流量与时机，使控制断面大湟江口站实现连续4天涨水、日均涨幅达到1000立方米每秒以上的调度目标，成功塑造与目标产卵场代表性鱼类产卵繁殖需求精准匹配的可控涨水过程。
 
-除古巴国家主席夫妇外，还包括古巴革命领袖劳尔·卡斯特罗的儿子亚历杭德罗·卡斯特罗等人。
+珠江委水文局生态监测结果显示，调度期间，西江干流中下游河段鱼类卵苗径流量增幅显著。
 
-迪亚斯-卡内尔当日在社交媒体上说，美方这些措施旨在进一步强化对古巴的封锁，并加剧古巴与美国之间的对抗局面。
+5月18日至22日，桂平监测断面日均鱼类卵苗径流量为调度前的近10倍；其中5月21日单日鱼卵径流量达到调度前的266倍。
 
-这种政治上的短视做法，与美国近几周来针对古巴实施的一系列强制性措施一脉相承，其目的都是损害古巴人民的利益。
+本次洪水塑造为西江中下游河段鱼类繁殖注入有力的“生态脉冲”，有效激发亲鱼聚集与产卵活动，推动繁殖规模实现数量级跃升。
 
-迪亚斯-卡内尔说，美国政府的侵略性和恶劣行径，“将遭遇我们迎接最严峻局面、抵御帝国主义冲击的坚定决心”。
+珠江委表示，下一步，该委将及时总结评估本次调度成效与经验，持续加强雨水情滚动预测，不断探索洪水塑造技术方法和实践路径，为西江流域生物多样性保护和河流生命健康提供坚实保障。
 
-古巴外长布鲁诺·罗德里格斯当日在社交媒体上发文称，美国政府最新对古制裁是美国干涉主义计划的最新表现，意在把古巴塑造成美国国家安全的威胁。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 15:08 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 15:29 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 15:15 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 15:08 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 15:24 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 15:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 15:02 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 15:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 15:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 15:05 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:17 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 15:27 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 15:09 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 15:07 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 15:15 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 15:09 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 15:08 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 15:16 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:27 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 15:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 15:20 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 15:07 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 15:19 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 15:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 15:13 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/2045311.shtml)
-- 2026-06-29 15:05 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/830966090163.shtml)
-- 2026-06-29 15:06 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/21677750.shtml)
-- 2026-06-29 15:00 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/286399918170.shtml)
-- 2026-06-29 15:00 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/3480307.shtml)
-- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/633991.shtml)
-- 2026-06-29 15:01 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/9515815.shtml)
-- 2026-06-29 15:03 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/601977.shtml)
-- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/215539799735.shtml)
-- 2026-06-29 15:05 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/24990.shtml)
-- 2026-06-29 15:14 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/48052506.shtml)
-- 2026-06-29 15:25 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/30818922.shtml)
-- 2026-06-29 15:08 - [沙丘](https://www.blog.kurohicncr.top/Article/details/33925837.shtml)
-- 2026-06-29 15:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/89934544.shtml)
-- 2026-06-29 15:04 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/13398.shtml)
+- 2026-06-29 15:07 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/1901405.shtml)
+- 2026-06-29 15:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/455752390.shtml)
+- 2026-06-29 15:33 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/0557836331.shtml)
+- 2026-06-29 15:09 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/1285879533.shtml)
+- 2026-06-29 15:33 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/845987557104.shtml)
+- 2026-06-29 15:35 - [第一炉香](http://www.share.kurohicncr.top/Article/details/131931617.shtml)
+- 2026-06-29 15:28 - [天道](http://www.share.minike.top/Article/details/792444554.shtml)
+- 2026-06-29 15:18 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/34932.shtml)
+- 2026-06-29 15:31 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/769438031690.shtml)
+- 2026-06-29 15:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/7849557095.shtml)
+- 2026-06-29 15:08 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/75560.shtml)
+- 2026-06-29 15:12 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/440305082001.shtml)
+- 2026-06-29 15:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/29199249.shtml)
+- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/972259566.shtml)
+- 2026-06-29 15:21 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/527971.shtml)

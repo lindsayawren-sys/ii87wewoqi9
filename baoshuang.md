@@ -1,59 +1,56 @@
-# 《云南临沧气候生态资源评估与利用报告》发布
+# 上海虹桥国际志愿服务联盟绘就基层民主新图景
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月5日电 (记者 陈溯)6月5日，《云南临沧气候生态资源评估与利用报告》(以下简称《报告》)推介发布会在北京举行。本次发布会聚焦临沧优质气候生态资源禀赋、开发利用潜力以及文旅康养产业发展路径，开展成果发布、专业解读与城市推介，为临沧深耕气候生态优势、擦亮“遇见临沧如回故乡”城市IP，进一步塑造“恒春之都 舒爽临沧”气候品牌，提供了科学权威详实的数据体系支撑。《报告》
+中新网上海6月1日电 (记者 李佳佳)6月1日，“同心同行 爱在虹桥”——活力IN虹桥国际志愿服务联盟分享会暨2026年古北太太慈善义卖在上海古北市民中心温情启幕。上海长宁区虹桥街道与浙江义乌江东街道跨城联动，复盘联盟成长硕果，展现新时代基层治理与多元融合的生动实践。 活力IN虹桥国际志愿服务联盟自成立以来，坚持共建共治共享，以志愿服务为纽带，打破语言隔阂、消融文化差异，推动国
 
 ## 正文
 
-中新网北京6月5日电 (记者 陈溯)6月5日，《云南临沧气候生态资源评估与利用报告》(以下简称《报告》)推介发布会在北京举行。
+中新网上海6月1日电 (记者 李佳佳)6月1日，“同心同行 爱在虹桥”——活力IN虹桥国际志愿服务联盟分享会暨2026年古北太太慈善义卖在上海古北市民中心温情启幕。
 
-本次发布会聚焦临沧优质气候生态资源禀赋、开发利用潜力以及文旅康养产业发展路径，开展成果发布、专业解读与城市推介，为临沧深耕气候生态优势、擦亮“遇见临沧如回故乡”城市IP，进一步塑造“恒春之都 舒爽临沧”气候品牌，提供了科学权威详实的数据体系支撑。
+上海长宁区虹桥街道与浙江义乌江东街道跨城联动，复盘联盟成长硕果，展现新时代基层治理与多元融合的生动实践。
 
-《报告》由中国气象局国家气候中心编制，立足长期气象观测数据和科学评估方法，对临沧气候生态资源进行了系统评估。
+活力IN虹桥国际志愿服务联盟自成立以来，坚持共建共治共享，以志愿服务为纽带，打破语言隔阂、消融文化差异，推动国际社区治理从多元并存迈向深度融合，交出亮眼答卷： ——规模扩容，多元协同格局成型。
 
-《报告》指出，临沧平均海拔约1300米，北回归线横穿南部，得天独厚的“低纬度+高海拔”地理禀赋，叠加季风环流与优质下垫面协同作用，孕育出避暑避寒双重特质的稀缺恒春气候，成就了全季皆宜的旅居康养胜地，也为茶叶、咖啡、坚果、蔗糖、中药材等高原特色农业发展提供了稳定而优越的发展动能。
+联盟成员单位持续壮大，中外志愿者队伍不断扩充，覆盖国际学校、文化机构、公益组织、社区团队等多元主体，民主参与覆盖面持续拓宽。
 
-临沧市年平均气温18.8℃，8县(区)年平均气温在17.1℃至20.3℃之间，全域恒春，全市年人体舒适日数336天，旅游气候舒适日数313天，整体呈现全域恒春特征，均显著高于全国平均值，达到优等级。
+——服务深耕，公益触角全域延伸。
 
-临沧兼具避暑与避寒双重气候属性，临沧冬季平均气温13.2℃，日最高气温≥15℃日数达88天，暖阳温润不凛冽。
+常态化开展志愿服务百余场，覆盖无偿献血、先心病救助、文化传承、环保行动、社区治理、助老扶弱等领域，惠及中外居民数千人次，让善意浸润社区每个角落。
 
-夏季平均气温22.8℃，日最低气温＜22℃日数占比达93%，凉润宜人又无酷暑。
+——品牌擦亮，国际影响力持续出圈。
 
-打破了国内避暑与避寒气候地域分离的普遍特征，是全季旅居康养之地。
+Bloodline(血缘)无偿献血、“乐贤荟”先心病救助、古北太太慈善义卖、国际文化交流等特色项目深入人心，成为虹桥国际化治理的闪亮名片。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:09 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 15:17 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 15:22 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 15:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 15:00 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 15:16 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 15:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 15:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 15:22 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 15:26 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 15:04 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 15:02 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 15:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 15:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 15:29 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 15:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 15:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 15:07 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 15:34 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 15:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:24 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [A股](https://www.blog.minike.top/Article/details/21457640.shtml)
-- 2026-06-29 15:19 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/8349431.shtml)
-- 2026-06-29 15:01 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/623827135146.shtml)
-- 2026-06-29 15:28 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2413339.shtml)
-- 2026-06-29 15:21 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/68600.shtml)
-- 2026-06-29 15:19 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/389882271240.shtml)
-- 2026-06-29 15:12 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/105638907937.shtml)
-- 2026-06-29 15:00 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/571170729.shtml)
-- 2026-06-29 15:27 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7106244.shtml)
-- 2026-06-29 15:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/600811323455.shtml)
-- 2026-06-29 15:14 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/30699801156.shtml)
-- 2026-06-29 15:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/685651.shtml)
-- 2026-06-29 15:17 - [急先锋](https://www.blog.minike.top/Article/details/8969621526.shtml)
-- 2026-06-29 15:05 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/77764.shtml)
-- 2026-06-29 15:18 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/816474.shtml)
+- 2026-06-29 15:12 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/78717487256.shtml)
+- 2026-06-29 15:13 - [驻日美军航母沦为“毒窝”](http://www.share.kurohicncr.top/Article/details/754570.shtml)
+- 2026-06-29 15:35 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/36343663188.shtml)
+- 2026-06-29 15:35 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/923987810.shtml)
+- 2026-06-29 15:28 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/27442.shtml)
+- 2026-06-29 15:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/50679920159.shtml)
+- 2026-06-29 15:06 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/60529651360.shtml)
+- 2026-06-29 15:14 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/7056903.shtml)
+- 2026-06-29 15:32 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/196436985.shtml)
+- 2026-06-29 15:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/293437321.shtml)
+- 2026-06-29 15:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/878419822.shtml)
+- 2026-06-29 15:24 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/95470141.shtml)
+- 2026-06-29 15:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/11104.shtml)
+- 2026-06-29 15:26 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/507193279.shtml)
+- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/311713251302.shtml)

@@ -1,61 +1,57 @@
-# 30家广东阳江企业赴云南寻商机
+# 2026沈阳机器人大会开幕 中外嘉宾共探智造未来
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月5日电 (罗婕)5日，2026年“广货行天下”夏季行动·昆明站——“广货行天下·阳礼进春城”展销活动在云南省昆明市举行，来自广东省阳江市的30家企业携五金刀剪、餐厨用品、水海产品等百余款特色好物入滇拓市。 此次活动为期三天，由阳江市委宣传部、市商务局主办，云南省广东商会支持。活动现场，30家企业通过线下展销、专场对接、直播带货等形式，集中呈现“中国刀剪之都”“中国
+中新社沈阳6月1日电 (姜月恒 刁海洋 姚小辉)2026沈阳机器人大会6月1日在沈阳举行。中外知名专家学者，韩国、德国、爱尔兰等国家的40余位代表，80余家机器人领域企业负责人，在大会上以“新质引领发展，智造链接未来”为主题展开探讨。走进机器人大会展区，参会企业的近百件智能产品令人应接不暇。在沈阳粼动仿生科技的展台前，一款海龟两栖机器人吸引众人目光。工作人员告诉记者，企业针对传
 
 ## 正文
 
-中新网昆明6月5日电 (罗婕)5日，2026年“广货行天下”夏季行动·昆明站——“广货行天下·阳礼进春城”展销活动在云南省昆明市举行，来自广东省阳江市的30家企业携五金刀剪、餐厨用品、水海产品等百余款特色好物入滇拓市。
+中新社沈阳6月1日电 (姜月恒 刁海洋 姚小辉)2026沈阳机器人大会6月1日在沈阳举行。
 
-此次活动为期三天，由阳江市委宣传部、市商务局主办，云南省广东商会支持。
+中外知名专家学者，韩国、德国、爱尔兰等国家的40余位代表，80余家机器人领域企业负责人，在大会上以“新质引领发展，智造链接未来”为主题展开探讨。
 
-活动现场，30家企业通过线下展销、专场对接、直播带货等形式，集中呈现“中国刀剪之都”“中国调味品之都”产业优势，深化粤滇产销对接、挖掘合作空间。
+走进机器人大会展区，参会企业的近百件智能产品令人应接不暇。
 
-开幕式上，广东省阳江市副市长郑伟珍表示，阳江与昆明虽山水相隔，但同属泛珠三角区域合作重要成员，两地人缘相亲、产业互补。
+在沈阳粼动仿生科技的展台前，一款海龟两栖机器人吸引众人目光。
 
-阳江拥有产品、技术和产能优势，昆明则具备市场、通道与口岸优势，合作空间广阔。
+工作人员告诉记者，企业针对传统机器人在水陆交界场景易陷、易滑等痛点设计了仿生海龟机器人，该产品从海龟卓越的两栖适应性中汲取灵感，实现从“单一介质”到“跨介质自主”的跨越。
 
-据介绍，阳江是粤港澳大湾区重要战略支点城市，其刀剪产能与出口量位居全国前列，汇聚多家调味品产业头部品牌，更有春砂仁、程村蚝、阳江豆豉等国家地理标志产品。
+本届大会聚焦具身智能、人形仿生、人机协同等前沿赛道。
 
-此次以展促销、以会兴业，旨在依托云南建设面向南亚东南亚辐射中心的区位优势，让阳江好物从“粤西腹地”走向全国、畅销世界。
+大会期间，将组织6场应用场景对接活动，包括中韩机器人企业B2B对接、科研成果与产业需求对接、产学研深度融合研讨、京沈智能制造企业合作对接、中韩“人工智能+食品加工”产业对接及“零距离”探秘智造前沿活动，推动科创成果与市场需求精准匹配，加速前沿技术从实验室走向产业化与场景化落地。
 
-云南省广东商会会长蔡俊丰介绍，商会扎根云岭二十余载，致力于搭建滇粤经贸合作桥梁。
+韩国高丽大学工科学院产业经营工学部名誉教授张东植认为，AI和机器人相结合，类人机器人的应用与发展会越来越普及，韩国和中国在此方面可以加强合作。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 15:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 15:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 15:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 15:16 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 15:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 15:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 15:21 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 15:18 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 15:05 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 15:06 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 15:26 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 15:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 15:29 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:12 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 15:08 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:33 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 15:07 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 15:16 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 15:20 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 15:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 15:30 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 15:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/773979.shtml)
-- 2026-06-29 15:07 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/3675761.shtml)
-- 2026-06-29 15:01 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/7304840.shtml)
-- 2026-06-29 15:20 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/384467505075.shtml)
-- 2026-06-29 15:09 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/385900.shtml)
-- 2026-06-29 15:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/25273271058.shtml)
-- 2026-06-29 15:04 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/048829833.shtml)
-- 2026-06-29 15:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/074283395431.shtml)
-- 2026-06-29 15:03 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/548008190912.shtml)
-- 2026-06-29 15:08 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/4783322284.shtml)
-- 2026-06-29 15:14 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/315879.shtml)
-- 2026-06-29 15:26 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/98287459325.shtml)
-- 2026-06-29 15:12 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/29570.shtml)
-- 2026-06-29 15:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/42593964.shtml)
-- 2026-06-29 15:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/832075861.shtml)
+- 2026-06-29 15:10 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/913160.shtml)
+- 2026-06-29 15:10 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/763451729175.shtml)
+- 2026-06-29 15:27 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/526216874890.shtml)
+- 2026-06-29 15:17 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/22998.shtml)
+- 2026-06-29 15:33 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/71901938080.shtml)
+- 2026-06-29 15:26 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/64605176.shtml)
+- 2026-06-29 15:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1197409068.shtml)
+- 2026-06-29 15:33 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/47596248.shtml)
+- 2026-06-29 15:11 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/705024131326.shtml)
+- 2026-06-29 15:27 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/59927.shtml)
+- 2026-06-29 15:15 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/42839.shtml)
+- 2026-06-29 15:06 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/374710556129.shtml)
+- 2026-06-29 15:30 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/30686944723.shtml)
+- 2026-06-29 15:23 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/47944758914.shtml)
+- 2026-06-29 15:08 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/1152539.shtml)

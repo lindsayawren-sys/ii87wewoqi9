@@ -1,57 +1,56 @@
-# 《国务院关于对外投资的规定》对投资者有何影响？商务部解读
+# Apollo公司浮式风电快速连接器向商业应用迈进一步
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网6月4日电 商务部6月4日举行例行新闻发布会，新闻发言人何咏前在回答关于《国务院关于对外投资的规定》的提问时表示，6月1日《国务院关于对外投资的规定》(以下简称《规定》)发布，将于7月1日起施行。制定《规定》是贯彻落实党的二十届三中、四中全会关于健全对外投资管理服务体系、有效实施对外投资管理决策部署的重要举措，在我国对外投资发展历程上具有里程碑意义。何咏前指出，《规定》对
+Apollo公司已获得必维国际检验集团（Bureau Veritas）为其PALM快速连接系统颁发的原则性认可（2级）。该技术旨在简化浮式海上风力涡轮机动态电缆的连接与断开操作。 此项认证是在完成了一项为期12个月的全尺寸前端工程设计研究之后获得的。该研究由“海上风电增长伙伴关系”和“苏格兰波浪能源”共同资助。 Apollo表示，该认证确认PALM快速连接系统已根据行业标准通过
 
 ## 正文
 
-中新网6月4日电 商务部6月4日举行例行新闻发布会，新闻发言人何咏前在回答关于《国务院关于对外投资的规定》的提问时表示，6月1日《国务院关于对外投资的规定》(以下简称《规定》)发布，将于7月1日起施行。
+Apollo公司已获得必维国际检验集团（Bureau Veritas）为其PALM快速连接系统颁发的原则性认可（2级）。
 
-制定《规定》是贯彻落实党的二十届三中、四中全会关于健全对外投资管理服务体系、有效实施对外投资管理决策部署的重要举措，在我国对外投资发展历程上具有里程碑意义。
+该技术旨在简化浮式海上风力涡轮机动态电缆的连接与断开操作。
 
-何咏前指出，《规定》对投资者而言，一是强化服务。
+此项认证是在完成了一项为期12个月的全尺寸前端工程设计研究之后获得的。
 
-健全海外综合服务体系，多维度完善制度措施，为出海企业参与国际合作竞争提供有力法治保障。
+该研究由“海上风电增长伙伴关系”和“苏格兰波浪能源”共同资助。
 
-二是优化管理。
+Apollo表示，该认证确认PALM快速连接系统已根据行业标准通过独立评估，现可进入技术认证和型式认可阶段。
 
-健全对外投资管理体系，强化投资者主体责任。
+PALM快速连接系统设计用于动态电缆的连接与断开，无需专用船舶、潜水员或人员转运。
 
-三是加强保护。
+据Apollo称，该系统在海上现场测试中已成功完成50次连接与断开操作。
 
-加强监测预警和风险评估，指导和帮助投资者做好安全风险防范。
+该公司表示，与传统海上作业可能需要数天时间相比，该技术可在5.5小时内重新连接动态电缆，并在吉瓦级规模的浮式海上风电场全生命周期内可能节省1.61亿美元（1.2亿英镑）的成本。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 15:17 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 15:02 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 15:02 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 15:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 15:08 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 15:00 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 15:21 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 15:03 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 15:01 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 15:05 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 15:27 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 15:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 15:29 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 15:06 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 15:16 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 15:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 15:24 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 15:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:07 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/48740410555.shtml)
-- 2026-06-29 15:02 - [四川宜宾地震](https://www.blog.minike.top/Article/details/013266607166.shtml)
-- 2026-06-29 15:20 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/988056771928.shtml)
-- 2026-06-29 15:10 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/456166.shtml)
-- 2026-06-29 15:12 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/783757076914.shtml)
-- 2026-06-29 15:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/6451063690.shtml)
-- 2026-06-29 15:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/8830202725.shtml)
-- 2026-06-29 15:23 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/949089.shtml)
-- 2026-06-29 15:25 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/46837151.shtml)
-- 2026-06-29 15:28 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/76626019.shtml)
-- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/122937630.shtml)
-- 2026-06-29 15:24 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/009484492.shtml)
-- 2026-06-29 15:19 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/506249.shtml)
-- 2026-06-29 15:07 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/8531106.shtml)
-- 2026-06-29 15:25 - [爱很美味](http://www.blog.minike.top/Article/details/17088624795.shtml)
+- 2026-06-29 15:22 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/351160440.shtml)
+- 2026-06-29 15:11 - [千与千寻](http://www.share.kurohicncr.top/Article/details/466863943.shtml)
+- 2026-06-29 15:20 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/70498536.shtml)
+- 2026-06-29 15:19 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/917097327.shtml)
+- 2026-06-29 15:09 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/97898.shtml)
+- 2026-06-29 15:29 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/40254281555.shtml)
+- 2026-06-29 15:24 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/919419.shtml)
+- 2026-06-29 15:12 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/7739551.shtml)
+- 2026-06-29 15:14 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/17659.shtml)
+- 2026-06-29 15:14 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/5565187702.shtml)
+- 2026-06-29 15:32 - [急先锋](https://www.share.minike.top/Article/details/6561203891.shtml)
+- 2026-06-29 15:27 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/2863166.shtml)
+- 2026-06-29 15:20 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/31652083732.shtml)
+- 2026-06-29 15:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/38955.shtml)
+- 2026-06-29 15:22 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/574263486874.shtml)

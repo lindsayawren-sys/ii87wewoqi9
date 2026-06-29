@@ -1,61 +1,61 @@
-# 6月4日白银晚评：银价反弹受到阻碍！利率前景指引银价多空方向
+# 美国原油大涨超7%：伊朗称将中止与美谈判并彻底封锁霍尔木兹海峡
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-金投网 北京时间周四（6月4日）欧盘时段，美元指数小幅回落，目前交投于99.385附近，现货白银目前交投于73.32美元/盎司，今日开盘于72.79美元/盎司，截至发稿白银价格最高上探73.90美元/盎司，最低触及72.41美元/盎司，基本面关注美国将公布5月挑战者企业裁员人数，美国至5月30日当周初请失业金人数以及5月全球供应链压力指数，美联储巴尔金将参与谈话。 【基本面解析
+核心要点 据伊朗官方媒体报道，伊朗将中止与美国的谈判，并因以色列在黎巴嫩的军事行动彻底关闭霍尔木兹海峡，受此消息影响，美国原油价格周一暴涨近 8%。 截至美东时间上午 10：07，西德克萨斯轻质原油（WTI）期货上涨 7.8%，报94.20 美元 / 桶；国际基准布伦特原油期货上涨 6.7%，报97.23 美元 / 桶。 伊朗官方媒体塔斯尼姆通讯社在社交媒体发文称，在以色列停止
 
 ## 正文
 
-金投网 北京时间周四（6月4日）欧盘时段，美元指数小幅回落，目前交投于99.385附近，现货白银目前交投于73.32美元/盎司，今日开盘于72.79美元/盎司，截至发稿白银价格最高上探73.90美元/盎司，最低触及72.41美元/盎司，基本面关注美国将公布5月挑战者企业裁员人数，美国至5月30日当周初请失业金人数以及5月全球供应链压力指数，美联储巴尔金将参与谈话。
+核心要点 据伊朗官方媒体报道，伊朗将中止与美国的谈判，并因以色列在黎巴嫩的军事行动彻底关闭霍尔木兹海峡，受此消息影响，美国原油价格周一暴涨近 8%。
 
-【基本面解析】 以色列与黎巴嫩周三在华盛顿举行的美国主导谈判后同意实施停火。
+截至美东时间上午 10：07，西德克萨斯轻质原油（WTI）期货上涨 7.8%，报94.20 美元 / 桶；国际基准布伦特原油期货上涨 6.7%，报97.23 美元 / 桶。
 
-联合声明称，停火前提是伊朗支持的真主党完全停止火力攻击，并其武装人员从黎巴嫩南部撤离。
+伊朗官方媒体塔斯尼姆通讯社在社交媒体发文称，在以色列停止在加沙与黎巴嫩的袭击、并撤出黎巴嫩占领区前，伊朗谈判代表不会与美方举行任何会谈。
 
-与此同时，美国众议院通过决议，寻求阻止总统特朗普对伊朗采取进一步军事行动。
+塔斯尼姆通讯社还称，德黑兰将彻底封锁霍尔木兹海峡，并在曼德海峡等其他战线采取行动。
 
-这些进展提升了结束美以对伊朗长达三个月战争的希望，促使美元出现温和回调，从而为银价反弹提供了支撑。
+曼德海峡是连接红海与亚丁湾的贸易咽喉要道。
 
-美国方面，周三公布的5月ADP就业数据好于预期，为周五非农数据奠定了积极基调。
+上周，布伦特与 WTI 原油分别大跌 11.1% 与 9.6%，创下 4 月中旬以来最差单周表现。
 
-数据显示，美国私营部门新增就业12.2万人，高于预期的11.7万人和前值10.5万人，表明劳动力市场仍具韧性。
+自 2026 年 2 月 28 日美以联合对伊朗开战以来，两大原油合约累计涨幅仍有约 30%。
 
-若周五非农数据同样强劲，可能进一步强化市场对美联储维持紧缩立场的预期。
+上周末，美伊重启空袭，以色列下令部队深入黎巴嫩，市场再度担忧：与伊朗支持的真主党冲突升级，或将破坏美伊之间脆弱的停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:14 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 15:20 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 15:07 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 15:16 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 15:27 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 15:27 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 15:01 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 15:20 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 15:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 15:14 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 15:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 15:09 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:10 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 15:00 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 15:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 15:28 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 15:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:19 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:32 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 15:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 15:11 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 15:16 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 15:13 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 15:35 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 15:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 15:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 15:22 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 15:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/964026543.shtml)
-- 2026-06-29 15:08 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/002023605.shtml)
-- 2026-06-29 15:09 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/84828866.shtml)
-- 2026-06-29 15:18 - [斗破苍穹](https://www.share.minike.top/Article/details/72047797288.shtml)
-- 2026-06-29 15:08 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/866927886294.shtml)
-- 2026-06-29 15:28 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/08407335.shtml)
-- 2026-06-29 15:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/108148878456.shtml)
-- 2026-06-29 15:13 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/068139566.shtml)
-- 2026-06-29 15:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/34085.shtml)
-- 2026-06-29 15:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/996126939506.shtml)
-- 2026-06-29 15:20 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/50378.shtml)
-- 2026-06-29 15:29 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1046682.shtml)
-- 2026-06-29 15:28 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/62850.shtml)
-- 2026-06-29 15:02 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/56827170114.shtml)
-- 2026-06-29 15:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/7336108132.shtml)
+- 2026-06-29 15:14 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/0070923.shtml)
+- 2026-06-29 15:09 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/183397706573.shtml)
+- 2026-06-29 15:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/17793611837.shtml)
+- 2026-06-29 15:14 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/84854.shtml)
+- 2026-06-29 15:21 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/50475561108.shtml)
+- 2026-06-29 15:15 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/49208.shtml)
+- 2026-06-29 15:23 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/358626.shtml)
+- 2026-06-29 15:28 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/20640796276.shtml)
+- 2026-06-29 15:22 - [送你一朵小红花](https://www.share.minike.top/Article/details/52505.shtml)
+- 2026-06-29 15:11 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/4256215476.shtml)
+- 2026-06-29 15:25 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/69562884715.shtml)
+- 2026-06-29 15:12 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/0737061.shtml)
+- 2026-06-29 15:24 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/4160970537.shtml)
+- 2026-06-29 15:25 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/522595236875.shtml)
+- 2026-06-29 15:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/80155743.shtml)

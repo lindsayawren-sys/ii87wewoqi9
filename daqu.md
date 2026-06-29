@@ -1,60 +1,60 @@
-# 日本资料馆拟修改南京大屠杀表述 中方回应
+# 公示治理完成，复核水体仍为重度黑臭！一批环境问题典型案例被曝光
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月5日电 (记者 李京泽 黄钰钦)中国外交部发言人毛宁6月5日主持例行记者会。 有记者提问：据报道，日本长崎市计划在2026年度内完成对长崎核爆资料馆展板的更新工作。相关人士透露，馆内有关南京大屠杀的展板文案计划将不再使用“大屠杀”，改为“杀害众多平民和俘虏的南京事件”。中方对此有何评论？ 毛宁：南京大屠杀是日本军国主义犯下的残暴罪行，铁证如山，不容篡改。东京审判明
+6月2日，中央生态环境保护督察组集中公布辽宁、吉林、黑龙江、广东四省生态环境典型案例，曝光多地污水治理、农村人居环境、固废处置等领域突出生态环保短板与违规问题。 辽宁省葫芦岛市生活污水收集处理短板明显 督察指出，辽宁省葫芦岛市生活污水收集处理短板突出，黑臭水体整治工作不严不实。该市城市环境基础设施建设滞后，主城区约四分之一区域存在雨污混流，污水晴天溢流、直排现象多发。当地污水管
 
 ## 正文
 
-中新网北京6月5日电 (记者 李京泽 黄钰钦)中国外交部发言人毛宁6月5日主持例行记者会。
+6月2日，中央生态环境保护督察组集中公布辽宁、吉林、黑龙江、广东四省生态环境典型案例，曝光多地污水治理、农村人居环境、固废处置等领域突出生态环保短板与违规问题。
 
-有记者提问：据报道，日本长崎市计划在2026年度内完成对长崎核爆资料馆展板的更新工作。
+辽宁省葫芦岛市生活污水收集处理短板明显 督察指出，辽宁省葫芦岛市生活污水收集处理短板突出，黑臭水体整治工作不严不实。
 
-相关人士透露，馆内有关南京大屠杀的展板文案计划将不再使用“大屠杀”，改为“杀害众多平民和俘虏的南京事件”。
+该市城市环境基础设施建设滞后，主城区约四分之一区域存在雨污混流，污水晴天溢流、直排现象多发。
 
-中方对此有何评论？
+当地污水管网排查改造推进缓慢，大量管网未完成检测、多处缺陷问题长期未整改。
 
-毛宁：南京大屠杀是日本军国主义犯下的残暴罪行，铁证如山，不容篡改。
+全市最大污水处理厂长期低负荷运行，却设置多处溢流口，晴天向城区河道直排污水，水质污染物严重超标。
 
-东京审判明确认定日军在南京的暴行是“屠杀”，而不是所谓“事件”。
+此外，当地黑臭水体整治流于形式，多处公示已治理完成、排查无黑臭的水体，经督察复核仍为重度黑臭，治理成效弄虚作假。
 
-《远东国际军事法庭判决书》用专章论述“日军在南京的暴行”，通过大量幸存者证词、第三方外籍人士记录和日军档案，以国际司法判决形式判定了侵华日军制造南京大屠杀的滔天罪行。
+吉林省四平市农村人居环境整治仍存短板吉林省四平市农村人居环境整治存在明显短板，各类农村污染问题频发。
 
-南京大屠杀元凶松井石根作为甲级战犯被处以绞刑。
+当地农村环保基础设施历史欠账较多，双辽市建成多座农村污水处理站，却未配套建设收集管网，导致设施长期闲置，农村生活污水直排沟渠，水体污染严重。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 15:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 15:22 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 15:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 15:27 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 15:04 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 15:01 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 15:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 15:18 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 15:04 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 15:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 15:06 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 15:14 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 15:13 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 15:24 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 15:24 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 15:09 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 15:09 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 15:16 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 15:11 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 15:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 15:20 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 15:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 15:32 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 15:29 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 15:28 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 15:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/7762884.shtml)
-- 2026-06-29 15:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/78528370143.shtml)
-- 2026-06-29 15:22 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/2557044237.shtml)
-- 2026-06-29 15:07 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/070906314844.shtml)
-- 2026-06-29 15:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/988326528081.shtml)
-- 2026-06-29 15:18 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/7821951755.shtml)
-- 2026-06-29 15:00 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/904713.shtml)
-- 2026-06-29 15:05 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/560560333.shtml)
-- 2026-06-29 15:15 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/2781788401.shtml)
-- 2026-06-29 15:03 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/6881760094.shtml)
-- 2026-06-29 15:01 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/9692133.shtml)
-- 2026-06-29 15:29 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/61454.shtml)
-- 2026-06-29 15:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/715379.shtml)
-- 2026-06-29 15:02 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/426149966.shtml)
-- 2026-06-29 15:11 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/30531863.shtml)
+- 2026-06-29 15:28 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/212768.shtml)
+- 2026-06-29 15:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/94659.shtml)
+- 2026-06-29 15:24 - [起风了](http://www.blog.kurohicncr.top/Article/details/7395061.shtml)
+- 2026-06-29 15:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/522237236062.shtml)
+- 2026-06-29 15:32 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/616556595166.shtml)
+- 2026-06-29 15:24 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/480387622.shtml)
+- 2026-06-29 15:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/681237357989.shtml)
+- 2026-06-29 15:21 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/91562885110.shtml)
+- 2026-06-29 15:31 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/652446.shtml)
+- 2026-06-29 15:27 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/17255986672.shtml)
+- 2026-06-29 15:22 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/938998380571.shtml)
+- 2026-06-29 15:06 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/55628.shtml)
+- 2026-06-29 15:31 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/0279025.shtml)
+- 2026-06-29 15:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/313300873317.shtml)
+- 2026-06-29 15:30 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/551225.shtml)

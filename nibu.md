@@ -1,61 +1,57 @@
-# 悦康药业跌15.77% 营业部龙虎榜净卖出4755.76万元
+# 香港科大举办“独角兽日” 促成6项创科合作协议
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月5日悦康药业（688658）收盘价13.73元，收盘下跌15.77%，全天换手率8.54%，振幅22.33%，成交额5.46亿元。科创板交易公开信息显示，当日该股因日收盘价跌幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交2.79亿元， 其中，买入成交额为1.16亿元，卖出成交额为1.63亿元，合计净卖出4755.76万元。具体来看，今日上榜的前五
+中新网香港6月2日电 香港科技大学(下称“科大”)2日举行年度旗舰活动“独角兽日”，汇聚超过1800名师生及校友、国际政界代表、创科企业家等各界人士，共商创科生态圈协作策略与跨领域合作机遇，促进科研成果转化与国际交流。活动现场展示了近百家由科大培育的初创企业在医疗健康、电子及人工智能系统、新材料、绿色能源与可持续发展等领域的研究成果转化及应用进展。 香港特区政府创新科技及工业局
 
 ## 正文
 
-6月5日悦康药业（688658）收盘价13.73元，收盘下跌15.77%，全天换手率8.54%，振幅22.33%，成交额5.46亿元。
+中新网香港6月2日电 香港科技大学(下称“科大”)2日举行年度旗舰活动“独角兽日”，汇聚超过1800名师生及校友、国际政界代表、创科企业家等各界人士，共商创科生态圈协作策略与跨领域合作机遇，促进科研成果转化与国际交流。
 
-科创板交易公开信息显示，当日该股因日收盘价跌幅达15%等上榜。
+活动现场展示了近百家由科大培育的初创企业在医疗健康、电子及人工智能系统、新材料、绿色能源与可持续发展等领域的研究成果转化及应用进展。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交2.79亿元， 其中，买入成交额为1.16亿元，卖出成交额为1.63亿元，合计净卖出4755.76万元。
+香港特区政府创新科技及工业局局长孙东肯定了高校在支持香港创新科技发展中扮演的重要角色。
 
-具体来看，今日上榜的前五大买入营业部中，沪股通为第一大买入营业部，买入金额为5962.10万元，营业部合计买入5630.92万元。
+他表示，香港正步入创科发展的黄金时代，香港特区政府正着力建立推动香港高质量发展的新引擎，聚焦重点领域的科研创新，引领产业应用发展。
 
-卖出营业部中，有1家机构专用席位现身，即卖一，卖出金额分别为6322.78万元，沪股通为第二大卖出营业部，卖出金额为5357.48万元，营业部合计卖出4668.52万元。
+相信香港将成为举足轻重的国际创科中心，为国家高质量发展作出重要贡献。
 
-买卖金额相抵，机构专用席位今日净卖出该股6322.78万元，沪股通今日净买入该股604.63万元。
+科大校长叶玉如表示，今年适逢科大创校35周年，科大在35年中积极布局多个策略性科研领域。
 
-资金流向方面，该股今日全天主力资金净流出6528.39万元。
+其中，正在筹建的科大医学院将生命科学与前沿科技相结合，致力于培育新一代跨学科的医学人才；科大亦深度参与国家探月工程“嫦娥八号”任务及“天宫”空间站科研项目。
 
-（数据宝）悦康药业6月5日龙虎榜（文章来源：证券时报网）
+未来将继续与各界携手共育创新之林，让科研成果造福社会、惠及全球。
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 15:29 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 15:06 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 15:23 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:19 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 15:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 15:18 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 15:20 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 15:13 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 15:25 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 15:28 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 15:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:21 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 15:22 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 15:06 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 15:15 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 15:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 15:24 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 15:32 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 15:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 15:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 15:16 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 15:28 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:21 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/9304826.shtml)
-- 2026-06-29 15:04 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/165108419827.shtml)
-- 2026-06-29 15:12 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/66130.shtml)
-- 2026-06-29 15:28 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/05379869.shtml)
-- 2026-06-29 15:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/979360390822.shtml)
-- 2026-06-29 15:11 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/889493463990.shtml)
-- 2026-06-29 15:15 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/33342718311.shtml)
-- 2026-06-29 15:05 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/0028671459.shtml)
-- 2026-06-29 15:17 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/5745205.shtml)
-- 2026-06-29 15:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/71959.shtml)
-- 2026-06-29 15:09 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/76111373153.shtml)
-- 2026-06-29 15:22 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4241814095.shtml)
-- 2026-06-29 15:14 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/2204903335.shtml)
-- 2026-06-29 15:27 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/2292994.shtml)
-- 2026-06-29 15:03 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/324770649360.shtml)
+- 2026-06-29 15:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/16250909.shtml)
+- 2026-06-29 15:18 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/92614742021.shtml)
+- 2026-06-29 15:12 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/304887509.shtml)
+- 2026-06-29 15:09 - [小娘惹](http://www.blog.minike.top/Article/details/916694.shtml)
+- 2026-06-29 15:07 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/65079902.shtml)
+- 2026-06-29 15:09 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/82605768.shtml)
+- 2026-06-29 15:09 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/81181.shtml)
+- 2026-06-29 15:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/004395509.shtml)
+- 2026-06-29 15:28 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/4760942.shtml)
+- 2026-06-29 15:21 - [金刚川](https://www.share.kurohicncr.top/Article/details/977187381290.shtml)
+- 2026-06-29 15:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/45461196.shtml)
+- 2026-06-29 15:31 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/112843.shtml)
+- 2026-06-29 15:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/767868.shtml)
+- 2026-06-29 15:08 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/844303.shtml)
+- 2026-06-29 15:29 - [我和我的家乡](https://www.share.minike.top/Article/details/16555.shtml)

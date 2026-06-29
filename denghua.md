@@ -1,49 +1,49 @@
-# 天原股份：公司不存在资金链风险
+# 《联合国可转让货物单证公约》将于10月开放签署
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司不存在资金链风险，对于应收账款有严格的风险管理体系，通过股权融资及债务融资相结合补充资金需求。（文章来源：证券日报）
+记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。 《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更
 
 ## 正文
 
-证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司不存在资金链风险，对于应收账款有严格的风险管理体系，通过股权融资及债务融资相结合补充资金需求。
+记者今天(6月1日)从商务部了解到，《联合国可转让货物单证公约》将于2026年10月26日在加纳首都阿克拉开放签署，中方将积极签约并推动《公约》早日生效。
 
-（文章来源：证券日报）
+《联合国可转让货物单证公约》创设适用于各类运输方式的“可转让货物单证”，并赋予其与海运提单相同的物权凭证属性，对于推动全球贸易繁荣发展具有重要意义，将填补陆路运单物权凭证属性的国际法空白，为跨境贸易融资和全球供应链稳定提供更多保障。
+
+(央视新闻客户端 总台央视记者 吴昊 高媛)
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 15:17 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 15:29 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 15:23 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:20 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 15:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 15:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 15:03 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 15:18 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 15:28 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 15:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 15:24 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 15:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 15:24 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 15:07 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:22 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 15:34 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 15:08 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 15:19 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 15:21 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 15:20 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 15:33 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 15:22 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 15:07 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 15:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 15:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/429403532414.shtml)
-- 2026-06-29 15:00 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/631393.shtml)
-- 2026-06-29 15:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/78298.shtml)
-- 2026-06-29 15:08 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/93026962.shtml)
-- 2026-06-29 15:11 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/663358164835.shtml)
-- 2026-06-29 15:10 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/20211725004.shtml)
-- 2026-06-29 15:07 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/34718463470.shtml)
-- 2026-06-29 15:25 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/69105329630.shtml)
-- 2026-06-29 15:11 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/28518546735.shtml)
-- 2026-06-29 15:27 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/0136755.shtml)
-- 2026-06-29 15:25 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/336964977577.shtml)
-- 2026-06-29 15:17 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/720573.shtml)
-- 2026-06-29 15:06 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/63645806.shtml)
-- 2026-06-29 15:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/68539539.shtml)
-- 2026-06-29 15:09 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/487537.shtml)
+- 2026-06-29 15:11 - [光与夜之恋](http://www.blog.minike.top/Article/details/21407.shtml)
+- 2026-06-29 15:09 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/609377128.shtml)
+- 2026-06-29 15:29 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/39778220936.shtml)
+- 2026-06-29 15:29 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/53546963.shtml)
+- 2026-06-29 15:15 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/53328.shtml)
+- 2026-06-29 15:19 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/14395948586.shtml)
+- 2026-06-29 15:24 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/14186.shtml)
+- 2026-06-29 15:30 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/64603269737.shtml)
+- 2026-06-29 15:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/337146113924.shtml)
+- 2026-06-29 15:24 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/250581087.shtml)
+- 2026-06-29 15:26 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/18813817.shtml)
+- 2026-06-29 15:30 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/75852111.shtml)
+- 2026-06-29 15:26 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/923465517.shtml)
+- 2026-06-29 15:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/868560.shtml)
+- 2026-06-29 15:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/85268.shtml)

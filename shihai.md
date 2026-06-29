@@ -1,60 +1,58 @@
-# 突然，20%涨停！“225倍大神”，最新引爆！
+# 韩红基金会走进北京市儿童福利院“陪你一起过六一”
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！机器人爆发了！ 6月5日午后，市值超700亿元的机器人龙头企业绿的谐波20%涨停，机器人板块一度大涨超7%。在一众科技股大跌的背景之下，机器人板块拉升背后究竟有何驱动？ 从市场传出的信息看，可能与互联网上一个贴子有关。署名为“Serenity”的财经博主发文称：绿的谐波是我在布局人形机器人赛道时最青睐的中国
+发布时间：2026年06月02日 10:24 来源：中国新闻网 北京韩红爱心慈善基金会发起人韩红日前带领基金会成员和明星志愿者，走进北京市儿童福利院开展“陪你一起过六一”公益活动。 活动中，韩红基金会为福利院捐献助行器(儿童行走训练车)、孤独症评估与康复系统、站立架等医疗设备和水果、牛奶等生活物资。明星志愿者殷桃、宋茜、高至霆为孩子们送来护理用品、衣物、文具等；未能到场的明星志
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月02日 10:24 来源：中国新闻网 北京韩红爱心慈善基金会发起人韩红日前带领基金会成员和明星志愿者，走进北京市儿童福利院开展“陪你一起过六一”公益活动。
 
-机器人爆发了！
+活动中，韩红基金会为福利院捐献助行器(儿童行走训练车)、孤独症评估与康复系统、站立架等医疗设备和水果、牛奶等生活物资。
 
-6月5日午后，市值超700亿元的机器人龙头企业绿的谐波20%涨停，机器人板块一度大涨超7%。
+明星志愿者殷桃、宋茜、高至霆为孩子们送来护理用品、衣物、文具等；未能到场的明星志愿者倪妮、刘浩存也为孩子们捐赠了爱心物资。
 
-在一众科技股大跌的背景之下，机器人板块拉升背后究竟有何驱动？
+韩红基金会一行前往福利院康复示范中心和功能区域，与正在康复训练的孩子们互动。
 
-从市场传出的信息看，可能与互联网上一个贴子有关。
+在特殊教育中心，观摩特教课程并与孩子们一同做手工。
 
-署名为“Serenity”的财经博主发文称：绿的谐波是我在布局人形机器人赛道时最青睐的中国上市标的。
+孩子们向韩红和志愿者们送出自己的绘画作品、亲手制作的手链、香包等，表示感谢。
 
-“Serenity”是近期很火的一个超级散户，半年收益达4502.45%，过去两年累计约225倍，火爆华尔街。
+韩红在现场手书“无惧 不败”送给福利院，向孩子们与工作人员送上节日祝福和鼓励。
 
-上述帖子在市场上快速传播，并引爆了整个机器人板块。
+韩红表示，“以后我们有时间，就多来陪孩子们。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 15:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 15:19 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 15:29 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 15:06 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 15:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 15:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 15:04 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 15:04 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 15:06 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 15:18 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 15:25 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:07 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 15:16 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 15:34 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:17 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 15:22 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 15:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 15:07 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 15:16 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 15:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 15:06 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 15:23 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 15:14 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 15:33 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/46471.shtml)
-- 2026-06-29 15:19 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/5618952.shtml)
-- 2026-06-29 15:14 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/313484.shtml)
-- 2026-06-29 15:20 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/277903.shtml)
-- 2026-06-29 15:21 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/9616153046.shtml)
-- 2026-06-29 15:03 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/4527631431.shtml)
-- 2026-06-29 15:02 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/0636147760.shtml)
-- 2026-06-29 15:16 - [新一代影后杨紫](https://www.share.minike.top/Article/details/09403829.shtml)
-- 2026-06-29 15:18 - [韩国国脚无缘上亿韩元奖金](http://www.blog.kurohicncr.top/Article/details/95839567.shtml)
-- 2026-06-29 15:01 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/4536189.shtml)
-- 2026-06-29 15:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/8769407.shtml)
-- 2026-06-29 15:19 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/743937.shtml)
-- 2026-06-29 15:12 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/9901311375.shtml)
-- 2026-06-29 15:27 - [恋与深空 731](http://www.share.minike.top/Article/details/8176150.shtml)
-- 2026-06-29 15:10 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/590672.shtml)
+- 2026-06-29 15:29 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/71034255.shtml)
+- 2026-06-29 15:20 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/090373367.shtml)
+- 2026-06-29 15:13 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/8837822334.shtml)
+- 2026-06-29 15:28 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/061671321396.shtml)
+- 2026-06-29 15:24 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/10169.shtml)
+- 2026-06-29 15:24 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/431733374473.shtml)
+- 2026-06-29 15:11 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/63639812.shtml)
+- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/9400265047.shtml)
+- 2026-06-29 15:26 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/77416236619.shtml)
+- 2026-06-29 15:35 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/034640.shtml)
+- 2026-06-29 15:24 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/59751439.shtml)
+- 2026-06-29 15:25 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/323153578111.shtml)
+- 2026-06-29 15:23 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/034293139.shtml)
+- 2026-06-29 15:23 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/480263389253.shtml)
+- 2026-06-29 15:29 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/46049.shtml)

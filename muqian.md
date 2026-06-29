@@ -1,56 +1,57 @@
-# 香港海关侦破市值约2.38亿港元走私烟案
+# AI乐观情绪对冲中东地缘忧虑，全球股市反弹
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新社香港6月4日电 香港海关4日通报，在5月19日至28日开展的执法行动中，海关侦破2宗海路走私案件，共检获约5280万支怀疑私烟，市值约2.38亿港元，应课税值约1.75亿港元。 首宗案件中，海关人员在香港青衣验货场及葵涌海关大楼验货场内，挑选及查验6个由中国台湾运抵香港并准备转运至内地的货柜。经检查，海关人员在货柜内共检获约3180万支怀疑私烟。 在另一宗案件中，海关人员
+受人工智能板块利好提振，全球股市周二全线走高：AI 企业 Anthropic 启动赴美上市进程点燃行业做多热情；与此同时，市场对美伊达成和谈的预期升温，国际原油、美债收益率同步下行。 美国总统特朗普表态美伊谈判仍在推进，布伦特原油期货跌幅超 1%，报价 94 美元 / 桶，回吐前一交易日的大幅涨幅。 此前有消息称伊朗方面暂停与美国的间接停战谈判，这场已持续三个月的冲突缓和进程再
 
 ## 正文
 
-中新社香港6月4日电 香港海关4日通报，在5月19日至28日开展的执法行动中，海关侦破2宗海路走私案件，共检获约5280万支怀疑私烟，市值约2.38亿港元，应课税值约1.75亿港元。
+受人工智能板块利好提振，全球股市周二全线走高：AI 企业 Anthropic 启动赴美上市进程点燃行业做多热情；与此同时，市场对美伊达成和谈的预期升温，国际原油、美债收益率同步下行。
 
-首宗案件中，海关人员在香港青衣验货场及葵涌海关大楼验货场内，挑选及查验6个由中国台湾运抵香港并准备转运至内地的货柜。
+美国总统特朗普表态美伊谈判仍在推进，布伦特原油期货跌幅超 1%，报价 94 美元 / 桶，回吐前一交易日的大幅涨幅。
 
-经检查，海关人员在货柜内共检获约3180万支怀疑私烟。
+此前有消息称伊朗方面暂停与美国的间接停战谈判，这场已持续三个月的冲突缓和进程再生变数、停火前景脆弱，令投资者始终保持谨慎。
 
-在另一宗案件中，海关人员在2个由新加坡运抵香港并准备转运至内地的货柜内，检获约2100万支怀疑私烟。
+欧洲早盘，斯托克 600 指数上涨近 0.8%，意法半导体上调业绩预期带动欧洲科技板块走强。
 
-海关表示，本次行动充分展现香港海关通过与区域内执法机构合作，从源头打击跨境私烟的执法成效。
+AI 投资热潮 人工智能企业 Anthropic 周一官宣，已向美国 SEC 秘密递交 IPO 申请，在备受关注的 AI 巨头上市赛跑中领先竞品 OpenAI。
 
-有关部门会继续推动区域内执法伙伴合作和加强情报交流，严厉打击跨境走私烟草的活动。
+谷歌母公司字母表计划募资 800 亿美元股权资金，加码 AI 基建投入。
 
-(完)
+投资机构 AJ Bell 投资总监拉斯・穆尔德点评：“这直观体现 AI 军备竞赛所需资金体量巨大，科技企业从坐拥充沛自由现金流，转向奔赴资本市场募资扩产，行业格局已发生重大转变。
+
+” 宏观数据层面，美国供应管理协会（ISM）周一公布：5 月美国制造业 PMI 升至 54.0，较 4 月 52.7 显著抬升，优于市场预期、创下四年新高。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 15:05 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 15:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 15:22 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 15:09 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 15:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 15:24 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 15:04 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 15:05 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 15:01 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 15:14 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 15:03 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 15:34 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 15:22 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:10 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 15:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:08 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 15:30 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:14 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 15:27 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 15:17 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 15:35 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 15:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/96081082651.shtml)
-- 2026-06-29 15:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/7099154.shtml)
-- 2026-06-29 15:23 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/85559299.shtml)
-- 2026-06-29 15:19 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/09015408426.shtml)
-- 2026-06-29 15:26 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/94536447.shtml)
-- 2026-06-29 15:11 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/005573.shtml)
-- 2026-06-29 15:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/78161870348.shtml)
-- 2026-06-29 15:03 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/68760820.shtml)
-- 2026-06-29 15:02 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/1364128262.shtml)
-- 2026-06-29 15:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/2327558.shtml)
-- 2026-06-29 15:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/37088.shtml)
-- 2026-06-29 15:21 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/6447100436.shtml)
-- 2026-06-29 15:00 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/63412973693.shtml)
-- 2026-06-29 15:17 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/78235.shtml)
-- 2026-06-29 15:11 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/189511.shtml)
+- 2026-06-29 15:29 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/89200.shtml)
+- 2026-06-29 15:29 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/398082399.shtml)
+- 2026-06-29 15:21 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/48022409.shtml)
+- 2026-06-29 15:14 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/14620830.shtml)
+- 2026-06-29 15:12 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/50747932930.shtml)
+- 2026-06-29 15:32 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/010801687.shtml)
+- 2026-06-29 15:24 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/696861448881.shtml)
+- 2026-06-29 15:16 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/093378016.shtml)
+- 2026-06-29 15:28 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/21409105931.shtml)
+- 2026-06-29 15:28 - [天道](http://www.blog.minike.top/Article/details/590282619857.shtml)
+- 2026-06-29 15:23 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/934116855.shtml)
+- 2026-06-29 15:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/6758349.shtml)
+- 2026-06-29 15:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/25815235631.shtml)
+- 2026-06-29 15:24 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/0979004.shtml)
+- 2026-06-29 15:22 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/9204990.shtml)

@@ -1,58 +1,49 @@
-# 税务律师称，特朗普的“大而美法案”隐藏着针对高收入者的“双重征税”陷阱
+# 视频|6月香港券商最新开户政策：复星证券支持内地人开户，需先有香港银行户口
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-《大而美法案》为高收入者带来了诸多好处。 然而，为富人服务的律师们在近期由国会税收联合委员会撰写的一份解释性文件的脚注中发现了一个隐藏的税务“惊喜”。 律师们告诉媒体，该文件指出，信托和遗产也将受到有限的扣除额度，这意味着它们的收入将被征收两次税。 《大而美法案》对逐项扣除额度进行了限制，尽管如此，它仍然为高收入者带来了许多税收优惠。然而，为富人服务的律师们表示，他们在国会政策
+来源：John香港保险 老虎证券和富途证券相继受到监管处罚后，内地居民能否继续在香港开设证券账户？ 据了解，复星证券内地居民可正常开设证券账户投资港美股，但要求已持有香港银行账户。开户所需资料包括身份证、港澳通行证及入境小白条，另需通过CA认证，提供内地身份证及银联卡即可，相关手续可在门店现场办理。 责任编辑：郝欣煜
 
 ## 正文
 
-《大而美法案》为高收入者带来了诸多好处。
+来源：John香港保险 老虎证券和富途证券相继受到监管处罚后，内地居民能否继续在香港开设证券账户？
 
-然而，为富人服务的律师们在近期由国会税收联合委员会撰写的一份解释性文件的脚注中发现了一个隐藏的税务“惊喜”。
+据了解，复星证券内地居民可正常开设证券账户投资港美股，但要求已持有香港银行账户。
 
-律师们告诉媒体，该文件指出，信托和遗产也将受到有限的扣除额度，这意味着它们的收入将被征收两次税。
+开户所需资料包括身份证、港澳通行证及入境小白条，另需通过CA认证，提供内地身份证及银联卡即可，相关手续可在门店现场办理。
 
-《大而美法案》对逐项扣除额度进行了限制，尽管如此，它仍然为高收入者带来了许多税收优惠。
-
-然而，为富人服务的律师们表示，他们在国会政策幕僚上周发布的税法指南的脚注中发现了一个隐藏的“惊喜”，这可能导致双重征税。
-
-律师们称，扣除上限被意外地施加在了信托和遗产上。
-
-根据律师们对这份文件的解读，即使信托将其全部收入分配给受益人，它也必须对其中一部分收入缴纳税款。
-
-律师们表示，虽然这对超级富豪的信托和遗产影响更大，但即使是收入仅为16，000美元的信托也将面临额外税收。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 15:25 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 15:21 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 15:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 15:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 15:02 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 15:12 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 15:28 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 15:00 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 15:00 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 15:28 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 15:20 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 15:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 15:23 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 15:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 15:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 15:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 15:23 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 15:14 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 15:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 15:15 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 15:22 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 15:22 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/2602975.shtml)
-- 2026-06-29 15:07 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/4665868362.shtml)
-- 2026-06-29 15:05 - [沉睡花园](http://www.blog.minike.top/Article/details/2453846.shtml)
-- 2026-06-29 15:26 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/858268834587.shtml)
-- 2026-06-29 15:05 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/1248963.shtml)
-- 2026-06-29 15:17 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/488206.shtml)
-- 2026-06-29 15:17 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/247435.shtml)
-- 2026-06-29 15:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/107990745933.shtml)
-- 2026-06-29 15:01 - [中国战机大片上新](https://www.share.minike.top/Article/details/49782.shtml)
-- 2026-06-29 15:27 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/4612693.shtml)
-- 2026-06-29 15:11 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/29841454154.shtml)
-- 2026-06-29 15:08 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/529462536.shtml)
-- 2026-06-29 15:00 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/7665976.shtml)
-- 2026-06-29 15:01 - [AG 钟意](https://www.blog.minike.top/Article/details/5651023359.shtml)
-- 2026-06-29 15:22 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/83432.shtml)
+- 2026-06-29 15:31 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/970758423152.shtml)
+- 2026-06-29 15:06 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/06913813850.shtml)
+- 2026-06-29 15:26 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/001763899.shtml)
+- 2026-06-29 15:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/389417105363.shtml)
+- 2026-06-29 15:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/4291479829.shtml)
+- 2026-06-29 15:29 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/54054091992.shtml)
+- 2026-06-29 15:25 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/72012543673.shtml)
+- 2026-06-29 15:15 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/357294.shtml)
+- 2026-06-29 15:27 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/90780.shtml)
+- 2026-06-29 15:12 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/306352817.shtml)
+- 2026-06-29 15:08 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/3013128498.shtml)
+- 2026-06-29 15:16 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/527690.shtml)
+- 2026-06-29 15:14 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/2554149484.shtml)
+- 2026-06-29 15:08 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/0909485159.shtml)
+- 2026-06-29 15:21 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/31018.shtml)

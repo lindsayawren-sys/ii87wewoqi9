@@ -1,61 +1,57 @@
-# 美债市场“野兽”咆哮回归 凸性对冲恐加剧波动
+# 原油价格延续涨势 美伊和平谈判进展停滞且地区冲突再起
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。 当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。 对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。这种策略被
+油价连续第三天上涨，投资者对美国和伊朗达成和平协议的前景感到悲观，并且中东地区再次出现新的冲突。 布伦特油价升向每桶97美元；WTI原油期货在95美元附近波动，本周前两个交易日上涨超过7%。以色列继续袭击黎巴嫩，令华盛顿和德黑兰之间脆弱的马拉松式谈判受到影响，与此同时，伊朗向周边国家发射了导弹。 以色列和黎巴嫩之间的又一轮会谈定于周三举行。美国总统唐纳德·特朗普说，他仍然乐观认
 
 ## 正文
 
-上个月美国债市抛售最严重的时期，Vishal Khanduja察觉到了一个不同寻常的情况。
+油价连续第三天上涨，投资者对美国和伊朗达成和平协议的前景感到悲观，并且中东地区再次出现新的冲突。
 
-当时，最长期美债收益率飙升至19年高点，期货抛售巨浪席卷市场，抵押贷款支持证券首当其冲。
+布伦特油价升向每桶97美元；WTI原油期货在95美元附近波动，本周前两个交易日上涨超过7%。
 
-对于在华尔街从业二十载的摩根士丹利投资管理投资组合经理Khanduja来说，这是一个明显信号：许多像他一样的人正争先恐后地从事受益于美债进一步下跌的交易，以此防范住房债券进一步下跌的风险。
+以色列继续袭击黎巴嫩，令华盛顿和德黑兰之间脆弱的马拉松式谈判受到影响，与此同时，伊朗向周边国家发射了导弹。
 
-这种策略被称为凸性对冲。
+以色列和黎巴嫩之间的又一轮会谈定于周三举行。
 
-“这可是件大事，”他说。
+美国总统唐纳德·特朗普说，他仍然乐观认为美国可以很快与德黑兰达成临时和平协议，驳斥了伊朗国家媒体关于因黎巴嫩战事而暂停与华盛顿谈判的报道。
 
-“我们很长一段时间都没讨论过它了。
+“美国和伊朗之间的分歧表明，要达成恢复通航的协议都还有很长的路要走，”ING集团新加坡大宗商品策略主管Warren Patterson表示。
 
-” 这种策略的复兴势头正逐渐增强，有可能给31万亿美元美债市场注入新的波动性。
+“风险偏向上行，尤其是在我们即将进入第三季度之际，因为第三季度通常是需求旺季。
 
-受中东动荡局势、美联储领导层更换、政府债务激增以及人工智能投资热潮（通过大量发行新债进行融资）影响，美债市场本已饱受冲击。
+” 与此同时，中东地区的冲突再现。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 15:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 15:11 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 15:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 15:02 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 15:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 15:23 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 15:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 15:01 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 15:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 15:19 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:00 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 15:06 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 15:06 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 15:23 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 15:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 15:06 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 15:30 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:25 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 15:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 15:09 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 15:08 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 15:17 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:19 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 15:23 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/38249.shtml)
-- 2026-06-29 15:00 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/486711.shtml)
-- 2026-06-29 15:00 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/080642631645.shtml)
-- 2026-06-29 15:12 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/5620627921.shtml)
-- 2026-06-29 15:05 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/4877064112.shtml)
-- 2026-06-29 15:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/56539133514.shtml)
-- 2026-06-29 15:00 - [一生一世](http://www.blog.minike.top/Article/details/8954073.shtml)
-- 2026-06-29 15:12 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/24744.shtml)
-- 2026-06-29 15:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/619034855.shtml)
-- 2026-06-29 15:24 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/126685140.shtml)
-- 2026-06-29 15:04 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/6008123.shtml)
-- 2026-06-29 15:28 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/604609.shtml)
-- 2026-06-29 15:09 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/732813180532.shtml)
-- 2026-06-29 15:02 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/72957985752.shtml)
-- 2026-06-29 15:16 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/78577.shtml)
+- 2026-06-29 15:32 - [美的空调 卡bug](https://www.share.minike.top/Article/details/0105157753.shtml)
+- 2026-06-29 15:30 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/030361720.shtml)
+- 2026-06-29 15:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/70794822.shtml)
+- 2026-06-29 15:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/401362507255.shtml)
+- 2026-06-29 15:35 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/196012553269.shtml)
+- 2026-06-29 15:13 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/15993313.shtml)
+- 2026-06-29 15:35 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/37839.shtml)
+- 2026-06-29 15:21 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/03857533587.shtml)
+- 2026-06-29 15:34 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/2830261435.shtml)
+- 2026-06-29 15:25 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/98183780.shtml)
+- 2026-06-29 15:12 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/521712.shtml)
+- 2026-06-29 15:35 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/349946892158.shtml)
+- 2026-06-29 15:32 - [毒液2](https://www.share.kurohicncr.top/Article/details/7435166177.shtml)
+- 2026-06-29 15:19 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/81633759504.shtml)
+- 2026-06-29 15:34 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/367817.shtml)

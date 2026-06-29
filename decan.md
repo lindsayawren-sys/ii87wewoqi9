@@ -1,56 +1,57 @@
-# 青海互助：高山杜鹃迎盛放期
+# X-energy向英国提交Xe-100高温气冷堆通用设计审查申请
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-美国“抢”铜，扰乱全球供应链秩序重逢泪奔！台湾“中天小姐姐”再回胡同看望“北京奶奶”中央统战部官方快手号“统战新语”上线 多个官号关注并留言招聘需求暴涨！“AI圈最火岗位”，到底是干嘛的？西藏风光无限，击碎环保谣言 教育部发布2026年高考十问十答美媒：先后部署到委内瑞拉和伊朗，美军“福特”号航母损毁严重职工医保个人账户跨省共济来了 近亲属可用“空调开26℃最省电”，是真的吗？
+先进核反应堆开发商X-energy周二宣布，已向英国提交Xe-100高温气冷堆的通用设计审查申请，标志着该公司在英国部署首座先进核电机组的计划迈出正式一步。 通用设计审查是英国为新核能技术颁发许可证的既定监管路径，由英国核监管办公室、环境署、威尔士自然资源部和能源安全与净零排放部共同管理，独立于具体厂址因素评估安全性、安保、保障措施及环境影响。审查预计将于2029年底前完成。
 
 ## 正文
 
-美国“抢”铜，扰乱全球供应链秩序重逢泪奔！
+先进核反应堆开发商X-energy周二宣布，已向英国提交Xe-100高温气冷堆的通用设计审查申请，标志着该公司在英国部署首座先进核电机组的计划迈出正式一步。
 
-台湾“中天小姐姐”再回胡同看望“北京奶奶”中央统战部官方快手号“统战新语”上线 多个官号关注并留言招聘需求暴涨！
+通用设计审查是英国为新核能技术颁发许可证的既定监管路径，由英国核监管办公室、环境署、威尔士自然资源部和能源安全与净零排放部共同管理，独立于具体厂址因素评估安全性、安保、保障措施及环境影响。
 
-“AI圈最火岗位”，到底是干嘛的？
+审查预计将于2029年底前完成。
 
-西藏风光无限，击碎环保谣言 教育部发布2026年高考十问十答美媒：先后部署到委内瑞拉和伊朗，美军“福特”号航母损毁严重职工医保个人账户跨省共济来了 近亲属可用“空调开26℃最省电”，是真的吗？
+Xe-100是一种80兆瓦电力的高温气冷反应堆，可提供200兆瓦热力，采用四模块或十二模块配置部署，既能发电，也可为工业应用提供高温蒸汽和热能。
 
-今天没出汗，可以不洗澡吗？
+该反应堆使用氦气而非水作为冷却剂，具备非能动安全特性，即便在完全断电且无人干预的极端情况下，也能依靠物理特性自然停堆。
 
-答案出乎意料“爱眼日”将至，请看这份护眼手册央地协同如何重塑重庆数字水网体系？
+其TRISO-X颗粒燃料将铀核包裹在多层碳和陶瓷材料中，能够承受超过1600°C的极端温度，放射性物质被永久封锁在燃料颗粒内。
 
-赖清德批小红书，是在怕什么？
+X-energy自2024年起通过早期接触流程与英国监管机构保持积极对话。
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？
+此次提交基于其在美国核管会的许可进展，英国核监管办公室与美国核管会之间的一项新合作允许直接转移设计文件和安全分析，有望加速英国的审批进程。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:17 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 15:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 15:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 15:26 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 15:07 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 15:04 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 15:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 15:15 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:13 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 15:22 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 15:06 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 15:20 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 15:09 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 15:11 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 15:18 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 15:18 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 15:06 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 15:13 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 15:32 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [当我回母校教书](http://www.blog.minike.top/Article/details/123393.shtml)
-- 2026-06-29 15:13 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/825625044.shtml)
-- 2026-06-29 15:20 - [AG 钟意](http://www.share.minike.top/Article/details/6038805718.shtml)
-- 2026-06-29 15:01 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/624390615329.shtml)
-- 2026-06-29 15:17 - [20年前的周杰伦](http://www.share.minike.top/Article/details/17033578107.shtml)
-- 2026-06-29 15:28 - [极限挑战第一季](http://www.blog.minike.top/Article/details/91233468.shtml)
-- 2026-06-29 15:13 - [扬名立万](http://www.share.kurohicncr.top/Article/details/9681102888.shtml)
-- 2026-06-29 15:00 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/106314798482.shtml)
-- 2026-06-29 15:29 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/24648289.shtml)
-- 2026-06-29 15:06 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/45131855592.shtml)
-- 2026-06-29 15:09 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/88926494.shtml)
-- 2026-06-29 15:06 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/39266811597.shtml)
-- 2026-06-29 15:08 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/47302229197.shtml)
-- 2026-06-29 15:14 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/45580779.shtml)
-- 2026-06-29 15:25 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/38608.shtml)
+- 2026-06-29 15:16 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/59691.shtml)
+- 2026-06-29 15:07 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/332613141.shtml)
+- 2026-06-29 15:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/29750536.shtml)
+- 2026-06-29 15:31 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/289485895707.shtml)
+- 2026-06-29 15:32 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/8294601745.shtml)
+- 2026-06-29 15:28 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/041240500.shtml)
+- 2026-06-29 15:13 - [爸爸当家](https://www.share.minike.top/Article/details/64763.shtml)
+- 2026-06-29 15:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/1835437464.shtml)
+- 2026-06-29 15:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/24152757.shtml)
+- 2026-06-29 15:06 - [流金岁月](http://www.blog.minike.top/Article/details/907886235179.shtml)
+- 2026-06-29 15:23 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/4712250222.shtml)
+- 2026-06-29 15:33 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/5675340960.shtml)
+- 2026-06-29 15:18 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/24097433.shtml)
+- 2026-06-29 15:20 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/82055.shtml)
+- 2026-06-29 15:06 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/870396638.shtml)

@@ -1,60 +1,56 @@
-# 海南推出30余条银发旅游线路 邀老年人来琼“康养旅居”
+# 际华集团（601718）、卓朗科技（600225）投资者索赔再提交法院立案
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网海口6月5日电 (张茜翼 黄方舟)当“养老”遇见“诗与远方”，海南正试图为老年人打开一种全新的生活方式。记者从5日举行的“海南自贸港政策解读”系列主题新闻发布会——推动养老服务高质量发展专场获悉，海南正加速推进“旅游+养老”深度融合，向全国老年人发出“康养旅居”邀请。海南“旅游+养老”产业已取得多方面积极进展。海南省旅游和文化广电体育厅二级巡视员袁绪良表示，海南不仅推出包
+2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的一批际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚
 
 ## 正文
 
-中新网海口6月5日电 (张茜翼 黄方舟)当“养老”遇见“诗与远方”，海南正试图为老年人打开一种全新的生活方式。
+2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的一批际华集团（601718）虚假陈述投资者索赔案再向北京金融法院提交一次立案。
 
-记者从5日举行的“海南自贸港政策解读”系列主题新闻发布会——推动养老服务高质量发展专场获悉，海南正加速推进“旅游+养老”深度融合，向全国老年人发出“康养旅居”邀请。
+许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排。
 
-海南“旅游+养老”产业已取得多方面积极进展。
+律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-海南省旅游和文化广电体育厅二级巡视员袁绪良表示，海南不仅推出包括“博鳌乐城·福寿安康”在内的30余条康养银发旅游线路，还同步优化“银发康养”“银发休闲”“银发游学养”三大主题8条精品线路，以满足多元化需求。
+（许峰律师专栏） 2026年4月30日晚，际华集团公告收到证监会下发的《行政处罚事先告知书》，经查明，际华集团及相关人员违法事实如下： （一）际华集团跨期确认土地出售收入导致虚减利润际华集团全资子公司跨期确认襄阳土地出售收入，导致际华集团2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
 
-在宣传推广方面，海南今年已赴福建宁德、江苏扬州、四川乐山、陕西西安及渭南等13个省市举办“康养旅居看海南”专题推介会。
+（二）际华集团通过开展融资性贸易虚增营业收入、营业成本。
 
-袁绪良介绍道，由海南省旅游和文化广电体育厅牵头制定的《康养旅居服务规范》已正式发布施行，为行业发展提供标准支撑。
+（三）际华集团通过开展代理业务虚增营业收入、营业成本。
 
-此外，海南还通过海南自贸港全球产业招商大会等平台，成功签约“康养+医疗”“铁路+文旅+康养”等产业融合项目，多个重点意向项目也在持续跟进。
+综上，际华集团2018年至2021年年度报告分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业收入的22.48%、14.17%、3.68%、6.54%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业成本的22.29%、14.04%、3.60%、6.51%。
 
-安全与适老服务同样被放在重要位置。
+同时，2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 15:11 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 15:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:06 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 15:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 15:22 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 15:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 15:28 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 15:15 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 15:18 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 15:22 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 15:17 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 15:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 15:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 15:35 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 15:23 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 15:18 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 15:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 15:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 15:08 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 15:06 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 15:21 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 15:35 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 15:19 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [这一刀 会很帅](https://www.share.minike.top/Article/details/527584.shtml)
-- 2026-06-29 15:00 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/93370863.shtml)
-- 2026-06-29 15:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/52234.shtml)
-- 2026-06-29 15:23 - [周生如故](https://www.blog.minike.top/Article/details/97832218.shtml)
-- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/2346600.shtml)
-- 2026-06-29 15:25 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/50280642009.shtml)
-- 2026-06-29 15:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/268202534159.shtml)
-- 2026-06-29 15:25 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/04193535908.shtml)
-- 2026-06-29 15:16 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/36149.shtml)
-- 2026-06-29 15:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/25389965881.shtml)
-- 2026-06-29 15:12 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/516616435966.shtml)
-- 2026-06-29 15:18 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9499068.shtml)
-- 2026-06-29 15:23 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/60082912.shtml)
-- 2026-06-29 15:18 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/821754298145.shtml)
-- 2026-06-29 15:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/635082177342.shtml)
+- 2026-06-29 15:10 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/63187929124.shtml)
+- 2026-06-29 15:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/698142392385.shtml)
+- 2026-06-29 15:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/37844624.shtml)
+- 2026-06-29 15:33 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/656192231.shtml)
+- 2026-06-29 15:11 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/36599191.shtml)
+- 2026-06-29 15:16 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/16837895.shtml)
+- 2026-06-29 15:21 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/04824.shtml)
+- 2026-06-29 15:10 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/919112.shtml)
+- 2026-06-29 15:20 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/984594114007.shtml)
+- 2026-06-29 15:30 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/11316716356.shtml)
+- 2026-06-29 15:09 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/10003489.shtml)
+- 2026-06-29 15:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/764380.shtml)
+- 2026-06-29 15:08 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/4334285.shtml)
+- 2026-06-29 15:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/49191.shtml)
+- 2026-06-29 15:06 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/05050949.shtml)

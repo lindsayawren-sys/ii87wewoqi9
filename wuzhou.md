@@ -1,60 +1,56 @@
-# 锦泰财险“补位”董秘：高崇慧获批出任副总经理兼董事会秘书
+# 智谱、MiniMax“齐入”恒指，谁在导演这场千亿“接盘”戏码？
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 6月3日，锦泰财产保险股份有限公司（证券简称：锦泰保险，证券代码：870026）发布正式公告称，高崇慧已获批出任公司副总经理兼董事会秘书。 图源：公司公告 事实上，高崇慧与锦泰财险的渊源已有五年。 2026年4月，高崇慧辞去公司董事及董事会一切职务，理由为“工作调整”，彼时市场即猜测其将转赴经营层任职。果不其然，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 2026年涨势凶猛的AI“双雄”智谱、MiniMax即将加入恒生综合指数以及恒生科技指数，距离进入港股通也渐行渐近。目前，外界关乎两者的“接盘论”讨论激烈，而在港股市场“入通即崩”愈演愈烈的当下，究竟是哪些资本在导演这场接盘戏码呢？ 恒生系列指数的“迎新季”将至。 5月22日，恒生
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 6月3日，锦泰财产保险股份有限公司（证券简称：锦泰保险，证券代码：870026）发布正式公告称，高崇慧已获批出任公司副总经理兼董事会秘书。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-图源：公司公告 事实上，高崇慧与锦泰财险的渊源已有五年。
+来源：环球老虎财经app 2026年涨势凶猛的AI“双雄”智谱、MiniMax即将加入恒生综合指数以及恒生科技指数，距离进入港股通也渐行渐近。
 
-2026年4月，高崇慧辞去公司董事及董事会一切职务，理由为“工作调整”，彼时市场即猜测其将转赴经营层任职。
+目前，外界关乎两者的“接盘论”讨论激烈，而在港股市场“入通即崩”愈演愈烈的当下，究竟是哪些资本在导演这场接盘戏码呢？
 
-果不其然，公司第四届董事会第十四次会议已审议通过聘任其为副总经理、董事会秘书的议案。
+恒生系列指数的“迎新季”将至。
 
-而此次获得监管批准，靴子终于落地。
+5月22日，恒生指数公司公布了最新一期指数调仓名单。
 
-这意味着高崇慧完成了一次从“股东决策层”到“实务经营层”的身份切换。
+其中，恒生综合指数、恒生科技指数成分股均新增智谱、MiniMax。
 
-履历显示，高崇慧，1982年出生，拥有硕士学位，其整个职业生涯都集中在成都市区属金融和国资投融资领域中：从成都市现代农业发展投资有限公司开始做起，先后担任农产融担项目的管理者、公司副总，之后又成为成都市现代农业融资担保有限公司的总经理、董事长，并于2020年起接手成都锦融投资控股有限公司的工作。
+若加入恒生科技指数，智谱可能在6月8日即可纳入港股通。
 
-涉农金融、融资担保以及地方国资运作背景和锦泰财险长期以来从事的农险、责任险等业务方向相契合。
+而MiniMax同股不同权，其在后续满足市值与成交额的条件下，有望于8月纳入港股通。
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 15:29 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 15:26 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 15:24 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 15:12 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 15:13 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 15:10 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 15:29 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 15:18 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:00 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 15:29 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 15:01 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 15:01 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 15:23 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 15:34 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 15:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 15:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 15:30 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 15:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 15:22 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 15:24 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 15:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/042186.shtml)
-- 2026-06-29 15:25 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/61875526.shtml)
-- 2026-06-29 15:06 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/7505692504.shtml)
-- 2026-06-29 15:11 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/77571893.shtml)
-- 2026-06-29 15:15 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/6369520566.shtml)
-- 2026-06-29 15:05 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/9868133418.shtml)
-- 2026-06-29 15:25 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/892345.shtml)
-- 2026-06-29 15:28 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/007102.shtml)
-- 2026-06-29 15:27 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/3835125.shtml)
-- 2026-06-29 15:26 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/10830847666.shtml)
-- 2026-06-29 15:16 - [女心理师](http://www.blog.minike.top/Article/details/83967946273.shtml)
-- 2026-06-29 15:29 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/77617999.shtml)
-- 2026-06-29 15:27 - [啊啊啊](http://www.share.minike.top/Article/details/484991222.shtml)
-- 2026-06-29 15:26 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/9960017.shtml)
-- 2026-06-29 15:00 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/315667746997.shtml)
+- 2026-06-29 15:23 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/79627619126.shtml)
+- 2026-06-29 15:30 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/1594835173.shtml)
+- 2026-06-29 15:35 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/694299239684.shtml)
+- 2026-06-29 15:12 - [吴建豪老婆](https://www.share.minike.top/Article/details/244139947466.shtml)
+- 2026-06-29 15:29 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/79907120571.shtml)
+- 2026-06-29 15:09 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/14904653.shtml)
+- 2026-06-29 15:15 - [小娘惹](https://www.blog.minike.top/Article/details/9234817496.shtml)
+- 2026-06-29 15:09 - [20年前的周杰伦](http://www.share.minike.top/Article/details/07006067.shtml)
+- 2026-06-29 15:35 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/08156145.shtml)
+- 2026-06-29 15:28 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/862360183184.shtml)
+- 2026-06-29 15:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/74624950621.shtml)
+- 2026-06-29 15:22 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/715044832905.shtml)
+- 2026-06-29 15:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/293115521617.shtml)
+- 2026-06-29 15:17 - [沉睡花园](http://www.blog.minike.top/Article/details/2570994633.shtml)
+- 2026-06-29 15:22 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/83599758455.shtml)

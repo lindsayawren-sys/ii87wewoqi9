@@ -1,61 +1,57 @@
-# 成品油价年内第二降！加满一箱少花20.5元
+# 夏日美食湖北小龙虾热销海外
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新经纬6月4日电 据国家发改委网站6月4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油(标准品)价格每吨分别下调525元、505元。 来源：国家发改委网站 据央视财经测算，用92号汽油加满50升的油箱将少花20.5元
+中新社武汉6月1日电 (武一力 熊皖扬 张阮璐)记者1日从武汉海关获悉，夏日来临，湖北小龙虾成为颇受食客青睐的“顶流”美食，热销海外市场。湖北小龙虾等特色水产外贸，正从初级产品外销向“品质+品牌”双向升级。 湖北有“千湖之省”之称，水产品丰富。武汉海关所属仙桃海关关区所在的潜江、天门等地是湖北小龙虾的主要产区，其中调味虾、虾尾等产品成为“出海”名片。今年1月至4月，仙桃海关共监
 
 ## 正文
 
-中新经纬6月4日电 据国家发改委网站6月4日消息，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。
+中新社武汉6月1日电 (武一力 熊皖扬 张阮璐)记者1日从武汉海关获悉，夏日来临，湖北小龙虾成为颇受食客青睐的“顶流”美食，热销海外市场。
 
-根据国际市场油价变化情况，自6月4日24时起，国内汽、柴油(标准品)价格每吨分别下调525元、505元。
+湖北小龙虾等特色水产外贸，正从初级产品外销向“品质+品牌”双向升级。
 
-来源：国家发改委网站 据央视财经测算，用92号汽油加满50升的油箱将少花20.5元。
+湖北有“千湖之省”之称，水产品丰富。
 
-中新经纬注意到，本轮调价为年内第11次调价窗口。
+武汉海关所属仙桃海关关区所在的潜江、天门等地是湖北小龙虾的主要产区，其中调味虾、虾尾等产品成为“出海”名片。
 
-此次调价后，2026年的调价格局变为“八涨两跌一搁浅”。
+今年1月至4月，仙桃海关共监管出口小龙虾制品617.3吨，同比增长29.8%。
 
-根据“十个工作日”原则，下一轮成品油零售调价窗口将在2026年6月18日24时开启。
+近日，在湖北潜江某食品公司生产车间内，一批批包装完好的小龙虾产品经过清洗分拣、蒸煮调味、真空包装全流程作业和严格检疫检测，办结海关通关手续后，迅速发往海外市场。
 
-展望后市，卓创资讯成品油分析师曹莹莹表示，从各个地区的石油库存来看，基本上均处于去库阶段，基本面提供支撑，短期油价维持区间波动。
+“我们持续深耕国际生鲜及预制菜市场，在东南亚、中东、欧洲等地区搭建了稳定经销渠道。
 
-在她看来，如果霍尔木兹海峡长期停航，油价波动重心不排除继续走高。
+今年小龙虾海外订单量较去年有所回升，出口销量实现稳步增长。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 15:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 15:02 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 15:05 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 15:29 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 15:29 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 15:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 15:07 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 15:07 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 15:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 15:19 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:26 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 15:20 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 15:35 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 15:28 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 15:27 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 15:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 15:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 15:23 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 15:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 15:11 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 15:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 15:30 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 15:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/6966625460.shtml)
-- 2026-06-29 15:00 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/674448.shtml)
-- 2026-06-29 15:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/76033845137.shtml)
-- 2026-06-29 15:15 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/100357.shtml)
-- 2026-06-29 15:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/434767.shtml)
-- 2026-06-29 15:21 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/87845.shtml)
-- 2026-06-29 15:24 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/57958.shtml)
-- 2026-06-29 15:01 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/762803056.shtml)
-- 2026-06-29 15:09 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/0366590345.shtml)
-- 2026-06-29 15:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/21871.shtml)
-- 2026-06-29 15:03 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/327592690.shtml)
-- 2026-06-29 15:24 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/78596405.shtml)
-- 2026-06-29 15:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/67270513154.shtml)
-- 2026-06-29 15:00 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/60249124824.shtml)
-- 2026-06-29 15:21 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/555999.shtml)
+- 2026-06-29 15:21 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/38480664.shtml)
+- 2026-06-29 15:11 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/132177.shtml)
+- 2026-06-29 15:25 - [乔家的儿女](https://www.share.minike.top/Article/details/100411431.shtml)
+- 2026-06-29 15:26 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/74690204978.shtml)
+- 2026-06-29 15:22 - [乔家的儿女](https://www.blog.minike.top/Article/details/700053655.shtml)
+- 2026-06-29 15:24 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/10615855284.shtml)
+- 2026-06-29 15:34 - [博主：全球股市进入“AI极端共振”](http://www.blog.kurohicncr.top/Article/details/25846955.shtml)
+- 2026-06-29 15:16 - [NBA交易](https://www.blog.minike.top/Article/details/43516031333.shtml)
+- 2026-06-29 15:16 - [吴建豪老婆](https://www.share.minike.top/Article/details/87121.shtml)
+- 2026-06-29 15:18 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/529669691388.shtml)
+- 2026-06-29 15:17 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/670464920277.shtml)
+- 2026-06-29 15:30 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/75579997.shtml)
+- 2026-06-29 15:20 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/63768285153.shtml)
+- 2026-06-29 15:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/178678906283.shtml)
+- 2026-06-29 15:09 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/3145471.shtml)

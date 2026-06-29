@@ -1,56 +1,49 @@
-# xAI要求Grok深度伪造色情图像案原告以真实姓名起诉
+# 星太链集团接获联交所复牌指引 继续停牌
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-法庭文件显示，马斯克旗下人工智能公司xAI已向法院提交申请，要求四名原告在一项涉及Grok深度伪造色情图像的拟议集体诉讼中，以真实姓名提起诉讼。 原告方面认为，公开他们的身份可能会加剧骚扰风险，并加重宣誓陈述中所述的个人后果。 法庭文件显示，原告目前登记为南卡罗来纳州 Doe、南卡罗来纳州 Roe、新泽西州 Doe 和俄亥俄州 Doe，这些原告会向 xAI披露自身真实身份，但在
+星太链集团（00399）发并公告，于2026年5月28日，本公司已接获联交所的函件，当中载列以下关于恢复股份买卖的指引（复牌指引）： （i） 证明本公司遵守上市规则第13.24条；及 （ii） 告知市场所有重要资料，以供本公司股东及投资者评估本公司的状况。 此外，公司股份继续停牌。责任编辑：卢昱君
 
 ## 正文
 
-法庭文件显示，马斯克旗下人工智能公司xAI已向法院提交申请，要求四名原告在一项涉及Grok深度伪造色情图像的拟议集体诉讼中，以真实姓名提起诉讼。
+星太链集团（00399）发并公告，于2026年5月28日，本公司已接获联交所的函件，当中载列以下关于恢复股份买卖的指引（复牌指引）： （i） 证明本公司遵守上市规则第13.24条；及 （ii） 告知市场所有重要资料，以供本公司股东及投资者评估本公司的状况。
 
-原告方面认为，公开他们的身份可能会加剧骚扰风险，并加重宣誓陈述中所述的个人后果。
+此外，公司股份继续停牌。
 
-法庭文件显示，原告目前登记为南卡罗来纳州 Doe、南卡罗来纳州 Roe、新泽西州 Doe 和俄亥俄州 Doe，这些原告会向 xAI披露自身真实身份，但在公开案件卷宗中继续使用上述化名。
-
-xAI的律师辩称，民事诉讼通常要求明确列明被告，且公众有理由了解是谁在对公司提起诉讼。
-
-他们还指出，原告并未证明存在具体威胁进一步损害的情况，并提到法院正在对争议图像进行封存处理。
-
-xAI的代理律师在5月15日提交的法律文书中写道：“抛开深度伪造图片本身不谈（该图片将继续封存不予公开），在不披露原图的前提下，仅对外说明有人制作了针对南卡罗来纳州匿名原告的深度伪造图像，这件事本身并不会带来名誉污损。
-
-因此，本案并不涉及法律上历来认定、需要采用化名应诉的重大隐私权益。
-
-” 原告方提交了书面宣誓证词，详述自身遭受的精神损害，并表示倘若被迫使用真实姓名参与诉讼，或将撤诉。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 15:04 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 15:23 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 15:14 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 15:23 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 15:20 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:05 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 15:09 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 15:02 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 15:08 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 15:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 15:14 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 15:29 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 15:30 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 15:33 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 15:23 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 15:27 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:20 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 15:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 15:33 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 15:10 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 15:29 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/883225188.shtml)
-- 2026-06-29 15:00 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/3700715691.shtml)
-- 2026-06-29 15:12 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/41816.shtml)
-- 2026-06-29 15:28 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/84345379511.shtml)
-- 2026-06-29 15:05 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/08438736.shtml)
-- 2026-06-29 15:18 - [当我回母校教书](http://www.blog.minike.top/Article/details/5951233160.shtml)
-- 2026-06-29 15:18 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/1974333859.shtml)
-- 2026-06-29 15:21 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/9587886071.shtml)
-- 2026-06-29 15:09 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/458785.shtml)
-- 2026-06-29 15:02 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/969874814.shtml)
-- 2026-06-29 15:04 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/1978823951.shtml)
-- 2026-06-29 15:12 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/517304257028.shtml)
-- 2026-06-29 15:00 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/40318.shtml)
-- 2026-06-29 15:01 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/708162870015.shtml)
-- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/20580380631.shtml)
+- 2026-06-29 15:12 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/235489149.shtml)
+- 2026-06-29 15:26 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/65948651001.shtml)
+- 2026-06-29 15:34 - [急先锋](https://www.share.kurohicncr.top/Article/details/1406361.shtml)
+- 2026-06-29 15:21 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/3025526503.shtml)
+- 2026-06-29 15:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/63932.shtml)
+- 2026-06-29 15:15 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/66137217.shtml)
+- 2026-06-29 15:21 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/9602010818.shtml)
+- 2026-06-29 15:18 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/0469094759.shtml)
+- 2026-06-29 15:17 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/20037213.shtml)
+- 2026-06-29 15:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/88597.shtml)
+- 2026-06-29 15:22 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/42181098.shtml)
+- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/4190883.shtml)
+- 2026-06-29 15:22 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/27407393843.shtml)
+- 2026-06-29 15:24 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/854149.shtml)
+- 2026-06-29 15:35 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/53741.shtml)

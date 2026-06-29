@@ -1,59 +1,57 @@
-# Matador Resources与Energy Transfer签署战略协议 提升天然气变现能力
+# 科技股，大反攻！002384，昨天跌停今天涨停
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-Matador Resources Company近日宣布，已与Energy Transfer LP的关联公司签订多项协议，包括一项天然气供应协议及独立的天然气液体协议。此次交易旨在改善公司的综合定价净回报，并降低2026年下半年对Waha Hub定价的风险敞口。 根据协议，Matador将其特拉华盆地多个来源的天然气液体产品进行专项指定并出售给Energy Transfer。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】科技股大反攻，东山精密，昨天跌停，今天涨停！ 中国基金报记者 泰勒 今天的市场，就是一个“K”型结构，全靠科技股把指数拉上去。与此同时，个股跌多涨少。 6月2日，沪指全天探底回升，创业板指走势较强。截至收盘，沪指涨0.43%，深成指涨1.63%，创业板指涨2.66%。 市场共154
 
 ## 正文
 
-Matador Resources Company近日宣布，已与Energy Transfer LP的关联公司签订多项协议，包括一项天然气供应协议及独立的天然气液体协议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次交易旨在改善公司的综合定价净回报，并降低2026年下半年对Waha Hub定价的风险敞口。
+来源：中国基金报 【导读】科技股大反攻，东山精密，昨天跌停，今天涨停！
 
-根据协议，Matador将其特拉华盆地多个来源的天然气液体产品进行专项指定并出售给Energy Transfer。
+中国基金报记者 泰勒 今天的市场，就是一个“K”型结构，全靠科技股把指数拉上去。
 
-这一安排是公司为在二叠纪盆地天然气产量激增的背景下保障价格所做的最新努力。
+与此同时，个股跌多涨少。
 
-此次合作的核心背景在于运输能力的衔接。
+6月2日，沪指全天探底回升，创业板指走势较强。
 
-2025年10月30日，Matador已在Energy Transfer的Hugh Brinson管道上确保了每日50万MMBtu的固定运输容量，可将天然气从二叠纪盆地输送至历史上需求和定价显著高于Waha Hub的销售点。
+截至收盘，沪指涨0.43%，深成指涨1.63%，创业板指涨2.66%。
 
-此次新签署的天然气供应协议预计将在Hugh Brinson管道的运输协议生效前起到“桥梁”作用，使公司能够在此过渡期内为其部分天然气产量实现更高的价格。
+市场共1543只个股上涨，96只个股涨停，3876只个股下跌。
 
-该协议同时预计将为Energy Transfer提供天然气，以满足AI驱动的数据中心及发电市场日益增长的需求。
+CPO概念板块暴涨，多股涨停。
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 15:14 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 15:27 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 15:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 15:13 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 15:04 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 15:20 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 15:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 15:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 15:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 15:19 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 15:06 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 15:21 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 15:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 15:14 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 15:12 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 15:30 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 15:33 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 15:17 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 15:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/29956.shtml)
-- 2026-06-29 15:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/1710974667.shtml)
-- 2026-06-29 15:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/19609283097.shtml)
-- 2026-06-29 15:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/872426362992.shtml)
-- 2026-06-29 15:08 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/859205796.shtml)
-- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/280973730599.shtml)
-- 2026-06-29 15:15 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/50736.shtml)
-- 2026-06-29 15:18 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/86071.shtml)
-- 2026-06-29 15:24 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/13454.shtml)
-- 2026-06-29 15:03 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/245793799807.shtml)
-- 2026-06-29 15:21 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/24741404135.shtml)
-- 2026-06-29 15:21 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/46436.shtml)
-- 2026-06-29 15:23 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/41018720515.shtml)
-- 2026-06-29 15:23 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/4668983994.shtml)
-- 2026-06-29 15:18 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/821789372.shtml)
+- 2026-06-29 15:15 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/660361.shtml)
+- 2026-06-29 15:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/9038459653.shtml)
+- 2026-06-29 15:25 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/75499384110.shtml)
+- 2026-06-29 15:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/637290719484.shtml)
+- 2026-06-29 15:19 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/257468864.shtml)
+- 2026-06-29 15:24 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/8991736866.shtml)
+- 2026-06-29 15:21 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/92157422254.shtml)
+- 2026-06-29 15:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/0275617.shtml)
+- 2026-06-29 15:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/149138191.shtml)
+- 2026-06-29 15:27 - [105年初心滚烫](http://www.blog.minike.top/Article/details/53264114935.shtml)
+- 2026-06-29 15:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/247981368519.shtml)
+- 2026-06-29 15:35 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/8926502.shtml)
+- 2026-06-29 15:17 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/9779892298.shtml)
+- 2026-06-29 15:32 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/909955089.shtml)
+- 2026-06-29 15:35 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/524720000.shtml)

@@ -1,60 +1,57 @@
-# 万亿级资金被盘活！医保个人账户跨省共济，哪些项目可用？
+# 监管机构批准比特币永续期货后，交易所股票下跌
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月5日，国家医保局办公室、财政部办公厅发布《职工基本医疗保险个人账户跨省共济经办规程（试行）》的通知。通知对跨省共济的适用对象、可使用共济额度进行支付的医疗费用范围、经办流程等内容作出安排。 通知指出，跨省共济的适用对象范围为职工基本医疗保险参保人（以下简称共济人）的近亲属（以下简称被共济人），被共济人应为基本医疗保险（包括职工基本医疗保险和城乡居民基本医疗保险）的参保对象。
+在监管机构批准比特币永续期货后，交易所股票出现下跌，因为市场担心新一轮交易产品可能对华尔街构成生存威胁。 以衍生品和期货交易平台闻名的芝加哥商品交易所集团（CME Group）过去两天下跌约9%。芝加哥期权交易所全球市场（Cboe Global Markets）本周暴跌16%。两者均有望创下自2020年以来最大单周跌幅。 纽约证券交易所母公司洲际交易所（Intercontine
 
 ## 正文
 
-6月5日，国家医保局办公室、财政部办公厅发布《职工基本医疗保险个人账户跨省共济经办规程（试行）》的通知。
+在监管机构批准比特币永续期货后，交易所股票出现下跌，因为市场担心新一轮交易产品可能对华尔街构成生存威胁。
 
-通知对跨省共济的适用对象、可使用共济额度进行支付的医疗费用范围、经办流程等内容作出安排。
+以衍生品和期货交易平台闻名的芝加哥商品交易所集团（CME Group）过去两天下跌约9%。
 
-通知指出，跨省共济的适用对象范围为职工基本医疗保险参保人（以下简称共济人）的近亲属（以下简称被共济人），被共济人应为基本医疗保险（包括职工基本医疗保险和城乡居民基本医疗保险）的参保对象。
+芝加哥期权交易所全球市场（Cboe Global Markets）本周暴跌16%。
 
-近亲属包括配偶、父母、子女、兄弟姐妹、祖父母、外祖父母、孙子女及外孙子女。
+两者均有望创下自2020年以来最大单周跌幅。
 
-一个共济人可与多个近亲属建立共济关系，一个被共济人也可以接受多个近亲属共济。
+纽约证券交易所母公司洲际交易所（Intercontinental Exchange）周二下跌逾3%，本周累计下跌5%。
 
-1.4万亿元沉淀资金解“锁” 根据国家医保局2025年7月发布的《2024年全国医疗保障事业发展统计公报》，截至2024年末，职工医保个人账户累计结存约1.4万亿元。
+纳斯达克股价尾盘重挫逾6%，拖累该股本周至今转为下跌。
 
-这些结存金额为何会被闲置？
-
-跨省共济对医保基金盘活有何影响？
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 15:05 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 15:23 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 15:07 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 15:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 15:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 15:22 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 15:20 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 15:17 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 15:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 15:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 15:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:32 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 15:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 15:16 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 15:25 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 15:26 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 15:23 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 15:25 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 15:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 15:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 15:15 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 15:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 15:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 15:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/13797.shtml)
-- 2026-06-29 15:08 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2486523.shtml)
-- 2026-06-29 15:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/536230.shtml)
-- 2026-06-29 15:13 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/407794.shtml)
-- 2026-06-29 15:06 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/053076263.shtml)
-- 2026-06-29 15:10 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/2134042.shtml)
-- 2026-06-29 15:20 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/7295988.shtml)
-- 2026-06-29 15:11 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/716264.shtml)
-- 2026-06-29 15:24 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/7922655454.shtml)
-- 2026-06-29 15:09 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/9576884324.shtml)
-- 2026-06-29 15:03 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/60945.shtml)
-- 2026-06-29 15:19 - [扬名立万](https://www.share.minike.top/Article/details/510612981399.shtml)
-- 2026-06-29 15:16 - [啊啊啊](http://www.share.minike.top/Article/details/1413427851.shtml)
-- 2026-06-29 15:09 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/4537230633.shtml)
-- 2026-06-29 15:20 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/694874703.shtml)
+- 2026-06-29 15:18 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/41749852942.shtml)
+- 2026-06-29 15:16 - [斛珠夫人](http://www.blog.minike.top/Article/details/728185073.shtml)
+- 2026-06-29 15:10 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/576901133875.shtml)
+- 2026-06-29 15:11 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/686817372563.shtml)
+- 2026-06-29 15:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0205003.shtml)
+- 2026-06-29 15:12 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/88329267245.shtml)
+- 2026-06-29 15:27 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/047465950752.shtml)
+- 2026-06-29 15:11 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/19710.shtml)
+- 2026-06-29 15:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/1805763753.shtml)
+- 2026-06-29 15:27 - [中国战机大片上新](http://www.blog.minike.top/Article/details/84883.shtml)
+- 2026-06-29 15:06 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/4745487997.shtml)
+- 2026-06-29 15:18 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/260351.shtml)
+- 2026-06-29 15:34 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/080530601063.shtml)
+- 2026-06-29 15:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/2194292230.shtml)
+- 2026-06-29 15:06 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/36783.shtml)

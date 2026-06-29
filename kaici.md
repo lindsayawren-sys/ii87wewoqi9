@@ -1,61 +1,59 @@
-# “2026世界市长对话·北京”活动代表分享探索实践——数智赋能旅游城市转型
+# 打破“只买不卖”惯例 Strategy出售所持部分比特币
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-随着全球旅游业加快复苏，城市旅游进入新的发展阶段。游客不再满足于只是拍照、打卡，而是对文化体验、服务品质等方面都提出了更高要求。如何在吸引游客的同时，提升城市治理水平、推动文旅产业升级，成为城市管理者共同思考的重要课题。6月2日，“2026世界市长对话·北京”活动举行。多位参会城市负责人分享了各自的探索与实践，共同探讨一个现实命题：如何让一座城市更好逛、更好住，也更有温度？希腊
+全球最大的比特币企业级持有者Strategy出售了约250万美元的比特币，这是该公司自2022年以来首次减持这一加密货币。 联合创始人Michael Saylor上个月在公司季度业绩电话会上已暗示未来存在出售比特币的可能性。这与他多年来反复向股东保证“不会出售所持比特币”的立场相比，是一次显著转变。 Strategy表示，未来出售比特币将成为其更有策略地管理和积累比特币资产的一
 
 ## 正文
 
-随着全球旅游业加快复苏，城市旅游进入新的发展阶段。
+全球最大的比特币企业级持有者Strategy出售了约250万美元的比特币，这是该公司自2022年以来首次减持这一加密货币。
 
-游客不再满足于只是拍照、打卡，而是对文化体验、服务品质等方面都提出了更高要求。
+联合创始人Michael Saylor上个月在公司季度业绩电话会上已暗示未来存在出售比特币的可能性。
 
-如何在吸引游客的同时，提升城市治理水平、推动文旅产业升级，成为城市管理者共同思考的重要课题。
+这与他多年来反复向股东保证“不会出售所持比特币”的立场相比，是一次显著转变。
 
-6月2日，“2026世界市长对话·北京”活动举行。
+Strategy表示，未来出售比特币将成为其更有策略地管理和积累比特币资产的一部分。
 
-多位参会城市负责人分享了各自的探索与实践，共同探讨一个现实命题：如何让一座城市更好逛、更好住，也更有温度？
+公司认为，此类交易不仅可能带来税务上的好处，也有助于在数字资产长期熊市环境下更灵活地增持比特币。
 
-希腊雅典是享誉世界的文明古城。
+尽管进行了减持，Strategy目前仍持有价值约610亿美元比特币。
 
-雅典市议会主席德斯皮娜·林尼奥塔基表示，雅典一直希望游客不只是“到此一游”，而是能够真正沉浸在当地历史与文化之中。
+Strategy股价盘前下跌约5%，比特币价格则下跌约2%至7.2万美元左右。
 
-如今，雅典年均接待游客达到千万人次。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 15:18 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 15:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 15:08 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 15:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:23 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 15:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 15:27 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:29 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 15:29 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 15:10 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 15:25 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 15:23 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 15:19 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 15:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 15:35 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:31 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:22 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 15:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 15:20 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 15:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 15:26 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 15:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 15:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 15:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/669941381.shtml)
-- 2026-06-29 15:08 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/556362.shtml)
-- 2026-06-29 15:27 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/525036.shtml)
-- 2026-06-29 15:06 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/363461511.shtml)
-- 2026-06-29 15:11 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/1713198.shtml)
-- 2026-06-29 15:00 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/6001299.shtml)
-- 2026-06-29 15:25 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/73968.shtml)
-- 2026-06-29 15:10 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/1449541836.shtml)
-- 2026-06-29 15:28 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/790565271.shtml)
-- 2026-06-29 15:26 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/9359571282.shtml)
-- 2026-06-29 15:29 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/398702317.shtml)
-- 2026-06-29 15:21 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/95979560840.shtml)
-- 2026-06-29 15:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/844193419012.shtml)
-- 2026-06-29 15:27 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/98204444.shtml)
-- 2026-06-29 15:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/858672388355.shtml)
+- 2026-06-29 15:09 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/918648.shtml)
+- 2026-06-29 15:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/33767099.shtml)
+- 2026-06-29 15:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/40714851.shtml)
+- 2026-06-29 15:13 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/806831.shtml)
+- 2026-06-29 15:20 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/153119.shtml)
+- 2026-06-29 15:26 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/8292054645.shtml)
+- 2026-06-29 15:28 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/5782133.shtml)
+- 2026-06-29 15:08 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/503883382267.shtml)
+- 2026-06-29 15:16 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/5840043327.shtml)
+- 2026-06-29 15:06 - [20年前的周杰伦](https://www.share.minike.top/Article/details/85740305331.shtml)
+- 2026-06-29 15:07 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/307387.shtml)
+- 2026-06-29 15:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/81307086.shtml)
+- 2026-06-29 15:34 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/6950659.shtml)
+- 2026-06-29 15:22 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/6151492.shtml)
+- 2026-06-29 15:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/34621641.shtml)

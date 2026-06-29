@@ -1,58 +1,58 @@
-# 深耕中外文体交流 渝籍华侨献策三峡体育产业国际化发展
+# 一字涨停！刚刚，大幅异动！两大利好，来袭！
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月5日电 (记者 钟旖)“重庆有这么好的山水资源，可因地制宜打造国际化的原创赛事IP。”5日，在三峡地区进行生态考察参访的2026“一带一路”华侨华人合作发展大会嘉宾，中国侨商联合会理事、美国陕西总商会副会长范海兰谈及重庆的文体发展，提出如是构想。 连日来，阔别家乡已久的范海兰一路走，一路看，一路思索。她驻足巫山，放眼望去，长江峡谷群山连绵、江域辽阔；登临奉节“三峡
+两大AI巨头，均有新消息传出！ 北京时间6月2日，英伟达首席执行官黄仁勋表示，英伟达将扩大其面向PC产品线的AI芯片产品线。他还指出，智能体AI将开启未来十年算力革命。 二级市场上，A股AIPC概念股大幅走高，板块指数涨幅超过2%。其中，春秋电子一字涨停，博杰股份盘中也直线拉升至涨停板，雷神科技涨近20%，鹏鼎控股一度触及10%涨停，英力股份涨超11%。 值得关注的是，美股夜盘
 
 ## 正文
 
-中新网重庆6月5日电 (记者 钟旖)“重庆有这么好的山水资源，可因地制宜打造国际化的原创赛事IP。
+两大AI巨头，均有新消息传出！
 
-”5日，在三峡地区进行生态考察参访的2026“一带一路”华侨华人合作发展大会嘉宾，中国侨商联合会理事、美国陕西总商会副会长范海兰谈及重庆的文体发展，提出如是构想。
+北京时间6月2日，英伟达首席执行官黄仁勋表示，英伟达将扩大其面向PC产品线的AI芯片产品线。
 
-连日来，阔别家乡已久的范海兰一路走，一路看，一路思索。
+他还指出，智能体AI将开启未来十年算力革命。
 
-她驻足巫山，放眼望去，长江峡谷群山连绵、江域辽阔；登临奉节“三峡之巅”，观奇峰叠嶂、大江奔涌，风光无限；漫步云阳，环湖绿道如丝带般蜿蜒，感受人文与自然交融之美。
+二级市场上，A股AIPC概念股大幅走高，板块指数涨幅超过2%。
 
-结合实地考察，范海兰建议，三峡地区可重点发展户外运动，利用山地优势开展徒步、登山、山地自行车等活动，在安全可控的水域发展龙舟、桨板等水上项目，走出别具三峡特色的体育产业差异化发展路径。
+其中，春秋电子一字涨停，博杰股份盘中也直线拉升至涨停板，雷神科技涨近20%，鹏鼎控股一度触及10%涨停，英力股份涨超11%。
 
-范海兰是重庆忠县人。
+值得关注的是，美股夜盘，半导体企业迈威尔科技的股价直线拉升，涨幅一度超过16%。
 
-1999年起便离开家乡，先后受聘于新加坡、美国等地的体育机构及政府文旅体育部门，长期从事公共体育管理与国际文体交流工作。
+黄仁勋称，迈威尔科技将成为下一个万亿美元公司，并表示两家公司正在巩固合作关系，以扩展为下一代AI数据中心提供动力所需的关键网络和连接基础设施。
 
-无论走到哪里，重庆始终是她心头的牵挂。
+此外，AI巨头Anthropic上市进展加快。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 15:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 15:01 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 15:23 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 15:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 15:18 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 15:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 15:20 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 15:11 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 15:19 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 15:25 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 15:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:07 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 15:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 15:34 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 15:06 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 15:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 15:21 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 15:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 15:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 15:13 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [绘画区你赢了](http://www.blog.minike.top/Article/details/547451642.shtml)
-- 2026-06-29 15:27 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/69255055171.shtml)
-- 2026-06-29 15:27 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/0169766227.shtml)
-- 2026-06-29 15:24 - [流金岁月](https://www.blog.minike.top/Article/details/388779073614.shtml)
-- 2026-06-29 15:16 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/210611254.shtml)
-- 2026-06-29 15:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/99456842.shtml)
-- 2026-06-29 15:02 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/3300545936.shtml)
-- 2026-06-29 15:26 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/888087126.shtml)
-- 2026-06-29 15:05 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/50056417.shtml)
-- 2026-06-29 15:15 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/39540.shtml)
-- 2026-06-29 15:07 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/816746.shtml)
-- 2026-06-29 15:14 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/74363.shtml)
-- 2026-06-29 15:20 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/8153003947.shtml)
-- 2026-06-29 15:13 - [勇敢的心第二部](http://www.share.minike.top/Article/details/06714843.shtml)
-- 2026-06-29 15:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/893384955.shtml)
+- 2026-06-29 15:21 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/6477438536.shtml)
+- 2026-06-29 15:27 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/709669426370.shtml)
+- 2026-06-29 15:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/587941.shtml)
+- 2026-06-29 15:06 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/31954387.shtml)
+- 2026-06-29 15:20 - [20年前的周杰伦](https://www.share.minike.top/Article/details/63685199505.shtml)
+- 2026-06-29 15:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/4274294348.shtml)
+- 2026-06-29 15:06 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/94055412107.shtml)
+- 2026-06-29 15:07 - [东部机场集团新增釜山航线](http://www.share.kurohicncr.top/Article/details/78681636695.shtml)
+- 2026-06-29 15:17 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/4903975.shtml)
+- 2026-06-29 15:08 - [天道](http://www.blog.minike.top/Article/details/61495342.shtml)
+- 2026-06-29 15:28 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/83187.shtml)
+- 2026-06-29 15:13 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/956588590.shtml)
+- 2026-06-29 15:09 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/369081666099.shtml)
+- 2026-06-29 15:29 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/3047728.shtml)
+- 2026-06-29 15:21 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/1828297057.shtml)

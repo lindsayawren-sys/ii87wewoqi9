@@ -1,47 +1,56 @@
-# 直击武警实战化训练，压迫感拉满！
+# 英伟达CEO与SK集团会长在台北会面，探讨人工智能内存芯片合作事宜
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 13:25 来源：中国新闻网 近日，武警呼和浩特支队组织实战化清剿演练，将官兵拉入陌生复杂地域，全面摔打磨砺技战术水平。(作者：王金晓、刘党、张俊彦) 责任编辑：【魏聪聪】
+韩国SK集团周二表示，英伟达CEO黄仁勋与SK集团会长崔泰源在台北会面，探讨人工智能（AI）内存领域的未来合作。 SK集团在其社交媒体账号上发布消息称，此次会面于周一在台北举行。两位高管当时均出席了台北国际电脑展（Computex），这是亚洲最大的科技展会之一。 SK集团的在帖子中写道：“SK海力士市值突破1万亿美元之际，两家公司的高管会面，共同庆祝这一里程碑式的成就。” 该帖
 
 ## 正文
 
-发布时间：2026年06月05日 13:25 来源：中国新闻网 近日，武警呼和浩特支队组织实战化清剿演练，将官兵拉入陌生复杂地域，全面摔打磨砺技战术水平。
+韩国SK集团周二表示，英伟达CEO黄仁勋与SK集团会长崔泰源在台北会面，探讨人工智能（AI）内存领域的未来合作。
 
-(作者：王金晓、刘党、张俊彦) 责任编辑：【魏聪聪】
+SK集团在其社交媒体账号上发布消息称，此次会面于周一在台北举行。
+
+两位高管当时均出席了台北国际电脑展（Computex），这是亚洲最大的科技展会之一。
+
+SK集团的在帖子中写道：“SK海力士市值突破1万亿美元之际，两家公司的高管会面，共同庆祝这一里程碑式的成就。
+
+” 该帖子还补充道，此次会面也为两家公司提供了一个机会，回顾了他们在人工智能存储领域共同取得的成就，并重申了他们致力于开启人工智能基础设施新篇章的承诺。
+
+黄仁勋此前曾表示，他将于本周访问韩国，机器人技术是英伟达在韩国潜在的投资领域之一。
+
+据业内人士透露，黄仁勋预计将于周四晚间开启首尔之行。
+
+周五，他预计将与韩国主要企业集团的负责人举行一系列会晤，预计出席的包括崔泰源、LG集团会长具光模以及Naver创始人兼会长李海镇。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 15:11 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 15:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 15:00 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 15:07 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 15:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 15:04 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:14 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 15:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 15:27 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 15:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 15:02 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 15:09 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 15:12 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 15:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 15:09 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 15:32 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 15:33 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 15:17 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 15:18 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 15:27 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 15:18 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 15:22 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/086472.shtml)
-- 2026-06-29 15:02 - [斗破苍穹](http://www.blog.minike.top/Article/details/467035.shtml)
-- 2026-06-29 15:25 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/978794.shtml)
-- 2026-06-29 15:28 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/815232634104.shtml)
-- 2026-06-29 15:08 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/74429030.shtml)
-- 2026-06-29 15:09 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/0815129.shtml)
-- 2026-06-29 15:05 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/894353.shtml)
-- 2026-06-29 15:28 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/76535081.shtml)
-- 2026-06-29 15:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/04773.shtml)
-- 2026-06-29 15:15 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/22530506748.shtml)
-- 2026-06-29 15:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/505391167046.shtml)
-- 2026-06-29 15:28 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/24476.shtml)
-- 2026-06-29 15:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/981368.shtml)
-- 2026-06-29 15:04 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/79710129.shtml)
-- 2026-06-29 15:20 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3147804800.shtml)
+- 2026-06-29 15:33 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/662822582456.shtml)
+- 2026-06-29 15:30 - [行程万里不忘初心](https://www.share.minike.top/Article/details/10174887102.shtml)
+- 2026-06-29 15:27 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/33034649.shtml)
+- 2026-06-29 15:31 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/73433.shtml)
+- 2026-06-29 15:16 - [千与千寻](https://www.blog.minike.top/Article/details/58390491.shtml)
+- 2026-06-29 15:31 - [AG 宫斗](http://www.share.minike.top/Article/details/504205887866.shtml)
+- 2026-06-29 15:29 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/38149.shtml)
+- 2026-06-29 15:19 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/9702767.shtml)
+- 2026-06-29 15:10 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/69682.shtml)
+- 2026-06-29 15:22 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/384134.shtml)
+- 2026-06-29 15:26 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/7972750.shtml)
+- 2026-06-29 15:15 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/168881802.shtml)
+- 2026-06-29 15:12 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/786507012433.shtml)
+- 2026-06-29 15:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/1717898.shtml)
+- 2026-06-29 15:16 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/3167907.shtml)

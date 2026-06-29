@@ -1,59 +1,61 @@
-# 焕新实业 并购赋能 2026上市公司并购重组交流会成功举办
+# 华安基金：地缘缓和预期带动油价下跌，美债收益率延续回落
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月3日，作为第15届金交会的重要活动之一，“焕新实业·并购赋能——2026上市公司并购重组交流会”在广州成功举办。本次活动由广发证券主办，广东资本市场并购重组联盟、广东股权交易中心协办，汇聚政府部门、省属及市属国企、上市公司、头部投资机构等超300位嘉宾，聚焦上市公司高质量发展、产业整合与并购重组创新实践
+Ø 黄金行情回顾及主要观点： 上周伦敦现货黄金收于4，538美元/盎司（周环比0.6%），国内AU9999黄金收于985元/克（周环比-0.7%）。 上周美债收益率延续回落，宏观数据形成了对黄金的边际支撑。5月28日，美国4月核心PCE同比3.3%，完全符合市场预期，较前值3.2%温和走高但未出现超预期跳升。此外，美国一季度GDP年化增速从初值2.0%下修至1.6%，初请失业金
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+Ø 黄金行情回顾及主要观点： 上周伦敦现货黄金收于4，538美元/盎司（周环比0.6%），国内AU9999黄金收于985元/克（周环比-0.7%）。
 
-6月3日，作为第15届金交会的重要活动之一，“焕新实业·并购赋能——2026上市公司并购重组交流会”在广州成功举办。
+上周美债收益率延续回落，宏观数据形成了对黄金的边际支撑。
 
-本次活动由广发证券主办，广东资本市场并购重组联盟、广东股权交易中心协办，汇聚政府部门、省属及市属国企、上市公司、头部投资机构等超300位嘉宾，聚焦上市公司高质量发展、产业整合与并购重组创新实践，探寻并购赋能实业的新路径、新机遇。
+5月28日，美国4月核心PCE同比3.3%，完全符合市场预期，较前值3.2%温和走高但未出现超预期跳升。
 
-共识：并购重组助力产业整合和转型升级 广州市副市长赖志鸿在致辞中表示，今年一季度广州经济实现“开门红”，金融业延续强劲发展势头，广州正在加快向创新引领、科技支撑、高端集聚的现代化产业新格局转型，为企业并购重组、产业整合升级提供了广阔空间与坚实基础。
+此外，美国一季度GDP年化增速从初值2.0%下修至1.6%，初请失业金人数升至21.5万人，反映经济动能正在减速。
 
-自证监会“并购六条”发布以来，广州市A股上市公司新增披露、完成产业化并购重组54单、交易金额超250亿元，其中重大资产重组项目6单。
+数据公布后，美债收益率与美元指数回落，市场对美联储加息的紧迫感有所缓解，黄金的机会成本压力随之下降。
 
-广州将持续优化金融营商环境，竭诚当好企业的“合伙人”，强化产业链供应链韧性，期待更多市场主体深耕广州、投资广州、加码广州。
+上周油价大幅下跌，主因美伊协议预期升温，市场押注霍尔木兹海峡将重新开放，原油供应担忧缓解。
 
-广东证监局相关负责人指出，并购重组作为资本市场核心功能之一，有助于加速新旧动能转换与优化，拓展经济增长空间。
+布伦特原油周跌8.31%至约92美元/桶，油价走低直接削弱了输入性通胀压力，市场对美联储加息的紧迫感随之降温。
 
-希望上市公司一是要准确把握新质生产力发展方向，使并购重组项目推进落地紧密契合制造业与服务业协同发展的重要产业趋势；二是要用好并购重组创新性机制安排，积极利用最新的分期支付机制、简易审核程序、私募基金锁定期、审核包容性提升等资本市场改革红利；三是要坚守合规底线，规范高效开展并购重组。
+短期看，油价与金价的跷跷板效应明显。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 15:05 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 15:01 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 15:11 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:07 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 15:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 15:17 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 15:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 15:07 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 15:25 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 15:17 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 15:19 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 15:12 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 15:35 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 15:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 15:17 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 15:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 15:20 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 15:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 15:15 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:13 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 15:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 15:14 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 15:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 15:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 15:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 15:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 15:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/064910.shtml)
-- 2026-06-29 15:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/650498.shtml)
-- 2026-06-29 15:17 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/23061884160.shtml)
-- 2026-06-29 15:17 - [天道](http://www.blog.minike.top/Article/details/577919451.shtml)
-- 2026-06-29 15:07 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/087393.shtml)
-- 2026-06-29 15:23 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/384332005.shtml)
-- 2026-06-29 15:20 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/60474152.shtml)
-- 2026-06-29 15:05 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/19885969.shtml)
-- 2026-06-29 15:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/435218198839.shtml)
-- 2026-06-29 15:14 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/007552764.shtml)
-- 2026-06-29 15:23 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/9207781315.shtml)
-- 2026-06-29 15:09 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/485978663784.shtml)
-- 2026-06-29 15:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/180897338.shtml)
-- 2026-06-29 15:21 - [啊啊啊](https://www.share.minike.top/Article/details/116152745494.shtml)
-- 2026-06-29 15:23 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/006126325260.shtml)
+- 2026-06-29 15:06 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/8567185043.shtml)
+- 2026-06-29 15:15 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/52996194.shtml)
+- 2026-06-29 15:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/23113532246.shtml)
+- 2026-06-29 15:28 - [啊啊啊](https://www.share.minike.top/Article/details/079449439.shtml)
+- 2026-06-29 15:07 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/03862.shtml)
+- 2026-06-29 15:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/48582924817.shtml)
+- 2026-06-29 15:16 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/303928361.shtml)
+- 2026-06-29 15:15 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/90907934.shtml)
+- 2026-06-29 15:24 - [女心理师](http://www.share.minike.top/Article/details/463882639.shtml)
+- 2026-06-29 15:14 - [小娘惹](https://www.share.kurohicncr.top/Article/details/828596558033.shtml)
+- 2026-06-29 15:07 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/873091.shtml)
+- 2026-06-29 15:29 - [逆天祖国人](https://www.blog.minike.top/Article/details/779030024209.shtml)
+- 2026-06-29 15:30 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/84710071467.shtml)
+- 2026-06-29 15:21 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/457256747.shtml)
+- 2026-06-29 15:18 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/8778535138.shtml)

@@ -1,58 +1,57 @@
-# 总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”
+# Select Medical拟以每股16.50美元私有化引发律所调查，股东质疑定价公允性
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。 “中国可以成功，其他发展中国家同样可以成功。”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增
+美国知名股东权益律师事务所Kahn Swick & Foti宣布，已对Select Medical Holdings Corporation的拟议私有化交易启动调查，重点评估每股16.50美元的收购价格是否公允，以及公司董事会是否在交易中履行了勤勉义务。 此次调查的背景是Select Medical于2026年3月2日宣布，已同意被由公司执行主席兼联合创始人Robert Ort
 
 ## 正文
 
-原标题：“中国可以成功，其他发展中国家同样可以成功”(总书记的人民情怀) 视频：总书记的人民情怀｜“中国可以成功，其他发展中国家同样可以成功”来源：人民日报 实现现代化是近代以来中国人民的不懈追求，也是世界各国人民的共同追求。
+美国知名股东权益律师事务所Kahn Swick & Foti宣布，已对Select Medical Holdings Corporation的拟议私有化交易启动调查，重点评估每股16.50美元的收购价格是否公允，以及公司董事会是否在交易中履行了勤勉义务。
 
-“中国可以成功，其他发展中国家同样可以成功。
+此次调查的背景是Select Medical于2026年3月2日宣布，已同意被由公司执行主席兼联合创始人Robert Ortenzio、战略财务与运营高级执行副总裁Martin Jackson以及私募股权公司Welsh， Carson， Anderson & Stowe组成的投资集团收购并私有化，交易总价值约39亿美元。
 
-”“我们有坚定推进中国式现代化的决心，也有以高水平对外开放同世界共享发展机遇的胸怀，将以自身发展为全球经济增长注入信心和动力。
+根据协议，无关联股东将获得每股16.50美元的现金，较公告前3月2日的收盘价溢价约10%。
 
-”习近平总书记提出的重要主张、作出的重要论述，植根于中国式现代化的成功实践，彰显了中国与各国在现代化征程上携手同行，共同推进世界现代化、推动构建人类命运共同体的胸怀担当。
+KSF的调查将重点关注Select Medical董事会是否充分考察了潜在竞购方，以及16.50美元的交易价格是否为股东提供了公允价值。
 
-中国式现代化是全体人民共同富裕的现代化。
+值得注意的是，该交易由公司内部管理层发起，存在潜在的利益冲突，这进一步引发了投资者对交易公允性的担忧。
 
-在习近平总书记带领下，中国始终把实现人民对美好生活的向往作为现代化建设的出发点和落脚点，稳步推进共同富裕。
+至少在一位分析师看来，Select Medical的股价目标位为每股19.00美元，意味着16.50美元的收购价可能存在低估。
 
-“十五五”规划纲要坚持以人民为中心的发展思想，牢牢把握共同富裕的目标要求，围绕加大保障和改善民生力度、扎实推进全体人民共同富裕作出战略部署，为未来5年中国经济社会发展擘画蓝图，也为世界提供了一份“机遇清单”。
+该交易已获得独立董事的一致批准，预计将于2026年中完成，仍需获得无关联股东批准并满足其他惯例交割条件。
 
-提前实现联合国2030年可持续发展议程减贫目标，人均国内生产总值连续3年超过1.3万美元，建成全球规模最大的教育体系、社会保障体系、医疗卫生体系……中国式现代化坚持以人民为中心，不让一个人掉队，也为全球提供了生动示范。
+交易完成后，Select Medical将成为一家私有公司，其股票将从纽约证券交易所退市。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 15:16 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 15:09 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 15:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 15:05 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 15:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 15:16 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 15:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 15:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 15:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 15:18 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 15:21 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 15:31 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 15:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 15:12 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 15:35 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 15:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:34 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 15:34 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:20 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 15:07 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 15:34 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/6405244.shtml)
-- 2026-06-29 15:04 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/1578471.shtml)
-- 2026-06-29 15:00 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/668806.shtml)
-- 2026-06-29 15:23 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/0586425386.shtml)
-- 2026-06-29 15:03 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/638846.shtml)
-- 2026-06-29 15:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/65428216.shtml)
-- 2026-06-29 15:00 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/43038722452.shtml)
-- 2026-06-29 15:09 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/09108960.shtml)
-- 2026-06-29 15:17 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/99853331.shtml)
-- 2026-06-29 15:14 - [男孩复读一年减重20斤涨分111分](http://www.share.minike.top/Article/details/934030538.shtml)
-- 2026-06-29 15:12 - [明星大侦探第一季](http://www.share.minike.top/Article/details/8875831662.shtml)
-- 2026-06-29 15:13 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/3681893086.shtml)
-- 2026-06-29 15:24 - [沉睡花园](http://www.share.minike.top/Article/details/5775177383.shtml)
-- 2026-06-29 15:20 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/18731607.shtml)
-- 2026-06-29 15:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/110867348.shtml)
+- 2026-06-29 15:06 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/7590147742.shtml)
+- 2026-06-29 15:14 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/929079541274.shtml)
+- 2026-06-29 15:15 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/789294.shtml)
+- 2026-06-29 15:35 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/258512705.shtml)
+- 2026-06-29 15:34 - [沙丘](http://www.blog.kurohicncr.top/Article/details/8054638374.shtml)
+- 2026-06-29 15:22 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/57331256.shtml)
+- 2026-06-29 15:32 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/75330915465.shtml)
+- 2026-06-29 15:22 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/1923569821.shtml)
+- 2026-06-29 15:24 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/95127.shtml)
+- 2026-06-29 15:19 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/00453.shtml)
+- 2026-06-29 15:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/04884.shtml)
+- 2026-06-29 15:14 - [极限挑战第一季](http://www.share.minike.top/Article/details/9148862.shtml)
+- 2026-06-29 15:29 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/295643856995.shtml)
+- 2026-06-29 15:32 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/88622810490.shtml)
+- 2026-06-29 15:15 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/52889.shtml)

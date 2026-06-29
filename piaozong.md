@@ -1,56 +1,59 @@
-# 紫砂壶有毒？造谣者获刑并被禁业
+# 浙江创新三大智慧监管模式给“幽灵外卖”戴上紧箍咒
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-紫砂壶有毒？造谣者获刑并被禁业 受谣言影响，宜兴紫砂行业商户直播销售一月内直降1300余万元 紫砂，是宜兴的一张世界级名片。然而，一些不法分子为了博取流量、推销自家产品，不惜编造“行业内幕”，以“打假”之名行“造假”之实，严重扰乱了市场秩序，抹黑“宜兴紫砂”的金字招牌。记者获悉，宜兴市人民法院近日以损害商业信誉、商品声誉罪判处谢某有期徒刑一年三个月，并处罚金人民币五万元，同时被
+中新网杭州6月1日电(奚金燕)6月1日，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，筑牢外卖安全防线。作为平台经济大省，2024年下半年开始，浙江以数字化改革为牵引，连出“三招”——从“证照核验比对”到“电子证照公示”，再到“互联网+明厨亮灶”，三项首创智慧监管举措环环相扣，让“看不见的外卖”变成“看得见的厨房”。 针对部分外卖商家证照造假、冒用证件等违规入
 
 ## 正文
 
-紫砂壶有毒？
+中新网杭州6月1日电(奚金燕)6月1日，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，筑牢外卖安全防线。
 
-造谣者获刑并被禁业 受谣言影响，宜兴紫砂行业商户直播销售一月内直降1300余万元 紫砂，是宜兴的一张世界级名片。
+作为平台经济大省，2024年下半年开始，浙江以数字化改革为牵引，连出“三招”——从“证照核验比对”到“电子证照公示”，再到“互联网+明厨亮灶”，三项首创智慧监管举措环环相扣，让“看不见的外卖”变成“看得见的厨房”。
 
-然而，一些不法分子为了博取流量、推销自家产品，不惜编造“行业内幕”，以“打假”之名行“造假”之实，严重扰乱了市场秩序，抹黑“宜兴紫砂”的金字招牌。
+针对部分外卖商家证照造假、冒用证件等违规入驻外卖平台的问题，浙江与三大主流外卖平台建立证照核验比对机制，打通市场监管部门与外卖平台之间的数据壁垒，实现政企数据实时共享。
 
-记者获悉，宜兴市人民法院近日以损害商业信誉、商品声誉罪判处谢某有期徒刑一年三个月，并处罚金人民币五万元，同时被依法“从业禁止”三年。
+与此同时，浙江打造“餐饮主体资质信息池”，并向外卖平台开放。
 
-自编自导：直播间的“伪科学”与“苦肉计”谢某曾因犯销售侵权复制品罪、侵犯著作权罪先后两次获刑，2022年5月刑满释放。
+商家申请入驻时，平台通过数据接口比对校验商户证照资质信息。
 
-出狱后，并未走上正途，而是将目光投向了火爆的直播带货领域。
+校验不成功的，平台会安排业务员核查证照是否完整、信息是否一致。
 
-2024年9月，谢某成立了一家公司，主营紫砂壶等日用陶瓷制品的网络销售。
+从6月1日起，三大主流外卖平台在浙江区域新入驻的商户，若主体资质校验不成功，将无法上线接单，从源头堵住了虚假、失效资质进入网络餐饮市场的漏洞。
 
-为快速打响自营“某山堂”紫砂壶的知名度，谢某动起了“歪脑筋”——通过抹黑整个行业来反衬自己的产品“清白”。
+据统计，该机制上线以来，各平台累计拦截异常入驻申请3.6万家次。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 15:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 15:24 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 15:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 15:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 15:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 15:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 15:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 15:26 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 15:17 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 15:15 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 15:08 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 15:17 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 15:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 15:12 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 15:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 15:14 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 15:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 15:21 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 15:17 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 15:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:35 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/5876877698.shtml)
-- 2026-06-29 15:17 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/369325308824.shtml)
-- 2026-06-29 15:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/026786940.shtml)
-- 2026-06-29 15:05 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/44213908932.shtml)
-- 2026-06-29 15:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/90782660832.shtml)
-- 2026-06-29 15:18 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/809085756979.shtml)
-- 2026-06-29 15:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/4083233.shtml)
-- 2026-06-29 15:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/056657595135.shtml)
-- 2026-06-29 15:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/68498.shtml)
-- 2026-06-29 15:25 - [极限挑战第一季](http://www.blog.minike.top/Article/details/071008547134.shtml)
-- 2026-06-29 15:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/71099.shtml)
-- 2026-06-29 15:15 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/87294369537.shtml)
-- 2026-06-29 15:29 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/449974395801.shtml)
-- 2026-06-29 15:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/475153293345.shtml)
-- 2026-06-29 15:08 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/64622285.shtml)
+- 2026-06-29 15:14 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/618584755.shtml)
+- 2026-06-29 15:21 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/47390.shtml)
+- 2026-06-29 15:17 - [AG 宫斗](http://www.share.minike.top/Article/details/212115553654.shtml)
+- 2026-06-29 15:10 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/7514739.shtml)
+- 2026-06-29 15:30 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/539131765.shtml)
+- 2026-06-29 15:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/61010.shtml)
+- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/8520127.shtml)
+- 2026-06-29 15:19 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/9850179005.shtml)
+- 2026-06-29 15:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/0720327.shtml)
+- 2026-06-29 15:18 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/6234414.shtml)
+- 2026-06-29 15:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/5073211648.shtml)
+- 2026-06-29 15:27 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/63765.shtml)
+- 2026-06-29 15:18 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/105023.shtml)
+- 2026-06-29 15:24 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/535157.shtml)
+- 2026-06-29 15:18 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/474578.shtml)

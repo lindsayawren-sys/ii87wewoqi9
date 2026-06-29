@@ -1,60 +1,58 @@
-# 港股收评：恒指跌1.15%失守25000点 科指跌1.75% 科网股低迷 芯片股集体下挫 内银股逆势走强
+# 二手平台买东西被坑？教你消费前先查一查
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月5日消息，港股三大指数低开低走。截至收盘，恒生指数跌1.15%，报24961.95，恒生科技指数跌1.75%，国企指数跌0.77%。盘面上，科网股跌多涨少，百度跌超3%，网易、小米跌超2%，腾讯跌超1%，美团涨超1%；内银股走强，中原银行涨超6%；芯片股集体下挫，中芯国际跌超7%；人工智能板块回调，Minimax跌超16%。 内银股走强，中原银行涨超6%。有分析指出，由于市
+最近，闲鱼平台因为两件事接连登上热搜：一是AI擅自将用户手机内的文物照片识别为商品并自动上架售卖，引发隐私争议；二是有卖家反映平台在推送“无忧卖”服务时，全程只宣传提升曝光、助力成交，却未标注任何收费规则，直到交易完成后才发现被扣除了高额服务费。这些事件让不少习惯在二手平台淘货的消费者开始重新审视自己的交易安全。 二手交易平台确实给我们的生活带来了很多便利，闲置物品可以循环利用
 
 ## 正文
 
-6月5日消息，港股三大指数低开低走。
+最近，闲鱼平台因为两件事接连登上热搜：一是AI擅自将用户手机内的文物照片识别为商品并自动上架售卖，引发隐私争议；二是有卖家反映平台在推送“无忧卖”服务时，全程只宣传提升曝光、助力成交，却未标注任何收费规则，直到交易完成后才发现被扣除了高额服务费。
 
-截至收盘，恒生指数跌1.15%，报24961.95，恒生科技指数跌1.75%，国企指数跌0.77%。
+这些事件让不少习惯在二手平台淘货的消费者开始重新审视自己的交易安全。
 
-盘面上，科网股跌多涨少，百度跌超3%，网易、小米跌超2%，腾讯跌超1%，美团涨超1%；内银股走强，中原银行涨超6%；芯片股集体下挫，中芯国际跌超7%；人工智能板块回调，Minimax跌超16%。
+二手交易平台确实给我们的生活带来了很多便利，闲置物品可以循环利用，买家也能以更低的价格买到需要的东西。
 
-内银股走强，中原银行涨超6%。
+但与此同时，虚假描述、隐瞒瑕疵、隐形收费、发货拖延等问题也屡见不鲜。
 
-有分析指出，由于市场波动加大，高股息资产防御价值凸显，红利配置逻辑有望不断强化。
+很多消费者在交易完成后才发现自己“踩了坑”，但此时维权成本高、周期长，往往只能自认倒霉。
 
-而据太平洋证券研究显示，当前国有大行H股股息率普遍在5%-6%区间，相较不断下行的无风险利率仍具备显著的配置吸引力。
+那么，有没有办法在交易之前就提前规避风险呢？
 
-芯片股集体下挫，中芯国际跌超7%。
+答案是肯定的——学会使用“瞄一眼”类的消费决策工具，可以在下单前对目标商家或商品做一个基本的“背景调查”。
 
-隔夜美股芯片股多数下挫，费城半导体指数收跌超2%，博通暴跌超12%，美光科技大跌超7%。
+以黑猫投诉 【下载黑猫投诉客户端】平台的“瞄一眼”功能为例（https：//tousu.sina.com.cn/），它基于海量真实投诉数据，帮助用户在消费前快速了解目标产品或服务的投诉情况。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 15:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 15:10 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 15:11 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:19 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 15:22 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 15:23 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 15:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 15:04 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 15:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 15:21 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 15:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 15:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 15:06 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 15:10 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 15:23 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 15:12 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 15:28 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 15:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 15:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 15:07 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 15:10 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:12 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 15:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 15:32 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 15:08 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/69098807.shtml)
-- 2026-06-29 15:10 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/27650006742.shtml)
-- 2026-06-29 15:22 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/2188820.shtml)
-- 2026-06-29 15:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/088428.shtml)
-- 2026-06-29 15:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/385652684.shtml)
-- 2026-06-29 15:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/16086289606.shtml)
-- 2026-06-29 15:29 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/9769773.shtml)
-- 2026-06-29 15:11 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/563037901.shtml)
-- 2026-06-29 15:00 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/571045.shtml)
-- 2026-06-29 15:03 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/945674634448.shtml)
-- 2026-06-29 15:09 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/5747605.shtml)
-- 2026-06-29 15:05 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/925970715598.shtml)
-- 2026-06-29 15:17 - [NBA交易](http://www.blog.minike.top/Article/details/559975882621.shtml)
-- 2026-06-29 15:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/7744730.shtml)
-- 2026-06-29 15:20 - [扫黑风暴](https://www.blog.minike.top/Article/details/4434478.shtml)
+- 2026-06-29 15:07 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/874591645.shtml)
+- 2026-06-29 15:06 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/303682558.shtml)
+- 2026-06-29 15:15 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/55721564.shtml)
+- 2026-06-29 15:27 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/04275.shtml)
+- 2026-06-29 15:32 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/939212.shtml)
+- 2026-06-29 15:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/87236474511.shtml)
+- 2026-06-29 15:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/14431783274.shtml)
+- 2026-06-29 15:25 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/327585718591.shtml)
+- 2026-06-29 15:20 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/87406734538.shtml)
+- 2026-06-29 15:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/511290.shtml)
+- 2026-06-29 15:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/5689821.shtml)
+- 2026-06-29 15:30 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/161829253.shtml)
+- 2026-06-29 15:11 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/02459.shtml)
+- 2026-06-29 15:31 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/86834.shtml)
+- 2026-06-29 15:09 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/73222.shtml)

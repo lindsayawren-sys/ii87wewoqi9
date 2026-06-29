@@ -1,57 +1,57 @@
-# 贺兰山下上演民族团结进步杯足球赛 以球联谊促交融
+# 欧洲央行报告：黄金已取代美债成为全球首选储备资产
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网银川6月5日电 (记者 李佩珊)6月5日，一场以“中华民族一家亲”为主题的民族团结进步杯足球赛在贺兰山下的宁夏银川市西夏区开赛。来自西夏区机关、社区、高校等单位的16支代表队、近300名运动员齐聚绿茵场，在轻松热烈的氛围中以球会友、切磋交流。 本次赛事是西夏区民族团结进步“六共”主题群众文体活动，赛程为期15天，采用九人制男子足球赛制。参赛队员涵盖各行各业、多个民族的体育
+文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。同期，美国国债的占比从25%降至22%。欧元计价储备资产的占比保持不变，为15%。储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。其构成的这
 
 ## 正文
 
-中新网银川6月5日电 (记者 李佩珊)6月5日，一场以“中华民族一家亲”为主题的民族团结进步杯足球赛在贺兰山下的宁夏银川市西夏区开赛。
+文章来源：格隆汇 据英国金融时报，黄金已超越美国政府债券，成为全球第一大储备资产。
 
-来自西夏区机关、社区、高校等单位的16支代表队、近300名运动员齐聚绿茵场，在轻松热烈的氛围中以球会友、切磋交流。
+根据欧洲央行周二发布的一份报告，截至2025年底，黄金在全球央行储备资产中的占比达到27%，高于一年前的20%。
 
-本次赛事是西夏区民族团结进步“六共”主题群众文体活动，赛程为期15天，采用九人制男子足球赛制。
+同期，美国国债的占比从25%降至22%。
 
-参赛队员涵盖各行各业、多个民族的体育爱好者，覆盖面广、群众参与热情高。
+欧元计价储备资产的占比保持不变，为15%。
 
-赛事淡化竞技排名，侧重互动联谊，依托足球搭建各族群众沟通往来、加深了解的交流平台。
+储备资产是央行用于支持本币汇率、履行国际支付义务以及在金融动荡时提供流动性支持的高流动性资产。
 
-开赛当日，赛场暖意融融、人气高涨。
+其构成的这一变化，反映出许多国家正试图寻找美元——这一事实上的全球储备货币——的替代品。
 
-各方阵有序入场、精神抖擞，尽显朝气蓬勃的精神风貌。
+自2022年美国因俄乌冲突爆发而使用制裁手段冻结其美元储备以来，各国寻求替代方案的努力明显加快。
 
-开赛哨响后，绿茵场上火力全开，球员们驰骋奔跑、默契配合，攻防转换节奏轻快，大家全力拼搏又友善包容，尽情享受运动带来的快乐。
+欧洲央行行长拉加德在周二的报告中写道：“地缘政治紧张局势继续推动央行对黄金的强劲需求。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 15:20 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:27 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 15:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 15:05 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 15:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 15:09 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 15:03 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 15:07 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 15:08 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 15:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 15:24 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 15:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 15:09 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 15:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 15:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 15:13 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:18 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/95174.shtml)
-- 2026-06-29 15:25 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/17520566.shtml)
-- 2026-06-29 15:29 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/27637555041.shtml)
-- 2026-06-29 15:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/65070803100.shtml)
-- 2026-06-29 15:26 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/2914984.shtml)
-- 2026-06-29 15:13 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/76320.shtml)
-- 2026-06-29 15:08 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/71777054.shtml)
-- 2026-06-29 15:20 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/53796.shtml)
-- 2026-06-29 15:22 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/39859846.shtml)
-- 2026-06-29 15:01 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/06741.shtml)
-- 2026-06-29 15:09 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/3837409.shtml)
-- 2026-06-29 15:27 - [急先锋](http://www.blog.minike.top/Article/details/009389.shtml)
-- 2026-06-29 15:26 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/111511408323.shtml)
-- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/74477.shtml)
-- 2026-06-29 15:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/33532373.shtml)
+- 2026-06-29 15:08 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/12066864376.shtml)
+- 2026-06-29 15:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/078841.shtml)
+- 2026-06-29 15:31 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/77707284.shtml)
+- 2026-06-29 15:32 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/7887392103.shtml)
+- 2026-06-29 15:11 - [勇敢的心第二部](http://www.share.minike.top/Article/details/768163653770.shtml)
+- 2026-06-29 15:35 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/91081944974.shtml)
+- 2026-06-29 15:35 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/976094.shtml)
+- 2026-06-29 15:32 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/86381.shtml)
+- 2026-06-29 15:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/340284533913.shtml)
+- 2026-06-29 15:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/23798283.shtml)
+- 2026-06-29 15:33 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/034695815.shtml)
+- 2026-06-29 15:34 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/022351136031.shtml)
+- 2026-06-29 15:15 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/7778950.shtml)
+- 2026-06-29 15:09 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/353390302.shtml)
+- 2026-06-29 15:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/675480225.shtml)

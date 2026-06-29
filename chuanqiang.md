@@ -1,42 +1,47 @@
-# 中央统战部“统战新语”入驻快手 12小时涨粉超20万
+# 吸纳高校毕业生就业 企业可享优惠政策
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 21:39 来源：中国新闻网 中央统战部“统战新语”入驻快手 12小时涨粉超20万 责任编辑：【翟璐】
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年06月05日 21:39 来源：中国新闻网 中央统战部“统战新语”入驻快手 12小时涨粉超20万 责任编辑：【翟璐】
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 15:05 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 15:12 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 15:12 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 15:09 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 15:13 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 15:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 15:26 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 15:13 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 15:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 15:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 15:18 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 15:32 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 15:08 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 15:12 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 15:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 15:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 15:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 15:08 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 15:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 15:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:32 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/8823251768.shtml)
-- 2026-06-29 15:23 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/370679099568.shtml)
-- 2026-06-29 15:14 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/981861.shtml)
-- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/988452102581.shtml)
-- 2026-06-29 15:22 - [NBA交易](http://www.blog.minike.top/Article/details/79821.shtml)
-- 2026-06-29 15:09 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/153346526.shtml)
-- 2026-06-29 15:18 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/44830.shtml)
-- 2026-06-29 15:06 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/54826.shtml)
-- 2026-06-29 15:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/6969821.shtml)
-- 2026-06-29 15:10 - [恋与深空 731](https://www.share.minike.top/Article/details/61999314922.shtml)
-- 2026-06-29 15:21 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/41019.shtml)
-- 2026-06-29 15:23 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/360299.shtml)
-- 2026-06-29 15:18 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/414085722.shtml)
-- 2026-06-29 15:30 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/456890.shtml)
-- 2026-06-29 15:22 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/3173708794.shtml)
+- 2026-06-29 15:10 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/1453311451.shtml)
+- 2026-06-29 15:26 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/069097124.shtml)
+- 2026-06-29 15:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/265759.shtml)
+- 2026-06-29 15:34 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/44814870857.shtml)
+- 2026-06-29 15:32 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/3137558.shtml)
+- 2026-06-29 15:18 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/01453275.shtml)
+- 2026-06-29 15:17 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/549797315943.shtml)
+- 2026-06-29 15:10 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/73005504997.shtml)
+- 2026-06-29 15:25 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/51620248.shtml)
+- 2026-06-29 15:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/796208866.shtml)
+- 2026-06-29 15:11 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/4699008174.shtml)
+- 2026-06-29 15:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/20071103230.shtml)
+- 2026-06-29 15:14 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/843260476048.shtml)
+- 2026-06-29 15:25 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/55015513.shtml)
+- 2026-06-29 15:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/9169938.shtml)

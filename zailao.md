@@ -1,56 +1,51 @@
-# 第44届康博会将于6月26日在重庆启幕
+# 报道：特朗普对内塔尼亚胡称维护以色列在全球的地位很难
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月5日电 (杨梦逸)6月5日，重庆市大渡口区举行新闻发布会，记者从会上获悉，第44届中国国际康复辅助器具产业暨国际福祉机器博览会(以下简称“康博会”)将于6月26日至28日在重庆举办。 “‘康博会’已成功举办43届，是国内康复辅助器具产业历史最悠久、规模最大、影响力最强的专业博览会。”中国康复辅助器具协会会长闫和平介绍，本届“康博会”聚焦民生康复刚需与智慧康养新技术
+以色列媒体援引一位未具名“非常高级别”的以色列官员报道称，美国总统唐纳德·特朗普周一在与以色列总理本雅明·内塔尼亚胡通话时表示，维护以色列在全球的地位很困难，而且会招致仇恨。 报道称，特朗普并未像其他媒体报道的那样，谈到内塔尼亚胡本可能入狱等表态，也没有说内塔尼亚胡遭到全球的痛恨。 报道还称，这通“气氛紧张”的电话主要围绕双方在社交媒体上的相互矛盾表述展开：特朗普称，内塔尼亚胡
 
 ## 正文
 
-中新网重庆6月5日电 (杨梦逸)6月5日，重庆市大渡口区举行新闻发布会，记者从会上获悉，第44届中国国际康复辅助器具产业暨国际福祉机器博览会(以下简称“康博会”)将于6月26日至28日在重庆举办。
+以色列媒体援引一位未具名“非常高级别”的以色列官员报道称，美国总统唐纳德·特朗普周一在与以色列总理本雅明·内塔尼亚胡通话时表示，维护以色列在全球的地位很困难，而且会招致仇恨。
 
-“‘康博会’已成功举办43届，是国内康复辅助器具产业历史最悠久、规模最大、影响力最强的专业博览会。
+报道称，特朗普并未像其他媒体报道的那样，谈到内塔尼亚胡本可能入狱等表态，也没有说内塔尼亚胡遭到全球的痛恨。
 
-”中国康复辅助器具协会会长闫和平介绍，本届“康博会”聚焦民生康复刚需与智慧康养新技术落地应用，规划打造智慧科技、假肢矫形、康复器械、银发经济等十余个主题展区。
+报道还称，这通“气氛紧张”的电话主要围绕双方在社交媒体上的相互矛盾表述展开：特朗普称，内塔尼亚胡暗示战争仍在全面持续；而内塔尼亚胡则称，特朗普暗示已实现全面停火。
 
-闫和平称，第44届“康博会”首创德国主题国、重庆主题市双主题联动，集聚中、德、美、英、冰岛、日、韩等多国数百家行业龙头企业，集中亮相前沿创新产品与尖端技术成果。
+报道说，通话结束时双方达成一项谅解：只要以色列本土不遭到攻击，将暂缓对贝鲁特发动打击。
 
-本届“康博会”期间，将举办第十届中国康复辅助器具产业峰会并配套筹办二十余场专题会议，全面贯通康复辅助器具全细分赛道：囊括矫形装配技术、轮椅研发设计、智慧康养落地、康复器械科创、医康养融合等重点议题。
-
-重庆市民政局市管二级巡视员罗世友表示，重庆将以本届“康博会”为牵引，紧扣国家应对人口老龄化、健康中国、成渝地区双城经济圈建设战略，立足重庆产业基础，围绕产业集聚、创新驱动、市场激活、生态优化、民生提质五个维度，把“康博会”机遇转化为务实举措，全力推动康复辅助器具产业提质增效、高质量发展。
-
-重庆市大渡口区政府副区长王希辉表示，近年来，该区致力于打造西部康复辅助器具产业高地，截至目前，已集聚产业链企业250余家。
-
-今年以来，该区已新落地康复辅具研发生产企业6家，呈现出生态化发展良好态势。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 15:01 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 15:05 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 15:18 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 15:03 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 15:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 15:20 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 15:07 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 15:19 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 15:01 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 15:14 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 15:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 15:32 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 15:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 15:15 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 15:08 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 15:17 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:10 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 15:21 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 15:16 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 15:21 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/34243662664.shtml)
-- 2026-06-29 15:28 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/47725.shtml)
-- 2026-06-29 15:12 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/457916.shtml)
-- 2026-06-29 15:20 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/49670612139.shtml)
-- 2026-06-29 15:23 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/786996.shtml)
-- 2026-06-29 15:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/35805.shtml)
-- 2026-06-29 15:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/490819.shtml)
-- 2026-06-29 15:11 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/122119246.shtml)
-- 2026-06-29 15:27 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/3917980673.shtml)
-- 2026-06-29 15:18 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/684661991129.shtml)
-- 2026-06-29 15:04 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/7615739.shtml)
-- 2026-06-29 15:10 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/139265205650.shtml)
-- 2026-06-29 15:21 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/1561622.shtml)
-- 2026-06-29 15:21 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/3664020.shtml)
-- 2026-06-29 15:29 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/224123446095.shtml)
+- 2026-06-29 15:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/504524029.shtml)
+- 2026-06-29 15:31 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/1705782382.shtml)
+- 2026-06-29 15:28 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/69214743390.shtml)
+- 2026-06-29 15:31 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/3100612574.shtml)
+- 2026-06-29 15:33 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/883159.shtml)
+- 2026-06-29 15:33 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/63547922.shtml)
+- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/101086479883.shtml)
+- 2026-06-29 15:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/08899.shtml)
+- 2026-06-29 15:31 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/3264207.shtml)
+- 2026-06-29 15:17 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/05645966892.shtml)
+- 2026-06-29 15:18 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/9046430155.shtml)
+- 2026-06-29 15:32 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/419502762058.shtml)
+- 2026-06-29 15:23 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/4145068.shtml)
+- 2026-06-29 15:07 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/89727264.shtml)
+- 2026-06-29 15:28 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/64520061.shtml)

@@ -1,56 +1,59 @@
-# 韩股史无前例造富！半年“赚”1000万亿韩元，人均“入账”2000万韩元
+# 高盛：联想集团维持“买入”评级 目标价升至31港元
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 问AI · AI与改革如何瓦解韩国楼市财富信仰？ 如果把时间拨回两年前，恐怕很少有韩国人会相信，创造财富最快的地方会从江南区的公寓楼，变成首尔汝矣岛的交易大厅。 过去二十年里，韩国家庭的财富密码几乎只有一个——买房。 无论是首尔江南的学区房，还是京畿道的新建住宅，只要能上车，几乎就意味着财
+高盛发布研报称，上调联想集团（00992）目标价14.8%，从27港元升至31港元，维持“买入”评级。 高盛对联想2027-2028自然年的每股盈利预测每年增长25%，此前预测为增长24%；经营利润率为3.8%，此前的预测为3.7%。该行预计该公司的基础设施方案业务集团（ISG），AI个人电脑，AI服务器可以驱动公司的重新评级，使其多元化并摆脱竞争激烈的消费性电子市场，并受益于
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+高盛发布研报称，上调联想集团（00992）目标价14.8%，从27港元升至31港元，维持“买入”评级。
 
-来源：华尔街见闻 问AI · AI与改革如何瓦解韩国楼市财富信仰？
+高盛对联想2027-2028自然年的每股盈利预测每年增长25%，此前预测为增长24%；经营利润率为3.8%，此前的预测为3.7%。
 
-如果把时间拨回两年前，恐怕很少有韩国人会相信，创造财富最快的地方会从江南区的公寓楼，变成首尔汝矣岛的交易大厅。
+该行预计该公司的基础设施方案业务集团（ISG），AI个人电脑，AI服务器可以驱动公司的重新评级，使其多元化并摆脱竞争激烈的消费性电子市场，并受益于生成式AI的发展趋势。
 
-过去二十年里，韩国家庭的财富密码几乎只有一个——买房。
+该行预期联想作为全球领先的PC品牌，将成为AI个人电脑发展趋势的主要受益者。
 
-无论是首尔江南的学区房，还是京畿道的新建住宅，只要能上车，几乎就意味着财富增值。
+联想的个人AI代理将推动其在设备、基础设施和软件方面的整体AI解决方案。
 
-韩国央行的数据显示，房地产长期占据韩国家庭资产的六成以上，而股票在家庭总资产中的占比常年只有个位数。
+联想笔记本电脑在2025自然年的全球市占率为27%，该行预期在2028自然年达到28%。
 
-对于绝大多数韩国人来说，股市更像赌场，房子才是真正的财富储藏室。
+届时，AI笔记本电脑的渗透率将达到66%，推动其综合平均销售单价在2028年达到1114美元，即2025-2028年期间复合年增长率达到8%。
 
-但进入2026年，事情突然发生了根本性的颠覆。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 15:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 15:11 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 15:16 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 15:26 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 15:15 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 15:28 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:02 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 15:02 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 15:11 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:31 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 15:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 15:29 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 15:20 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 15:24 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 15:30 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:12 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 15:27 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 15:24 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 15:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 15:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [斛珠夫人](https://www.share.minike.top/Article/details/7449029949.shtml)
-- 2026-06-29 15:02 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/16280.shtml)
-- 2026-06-29 15:19 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/795002541.shtml)
-- 2026-06-29 15:17 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/5583584975.shtml)
-- 2026-06-29 15:08 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/30756970071.shtml)
-- 2026-06-29 15:01 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/4267507673.shtml)
-- 2026-06-29 15:27 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/034101894.shtml)
-- 2026-06-29 15:16 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/66774.shtml)
-- 2026-06-29 15:02 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/870767933793.shtml)
-- 2026-06-29 15:09 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/09143461.shtml)
-- 2026-06-29 15:21 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/683802342.shtml)
-- 2026-06-29 15:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/5535513.shtml)
-- 2026-06-29 15:26 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/2297948.shtml)
-- 2026-06-29 15:24 - [千与千寻](https://www.share.kurohicncr.top/Article/details/7598571325.shtml)
-- 2026-06-29 15:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/8748640723.shtml)
+- 2026-06-29 15:16 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/02623656881.shtml)
+- 2026-06-29 15:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/652910.shtml)
+- 2026-06-29 15:07 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/21969600.shtml)
+- 2026-06-29 15:34 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/183815.shtml)
+- 2026-06-29 15:34 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/3042610.shtml)
+- 2026-06-29 15:19 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/674245.shtml)
+- 2026-06-29 15:32 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/106971786.shtml)
+- 2026-06-29 15:23 - [沙丘](http://www.share.kurohicncr.top/Article/details/50858607.shtml)
+- 2026-06-29 15:24 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/883344761012.shtml)
+- 2026-06-29 15:09 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/83625603868.shtml)
+- 2026-06-29 15:24 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/99049.shtml)
+- 2026-06-29 15:11 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/48975029.shtml)
+- 2026-06-29 15:08 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/1747605036.shtml)
+- 2026-06-29 15:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/034663669.shtml)
+- 2026-06-29 15:27 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/550665272672.shtml)

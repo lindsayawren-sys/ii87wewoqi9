@@ -1,59 +1,59 @@
-# 青海面向全国游客倡议“零塑出行”
+# 亲宝宝割韭菜？批量下载自己照片被迫开248元会员！有人用近10年记录孩子成长
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网西宁6月5日电 (祁绣娟)6月5日，2026年六五环境日青海主场活动在西宁举行，现场发出“向绿同行，守护三江”——共建生态文明高地公益行动“零塑出行”倡议。 地处地球第三极的青海，是我国关键生态安全屏障。 “零塑出行”倡导游客在旅途中自备洗漱包、水杯、可循环布袋，并主动摒弃一次性牙刷、梳子、拖鞋、塑料瓶装饮品等易耗品，让减塑践行在酒店入住、交通出行、购物消费等全旅途场景落
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：北京商报 “照片是我自己的，批量上传亲宝宝没跟我收费，为什么现在导出自己的照片要花钱？” 北京商报记者丨吴其芸 批量上传照片免费，当家长需要使用App上的照片集中下载时，却被告知“下载自己上传的照片需要付费”。今年儿童节前夕，多位家长向北京商报记者反映，亲宝宝在没有任何通知的情况下，上线付费会员体系，
 
 ## 正文
 
-中新网西宁6月5日电 (祁绣娟)6月5日，2026年六五环境日青海主场活动在西宁举行，现场发出“向绿同行，守护三江”——共建生态文明高地公益行动“零塑出行”倡议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-地处地球第三极的青海，是我国关键生态安全屏障。
+来源：北京商报 “照片是我自己的，批量上传亲宝宝没跟我收费，为什么现在导出自己的照片要花钱？
 
-“零塑出行”倡导游客在旅途中自备洗漱包、水杯、可循环布袋，并主动摒弃一次性牙刷、梳子、拖鞋、塑料瓶装饮品等易耗品，让减塑践行在酒店入住、交通出行、购物消费等全旅途场景落地；如果途中偶遇野生动物，请保持安全距离，严禁投喂或追逐惊扰。
+” 北京商报记者丨吴其芸 批量上传照片免费，当家长需要使用App上的照片集中下载时，却被告知“下载自己上传的照片需要付费”。
 
-青海省委统战部有关负责人现场表示，希望全省新的社会阶层人士要积极参与、主动作为，依托新联会人才荟萃、联系面广的资源优势，用创意引航、流量赋能，多途径推广“零塑出行”、低碳生活理念。
+今年儿童节前夕，多位家长向北京商报记者反映，亲宝宝在没有任何通知的情况下，上线付费会员体系，将原本免费的批量导出照片等功能划入会员专属权益，导致消费者需要付费开通每年248元的年卡，才能批量导出自己多年前上传的照片，否则只能一张张手动进行下载。
 
-本次倡议由中共青海省委统战部、中共青海省委社工部、青海省生态环境厅、青海省文化和旅游厅、青海省林业和草原局、共青团青海省委、中国铁路青藏集团有限公司、西部机场集团青海机场有限公司、青海省交通控股集团有限公司、青海省新的社会阶层人士联谊会(以下简称：省新联会)联合发起。
+而此前承诺的会员每月免费试用产品权益被突然取消。
 
-“零塑出行”环保活动具体落地模式由省新联会副会长单位青海省蓝色第三极可持续发展实践中心牵头策划实施。
+不仅如此，隐蔽的客服入口让家长们沟通无门。
 
-据青海省新联会副会长、青海省蓝色第三极可持续发展实践中心负责人王楷博介绍，“零塑出行”项目将在省内重点景区设立“垃圾定点投放”积分兑换点，并上线“零塑出行”小程序，同步推行游客激励机制。
+需要进入会员付费通道，才能找到在线客服。
 
-游客通过参与自带洗漱包、拾塑兑奖、自带水杯等行为，可在小程序上累积“低碳积分”。
+多位家长反馈，由于亲宝宝属于成长记录型App，家长们一路按照孩子的成长轨迹上传照片，少的有几千张，多的数万张。
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 15:07 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 15:26 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 15:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 15:03 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 15:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 15:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 15:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 15:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 15:14 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 15:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 15:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 15:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 15:10 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 15:24 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 15:09 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 15:21 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 15:31 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 15:17 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 15:17 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 15:23 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 15:28 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 15:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/25789726.shtml)
-- 2026-06-29 15:01 - [急先锋](https://www.share.kurohicncr.top/Article/details/33165428413.shtml)
-- 2026-06-29 15:05 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/33118.shtml)
-- 2026-06-29 15:03 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/9947195693.shtml)
-- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/97560982106.shtml)
-- 2026-06-29 15:14 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/28070.shtml)
-- 2026-06-29 15:09 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/54987.shtml)
-- 2026-06-29 15:06 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/11845.shtml)
-- 2026-06-29 15:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/237388089464.shtml)
-- 2026-06-29 15:29 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/3891271.shtml)
-- 2026-06-29 15:22 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/3645453655.shtml)
-- 2026-06-29 15:00 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/533475727.shtml)
-- 2026-06-29 15:07 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/237811149.shtml)
-- 2026-06-29 15:05 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/74658318.shtml)
-- 2026-06-29 15:06 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/72193.shtml)
+- 2026-06-29 15:29 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/9625125.shtml)
+- 2026-06-29 15:07 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/42053168458.shtml)
+- 2026-06-29 15:12 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/81559.shtml)
+- 2026-06-29 15:16 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/71974706056.shtml)
+- 2026-06-29 15:27 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/565925.shtml)
+- 2026-06-29 15:06 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/8346608.shtml)
+- 2026-06-29 15:16 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/99273.shtml)
+- 2026-06-29 15:19 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/3081635.shtml)
+- 2026-06-29 15:31 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/72818363.shtml)
+- 2026-06-29 15:35 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/409271632.shtml)
+- 2026-06-29 15:07 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/4770013162.shtml)
+- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/61521.shtml)
+- 2026-06-29 15:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/6308691.shtml)
+- 2026-06-29 15:06 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/3896773.shtml)
+- 2026-06-29 15:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/165073599.shtml)

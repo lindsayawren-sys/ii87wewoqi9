@@ -1,58 +1,58 @@
-# 山西高平深耕文旅营销 打造文旅康养魅力小城
+# Identiv推出ID-Pixels 3.0，为实体供应链带来可扩展的无电池智能
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。 挖掘炎帝文化，树立城市形象。高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎
+Identiv， Inc．今日宣布推出ID-Pixels 3.0，这是一款基于Wiliot第三代集成电路构建的下一代蓝牙低功耗嵌体与标签产品系列。该产品使企业能够持续感知、追踪并理解复杂供应链中商品的状态。 ID-Pixels 3.0建立在Identiv与Wiliot自2022年以来的合作基础之上。双方此前已密切合作制造和供应Wiliot的IoT Pixels产品，而ID-Pi
 
 ## 正文
 
-中新网晋城6月5日电 (杨佩佩 裴囡囡)记者5日从山西晋城高平市获悉，当地聚焦“城市形象、特色产品、传播矩阵、目标群体、产业链条、游客口碑”六个关键，坚持大抓文旅、大兴康养，推动文旅康养营销工作更有声势、更有效益。
+Identiv， Inc．今日宣布推出ID-Pixels 3.0，这是一款基于Wiliot第三代集成电路构建的下一代蓝牙低功耗嵌体与标签产品系列。
 
-挖掘炎帝文化，树立城市形象。
+该产品使企业能够持续感知、追踪并理解复杂供应链中商品的状态。
 
-高平市以“炎帝文化”为统领，依托神农炎帝故里、长平之战发生地、中国古建博物馆、上党梆子之乡“四张文化脸谱”，连续举办神农炎帝系列活动、炎帝灯会、炎帝庙会、马拉松赛等活动，持续擦亮“问祖炎帝 寻根高平”品牌，提升城市辨识度。
+ID-Pixels 3.0建立在Identiv与Wiliot自2022年以来的合作基础之上。
 
-借助专业力量，打造特色产品。
+双方此前已密切合作制造和供应Wiliot的IoT Pixels产品，而ID-Pixels 3.0是该合作的最新成果，为市场带来了更强的性能、可扩展性和感知能力。
 
-高平市整合景区、酒店、餐饮、演艺等资源，特别是依托22处国保、22处省保、61个中国传统村落、5个中国历史文化名村，以及潞绸、珐华、上党梆子等非遗代表性项目，创新植入“有喜、有福、有乐、有礼、有戏”等文化元素，开发更多“高平好礼”。
+这款自粘式标签尺寸约为33毫米×60毫米，能够从环境中的蓝牙及UHF信号中采集能量，完全无需电池驱动，同时支持在数百万件商品上进行规模化部署。
 
-同时引进专业团队，建成美术馆、音乐艺术馆等，策划音乐赛事、体育赛事，将专业优势转化为产品优势。
+每个标签均编码有唯一的数字身份标识，可采集位置、温度、湿度及光照等关键数据点，为货物的状态和流动提供持续可见性。
 
-整合宣传资源，构建传播矩阵。
+随着企业迈向更透明、自动化的供应链，从实物资产中捕获持续、真实世界数据的能力已变得至关重要。
 
-高平市坚持线上线下联动，构建全方位、立体化的传播矩阵。
+ID-Pixels 3.0正是通过将产品转变为互联的智能资产来满足这一需求，释放所需的实时数据，以支持物理AI应用并推动更快、更明智的供应链决策。
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 15:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 15:07 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 15:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 15:12 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 15:18 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 15:15 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 15:17 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 15:16 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 15:06 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 15:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 15:20 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 15:28 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 15:29 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 15:13 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 15:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 15:16 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 15:22 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 15:32 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 15:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 15:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 15:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 15:33 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:02 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/9704215653.shtml)
-- 2026-06-29 15:13 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/7265424.shtml)
-- 2026-06-29 15:25 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/50130804.shtml)
-- 2026-06-29 15:14 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/154187.shtml)
-- 2026-06-29 15:15 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/44347927.shtml)
-- 2026-06-29 15:29 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/15127.shtml)
-- 2026-06-29 15:04 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/421800929708.shtml)
-- 2026-06-29 15:10 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/5198549200.shtml)
-- 2026-06-29 15:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1736777.shtml)
-- 2026-06-29 15:01 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/29057514.shtml)
-- 2026-06-29 15:27 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/5091335.shtml)
-- 2026-06-29 15:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/45718257987.shtml)
-- 2026-06-29 15:24 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/961721995388.shtml)
-- 2026-06-29 15:09 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/265914127385.shtml)
-- 2026-06-29 15:21 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7326813.shtml)
+- 2026-06-29 15:14 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/30952.shtml)
+- 2026-06-29 15:06 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/154788715.shtml)
+- 2026-06-29 15:19 - [送你一朵小红花](https://www.share.minike.top/Article/details/290795065359.shtml)
+- 2026-06-29 15:15 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/0161889789.shtml)
+- 2026-06-29 15:15 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/1552047831.shtml)
+- 2026-06-29 15:22 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/947854275.shtml)
+- 2026-06-29 15:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/4069745728.shtml)
+- 2026-06-29 15:24 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/08039.shtml)
+- 2026-06-29 15:26 - [小娘惹](https://www.share.kurohicncr.top/Article/details/39122274505.shtml)
+- 2026-06-29 15:35 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/659843360151.shtml)
+- 2026-06-29 15:19 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/076880622.shtml)
+- 2026-06-29 15:10 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/3395132880.shtml)
+- 2026-06-29 15:24 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/496874217297.shtml)
+- 2026-06-29 15:19 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/683112223395.shtml)
+- 2026-06-29 15:23 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/350444449.shtml)

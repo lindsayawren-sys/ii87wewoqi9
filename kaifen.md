@@ -1,60 +1,47 @@
-# 中小银行高管持自家股票“特别样本”：贵阳银行董事长退休仍未回本 郑州银行现任高管仅有两位持有股权
+# 豫光金铅：目前公司各项工作均按发展战略有序开展
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 原标题：中小银行高管持自家股票的“特别样本”：贵阳银行董事长退休仍未回本；郑州银行2025年不分红，现任高管仅有两位持有股权 一般来说，银行高管持有自家机构股票是常规现象。最直接原因有二：一方面，持有自家银行股权将高管个人利益与银行长期发展绑定，能向市场展现领导层对银行发展的信心；另一方面，银行的高股息也能为高管带来持续的投资收益，是长期价值投资的优质选择。 不
+证券日报网讯6月1日，豫光金铅在互动平台回答投资者提问时表示，目前公司各项工作均按发展战略有序开展，依托创新与技术升级夯实发展实力，全面提升核心竞争力。
 
 ## 正文
 
-来源：今日行长 原标题：中小银行高管持自家股票的“特别样本”：贵阳银行董事长退休仍未回本；郑州银行2025年不分红，现任高管仅有两位持有股权 一般来说，银行高管持有自家机构股票是常规现象。
-
-最直接原因有二：一方面，持有自家银行股权将高管个人利益与银行长期发展绑定，能向市场展现领导层对银行发展的信心；另一方面，银行的高股息也能为高管带来持续的投资收益，是长期价值投资的优质选择。
-
-不过事无绝对，并非持股的高管都能实现正收益。
-
-比如刚于2026年6月3日退休的贵阳银行董事长张正海，曾在2019年9月，为了稳定股价，以8.27元/股的均价增持贵阳银行股票1.68万股，七年过去，因证券市场的波动，张正海目前相关股票却仍表现30%的浮亏，尚未回本。
-
-另外还有郑州银行，在A股上市银行中是比较少见抗住各方压力，坚持多年不分红的机构（2020至2023连续四年不分红、24年短暂分红后25年继续不分红）。
-
-遥想2018年A股刚上市，郑州银行股价一度升至8.09元/股（除权价），此后一路下滑，2024年起便开始在2元/股左右震荡，现报价1.77元/股。
-
-《今日行长》注意到，目前郑州银行持自家股份高管有两人，行助张厚林持46222股和首席风险官潘峰持1331股。
-
-其余领导班子中的董事长赵飞、副行长孙润华、行长助理张厚林、行长助理高瑞以及董事会秘书韩慧丽等人，均未持有自家机构股票。
+证券日报网讯6月1日，豫光金铅在互动平台回答投资者提问时表示，目前公司各项工作均按发展战略有序开展，依托创新与技术升级夯实发展实力，全面提升核心竞争力。
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 15:08 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 15:10 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 15:03 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 15:19 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 15:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 15:11 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 15:29 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 15:09 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 15:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 15:15 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 15:28 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 15:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 15:04 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 15:07 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 15:22 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 15:06 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 15:21 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 15:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 15:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 15:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:10 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 15:33 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 15:32 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 15:24 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 15:12 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 15:13 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 15:09 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/87713.shtml)
-- 2026-06-29 15:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/51005162.shtml)
-- 2026-06-29 15:26 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/658883708171.shtml)
-- 2026-06-29 15:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/06386.shtml)
-- 2026-06-29 15:06 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/374231570255.shtml)
-- 2026-06-29 15:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/1005538556.shtml)
-- 2026-06-29 15:13 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/45272674.shtml)
-- 2026-06-29 15:09 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/698322136.shtml)
-- 2026-06-29 15:10 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/58893736657.shtml)
-- 2026-06-29 15:26 - [天道](http://www.share.kurohicncr.top/Article/details/1107201133.shtml)
-- 2026-06-29 15:25 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/930219771019.shtml)
-- 2026-06-29 15:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/775527831.shtml)
-- 2026-06-29 15:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8846814.shtml)
-- 2026-06-29 15:09 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/1357894.shtml)
-- 2026-06-29 15:00 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/08203358.shtml)
+- 2026-06-29 15:24 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/400223246370.shtml)
+- 2026-06-29 15:26 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/337849717970.shtml)
+- 2026-06-29 15:18 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/7761070.shtml)
+- 2026-06-29 15:33 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/52552.shtml)
+- 2026-06-29 15:29 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/4989266800.shtml)
+- 2026-06-29 15:31 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/471420676.shtml)
+- 2026-06-29 15:17 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/04749932796.shtml)
+- 2026-06-29 15:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/422324.shtml)
+- 2026-06-29 15:08 - [TFING全员黑西装](http://www.share.minike.top/Article/details/536544043096.shtml)
+- 2026-06-29 15:20 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/51881166277.shtml)
+- 2026-06-29 15:35 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/77837.shtml)
+- 2026-06-29 15:19 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/26607398342.shtml)
+- 2026-06-29 15:13 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/54126763.shtml)
+- 2026-06-29 15:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/10507498.shtml)
+- 2026-06-29 15:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/3211927.shtml)

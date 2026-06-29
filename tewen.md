@@ -1,61 +1,58 @@
-# Meta押注AI健康赛道 重塑消费者战略
+# Gossamer Bio证券集体诉讼截止日期今晚到期，Faruqi & Faruqi鼓励受损投资者联系
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-Meta Platforms首席人工智能官Alexandr Wang近日表示，消费者健康将成为公司未来AI模型的关键差异化方向。随着Meta计划将AI模型扩展至数十亿用户，健康管理领域被定位为“至关重要的应用场景”。 Wang周四透露，Meta旗下超级智能实验室推出的首个大型AI模型Muse Spark，其健康功能已成为最显著优势。尽管Wang坦承Muse Spark“尚未达到
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。 该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。 诉讼指控称，在整个集体诉讼期内，被告做出了虚假和
 
 ## 正文
 
-Meta Platforms首席人工智能官Alexandr Wang近日表示，消费者健康将成为公司未来AI模型的关键差异化方向。
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。
 
-随着Meta计划将AI模型扩展至数十亿用户，健康管理领域被定位为“至关重要的应用场景”。
+该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。
 
-Wang周四透露，Meta旗下超级智能实验室推出的首个大型AI模型Muse Spark，其健康功能已成为最显著优势。
+诉讼指控称，在整个集体诉讼期内，被告做出了虚假和/或误导性陈述，且/或未能披露以下事项：公司3期PROSERA试验的设计存在缺陷，特别是在控制拉丁美洲试验点的安慰剂反应方面存在不足。
 
-尽管Wang坦承Muse Spark“尚未达到Anthropic的Claude和OpenAI的ChatGPT等领先前沿模型的水平”，但其表现已超出内部预期。
+2026年2月23日，Gossamer Bio公布了PROSERA试验的顶线结果，该试验评估了seralutinib治疗肺动脉高压的疗效。
 
-现年29岁的Wang在加入Meta前是数据标注初创公司Scale AI的创始人。
+结果显示，试验未能达到第24周改善六分钟步行距离的主要终点，经安慰剂校正后的改善仅为13.3米，p值为0.0320，未能达到0.025的预设统计学阈值。
 
-Meta首席执行官马克·扎克伯格此前对公司AI业务进行大规模重组，其中包括向Scale AI投资140亿美元，这笔交易被广泛视为吸引Wang加盟的关键举措。
+公司将这一失败归因于拉丁美洲试验点患者表现出的“超大安慰剂反应”。
 
-Wang表示，Muse Spark在开发过程中暴露出较高的生物风险，Meta已在模型发布前采取措施降低这些风险，并因此决定不以开源方式发布该模型。
+据披露，这些地区的患者属于“经过大量治疗的低风险人群”，在安慰剂对照下表现异常出色，包括一些“超级反应者”在仅使用安慰剂的情况下步行改善超过100米。
 
-他强调，安全和隐私是公司的首要考量，因此选择内部控制模型的发布。
+试验失败的消息导致Gossamer Bio股价从2月20日的每股2.13美元收盘价暴跌至2月23日的0.42美元，单日跌幅超过80%。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:06 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 15:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 15:27 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 15:23 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 15:20 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 15:06 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 15:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 15:13 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 15:04 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 15:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 15:09 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 15:00 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 15:30 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 15:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 15:08 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 15:30 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 15:08 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 15:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 15:15 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 15:20 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 15:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 15:25 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 15:33 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 15:17 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/92822972015.shtml)
-- 2026-06-29 15:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/805275714957.shtml)
-- 2026-06-29 15:19 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/79836904.shtml)
-- 2026-06-29 15:21 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/7987876074.shtml)
-- 2026-06-29 15:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/48135152.shtml)
-- 2026-06-29 15:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/0678388301.shtml)
-- 2026-06-29 15:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/323210.shtml)
-- 2026-06-29 15:15 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/212167027.shtml)
-- 2026-06-29 15:03 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/21064.shtml)
-- 2026-06-29 15:22 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/73700832.shtml)
-- 2026-06-29 15:03 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/13639.shtml)
-- 2026-06-29 15:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/490689573.shtml)
-- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/1634726391.shtml)
-- 2026-06-29 15:27 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/9889791.shtml)
-- 2026-06-29 15:11 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/28445.shtml)
+- 2026-06-29 15:08 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/004886.shtml)
+- 2026-06-29 15:26 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/803000833134.shtml)
+- 2026-06-29 15:33 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/127801.shtml)
+- 2026-06-29 15:31 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/14109261.shtml)
+- 2026-06-29 15:08 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/81795889811.shtml)
+- 2026-06-29 15:11 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/90321700629.shtml)
+- 2026-06-29 15:07 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/71027896897.shtml)
+- 2026-06-29 15:32 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/9634522.shtml)
+- 2026-06-29 15:17 - [博主：美航母沦为毒品集散窝点](http://www.share.minike.top/Article/details/62728405.shtml)
+- 2026-06-29 15:18 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/068920.shtml)
+- 2026-06-29 15:12 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/4449761581.shtml)
+- 2026-06-29 15:30 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/492452694764.shtml)
+- 2026-06-29 15:19 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/386092765399.shtml)
+- 2026-06-29 15:35 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/138831502299.shtml)
+- 2026-06-29 15:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/78800514671.shtml)

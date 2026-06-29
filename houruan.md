@@ -1,61 +1,61 @@
-# 核心驱动力并未动摇 五大券商把脉A股下半年机遇
+# 视频丨《习近平的文化情缘》等纪录片在老挝启播
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-进入年中时点，各大券商机构对于A股下半年行情走势的研判陆续出炉，相关内容成为投资者提前布局、捕捉市场机遇的重要参考。就在近期，国泰海通、中信证券、中金公司、华泰证券、中信建投等多家头部券商陆续发布2026年A股中期策略报告，受到市场各方重视。 在前述券商看来，当前推动本轮市场上行、中国资产重估的核心驱动力并未发生根本性动摇，市场整体估值合理，但部分高估值板块需警惕出现波动风险；
+视频：《习近平的文化情缘》等纪录片在老挝启播来源：央视新闻客户端 当地时间6月1日，由中国中央广播电视总台制作的《习近平的文化情缘》《领航(国际版)》《典籍里的新思想》三部中国纪录片在老挝国家电视台等老挝主流媒体启播。老挝人民革命党中央总书记、国家主席通伦发来贺信，对节目播出表示祝贺。 通伦在贺信中表示，《习近平的文化情缘》等纪录片中蕴含着中国哲思智慧，体现了习近平总书记对文化
 
 ## 正文
 
-进入年中时点，各大券商机构对于A股下半年行情走势的研判陆续出炉，相关内容成为投资者提前布局、捕捉市场机遇的重要参考。
+视频：《习近平的文化情缘》等纪录片在老挝启播来源：央视新闻客户端 当地时间6月1日，由中国中央广播电视总台制作的《习近平的文化情缘》《领航(国际版)》《典籍里的新思想》三部中国纪录片在老挝国家电视台等老挝主流媒体启播。
 
-就在近期，国泰海通、中信证券、中金公司、华泰证券、中信建投等多家头部券商陆续发布2026年A股中期策略报告，受到市场各方重视。
+老挝人民革命党中央总书记、国家主席通伦发来贺信，对节目播出表示祝贺。
 
-在前述券商看来，当前推动本轮市场上行、中国资产重估的核心驱动力并未发生根本性动摇，市场整体估值合理，但部分高估值板块需警惕出现波动风险；对于AI主线，当前全球AI革命处于景气度持续扩散而非全面泡沫化的阶段。
+通伦在贺信中表示，《习近平的文化情缘》等纪录片中蕴含着中国哲思智慧，体现了习近平总书记对文化遗产保护的高度重视、在治国理政中的远见卓识和深厚炽热的爱国主义情怀，以及他对中华五千年悠久文明历史发自内心的无限热爱。
 
-就后市布局而言，新兴科技、优势制造以及具备估值修复潜力的部分传统行业是值得把握的主线，通信设备、高端装备、电力设备与新能源、工程机械、创新药等品种受到青睐。
+同时，纪录片也彰显了中华文明作为民族的根脉和不竭动力，正推动中国实现民族复兴的伟大梦想。
 
-● 本报记者 胡雨 市场风格未必发生切换 5月中旬以来，A股三大股指走势分化，呈现出明显的结构性行情：截至6月4日收盘，上证指数震荡调整至4100点关口下方，深证成指呈现区间震荡态势，创业板指则震荡走高。
+这对老挝在经济社会发展的同时，保护和弘扬自己独特的民族文化，推进老挝社会主义事业的建设，是极好的借鉴。
 
-从行业板块看，推动创业板指走强的通信、电子等成长板块近期涨势放缓，煤炭、公用事业等周期板块接力上涨，市场板块轮动态势持续。
+今年是中老建交65周年，也是中老两党两国领导人共同开启的“中老友好年”。
 
-如何看待A股下半年行情走势？
+6月2日，中国中央广播电视总台与老挝人民革命党中央宣传部在老挝万象举办启播仪式。
 
-多家头部券商研判，支撑A股行情延续的核心条件并未改变，基本面方面看好A股整体盈利水平改善，市场风格未必发生切换但或将更加均衡。
+《习近平的文化情缘》《领航(国际版)》《典籍里的新思想》三部纪录片在老挝国家电视台、老挝国家通讯社、老挝国家电台和万象电视台等主流媒体陆续播出。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 15:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:00 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 15:08 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 15:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 15:28 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 15:27 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 15:07 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 15:13 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 15:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 15:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:08 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:04 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 15:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 15:17 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 15:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 15:28 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 15:07 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 15:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:08 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 15:09 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 15:12 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 15:35 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 15:23 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 15:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 15:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 15:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/7748233156.shtml)
-- 2026-06-29 15:03 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/62399.shtml)
-- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/79084716143.shtml)
-- 2026-06-29 15:15 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/491657047.shtml)
-- 2026-06-29 15:24 - [双高胎](https://www.blog.kurohicncr.top/Article/details/04974713418.shtml)
-- 2026-06-29 15:28 - [金牌调解](https://www.share.minike.top/Article/details/727310.shtml)
-- 2026-06-29 15:23 - [AG 钟意](http://www.blog.minike.top/Article/details/3346400045.shtml)
-- 2026-06-29 15:15 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/10859.shtml)
-- 2026-06-29 15:18 - [A股](https://www.share.kurohicncr.top/Article/details/17397905.shtml)
-- 2026-06-29 15:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/380514469265.shtml)
-- 2026-06-29 15:22 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/17330291687.shtml)
-- 2026-06-29 15:03 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/1492498.shtml)
-- 2026-06-29 15:13 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/43551.shtml)
-- 2026-06-29 15:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/029063405.shtml)
-- 2026-06-29 15:22 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/7867531927.shtml)
+- 2026-06-29 15:35 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9081176.shtml)
+- 2026-06-29 15:07 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/62298488.shtml)
+- 2026-06-29 15:34 - [天道](https://www.blog.minike.top/Article/details/93357241.shtml)
+- 2026-06-29 15:18 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/81562169.shtml)
+- 2026-06-29 15:31 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/0371925.shtml)
+- 2026-06-29 15:23 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/56812.shtml)
+- 2026-06-29 15:23 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/66371.shtml)
+- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/613979822642.shtml)
+- 2026-06-29 15:31 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/699052279.shtml)
+- 2026-06-29 15:13 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/8610403769.shtml)
+- 2026-06-29 15:19 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/4518774111.shtml)
+- 2026-06-29 15:08 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/611734593.shtml)
+- 2026-06-29 15:20 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/3283262.shtml)
+- 2026-06-29 15:17 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/828425.shtml)
+- 2026-06-29 15:14 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/704353.shtml)

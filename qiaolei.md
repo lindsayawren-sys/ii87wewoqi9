@@ -1,54 +1,61 @@
-# 伊朗外长：地区国家不应让美国利用其领土攻击伊朗
+# Millennium前高管领导的对冲基金据悉新聘10个交易团队并将增资
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。 阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。（总台记者 李健南） ©2026中央广播电视总台版权所有。未经许可，请勿转载使用。 责任编
+据一位知情人士透露，专注于亚洲市场的对冲基金公司Arrowpoint Investment Partners正寻求在下半年将资本增加到25亿至30亿美元之间，且有更多团队将加入这家所谓的“多重经理人基金”（pod-shop）公司。 这位知情人士表示，在现有和新投资者的注资以及今年1-5月回报率达8.3%的帮助下，该公司资产已增至近20亿美元。由于涉及更公开资讯，知情人士要求匿名
 
 ## 正文
 
-当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。
+据一位知情人士透露，专注于亚洲市场的对冲基金公司Arrowpoint Investment Partners正寻求在下半年将资本增加到25亿至30亿美元之间，且有更多团队将加入这家所谓的“多重经理人基金”（pod-shop）公司。
 
-阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。
+这位知情人士表示，在现有和新投资者的注资以及今年1-5月回报率达8.3%的帮助下，该公司资产已增至近20亿美元。
 
-该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。
+由于涉及更公开资讯，知情人士要求匿名。
 
-（总台记者 李健南） ©2026中央广播电视总台版权所有。
+该人士表示，Arrowpoint已签约10个新的投资团队，这些团队将在今年剩余时间内开始运作，目前积极交易的团队数量约为20个。
 
-未经许可，请勿转载使用。
+一位驻香港的合伙人Elizabeth Lo拒绝置评。
 
-责任编辑：江学思
+自2017年以来，聘雇多个团队的多策略公司持续吸引全球对冲基金业的大部分新增资金，满足了投资者对能够产生稳定回报的一站式服务需求。
+
+这加剧人才争夺战与资金竞争。
+
+然而，这种竞争环境也令新成立的基金格外承压，要求其在创业初期便须成功招募优秀投资人才、持续创造绩效并建立稳定资金来源。
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 15:14 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 15:03 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 15:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:10 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 15:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 15:01 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 15:18 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 15:21 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 15:21 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 15:27 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 15:22 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 15:22 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 15:21 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 15:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 15:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 15:21 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 15:31 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 15:33 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 15:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 15:12 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 15:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 15:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 15:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 15:21 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/85744.shtml)
-- 2026-06-29 15:14 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/769558.shtml)
-- 2026-06-29 15:16 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/99340070.shtml)
-- 2026-06-29 15:02 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/516872636.shtml)
-- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://www.share.minike.top/Article/details/75746.shtml)
-- 2026-06-29 15:07 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/901491.shtml)
-- 2026-06-29 15:11 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/2233198907.shtml)
-- 2026-06-29 15:16 - [NBA交易](https://www.share.minike.top/Article/details/4254578.shtml)
-- 2026-06-29 15:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/3040591.shtml)
-- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/760648.shtml)
-- 2026-06-29 15:29 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/19604134.shtml)
-- 2026-06-29 15:29 - [5万块的威力](https://www.blog.minike.top/Article/details/415300758.shtml)
-- 2026-06-29 15:19 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/32865759.shtml)
-- 2026-06-29 15:03 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/619849092.shtml)
-- 2026-06-29 15:20 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/77478686594.shtml)
+- 2026-06-29 15:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/50654151808.shtml)
+- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/4287645611.shtml)
+- 2026-06-29 15:27 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/099019716097.shtml)
+- 2026-06-29 15:06 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/0964306587.shtml)
+- 2026-06-29 15:16 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/188189902248.shtml)
+- 2026-06-29 15:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/84002.shtml)
+- 2026-06-29 15:19 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/9225533.shtml)
+- 2026-06-29 15:25 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/693413803.shtml)
+- 2026-06-29 15:34 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/828068682049.shtml)
+- 2026-06-29 15:08 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/9544244990.shtml)
+- 2026-06-29 15:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/6421670932.shtml)
+- 2026-06-29 15:25 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/94906695.shtml)
+- 2026-06-29 15:34 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/08083214.shtml)
+- 2026-06-29 15:17 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/448259005.shtml)
+- 2026-06-29 15:17 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/3437632.shtml)

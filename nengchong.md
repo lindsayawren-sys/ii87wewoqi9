@@ -1,42 +1,60 @@
-# 美国总统表示：若达成协议 不排除与伊朗最高领袖会晤
+# 一曲《阿嬷的话》戳中人心 尤长靖：共鸣比满分更珍贵
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 10:14 来源：央视新闻 责任编辑：【王祎】
+中新网长沙6月2日电(记者 邓霞)上周《歌手2026》袭榜赛中，尤长靖一首闽南语歌《阿嬷的话》令不少观众动容，也引发许多人对于亲情的共鸣。6月1日晚，尤长靖线上接受媒体群访时道出一路走来的心路历程：“唱最想唱的歌，唱当下最真实的自己。” 尤长靖2025年就收到了《歌手》邀约。“当时很兴奋，但也犹豫，我想等自己准备好再来。”他说，所谓“准备好”，不是准备比赛或证明什么，而是准备好
 
 ## 正文
 
-发布时间：2026年06月05日 10:14 来源：央视新闻 责任编辑：【王祎】
+中新网长沙6月2日电(记者 邓霞)上周《歌手2026》袭榜赛中，尤长靖一首闽南语歌《阿嬷的话》令不少观众动容，也引发许多人对于亲情的共鸣。
+
+6月1日晚，尤长靖线上接受媒体群访时道出一路走来的心路历程：“唱最想唱的歌，唱当下最真实的自己。
+
+” 尤长靖2025年就收到了《歌手》邀约。
+
+“当时很兴奋，但也犹豫，我想等自己准备好再来。
+
+”他说，所谓“准备好”，不是准备比赛或证明什么，而是准备好把这些年想唱的歌，好好唱给大家听。
+
+所以今年再次收到邀约，便立刻决定参加。
+
+两期竞演下来，尤长靖的《是你想成为的大人吗》和《阿嬷的话》都收获了很高关注。
+
+但他直言两场竞演都不完美，如果一定要选哪场表现更好，他还是会选《阿嬷的话》。
 
 ## 相关推荐
 
-- 2026-06-29 15:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 15:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 15:19 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 15:23 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 15:20 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 15:01 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 15:04 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 15:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 15:23 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 15:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 15:10 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 15:10 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 15:15 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 15:27 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 15:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 15:33 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:26 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 15:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 15:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 15:10 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 15:09 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 15:26 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 15:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/61490199809.shtml)
-- 2026-06-29 15:01 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/1906872.shtml)
-- 2026-06-29 15:23 - [周生如故](https://www.share.minike.top/Article/details/8339287325.shtml)
-- 2026-06-29 15:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5292901.shtml)
-- 2026-06-29 15:12 - [请回答王牌2019](https://www.share.minike.top/Article/details/435254204.shtml)
-- 2026-06-29 15:03 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/2144717858.shtml)
-- 2026-06-29 15:19 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/012755451698.shtml)
-- 2026-06-29 15:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/2176078.shtml)
-- 2026-06-29 15:24 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/66816717297.shtml)
-- 2026-06-29 15:17 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/370428.shtml)
-- 2026-06-29 15:06 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/67389070315.shtml)
-- 2026-06-29 15:15 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/720324353381.shtml)
-- 2026-06-29 15:09 - [双高胎](https://www.share.kurohicncr.top/Article/details/36548.shtml)
-- 2026-06-29 15:02 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/799635.shtml)
-- 2026-06-29 15:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/667734870.shtml)
+- 2026-06-29 15:34 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/56576975.shtml)
+- 2026-06-29 15:21 - [斗破苍穹](http://www.share.minike.top/Article/details/8543015.shtml)
+- 2026-06-29 15:20 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/021328.shtml)
+- 2026-06-29 15:16 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/556202.shtml)
+- 2026-06-29 15:13 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/4747028678.shtml)
+- 2026-06-29 15:28 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/084917942.shtml)
+- 2026-06-29 15:22 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/458937.shtml)
+- 2026-06-29 15:27 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/752588129.shtml)
+- 2026-06-29 15:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/7416164.shtml)
+- 2026-06-29 15:27 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/017395023.shtml)
+- 2026-06-29 15:14 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/740042591003.shtml)
+- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/383322680.shtml)
+- 2026-06-29 15:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/82815880.shtml)
+- 2026-06-29 15:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/47451.shtml)
+- 2026-06-29 15:15 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/884755571.shtml)

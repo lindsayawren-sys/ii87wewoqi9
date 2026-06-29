@@ -1,56 +1,51 @@
-# “千帆星座”组网卫星成功发射，SpaceX上市在即，华宝基金通用航空ETF（159231）劲涨逾2%
+# 受伊朗暂停谈判报道影响，欧元区和英国国债收益率扩大涨幅
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-6月5日，商业航天久违领涨，海格通信一度涨停，航天电子大涨逾6%。通用航空ETF华宝（159231）震荡走强，场内价格现涨2.14%。 消息面上，2026年6月4日，我国在太原卫星发射中心使用长征六号甲运载火箭，成功将垣信卫星的18颗“千帆星座”组网卫星送入预定轨道，所有卫星状态正常，发射任务取得圆满成功。 海外方面，SpaceX IPO催化商业航天板块情绪。 当地时间6月3日
+伊朗暂停与美国的谈判，以抗议以色列袭击黎巴嫩，受此影响，欧元区政府债券和英国国债收益率飙升。 伊朗塔斯尼姆通讯社表示，伊朗将停止通过中间人与美国进行谈判和信息交换。 Tradeweb的数据显示，10年期德国国债收益率上升8.3个基点，至3.012%；法国10年期国债收益率上升10个基点，至3.636%；10年期意大利国债收益率跃升11个基点，至3.750%；10年期英国国债收益
 
 ## 正文
 
-6月5日，商业航天久违领涨，海格通信一度涨停，航天电子大涨逾6%。
+伊朗暂停与美国的谈判，以抗议以色列袭击黎巴嫩，受此影响，欧元区政府债券和英国国债收益率飙升。
 
-通用航空ETF华宝（159231）震荡走强，场内价格现涨2.14%。
+伊朗塔斯尼姆通讯社表示，伊朗将停止通过中间人与美国进行谈判和信息交换。
 
-消息面上，2026年6月4日，我国在太原卫星发射中心使用长征六号甲运载火箭，成功将垣信卫星的18颗“千帆星座”组网卫星送入预定轨道，所有卫星状态正常，发射任务取得圆满成功。
+Tradeweb的数据显示，10年期德国国债收益率上升8.3个基点，至3.012%；法国10年期国债收益率上升10个基点，至3.636%；10年期意大利国债收益率跃升11个基点，至3.750%；10年期英国国债收益率上升8.2个基点，至4.889%。
 
-海外方面，SpaceX IPO催化商业航天板块情绪。
-
-当地时间6月3日，SpaceX向美国证监会提交文件，计划以每股135美元价格募资750亿美元，目估值达1.77万亿美元，将于6月12日在纳斯达克挂牌。
-
-东方证券分析指出，看好6月商业航天板块触底反弹。
-
-上周商业航天板块出现明显调整，可能由于风偏调整、SpaceX估值或将下修，以及国内产业端火箭卫星的研发等进度有所推迟等因素共同导致，展望6-7月，国内火箭与卫星端催化不断，海外SpaceX也即将上市，我们认为商业航天作为强主题性赛道，整体板块的关注度有望快速上升，看好SpaceX链配套公司、火箭端关键环节以及国内卫星端新一代技术提前布局的核心公司。
-
-大国之翼，大展鸿图！
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 15:29 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 15:04 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 15:16 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 15:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 15:19 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 15:05 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 15:01 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 15:04 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 15:02 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 15:32 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 15:08 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 15:17 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:18 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 15:35 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 15:15 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 15:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 15:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 15:09 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 15:19 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 15:22 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 15:11 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 15:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/87297.shtml)
-- 2026-06-29 15:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/1172491128.shtml)
-- 2026-06-29 15:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/2179257305.shtml)
-- 2026-06-29 15:24 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/91172899.shtml)
-- 2026-06-29 15:07 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/467750391.shtml)
-- 2026-06-29 15:09 - [我和我的家乡](http://www.share.minike.top/Article/details/4187985.shtml)
-- 2026-06-29 15:24 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/7944213675.shtml)
-- 2026-06-29 15:02 - [极限挑战第一季](https://www.blog.minike.top/Article/details/0780972467.shtml)
-- 2026-06-29 15:12 - [世界杯十大帅哥必吃榜](http://www.blog.kurohicncr.top/Article/details/1643219144.shtml)
-- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/57723046.shtml)
-- 2026-06-29 15:04 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/56395.shtml)
-- 2026-06-29 15:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/433325831038.shtml)
-- 2026-06-29 15:08 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/951235447.shtml)
-- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/81559.shtml)
-- 2026-06-29 15:14 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/877705.shtml)
+- 2026-06-29 15:26 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/20898721.shtml)
+- 2026-06-29 15:08 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/703745166548.shtml)
+- 2026-06-29 15:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/76185799287.shtml)
+- 2026-06-29 15:24 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/6640380.shtml)
+- 2026-06-29 15:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/4292138028.shtml)
+- 2026-06-29 15:31 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/5225407623.shtml)
+- 2026-06-29 15:22 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/202606542015.shtml)
+- 2026-06-29 15:23 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/13868251.shtml)
+- 2026-06-29 15:21 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/4878752.shtml)
+- 2026-06-29 15:32 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/450985.shtml)
+- 2026-06-29 15:12 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/49605.shtml)
+- 2026-06-29 15:11 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/214792784.shtml)
+- 2026-06-29 15:15 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/09771669838.shtml)
+- 2026-06-29 15:13 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/83454.shtml)
+- 2026-06-29 15:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/270189.shtml)

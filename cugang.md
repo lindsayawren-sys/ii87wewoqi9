@@ -1,45 +1,59 @@
-# 6月5日央行开展2150亿元7天期逆回购操作
+# 光通信产业链领涨 A股结构性行情延续
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+6月2日，A股市场呈现震荡反弹态势，主要指数全线飘红，创业板指表现最为强势，涨幅达2.66%，成为市场领涨核心。光通信产业链成为全天最强主线，元件、CPO、光纤等细分板块集体爆发，多只个股涨停并创历史新高。尽管指数普遍上涨，但市场分化现象明显，全市场超3800只个股出现下跌，资金继续向核心赛道集中。 机构普遍认为，6月A股结构性行情将延续，科技成长仍是主线，但眼前的约束条件是“
 
 ## 正文
 
-中新网6月5日电 据央行网站消息，2026年6月5日中国人民银行以固定利率、数量招标方式开展了2150亿元7天期逆回购操作，全额满足了一级交易商需求。
+6月2日，A股市场呈现震荡反弹态势，主要指数全线飘红，创业板指表现最为强势，涨幅达2.66%，成为市场领涨核心。
 
-具体情况如下：
+光通信产业链成为全天最强主线，元件、CPO、光纤等细分板块集体爆发，多只个股涨停并创历史新高。
+
+尽管指数普遍上涨，但市场分化现象明显，全市场超3800只个股出现下跌，资金继续向核心赛道集中。
+
+机构普遍认为，6月A股结构性行情将延续，科技成长仍是主线，但眼前的约束条件是“拥挤度太高+资金面不够厚+缺乏增量催化”，因此6月大概率走出“震荡整固-结构收敛-等待下一脚油门”的路径。
+
+今天盘中的V型反弹，印证了这一叙事框架下的“清洗浮筹”逻辑，而非新一轮趋势性逼空的开始。
+
+● 本报记者 赵中昊 创业板指表现亮眼 6月2日，A股主要指数全线上涨，截至收盘，上证指数收报4075.10点，上涨0.43%；深证成指收报15591.13点，上涨1.63%；创业板指表现最为突出，收报4055.87点，上涨2.66%；科创50指数收报1690.56点，上涨1.61%；沪深300指数收报4914.56点，上涨1.45%；北证50指数收报1252.21点，上涨0.20%。
+
+沪深两市合计成交额达28132亿元，呈现缩量上涨态势，显示在反弹过程中市场分歧有所加大。
+
+从个股表现来看，当日A股市场共有1543只个股上涨，3876只下跌。
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-29 15:10 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 15:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 15:22 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 15:13 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 15:18 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 15:19 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 15:17 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 15:12 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 15:19 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 15:17 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 15:34 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 15:07 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 15:11 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 15:26 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 15:34 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:16 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 15:25 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 15:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 15:33 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 15:16 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:23 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 15:06 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 15:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/2202824.shtml)
-- 2026-06-29 15:03 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/86691.shtml)
-- 2026-06-29 15:05 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/8688627.shtml)
-- 2026-06-29 15:27 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/122068993713.shtml)
-- 2026-06-29 15:27 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/325499542.shtml)
-- 2026-06-29 15:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/599996493.shtml)
-- 2026-06-29 15:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/79675495624.shtml)
-- 2026-06-29 15:15 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/86321606995.shtml)
-- 2026-06-29 15:22 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.kurohicncr.top/Article/details/599299.shtml)
-- 2026-06-29 15:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/938460750.shtml)
-- 2026-06-29 15:24 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/51705695607.shtml)
-- 2026-06-29 15:08 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/13906.shtml)
-- 2026-06-29 15:11 - [AG 钟意](http://www.blog.minike.top/Article/details/0249626.shtml)
-- 2026-06-29 15:04 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/9726905.shtml)
-- 2026-06-29 15:29 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/3006011.shtml)
+- 2026-06-29 15:15 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/8725436.shtml)
+- 2026-06-29 15:25 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/23402.shtml)
+- 2026-06-29 15:33 - [时光音乐会](https://www.blog.minike.top/Article/details/85423.shtml)
+- 2026-06-29 15:15 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/80061493.shtml)
+- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/875526577541.shtml)
+- 2026-06-29 15:09 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/84257138078.shtml)
+- 2026-06-29 15:31 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/132624.shtml)
+- 2026-06-29 15:15 - [一见倾心](http://www.blog.minike.top/Article/details/71810455805.shtml)
+- 2026-06-29 15:09 - [斗破苍穹](http://www.blog.minike.top/Article/details/53085.shtml)
+- 2026-06-29 15:07 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/360020806315.shtml)
+- 2026-06-29 15:17 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/04653.shtml)
+- 2026-06-29 15:17 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/59182938859.shtml)
+- 2026-06-29 15:14 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/61933.shtml)
+- 2026-06-29 15:14 - [千与千寻](https://www.share.minike.top/Article/details/439392.shtml)
+- 2026-06-29 15:29 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/611602621961.shtml)

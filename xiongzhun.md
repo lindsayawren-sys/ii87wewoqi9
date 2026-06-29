@@ -1,61 +1,56 @@
-# ISS逆转立场支持迁册开曼，高盛上调Expro评级至买入
+# 黑芝麻（000716）被预处罚，股民索赔可期
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-能源服务公司Expro Group Holdings周四股价上涨逾7%，此前该公司接连迎来两项利好：代理投票顾问机构ISS逆转此前立场，支持公司将注册地从荷兰迁至开曼群岛的提案；高盛将股票评级从中性上调至买入，目标价定为19美元。 ISS在修订后的建议中表示，经过对Expro董事会6月1日提供的补充信息进行审查，现推荐股东投票支持迁址提案及相关章程修正案。这一立场逆转对Expr
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司（简称：黑芝麻，代码：000716）发布《关于公司及相关当事人收到行政处罚事先告知书的公告》。 经中国证监会广西监管局查明，当事人涉嫌违法的事实如下： 一、未及时披露关联方非经营性资金占用。2023年，黑芝麻的子公司广西南方食养工厂有限公司（2023年12月更名为南方黑芝麻
 
 ## 正文
 
-能源服务公司Expro Group Holdings周四股价上涨逾7%，此前该公司接连迎来两项利好：代理投票顾问机构ISS逆转此前立场，支持公司将注册地从荷兰迁至开曼群岛的提案；高盛将股票评级从中性上调至买入，目标价定为19美元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，南方黑芝麻（维权）集团股份有限公司（简称：黑芝麻，代码：000716）发布《关于公司及相关当事人收到行政处罚事先告知书的公告》。
 
-ISS在修订后的建议中表示，经过对Expro董事会6月1日提供的补充信息进行审查，现推荐股东投票支持迁址提案及相关章程修正案。
+经中国证监会广西监管局查明，当事人涉嫌违法的事实如下： 一、未及时披露关联方非经营性资金占用。
 
-这一立场逆转对Expro意义重大，因为提案通过需在年度股东大会上获得三分之二的赞成票。
+2023年，黑芝麻的子公司广西南方食养工厂有限公司（2023年12月更名为南方黑芝麻（广西）健康粮仓工厂有限公司）通过预付第三方公司账款等方式转出资金，部分款项最终被黑芝麻关联方非经营性占用，非经营性资金占用累计发生18，592.64万元，占最近一期经审计净资产的7.51%，黑芝麻未及时履行信息披露义务。
 
-持有公司约10.5%股份并在董事会拥有席位的Oak Hill Advisors已同意投票支持。
+二、2023年年度报告存在重大遗漏。
 
-Expro预计迁册后每年可在审计、法律、税务及行政职能方面节省逾60万美元经常性开支，若加上规避欧盟可持续发展报告合规成本，年度节省金额可能超过100万美元。
+2023年，黑芝麻累计发生关联方非经营性资金占用18，592.64万元，占当期经审计净资产的7.38%。
 
-注册地迁移将使公司免于缴纳荷兰对股息及特定股份回购征收的15%预扣税，并有望在指数分类上被认定为美国注册发行人，从而提升纳入标普指数的资格。
+2023年末非经营性资金占用余额为12，844.81万元，占当期经审计净资产的5.10%。
 
-公司强调，此次变更不改变业务、管理层、休斯顿总部及纽交所上市地位，每股普通股按一比一比例置换，不产生稀释。
+黑芝麻未在2023年年度报告中披露上述事项，构成重大遗漏。
 
-与此同时，高盛分析师上调评级时指出，随着行业寻求提升产能并增加中东地区修井作业以重启生产，中期内海上及国际服务投资将持续增加。
+截至2025年12月31日，关联方已归还前述全部非经营性占用资金的本金。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 15:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 15:21 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 15:17 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 15:03 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:05 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:23 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 15:13 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 15:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:13 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 15:19 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 15:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 15:11 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 15:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 15:27 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 15:23 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 15:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 15:27 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 15:11 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 15:07 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 15:11 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 15:25 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 15:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 15:19 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:24 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/94995902104.shtml)
-- 2026-06-29 15:19 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/7782652.shtml)
-- 2026-06-29 15:17 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/89036.shtml)
-- 2026-06-29 15:29 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/993209.shtml)
-- 2026-06-29 15:02 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/685300447.shtml)
-- 2026-06-29 15:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/00145521630.shtml)
-- 2026-06-29 15:11 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/9951678.shtml)
-- 2026-06-29 15:24 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/084668.shtml)
-- 2026-06-29 15:07 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/418902609.shtml)
-- 2026-06-29 15:16 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/31620658936.shtml)
-- 2026-06-29 15:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/608155.shtml)
-- 2026-06-29 15:10 - [王楚钦3比0周启豪](https://www.share.minike.top/Article/details/652169.shtml)
-- 2026-06-29 15:02 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/392574.shtml)
-- 2026-06-29 15:19 - [逆天祖国人](https://www.share.minike.top/Article/details/0129732.shtml)
-- 2026-06-29 15:10 - [双高胎](https://www.blog.minike.top/Article/details/3039963055.shtml)
+- 2026-06-29 15:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/25762.shtml)
+- 2026-06-29 15:30 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/930772690.shtml)
+- 2026-06-29 15:06 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/0862698.shtml)
+- 2026-06-29 15:22 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/26862410703.shtml)
+- 2026-06-29 15:24 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/22733.shtml)
+- 2026-06-29 15:33 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/379954.shtml)
+- 2026-06-29 15:30 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/9430126.shtml)
+- 2026-06-29 15:35 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/61899145.shtml)
+- 2026-06-29 15:20 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/01288299.shtml)
+- 2026-06-29 15:19 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/96832914543.shtml)
+- 2026-06-29 15:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/17052682172.shtml)
+- 2026-06-29 15:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/047241467.shtml)
+- 2026-06-29 15:11 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/65793.shtml)
+- 2026-06-29 15:23 - [第一炉香](http://www.blog.minike.top/Article/details/6394207.shtml)
+- 2026-06-29 15:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/53782331.shtml)

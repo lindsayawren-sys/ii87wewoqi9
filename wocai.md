@@ -1,42 +1,52 @@
-# 贵州：推广山地智能农机 水稻移栽超500万亩
+# UNESCO黄山对话会：和世界朋友聊聊遗产保护那些事
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 09:26 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月02日 12:58 来源：中国新闻网 5月31日至6月1日，第五届联合国教科文组织(UNESCO)名录遗产与可持续发展黄山对话会在安徽黄山举办，吸引了来自18个国际组织、35个国家和地区的200多名代表齐聚黄山。 据介绍，目前全球拥有1248项世界遗产、785处世界生物圈保护区以及229个世界地质公园。随着科技飞速进步，国际遗产保护领域愈发重视空间技术
 
 ## 正文
 
-发布时间：2026年06月05日 09:26 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月02日 12:58 来源：中国新闻网 5月31日至6月1日，第五届联合国教科文组织(UNESCO)名录遗产与可持续发展黄山对话会在安徽黄山举办，吸引了来自18个国际组织、35个国家和地区的200多名代表齐聚黄山。
+
+据介绍，目前全球拥有1248项世界遗产、785处世界生物圈保护区以及229个世界地质公园。
+
+随着科技飞速进步，国际遗产保护领域愈发重视空间技术等数字化、智能化手段，在遗产识别、监测、评估、展示与管理等环节的重要作用。
+
+(刘鸿鹤 安徽黄山报道） 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 15:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 15:27 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 15:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 15:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 15:22 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 15:29 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 15:20 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 15:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 15:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 15:09 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 15:28 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 15:34 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 15:27 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:24 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 15:11 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 15:22 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 15:12 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 15:09 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:29 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 15:17 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 15:23 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/32121.shtml)
-- 2026-06-29 15:29 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/726093315677.shtml)
-- 2026-06-29 15:00 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/557253.shtml)
-- 2026-06-29 15:09 - [中国战机大片上新](http://www.share.minike.top/Article/details/708348866366.shtml)
-- 2026-06-29 15:18 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/884978.shtml)
-- 2026-06-29 15:04 - [我和我的家乡](https://www.share.minike.top/Article/details/7441650135.shtml)
-- 2026-06-29 15:07 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/969888950083.shtml)
-- 2026-06-29 15:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/40094370.shtml)
-- 2026-06-29 15:22 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/931366.shtml)
-- 2026-06-29 15:04 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/07121148058.shtml)
-- 2026-06-29 15:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/7036977056.shtml)
-- 2026-06-29 15:01 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/51262871740.shtml)
-- 2026-06-29 15:07 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/63231366.shtml)
-- 2026-06-29 15:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/53476904629.shtml)
-- 2026-06-29 15:14 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/95499.shtml)
+- 2026-06-29 15:28 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/93806.shtml)
+- 2026-06-29 15:06 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/002051990286.shtml)
+- 2026-06-29 15:23 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/29827538.shtml)
+- 2026-06-29 15:15 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/07074300020.shtml)
+- 2026-06-29 15:16 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/240939.shtml)
+- 2026-06-29 15:16 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/27266.shtml)
+- 2026-06-29 15:13 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/8597708.shtml)
+- 2026-06-29 15:10 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/5780062.shtml)
+- 2026-06-29 15:25 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/24941175.shtml)
+- 2026-06-29 15:22 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/630973768691.shtml)
+- 2026-06-29 15:09 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/1621194.shtml)
+- 2026-06-29 15:14 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7811075.shtml)
+- 2026-06-29 15:21 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/579919.shtml)
+- 2026-06-29 15:29 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/1968374.shtml)
+- 2026-06-29 15:32 - [韩国国脚无缘上亿韩元奖金](https://www.blog.kurohicncr.top/Article/details/553944.shtml)

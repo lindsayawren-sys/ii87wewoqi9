@@ -1,61 +1,57 @@
-# 溜溜梅拟全球发售1146.41万股 预计6月15日上市
+# 云南法检公三机关联发通告严打拒执犯罪
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-溜溜梅（06658）于2026年6月5日-2026年6月10日招股，拟全球发售1146.41万股H股，香港公开发售占约10.0%，国际发售占约90.0%，另有约15%超额配股权。发售价将为每股发售股份43.58港元。每手100股，预期H股将于2026年6月15日上午九时正在联交所开始买卖。 据悉，该公司是一家专注于青梅产品的果类零食公司。该公司亦致力于弘扬青梅文化，并推出含有天
+中新网昆明6月3日电 (杨帆)为依法惩治拒不执行判决、裁定犯罪，切实维护当事人合法权益与人民法院生效裁判司法权威，云南省高级人民法院、云南省人民检察院、云南省公安厅近日联合发布《关于严厉打击拒不执行判决、裁定等犯罪行为的通告》(以下简称《通告》)，在云南省集中打击拒不执行判决、裁定，妨害公务，非法处置查封、扣押、冻结的财产，虚假诉讼等犯罪行为。《通告》明确，凡在云南法院立案执行
 
 ## 正文
 
-溜溜梅（06658）于2026年6月5日-2026年6月10日招股，拟全球发售1146.41万股H股，香港公开发售占约10.0%，国际发售占约90.0%，另有约15%超额配股权。
+中新网昆明6月3日电 (杨帆)为依法惩治拒不执行判决、裁定犯罪，切实维护当事人合法权益与人民法院生效裁判司法权威，云南省高级人民法院、云南省人民检察院、云南省公安厅近日联合发布《关于严厉打击拒不执行判决、裁定等犯罪行为的通告》(以下简称《通告》)，在云南省集中打击拒不执行判决、裁定，妨害公务，非法处置查封、扣押、冻结的财产，虚假诉讼等犯罪行为。
 
-发售价将为每股发售股份43.58港元。
+《通告》明确，凡在云南法院立案执行但尚未履行生效法律文书确定义务的公民、法人及其他组织，应当自觉到法院如实报告财产并履行义务，不得实施抗拒执行、逃避执行、规避执行、妨碍执行的行为。
 
-每手100股，预期H股将于2026年6月15日上午九时正在联交所开始买卖。
+对拒不配合的，法院将依法采取罚款、拘留、限制消费、纳入失信被执行人名单等惩戒措施；构成犯罪的，将依法追究刑事责任。
 
-据悉，该公司是一家专注于青梅产品的果类零食公司。
+《通告》共7条，其中详尽列举了被执行人、协助执行义务人、担保人等负有执行义务的公民、法人及其他组织会被依法追究刑事责任的十三种情形，涵盖隐瞒、转移、故意毁损财产，通过放弃债权、虚假和解等方式恶意处分财产权益，伪造、毁灭、隐匿有关履行能力的重要证据，妨碍法院取证等行为，还有拒不申报或虚报财产，以恐吓、辱骂、聚众哄闹、威胁等方式阻碍执行人员进入执行现场，甚至暴力阻挠执行等行为。
 
-该公司亦致力于弘扬青梅文化，并推出含有天然成分的零食选择。
+《通告》鼓励纠错，在通告发布后、案件移送公安立案侦查前，相关义务人主动到法院履行义务、违法情节轻微危害不大的，可不予移送刑事处理；主动投案自首、如实供述罪行的，依法从轻、减轻处罚；积极履约且符合法定条件的，检察机关可依法作出不起诉决定。
 
-在以梅为本的产品开发战略的引领下，该公司打造了多元化的青梅产品矩阵，涵盖从采用传统技术的经典系列到融合各种风味的产品，以满足不同口味需求。
+而对通告发布后仍顽固拒不执行的，司法机关将从严从重惩处。
 
-自2001年推出经典品牌“溜溜梅”以来，该公司致力于深耕青梅产品行业技术，挖掘青梅酸味的美食潜力。
+《通告》支持申请执行人对涉嫌拒不执行人民法院判决、裁定犯罪的被执行人依法提出刑事自诉。
 
-于往绩记录期间，该公司实现强劲增长。
+在刑事自诉立案或者审理过程中，自诉人要求复制已由执行法院收集和固定，能证明其人身、财产权利受到侵犯的证据，法院将依法及时提供。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 15:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 15:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 15:00 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 15:27 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 15:17 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 15:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 15:02 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:19 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 15:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 15:21 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 15:14 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 15:15 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 15:17 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 15:19 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 15:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 15:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 15:27 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 15:28 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 15:23 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 15:18 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 15:13 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 15:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 15:28 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 15:10 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 15:22 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/75377.shtml)
-- 2026-06-29 15:01 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/1502532.shtml)
-- 2026-06-29 15:21 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/024696.shtml)
-- 2026-06-29 15:21 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/314275295.shtml)
-- 2026-06-29 15:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/60982064.shtml)
-- 2026-06-29 15:13 - [105年初心滚烫](https://www.blog.minike.top/Article/details/55425.shtml)
-- 2026-06-29 15:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/177148.shtml)
-- 2026-06-29 15:19 - [千与千寻](http://www.blog.minike.top/Article/details/07525912.shtml)
-- 2026-06-29 15:19 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/24712631367.shtml)
-- 2026-06-29 15:05 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/590248.shtml)
-- 2026-06-29 15:19 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/947144.shtml)
-- 2026-06-29 15:04 - [AG 钟意](https://www.share.minike.top/Article/details/07012111504.shtml)
-- 2026-06-29 15:18 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/70066030303.shtml)
-- 2026-06-29 15:04 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/764889.shtml)
-- 2026-06-29 15:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/62095.shtml)
+- 2026-06-29 15:12 - [周生如故](http://www.blog.kurohicncr.top/Article/details/11521339330.shtml)
+- 2026-06-29 15:33 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/986927614.shtml)
+- 2026-06-29 15:26 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/72164.shtml)
+- 2026-06-29 15:15 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/03841691.shtml)
+- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/923314235.shtml)
+- 2026-06-29 15:20 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/34533.shtml)
+- 2026-06-29 15:09 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/69490372945.shtml)
+- 2026-06-29 15:12 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/2100353700.shtml)
+- 2026-06-29 15:22 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/9722996.shtml)
+- 2026-06-29 15:16 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/49404.shtml)
+- 2026-06-29 15:11 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/92783649.shtml)
+- 2026-06-29 15:27 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/35924.shtml)
+- 2026-06-29 15:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/512965955.shtml)
+- 2026-06-29 15:07 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/98349.shtml)
+- 2026-06-29 15:31 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/49671010725.shtml)

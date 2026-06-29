@@ -1,60 +1,58 @@
-# 买卖黄金5天亏损1.35万，向银行索赔诉求被驳回，法院：损失系自主决策造成
+# 哈马克表态：若通胀持续高企，美联储或出台调控举措
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-财联社6月5日讯（编辑 杨斌） 今年初，伴随着金价飙升，银行积存金业务一度十分火爆。但随后金价高位巨震，跟风入局积存金的个人投资者可能蒙受巨大损失。 近期，裁判文书网披露的一则判决书显示，一名投资者因投资积存金5天亏损1.35万元，要求银行赔偿损失。 该投资者认为，银行未履行法定适当性义务，直接导致自己因风险认知完全缺失作出错误投资决策。而结合法院判决和业内分析来看，该案中银行
+克利夫兰联储行长同时指出，锚定通胀预期对美联储至关重要 内容速览 本年度拥有 FOMC 投票权的克利夫兰联储行长贝丝・哈马克称，当前货币政策紧缩力度或不足以将通胀回落至 2% 目标。 克利夫兰联储行长贝丝・哈马克表示，现行货币政策的收紧程度或难以推动通胀回落至 2%。 哈马克于周二在克利夫兰城市俱乐部发表讲话，其今年具备美联储议息投票权。她提到，倘若美联储等到确凿证据证明高通胀
 
 ## 正文
 
-财联社6月5日讯（编辑 杨斌） 今年初，伴随着金价飙升，银行积存金业务一度十分火爆。
+克利夫兰联储行长同时指出，锚定通胀预期对美联储至关重要 内容速览 本年度拥有 FOMC 投票权的克利夫兰联储行长贝丝・哈马克称，当前货币政策紧缩力度或不足以将通胀回落至 2% 目标。
 
-但随后金价高位巨震，跟风入局积存金的个人投资者可能蒙受巨大损失。
+克利夫兰联储行长贝丝・哈马克表示，现行货币政策的收紧程度或难以推动通胀回落至 2%。
 
-近期，裁判文书网披露的一则判决书显示，一名投资者因投资积存金5天亏损1.35万元，要求银行赔偿损失。
+哈马克于周二在克利夫兰城市俱乐部发表讲话，其今年具备美联储议息投票权。
 
-该投资者认为，银行未履行法定适当性义务，直接导致自己因风险认知完全缺失作出错误投资决策。
+她提到，倘若美联储等到确凿证据证明高通胀已固化于经济体系后再行动，后续只能以更高经济代价实施更大幅度的政策调整。
 
-而结合法院判决和业内分析来看，该案中银行的适当性义务已履行完毕，投资者买卖操作均系独自主决策，法院驳回诉讼请求。
+“受经济前景不确定性影响，现阶段维持利率不变具备合理性。
 
-投资积存金5天亏损1.35万元，诉请银行赔偿 根据案号为“（2026）辽0283民初1666号”的判决书记载，任某于2026年1月25日在某国有银行的支行网点开通“存金通2号”黄金积存业务。
+但倘若通胀延续当前上行走势，美联储很快就适合落地紧缩操作。
 
-1月26日至1月29日，任某进行了多次买入操作。
+” 哈马克补充，稳固锚定市场通胀预期意义重大，是美联储实现 2% 通胀目标的关键一环。
 
-判决书记载，任某于1月26日买入1克单价1156元，又买入10克单价1156.5元；1月28日买入10克，单价是1191元。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 15:25 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 15:26 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 15:26 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 15:14 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 15:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 15:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 15:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 15:18 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 15:14 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 15:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:21 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 15:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 15:27 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:23 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 15:32 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 15:26 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 15:10 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 15:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 15:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 15:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 15:33 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 15:14 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 15:20 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 15:32 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 15:29 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/074243.shtml)
-- 2026-06-29 15:08 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/062223.shtml)
-- 2026-06-29 15:10 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/56438.shtml)
-- 2026-06-29 15:10 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/1459564.shtml)
-- 2026-06-29 15:23 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/033311803.shtml)
-- 2026-06-29 15:25 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/73627174.shtml)
-- 2026-06-29 15:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/9486331920.shtml)
-- 2026-06-29 15:10 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/50225151.shtml)
-- 2026-06-29 15:06 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/807767.shtml)
-- 2026-06-29 15:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/917968.shtml)
-- 2026-06-29 15:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/491650939.shtml)
-- 2026-06-29 15:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/280368.shtml)
-- 2026-06-29 15:06 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/643525.shtml)
-- 2026-06-29 15:23 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/798543784623.shtml)
-- 2026-06-29 15:28 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/4813956.shtml)
+- 2026-06-29 15:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/92095166.shtml)
+- 2026-06-29 15:28 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/167521702.shtml)
+- 2026-06-29 15:10 - [沉睡花园](https://www.blog.minike.top/Article/details/18062044954.shtml)
+- 2026-06-29 15:15 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/931873365.shtml)
+- 2026-06-29 15:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/869382.shtml)
+- 2026-06-29 15:24 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/46737434701.shtml)
+- 2026-06-29 15:20 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/583389261.shtml)
+- 2026-06-29 15:06 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/51095461371.shtml)
+- 2026-06-29 15:10 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/88609.shtml)
+- 2026-06-29 15:27 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/88275509867.shtml)
+- 2026-06-29 15:35 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/228121678704.shtml)
+- 2026-06-29 15:19 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/7537164.shtml)
+- 2026-06-29 15:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/44103294083.shtml)
+- 2026-06-29 15:35 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/1056396721.shtml)
+- 2026-06-29 15:18 - [天道](https://www.share.kurohicncr.top/Article/details/87449713271.shtml)

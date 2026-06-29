@@ -1,56 +1,56 @@
-# 美国最高法院支持仿制药瘦标签，Amarin专利诉讼遭重挫
+# 宇树科技IPO过会，人形机器人第一股来了？
 
-> 更新时间：2026-06-29 15:30:02 UTC+8
+> 更新时间：2026-06-29 15:36:02 UTC+8
 
 ## 摘要
 
-美国最高法院周四以9票对0票的一致裁决结果，支持仿制药制造商Hikma Pharmaceuticals在瘦标签专利纠纷案中的立场，驳回爱尔兰制药商Amarin提起的专利侵权诉讼。受此消息影响，Amarin股价当日大幅下跌。 这场纠纷围绕Amarin旗下心血管药物Vascepa展开。该药最初于2012年获FDA批准用于治疗严重高甘油三酯血症，2019年适应症扩展至降低心血管风险，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！三次登台央视春晚，宇树机器人连续攻克翻桌跑酷、弹射空翻和器械操控等多项“高难动作”。从春晚出圈到产业先锋再到IPO上会，宇树科技凭什么？ 6月1日，宇树科技顺利过会，距离科创板IPO只差临门一脚。从3月20日IPO申请获受理到这一天，全程只用了73天，创下A股近两年最快“过会”纪录，也大概率成为“人形机器人
 
 ## 正文
 
-美国最高法院周四以9票对0票的一致裁决结果，支持仿制药制造商Hikma Pharmaceuticals在瘦标签专利纠纷案中的立场，驳回爱尔兰制药商Amarin提起的专利侵权诉讼。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-受此消息影响，Amarin股价当日大幅下跌。
+三次登台央视春晚，宇树机器人连续攻克翻桌跑酷、弹射空翻和器械操控等多项“高难动作”。
 
-这场纠纷围绕Amarin旗下心血管药物Vascepa展开。
+从春晚出圈到产业先锋再到IPO上会，宇树科技凭什么？
 
-该药最初于2012年获FDA批准用于治疗严重高甘油三酯血症，2019年适应症扩展至降低心血管风险，后者专利保护期至2033年。
+6月1日，宇树科技顺利过会，距离科创板IPO只差临门一脚。
 
-2020年，Hikma获得瘦标签批准，仅针对已过专利保护的严重高甘油三酯血症适应症销售仿制药。
+从3月20日IPO申请获受理到这一天，全程只用了73天，创下A股近两年最快“过会”纪录，也大概率成为“人形机器人第一股”。
 
-Amarin主张，Hikma在新闻稿和网站中将产品称为Vascepa仿制药，且未明确说明仅获批用于特定适应症，实质上诱导医生将其用于仍受专利保护的心血管适应症。
+按照首发募资比例计算，宇树科技IPO时的估值或超过420亿元。
 
-2024年，联邦巡回上诉法院曾恢复该诉讼，认为医生的确可能将Hikma的表述解读为鼓励侵权的指示。
+那我们今天就来聊聊宇树科技这家公司，以及具身智能这个注定要改变世界的万亿赛道，到底长什么样？
 
-然而，最高法院推翻了这一裁定。
+我们先来看看，宇树科技为什么能这么快就上会？
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 15:09 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 15:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 15:29 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 15:12 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 15:13 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:25 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 15:19 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 15:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 15:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 15:10 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 15:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 15:27 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 15:21 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 15:30 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 15:08 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 15:33 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 15:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 15:08 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 15:08 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/03695730522.shtml)
-- 2026-06-29 15:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/62623010.shtml)
-- 2026-06-29 15:13 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/44479357.shtml)
-- 2026-06-29 15:28 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/172484.shtml)
-- 2026-06-29 15:17 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/655336008.shtml)
-- 2026-06-29 15:29 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/79439562226.shtml)
-- 2026-06-29 15:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/4739719.shtml)
-- 2026-06-29 15:23 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/0075369061.shtml)
-- 2026-06-29 15:28 - [美人鱼](http://www.blog.minike.top/Article/details/82885489.shtml)
-- 2026-06-29 15:01 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/1825713.shtml)
-- 2026-06-29 15:29 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/488082303047.shtml)
-- 2026-06-29 15:24 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/652998.shtml)
-- 2026-06-29 15:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/46371654.shtml)
-- 2026-06-29 15:10 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/580235.shtml)
-- 2026-06-29 15:01 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/29835127.shtml)
+- 2026-06-29 15:17 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/96231.shtml)
+- 2026-06-29 15:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/93425710862.shtml)
+- 2026-06-29 15:35 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/432228343.shtml)
+- 2026-06-29 15:20 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/53630895108.shtml)
+- 2026-06-29 15:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/164047920253.shtml)
+- 2026-06-29 15:12 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/86052879.shtml)
+- 2026-06-29 15:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/0660330964.shtml)
+- 2026-06-29 15:31 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/449531.shtml)
+- 2026-06-29 15:18 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/26458.shtml)
+- 2026-06-29 15:14 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/616809280457.shtml)
+- 2026-06-29 15:26 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/477033564298.shtml)
+- 2026-06-29 15:29 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/50139981645.shtml)
+- 2026-06-29 15:29 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/2322446.shtml)
+- 2026-06-29 15:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/424982561489.shtml)
+- 2026-06-29 15:24 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/24726876.shtml)
