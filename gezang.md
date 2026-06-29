@@ -1,57 +1,59 @@
-# 新突破！日日顺入选全球首座大件供应链韧性灯塔
+# 埃尼与委内瑞拉签署协议重启Junin-5重油项目
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月22日，世界经济论坛（WEF）正式公布第16批全球灯塔网络（GLN)名单，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。此次入选，日日顺正式跻身全球灯塔网络核心成员，成为全球灯塔网络首座大件供应链韧性灯塔，同时也成为中国物流行业首次获此殊荣的供应链科技生态企业。这不仅标志着日日顺供应链在供应链物流领域数智化与服务能力获得国际权威认可，也是海尔智家打造平台服务型科技生态
+意大利能源巨头埃尼集团已与委内瑞拉碳氢化合物部及委内瑞拉国家石油公司签署协议，重启位于奥里诺科重油带的Junin-5项目石油作业。 该协议是在埃尼首席执行官与委内瑞拉代总统于加拉加斯会晤后签署的。Junin-5是一个重油项目，PDVSA持股60%，埃尼持股40%，据埃尼此前估算，该油田经认证的石油地质储量约为350亿桶。 埃尼表示，还向委内瑞拉官员介绍了其在委内瑞拉正在进行的业
 
 ## 正文
 
-6月22日，世界经济论坛（WEF）正式公布第16批全球灯塔网络（GLN)名单，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。
+意大利能源巨头埃尼集团已与委内瑞拉碳氢化合物部及委内瑞拉国家石油公司签署协议，重启位于奥里诺科重油带的Junin-5项目石油作业。
 
-此次入选，日日顺正式跻身全球灯塔网络核心成员，成为全球灯塔网络首座大件供应链韧性灯塔，同时也成为中国物流行业首次获此殊荣的供应链科技生态企业。
+该协议是在埃尼首席执行官与委内瑞拉代总统于加拉加斯会晤后签署的。
 
-这不仅标志着日日顺供应链在供应链物流领域数智化与服务能力获得国际权威认可，也是海尔智家打造平台服务型科技生态企业的又一缩影。
+Junin-5是一个重油项目，PDVSA持股60%，埃尼持股40%，据埃尼此前估算，该油田经认证的石油地质储量约为350亿桶。
 
-▍全球权威认证，拓展海尔智家全链路灯塔版图全球灯塔网络由世界经济论坛联合麦肯锡发起，设立生产效率、供应链韧性、可持续发展、客户至上、人才发展五大专业类别。
+埃尼表示，还向委内瑞拉官员介绍了其在委内瑞拉正在进行的业务活动，并概述了未来的机会。
 
-其评选标准严苛，全程由第三方独立核验，是目前全球制造业与供应链领域公认的权威认证之一。
+该公司还参与天然气开发项目，包括与Repsol联合运营的Cardón IV许可区内的Perla气田，该气田被称为拉丁美洲发现的最大海上气田。
 
-此次世界经济论坛新增16座全球灯塔工厂，全球灯塔网络成员工厂总数达238家。
+Cardón IV近期签署了一项可持续发展协议，旨在维持和增加面向国内市场的天然气产量，并为未来出口提供支持。
 
-其中，供应链韧性标杆，是授予依托供应链全链路改造（规划、履约、物流等），提升业务响应速度、信息透明度与营运资金管控能力的生产基地。
+埃尼还在PetroSucre合资企业（运营Corocoro海上油田）和Supermetanol石化公司持有股份。
 
-世界经济论坛董事总经理基瓦・奥尔古德表示：“全球顶尖制造企业不再局限于优化单一生产工序，而是重构整套运营体系。
+该公司表示，2025年在委内瑞拉的油气产量达到每日6.4万桶油当量，主要来自Perla气田。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 01:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 01:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 01:32 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 01:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 01:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 01:45 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 01:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 01:44 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 01:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:40 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 01:58 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 02:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 01:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 01:47 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 02:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 01:38 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 02:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 02:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 02:01 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 01:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 01:58 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 01:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/52899.shtml)
-- 2026-06-30 01:37 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/205151139.shtml)
-- 2026-06-30 01:46 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/920564004.shtml)
-- 2026-06-30 01:35 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/8827270.shtml)
-- 2026-06-30 01:36 - [日本进球](https://www.share.minike.top/Article/details/738839.shtml)
-- 2026-06-30 01:50 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/02182094188.shtml)
-- 2026-06-30 01:46 - [刘宇宁 好听](https://www.share.minike.top/Article/details/85081.shtml)
-- 2026-06-30 01:40 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/86091501.shtml)
-- 2026-06-30 01:55 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/710090.shtml)
-- 2026-06-30 01:41 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/6254707.shtml)
-- 2026-06-30 01:43 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4620845742.shtml)
-- 2026-06-30 01:57 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/5240648.shtml)
-- 2026-06-30 01:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/122259.shtml)
-- 2026-06-30 01:57 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/3569442.shtml)
-- 2026-06-30 01:33 - [扬名立万](http://www.blog.minike.top/Article/details/04581795.shtml)
+- 2026-06-30 01:57 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/2830014.shtml)
+- 2026-06-30 01:54 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/0340346347.shtml)
+- 2026-06-30 01:45 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/579386371903.shtml)
+- 2026-06-30 01:52 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/81475.shtml)
+- 2026-06-30 01:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/6848006.shtml)
+- 2026-06-30 02:01 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/2416350422.shtml)
+- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/302941.shtml)
+- 2026-06-30 02:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/89854505.shtml)
+- 2026-06-30 01:56 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/8614460164.shtml)
+- 2026-06-30 01:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6625963.shtml)
+- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/881106103.shtml)
+- 2026-06-30 01:53 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/16804854745.shtml)
+- 2026-06-30 01:59 - [请回答王牌2019](http://www.share.minike.top/Article/details/82159.shtml)
+- 2026-06-30 02:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/1869068139.shtml)
+- 2026-06-30 01:53 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/2362861.shtml)

@@ -1,59 +1,58 @@
-# Lucid跌5.13%，计划裁减美国18%员工，首席运营官离职
+# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-核心要点 电动汽车厂商Lucid将在美国裁员 18%。 公司同时宣布，首席运营官马克・温特霍夫离职，该首席运营官岗位被撤销。 Lucid上月表示，首席执行官西尔维奥・那不利将对公司各项业务运营情况开展全面评估。 Lucid下跌 0.28 美元，跌幅 5.13%。 Lucid集团于本周一宣布，作为成本节约计划的一部分，公司将在美国裁减约 18% 的员工。 这家纯电动汽车制造商表示
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
 
 ## 正文
 
-核心要点 电动汽车厂商Lucid将在美国裁员 18%。
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
 
-公司同时宣布，首席运营官马克・温特霍夫离职，该首席运营官岗位被撤销。
+马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
 
-Lucid上月表示，首席执行官西尔维奥・那不利将对公司各项业务运营情况开展全面评估。
+目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
 
-Lucid下跌 0.28 美元，跌幅 5.13%。
+自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
 
-Lucid集团于本周一宣布，作为成本节约计划的一部分，公司将在美国裁减约 18% 的员工。
+” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
 
-这家纯电动汽车制造商表示，本次裁员方案预计每年可为公司节省约 1.58 亿美元的开支。
+“我们绝不希望迎来《终结者》式的悲剧结局。
 
-公司同时在周一公布，首席运营官马克・温特霍夫即日起正式离职。
+” 马斯克说道。
 
-在西尔维奥・那不利于 6 月 1 日出任首席执行官之前，温特霍夫曾担任公司临时首席执行官。
+OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 01:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:55 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 01:34 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 01:50 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 01:32 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 01:47 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 01:55 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 01:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 01:52 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 01:38 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 01:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 01:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 01:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 02:03 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 02:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 01:41 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 01:41 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 02:03 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 01:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 01:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 01:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 01:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/981594249.shtml)
-- 2026-06-30 01:55 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/3546226739.shtml)
-- 2026-06-30 01:31 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/77328865.shtml)
-- 2026-06-30 01:34 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/76986424936.shtml)
-- 2026-06-30 01:51 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/656416984043.shtml)
-- 2026-06-30 01:55 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/836682842125.shtml)
-- 2026-06-30 01:56 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/507220411.shtml)
-- 2026-06-30 01:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/4370885.shtml)
-- 2026-06-30 01:59 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/559771585.shtml)
-- 2026-06-30 01:39 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/4177053.shtml)
-- 2026-06-30 01:42 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/12951608.shtml)
-- 2026-06-30 01:47 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/63703038.shtml)
-- 2026-06-30 01:36 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/43867.shtml)
-- 2026-06-30 01:45 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/36614340187.shtml)
-- 2026-06-30 01:47 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/615089060.shtml)
+- 2026-06-30 01:45 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/88290925621.shtml)
+- 2026-06-30 01:38 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/112652.shtml)
+- 2026-06-30 01:42 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/2708107410.shtml)
+- 2026-06-30 01:47 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/8724950.shtml)
+- 2026-06-30 01:50 - [周生如故](https://www.share.minike.top/Article/details/92572.shtml)
+- 2026-06-30 01:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/126320175565.shtml)
+- 2026-06-30 01:37 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/21105.shtml)
+- 2026-06-30 01:55 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/792051981.shtml)
+- 2026-06-30 01:42 - [田曦薇没招了](http://www.share.minike.top/Article/details/783151397.shtml)
+- 2026-06-30 01:42 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/38674840406.shtml)
+- 2026-06-30 01:48 - [田曦薇没招了](https://www.share.minike.top/Article/details/596016885563.shtml)
+- 2026-06-30 02:03 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/9240654168.shtml)
+- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/537836208.shtml)
+- 2026-06-30 02:03 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/073903288.shtml)
+- 2026-06-30 01:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/897709.shtml)

@@ -1,60 +1,61 @@
-# 庆祝中国—东盟建立全面战略伙伴关系5周年雅加达论坛举行
+# 东吴证券归母净利润高增50.12% 分红近18亿元创下历史记录 战略整合东海证券再添想象空间
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社雅加达6月22日电 (记者 李志全)庆祝中国—东盟建立全面战略伙伴关系5周年雅加达论坛22日在位于印度尼西亚雅加达的东盟秘书处举行。中国驻东盟大使王擎、东盟秘书长高金洪、各国驻东盟使节以及地区政商学媒界代表100余人出席。王擎在致辞中表示，2021年中国与东盟建立全面战略伙伴关系以来，双方在各领域务实合作不断取得新进展，为地区和平、稳定与繁荣作出重要贡献，成为东亚乃至亚太
+2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。 据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。 分业务来看，东吴证券各业务实力均稳步提
 
 ## 正文
 
-中新社雅加达6月22日电 (记者 李志全)庆祝中国—东盟建立全面战略伙伴关系5周年雅加达论坛22日在位于印度尼西亚雅加达的东盟秘书处举行。
+2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。
 
-中国驻东盟大使王擎、东盟秘书长高金洪、各国驻东盟使节以及地区政商学媒界代表100余人出席。
+据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。
 
-王擎在致辞中表示，2021年中国与东盟建立全面战略伙伴关系以来，双方在各领域务实合作不断取得新进展，为地区和平、稳定与繁荣作出重要贡献，成为东亚乃至亚太区域合作的典范。
+分业务来看，东吴证券各业务实力均稳步提升。
 
-过去5年来，中国—东盟自贸区3.0版升级议定书完成签署，双方连续6年互为最大贸易伙伴，2025年双边贸易额突破1万亿美元。
+据Wind SECI数据，2025年东吴证券经纪业务、投行业务、资管业务排名分别较上年提升4名、4名、4名，其自营业务排名虽未发生变动，但该板块营收增速高达40.34%，远超同期上市券商整体增速（31.46%），位居行业前列。
 
-他说，中国和东盟是命运与共的近邻。
+在保持高质量发展的同时，东吴证券继续执行高分红政策。
 
-中方愿同东盟一道，在挑战中把握机遇，共建命运共同体，共同维护本地区和平、稳定、发展与振兴的前景。
+年报中，公司披露2025年利润分配方案，拟向全体股东每10股派发现金红利人民币2.20元（含税），叠加2025年中期已每10股派发现金红利人民币1.38元（含税），合计全年每10股派发人民币3.58元（含税），对应股息率超4%，在全部上市券商中位列第一。
 
-中方坚定支持以东盟为中心、开放包容的区域合作架构，并将通过稳定发展的中国—东盟合作为地区注入更多确定性。
+按照上述利润分配方案，公司全年现金分红总额达17.79亿元（含税），在2024年分红高基数上再度提升15%，创下东吴证券自2011年上市以来的最高分红金额纪录。
 
-高金洪表示，过去35年来，中国与东盟关系不断发展深化。
+业绩高增之余，东吴证券与东海证券战略整合工作持续推进，为公司的成长再添想象空间。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 01:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 01:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 01:49 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 01:53 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 01:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 01:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 01:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 01:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 01:35 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 01:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:37 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 02:00 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 01:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 01:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 01:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:39 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:54 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 01:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 01:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 01:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 01:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 01:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 01:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 01:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 01:51 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 01:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 01:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/423991124032.shtml)
-- 2026-06-30 01:45 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/212769.shtml)
-- 2026-06-30 01:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/883303.shtml)
-- 2026-06-30 01:46 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/4617670265.shtml)
-- 2026-06-30 01:33 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/218178351881.shtml)
-- 2026-06-30 01:35 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/001694174.shtml)
-- 2026-06-30 01:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/13427514.shtml)
-- 2026-06-30 01:36 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/399143087.shtml)
-- 2026-06-30 01:46 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/7204437446.shtml)
-- 2026-06-30 01:39 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/605240808.shtml)
-- 2026-06-30 01:56 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/27820559886.shtml)
-- 2026-06-30 01:34 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/01985222.shtml)
-- 2026-06-30 01:51 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/470322629211.shtml)
-- 2026-06-30 01:49 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/81561151724.shtml)
-- 2026-06-30 01:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/531800638.shtml)
+- 2026-06-30 01:47 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/4715455147.shtml)
+- 2026-06-30 02:03 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/8777735.shtml)
+- 2026-06-30 01:37 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/463247.shtml)
+- 2026-06-30 01:47 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/856551321.shtml)
+- 2026-06-30 01:55 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/096615.shtml)
+- 2026-06-30 01:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/179656536.shtml)
+- 2026-06-30 01:53 - [千与千寻](https://www.blog.minike.top/Article/details/8111199.shtml)
+- 2026-06-30 01:56 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/7043979.shtml)
+- 2026-06-30 01:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/4528820262.shtml)
+- 2026-06-30 02:04 - [月亮](https://www.blog.kurohicncr.top/Article/details/48742579763.shtml)
+- 2026-06-30 01:41 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/6705608.shtml)
+- 2026-06-30 01:50 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/89024502.shtml)
+- 2026-06-30 01:36 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/84292005673.shtml)
+- 2026-06-30 01:38 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/24283961.shtml)
+- 2026-06-30 02:05 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/20156649975.shtml)

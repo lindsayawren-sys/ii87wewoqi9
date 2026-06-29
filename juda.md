@@ -1,61 +1,47 @@
-# 端午假期太原文博场馆接待游客29万人次 门票收入近300万元
+# 喀什至吉尔吉斯斯坦奥什国际客运航线成功首航
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网太原6月23日电(记者 胡健)记者23日从山西省太原市文物局获悉，2026年端午节假期(6月19日至6月21日)，太原文博场馆共接待游客29.01万人次，实现门票收入298.16万元。其中，太原市文物局直属21处文博场馆接待游客21.11万人次，实现门票收入281.32万元。假期期间，晋祠博物馆接待游客5.54万人次，实现门票收入227.41万元，同比分别增长2.40%和
+4月28日，中国喀什至吉尔吉斯斯坦奥什EU3055航班国际客运航线成功实现首航，这是国内第二条直飞奥什的国际航线，飞行时长约1小时，成为新疆南疆面向中亚开放的又一条空中便捷通道。 (总台记者 苏蒙)
 
 ## 正文
 
-中新网太原6月23日电(记者 胡健)记者23日从山西省太原市文物局获悉，2026年端午节假期(6月19日至6月21日)，太原文博场馆共接待游客29.01万人次，实现门票收入298.16万元。
+4月28日，中国喀什至吉尔吉斯斯坦奥什EU3055航班国际客运航线成功实现首航，这是国内第二条直飞奥什的国际航线，飞行时长约1小时，成为新疆南疆面向中亚开放的又一条空中便捷通道。
 
-其中，太原市文物局直属21处文博场馆接待游客21.11万人次，实现门票收入281.32万元。
-
-假期期间，晋祠博物馆接待游客5.54万人次，实现门票收入227.41万元，同比分别增长2.40%和18.09%；晋商博物院接待游客1.70万人次，实现门票收入24.51万元，同比分别增长12.04%和3.91%。
-
-此外，晋祠园林中心接待游客8.92万人次，同比增长2.37%；太原市博物馆接待游客1.02万人次，同比增长4.81%。
-
-值得关注的是，太原市文物局直属文博场馆接待省外游客15.79万人次，占比达74.82%，游客来源遍布全国，主要集中在河北、山东、河南、内蒙古、陕西等省份。
-
-端午假期，太原市文物局直属文博场馆推出线上线下活动36项、展览173项，实现“线下可游、云端可赏”。
-
-晋祠博物馆打造“粽风雅集·寻贤晋祠”沉浸式文化体验，身着古装的文人使者为游客送上端午祝愿，开展古诗吟诵、对诗答题互动，还设置了艾草祈福挂件手作、非遗香囊制作、旱地龙舟等亲子体验项目。
-
-晋祠园林中心由汉服厨娘带领亲子家庭体验粽子制作，同步开展汉服志愿讲解服务，带领游客沉浸式研学晋祠古建与碑刻文化。
+(总台记者 苏蒙)
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 01:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 01:48 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 01:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 01:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 01:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 01:52 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 01:55 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 01:33 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 01:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 01:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 01:57 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 01:52 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 01:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 01:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 02:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 01:43 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 01:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 02:01 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 01:53 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 01:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 01:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 02:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 01:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 01:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 01:39 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 01:51 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 01:51 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/9614893.shtml)
-- 2026-06-30 01:32 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/31223287.shtml)
-- 2026-06-30 01:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/738041711104.shtml)
-- 2026-06-30 01:42 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/655045670.shtml)
-- 2026-06-30 01:55 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/54241297180.shtml)
-- 2026-06-30 01:48 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/40745226.shtml)
-- 2026-06-30 01:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/6395887861.shtml)
-- 2026-06-30 01:49 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/354927.shtml)
-- 2026-06-30 01:47 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/21325666.shtml)
-- 2026-06-30 01:36 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/39055896.shtml)
-- 2026-06-30 01:58 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/153697.shtml)
-- 2026-06-30 01:31 - [时光音乐会](https://www.share.minike.top/Article/details/85062083681.shtml)
-- 2026-06-30 01:42 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/512023681362.shtml)
-- 2026-06-30 01:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/435733729097.shtml)
-- 2026-06-30 01:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/2146486.shtml)
+- 2026-06-30 01:42 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/463525471055.shtml)
+- 2026-06-30 01:56 - [张凌赫 客串](https://www.blog.minike.top/Article/details/289287076815.shtml)
+- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7696770.shtml)
+- 2026-06-30 01:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/415761487553.shtml)
+- 2026-06-30 01:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/157605.shtml)
+- 2026-06-30 02:00 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/3205800.shtml)
+- 2026-06-30 01:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/90054.shtml)
+- 2026-06-30 01:58 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/240785812.shtml)
+- 2026-06-30 02:05 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/9128840795.shtml)
+- 2026-06-30 01:50 - [起风了](https://www.blog.minike.top/Article/details/27302.shtml)
+- 2026-06-30 02:04 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/34658497.shtml)
+- 2026-06-30 01:56 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/1114214.shtml)
+- 2026-06-30 01:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/871251.shtml)
+- 2026-06-30 02:01 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/2612490.shtml)
+- 2026-06-30 01:42 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/406254.shtml)

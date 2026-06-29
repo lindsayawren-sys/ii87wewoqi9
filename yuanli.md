@@ -1,49 +1,50 @@
-# 【小新的vlog】侏罗纪秘境“邂逅”董永七仙女？带你游华中文旅新地标
+# “十五五”重点培育三类数字产业集群
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 13:47 来源：中国新闻网 作为“中华孝文化名城”，孝感新近落成一处华中文旅新地标，园区巧妙融合史前侏罗纪奇幻场景与董永七仙女本土孝爱传说，两种截然不同的体验在此相遇，带来别样游览感受。小新带你解锁这份双倍快乐！ 邹浩 卢琪湖北孝感报道 责任编辑：【李季】
+今天，《中国数字经济创新型企业发展报告〔2026〕》在福州发布，国家数据局负责人表示，“十五五”期间，将重点培育三类数字产业集群。 据了解，国家数据局今年已会同国家发展改革委等有关部门开展首批数字经济创新型企业培育工作，将在创新研发、企业出海、人才培育、监管方式等方面，建立更加开放包容审慎的政策环境；“十五五”期间，将重点培育创新引领型、区域支柱型和区域特色型三类数字产业集群，
 
 ## 正文
 
-发布时间：2026年06月21日 13:47 来源：中国新闻网 作为“中华孝文化名城”，孝感新近落成一处华中文旅新地标，园区巧妙融合史前侏罗纪奇幻场景与董永七仙女本土孝爱传说，两种截然不同的体验在此相遇，带来别样游览感受。
+今天，《中国数字经济创新型企业发展报告〔2026〕》在福州发布，国家数据局负责人表示，“十五五”期间，将重点培育三类数字产业集群。
 
-小新带你解锁这份双倍快乐！
+据了解，国家数据局今年已会同国家发展改革委等有关部门开展首批数字经济创新型企业培育工作，将在创新研发、企业出海、人才培育、监管方式等方面，建立更加开放包容审慎的政策环境；“十五五”期间，将重点培育创新引领型、区域支柱型和区域特色型三类数字产业集群，塑造我国数字经济竞争新优势。
 
-邹浩 卢琪湖北孝感报道 责任编辑：【李季】
+数字经济核心产业规模占GDP比重超10.5% 目前，我国数字经济核心产业规模已突破14.7万亿元，占GDP比重提升至10.5%以上。
+
+数字经济核心产业企业呈快速增长之势，数字经济创新型企业快速涌现。
+
+国家数据发展研究院数据资源研究部主任 王威：数字经济创新型企业是以数据为关键生产要素，以数字技术创新、应用场景创新、数据价值创新为核心驱动力，具备高敏捷性和高成长性的企业，2025年，在被调查的数创企业中，研发人员平均占一半以上，超六成企业研发强度超过15%，约45.6%的潜在独角兽型数创企业拥有省级以上研发机构。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 01:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 01:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 01:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 01:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 01:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 01:37 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 01:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 01:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 01:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 01:37 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 01:41 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 02:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 01:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 01:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 01:37 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 01:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 01:56 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 01:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 01:38 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/138225055.shtml)
-- 2026-06-30 01:50 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/061951046441.shtml)
-- 2026-06-30 01:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7942575.shtml)
-- 2026-06-30 01:31 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/949568702.shtml)
-- 2026-06-30 01:55 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/7852587.shtml)
-- 2026-06-30 01:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/616636258909.shtml)
-- 2026-06-30 01:50 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/835071057985.shtml)
-- 2026-06-30 01:54 - [85花告别古偶](https://www.share.minike.top/Article/details/6005809.shtml)
-- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/0904032231.shtml)
-- 2026-06-30 01:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/54134991410.shtml)
-- 2026-06-30 01:44 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/628637441618.shtml)
-- 2026-06-30 01:54 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/6185224.shtml)
-- 2026-06-30 01:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/951791625.shtml)
-- 2026-06-30 01:45 - [金牌调解](http://www.share.kurohicncr.top/Article/details/02152435.shtml)
-- 2026-06-30 01:39 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/605047.shtml)
+- 2026-06-30 02:00 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/28294150.shtml)
+- 2026-06-30 01:58 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/667465259.shtml)
+- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/63986.shtml)
+- 2026-06-30 01:57 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/4133406438.shtml)
+- 2026-06-30 01:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/3298390891.shtml)
+- 2026-06-30 01:44 - [内马尔替补](https://www.share.minike.top/Article/details/79591.shtml)
+- 2026-06-30 02:03 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/219510933575.shtml)
+- 2026-06-30 01:50 - [逃狱兄弟](http://www.share.minike.top/Article/details/997480635.shtml)
+- 2026-06-30 02:00 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/331445047.shtml)
+- 2026-06-30 01:55 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/275279117673.shtml)
+- 2026-06-30 01:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/117087.shtml)
+- 2026-06-30 01:38 - [请回答王牌2019](https://www.blog.minike.top/Article/details/43749.shtml)
+- 2026-06-30 01:43 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/83777.shtml)
+- 2026-06-30 01:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/58554.shtml)
+- 2026-06-30 01:43 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/042891478.shtml)

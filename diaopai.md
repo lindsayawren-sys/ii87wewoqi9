@@ -1,58 +1,49 @@
-# 货拉拉被约谈，同城货运变天了？
+# 广州欧美同学会白云分会赴欧美同学会总会开展参访学习
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。 ‘合规重于规模。’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。监管要求货拉拉将平台抽成比例从现行约1
+4月24日，广州欧美同学会白云分会组织留学人员参访欧美同学会(中国留学人员联谊会)会址。欧美同学会社会服务部相关负责同志，广州欧美同学会理事、白云分会执行会长林铭及白云区归国留学人员代表参加。 参访期间，学长们参观全新升级的欧美同学会会史展，系统学习欧美同学会成立113年来的发展历程与重要成就，深刻感悟一代代归国留学人员胸怀家国、矢志报国，投身强国建设的光辉事迹。 学长们纷纷表
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月24日，广州欧美同学会白云分会组织留学人员参访欧美同学会(中国留学人员联谊会)会址。
 
-来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。
+欧美同学会社会服务部相关负责同志，广州欧美同学会理事、白云分会执行会长林铭及白云区归国留学人员代表参加。
 
-‘合规重于规模。
+参访期间，学长们参观全新升级的欧美同学会会史展，系统学习欧美同学会成立113年来的发展历程与重要成就，深刻感悟一代代归国留学人员胸怀家国、矢志报国，投身强国建设的光辉事迹。
 
-’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。
-
-监管要求货拉拉将平台抽成比例从现行约11%下调至约9%区间，向受不合理规则影响的司机返还资金总额达1.2亿元，涉及订单追溯期最长可达三年。
-
-对于多次冲击港交所上市未果的货拉拉而言，这不仅是一次监管的敲打，更是对其商业模式的一次深度拷问。
-
-01 狂奔的货拉拉，与港交所门前的徘徊 回顾货拉拉的发展历程，是一部典型的互联网平台“烧钱换规模”的扩张史。
-
-自2013年成立以来，货拉拉凭借O2O模式切入同城货运，在红杉、高瓴等一线机构的资本催化下，迅速跑马圈地。
+学长们纷纷表示，此次参访学习让大家深受教育、倍感振奋，更加深刻理解了“留学报国”的光荣传统与精神底蕴，并进一步坚定了将个人理想追求融入国家发展大局的信念和决心。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 01:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:49 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 01:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 01:46 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 01:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 01:45 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 01:35 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 01:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 01:44 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 02:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 01:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 01:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 01:38 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 02:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 01:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 01:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 02:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/8330519671.shtml)
-- 2026-06-30 01:56 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/831424436.shtml)
-- 2026-06-30 01:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/913453817.shtml)
-- 2026-06-30 01:32 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/105491850.shtml)
-- 2026-06-30 01:47 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/02294243869.shtml)
-- 2026-06-30 01:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/967323.shtml)
-- 2026-06-30 01:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/9318282501.shtml)
-- 2026-06-30 01:46 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/486035625067.shtml)
-- 2026-06-30 01:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/59038.shtml)
-- 2026-06-30 01:48 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/692709250029.shtml)
-- 2026-06-30 01:48 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/76242172941.shtml)
-- 2026-06-30 01:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/31095551.shtml)
-- 2026-06-30 01:51 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2106313602.shtml)
-- 2026-06-30 01:39 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/6116152.shtml)
-- 2026-06-30 01:40 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/9424477740.shtml)
+- 2026-06-30 01:50 - [极限挑战第一季](http://www.share.minike.top/Article/details/299826.shtml)
+- 2026-06-30 01:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/06776637.shtml)
+- 2026-06-30 01:48 - [扫黑风暴](http://www.share.minike.top/Article/details/055876749555.shtml)
+- 2026-06-30 01:43 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/480156948722.shtml)
+- 2026-06-30 02:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/0621965673.shtml)
+- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/833856883.shtml)
+- 2026-06-30 01:50 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/782332397.shtml)
+- 2026-06-30 01:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/438583629.shtml)
+- 2026-06-30 02:02 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/18918343.shtml)
+- 2026-06-30 02:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/7021889.shtml)
+- 2026-06-30 01:46 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/58959933.shtml)
+- 2026-06-30 01:48 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/023424664.shtml)
+- 2026-06-30 01:43 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/916998004641.shtml)
+- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/137275.shtml)
+- 2026-06-30 01:50 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/0213944.shtml)

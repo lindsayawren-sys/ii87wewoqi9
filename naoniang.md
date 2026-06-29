@@ -1,60 +1,52 @@
-# 英国国防部辞职潮
+# 兖矿能源早盘涨逾7% 第一季度归母净利润同比增长42.14%
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-作者：曲蕃夫 发于2026.6.22总第1240期《中国新闻周刊》杂志 6月11日，伦敦的政治空气再度变得沉重。唐宁街还没有从上个月地方选举惨败和卫生大臣斯特里廷离任的震荡中缓过神来，国防大臣约翰·希利又递上辞呈。 这个在工党内素以稳健、务实、少有戏剧性著称的老派政治人物，没有选择含糊其词地体面告别，而是在辞职信中直指问题核心：英国政府口口声声说要面对“更加危险的世界”，却不愿
+兖矿能源（01171）早盘涨超7%，截至发稿，股价上涨6.82%，现报16.23港元，成交额7.09亿港元。 4月28日晚，兖矿能源公布，2026年第一季度，该集团取得营业收入345.89亿元，同比增加1.83%；归属于上市公司股东的净利润39.55亿元，同比增加42.14%。公司指，一季度市场低位运行期间，公司深度释放“煤化一体”优势，煤化工板块逆势突围、量效齐升，实现化工品
 
 ## 正文
 
-作者：曲蕃夫 发于2026.6.22总第1240期《中国新闻周刊》杂志 6月11日，伦敦的政治空气再度变得沉重。
+兖矿能源（01171）早盘涨超7%，截至发稿，股价上涨6.82%，现报16.23港元，成交额7.09亿港元。
 
-唐宁街还没有从上个月地方选举惨败和卫生大臣斯特里廷离任的震荡中缓过神来，国防大臣约翰·希利又递上辞呈。
+4月28日晚，兖矿能源公布，2026年第一季度，该集团取得营业收入345.89亿元，同比增加1.83%；归属于上市公司股东的净利润39.55亿元，同比增加42.14%。
 
-这个在工党内素以稳健、务实、少有戏剧性著称的老派政治人物，没有选择含糊其词地体面告别，而是在辞职信中直指问题核心：英国政府口口声声说要面对“更加危险的世界”，却不愿为军队提供与之匹配的资源；迟迟未能落地的《国防投资计划》，不足以支撑英国在新安全环境下的军力重建。
+公司指，一季度市场低位运行期间，公司深度释放“煤化一体”优势，煤化工板块逆势突围、量效齐升，实现化工品产量261万吨，同比增长4.2%，单季盈利创近四年新高。
 
-数小时后，武装部队国务大臣阿尔·卡恩斯也随之离任，国防部的辞职潮就此从个体抗议变成了部门性警报。
+主要产品甲醇、醋酸单位销售成本同比大幅下降11.2%和15.4%，强力驱动板块盈利逆势上扬。
 
-对首相斯塔默而言，这不是一次普通的内阁改组，更像是从英国国家机器深处传出的一声金属断裂声。
-
-这个国家仍然拥有核武器、航母、常任理事国席位和北约核心成员身份，仍习惯在乌克兰、红海、中东和印太安全议题上以大国口吻发言。
-
-但希利的离开提醒外界，伦敦越是试图维持“全球英国”的姿态，越难遮掩军队人手不足、装备老化、弹药短缺和财政捉襟见肘的现实。
-
-打破安全叙事 现年66岁的希利并不是一个惯于造反的政治明星。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 01:31 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 01:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 01:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 01:57 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 01:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 01:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 01:41 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 01:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 01:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 01:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 01:48 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 01:40 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 01:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 01:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 01:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 01:45 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 01:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 01:52 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 01:37 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 01:41 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 02:00 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 01:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 01:53 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 01:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/44004592.shtml)
-- 2026-06-30 01:49 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/71634587.shtml)
-- 2026-06-30 01:32 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/23507.shtml)
-- 2026-06-30 01:39 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/8166292.shtml)
-- 2026-06-30 01:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/902260.shtml)
-- 2026-06-30 01:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/31278716.shtml)
-- 2026-06-30 01:45 - [金牌调解](https://www.blog.minike.top/Article/details/167382092.shtml)
-- 2026-06-30 01:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/13895925620.shtml)
-- 2026-06-30 01:55 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/63547744066.shtml)
-- 2026-06-30 01:44 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/0330292.shtml)
-- 2026-06-30 01:47 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/1000019989.shtml)
-- 2026-06-30 01:48 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/903795034621.shtml)
-- 2026-06-30 01:43 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/176417691.shtml)
-- 2026-06-30 01:39 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/47143.shtml)
-- 2026-06-30 01:48 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/330121942319.shtml)
+- 2026-06-30 01:36 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/14905.shtml)
+- 2026-06-30 02:03 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/05072191.shtml)
+- 2026-06-30 01:41 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/670958738.shtml)
+- 2026-06-30 01:37 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/856616618.shtml)
+- 2026-06-30 01:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/081305549681.shtml)
+- 2026-06-30 01:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/05030.shtml)
+- 2026-06-30 01:54 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/49273810.shtml)
+- 2026-06-30 02:03 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/947821567.shtml)
+- 2026-06-30 01:58 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/56079.shtml)
+- 2026-06-30 01:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/240677.shtml)
+- 2026-06-30 01:40 - [一见倾心](https://www.blog.minike.top/Article/details/018778.shtml)
+- 2026-06-30 01:42 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/52809.shtml)
+- 2026-06-30 01:37 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/391833994.shtml)
+- 2026-06-30 01:36 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/87259903.shtml)
+- 2026-06-30 02:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/79145335.shtml)

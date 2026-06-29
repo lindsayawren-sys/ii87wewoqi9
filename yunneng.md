@@ -1,55 +1,56 @@
-# 日经指数或上涨，受对美伊谈判重燃希望提振
+# 国铁北京局2026年五一假期运输即将启动 预计发送旅客1303万人次
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-在对美伊和平谈判重燃希望之际，日本股市可能上涨。新加坡交易所的日经指数期货上涨0.2%，报73060点。一些科技股可能会受到隔夜纳斯达克指数下跌的拖累。在美国为伊朗以美元出售石油扫清障碍后，投资者正关注和平谈判的任何进展。日经指数周一上涨1.5%，达到创纪录的72353.96点。责任编辑：王永生
+中新网北京4月28日电(记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年五一假期铁路运输期限为4月29日至5月6日，共计8天。国铁北京局预计发送旅客1303万人次(日均162.8万人次)，同比增幅6.8%。高峰日5月1日预计发送旅客186万人次。旅客出行目的地主要集中在上海、杭州、成都、西安等旅游热门城市，青岛、大连等沿海地区，以及京津冀区
 
 ## 正文
 
-在对美伊和平谈判重燃希望之际，日本股市可能上涨。
+中新网北京4月28日电(记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年五一假期铁路运输期限为4月29日至5月6日，共计8天。
 
-新加坡交易所的日经指数期货上涨0.2%，报73060点。
+国铁北京局预计发送旅客1303万人次(日均162.8万人次)，同比增幅6.8%。
 
-一些科技股可能会受到隔夜纳斯达克指数下跌的拖累。
+高峰日5月1日预计发送旅客186万人次。
 
-在美国为伊朗以美元出售石油扫清障碍后，投资者正关注和平谈判的任何进展。
+旅客出行目的地主要集中在上海、杭州、成都、西安等旅游热门城市，青岛、大连等沿海地区，以及京津冀区域内北京至天津、石家庄、秦皇岛等短途方向；北京市域内八达岭、延庆方向也将迎来密集的往返客流。
 
-日经指数周一上涨1.5%，达到创纪录的72353.96点。
+根据客票预售及旅客候补需求，国铁北京局通过动车组重联、加开临客高峰线等方式，动态实施“一日一图”，有针对性地补强热门方向运力，预计日均开行旅客列车1108对，较去年五一日均增开33对，全力保障旅客探亲、旅游等多元化出行需求。
 
-责任编辑：王永生
+假日期间，热门方向高铁动车组每日采用重联方式运行43对，使出行集中方向的列车运力供给翻倍，并加大京津冀运力投放力度，为区域旅客出行提供便利。
+
+国铁北京局调整列车开行规律，从4月28日至5月7日每日开行昆明、深圳、成都、贵阳方向高铁动卧列车10对，旅客可以夜间乘火车，白天到目的地游玩。
+
+4月30日至5月4日，京津城际每日满图开行125对，方便京津两地旅客出行。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 01:46 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 01:57 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 01:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 01:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 01:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 01:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 01:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 01:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 01:35 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 01:44 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 01:55 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 01:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:04 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 01:54 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 01:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 01:36 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 02:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 02:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 01:52 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 02:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/07968122.shtml)
-- 2026-06-30 01:37 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/62030626043.shtml)
-- 2026-06-30 01:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/69478513128.shtml)
-- 2026-06-30 01:44 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/8554541077.shtml)
-- 2026-06-30 01:33 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/897436130292.shtml)
-- 2026-06-30 01:38 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8547091538.shtml)
-- 2026-06-30 01:38 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/03281.shtml)
-- 2026-06-30 01:34 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/583640089.shtml)
-- 2026-06-30 01:56 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/9560143.shtml)
-- 2026-06-30 01:39 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/547836541947.shtml)
-- 2026-06-30 01:56 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/7523846.shtml)
-- 2026-06-30 01:43 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/66471.shtml)
-- 2026-06-30 01:59 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/1532624.shtml)
-- 2026-06-30 01:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/56858934.shtml)
-- 2026-06-30 01:32 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/776575.shtml)
+- 2026-06-30 01:52 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/5425798.shtml)
+- 2026-06-30 01:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/86370000.shtml)
+- 2026-06-30 01:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/476465.shtml)
+- 2026-06-30 01:36 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/5416162723.shtml)
+- 2026-06-30 01:38 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/61936379364.shtml)
+- 2026-06-30 02:03 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/7913194137.shtml)
+- 2026-06-30 01:39 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/90492.shtml)
+- 2026-06-30 01:53 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0281087325.shtml)
+- 2026-06-30 01:42 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/93278.shtml)
+- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/570936144.shtml)
+- 2026-06-30 01:48 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/8787069.shtml)
+- 2026-06-30 01:42 - [天道](http://www.share.minike.top/Article/details/89475.shtml)
+- 2026-06-30 01:59 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/0318466785.shtml)
+- 2026-06-30 01:57 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/75339019.shtml)
+- 2026-06-30 01:48 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/01474477479.shtml)

@@ -1,59 +1,57 @@
-# 游客旅游归来一天腹泻7次，高烧近40℃ 医生提醒：出游时警惕“病从口入”
+# 科技金融赋能未来产业·中信建投未来产业峰会之安徽行在合肥成功举办
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-旅游归来一天腹泻7次，高烧近40℃ 医生提醒：这种肠道传染病夏季高发 夏天的快乐，多半是烧烤、冰饮和海边旅行给的。然而，近日59岁的孙阿姨(化姓)在外出游玩后，却因为一次看似普通的“吃坏肚子”，突发高烧至39.8℃，一天拉肚子7次。家人立即将她送往江苏省中医院。经诊断，孙阿姨患的是甲型副伤寒。所幸经感染(肝病)科医生及时调整治疗方案，孙阿姨目前已康复出院。 通讯员 麻云 扬子晚
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月27日至29日，“科技金融赋能未来产业·中信建投未来产业峰会安徽行”大会在合肥举行。大会汇聚了“政、产、学、研、金”多方优质资源，搭建了高端交流、产业对接、资本赋能的一体化平台。峰会由中信建投证券、上海交通大学上海高级金融学院、科大硅谷服务平台公司联合主办，中国国际经济咨询有限公司、中信银行、
 
 ## 正文
 
-旅游归来一天腹泻7次，高烧近40℃ 医生提醒：这种肠道传染病夏季高发 夏天的快乐，多半是烧烤、冰饮和海边旅行给的。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-然而，近日59岁的孙阿姨(化姓)在外出游玩后，却因为一次看似普通的“吃坏肚子”，突发高烧至39.8℃，一天拉肚子7次。
+2026年4月27日至29日，“科技金融赋能未来产业·中信建投未来产业峰会安徽行”大会在合肥举行。
 
-家人立即将她送往江苏省中医院。
+大会汇聚了“政、产、学、研、金”多方优质资源，搭建了高端交流、产业对接、资本赋能的一体化平台。
 
-经诊断，孙阿姨患的是甲型副伤寒。
+峰会由中信建投证券、上海交通大学上海高级金融学院、科大硅谷服务平台公司联合主办，中国国际经济咨询有限公司、中信银行、安徽上市公司协会、国际先进技术应用推进中心（合肥）联合协办。
 
-所幸经感染(肝病)科医生及时调整治疗方案，孙阿姨目前已康复出院。
+中信建投证券执委会委员、机构委主任、中信建投国际董事长武超则主持大会开幕式。
 
-通讯员 麻云 扬子晚报/紫牛新闻记者 万惠娟腹痛误判“胆囊炎” 高烧腹泻背后另有真凶 孙阿姨退休后热爱旅游。
+开幕式与前沿趋势论坛 4月27日上午，合肥市政府副市长王连贵在开幕致辞中介绍，当前，新一轮科技革命和产业变革加速演进，未来产业已成为重塑竞争格局的关键变量，合肥市始终坚持以科技创新引领产业创新，在量子信息、聚变能源、空天信息、低空经济等前沿领域布局生根，初步构建了“654X”现代化产业体系，培育了一大批具有核心竞争力的科技企业。
 
-发病前一周，她刚结束外地行程，期间品尝了不少当地特色小吃。
+中信建投证券作为国内头部综合性证券公司，长期以来深度融入合肥发展，在股权投资、债券发行、私募基金、产业研究等领域与合肥市展开了卓有成效的合作。
 
-回家后，她开始感到上腹部胀痛，在附近医院检查CT提示“胆囊多发结石伴胆囊炎”，遂按胆囊炎接受了抗感染、止痛治疗。
+特别是近年来，通过“投资+投行+投研+投顾”的“四投”联动，助力奇众科技、新图测控等企业登陆资本市场，推动长鑫科技、本源量子等核心企业加快上市进程，累计协助合肥市国资企业融资超过300亿元，发起设立近60亿元产业基金，引进一批优质项目，可以说中信建投不仅是合肥发展的见证者，更是合肥高质量发展的深度参与者和重要的合伙人。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 01:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 01:30 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 01:45 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 01:45 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 01:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 01:54 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 01:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 01:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 01:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 01:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 01:40 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 01:45 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 01:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 01:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 01:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 02:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 01:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 01:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 01:37 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 01:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 02:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 02:01 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 01:52 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/8966223995.shtml)
-- 2026-06-30 01:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/858373315232.shtml)
-- 2026-06-30 01:56 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/6883491033.shtml)
-- 2026-06-30 01:35 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/03955969094.shtml)
-- 2026-06-30 01:53 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/73598.shtml)
-- 2026-06-30 01:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/23042038.shtml)
-- 2026-06-30 01:51 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/521274500.shtml)
-- 2026-06-30 01:43 - [我和我的家乡](https://www.blog.minike.top/Article/details/78944.shtml)
-- 2026-06-30 01:42 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/990251554677.shtml)
-- 2026-06-30 01:42 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/49614693100.shtml)
-- 2026-06-30 01:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9038800.shtml)
-- 2026-06-30 01:38 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/09581898.shtml)
-- 2026-06-30 01:39 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/61158.shtml)
-- 2026-06-30 01:57 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/9421804.shtml)
-- 2026-06-30 01:47 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/07455016.shtml)
+- 2026-06-30 01:47 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/19805404326.shtml)
+- 2026-06-30 02:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/780493253.shtml)
+- 2026-06-30 02:03 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/0720072352.shtml)
+- 2026-06-30 02:05 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/713434.shtml)
+- 2026-06-30 01:58 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/60316535161.shtml)
+- 2026-06-30 01:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/4723105.shtml)
+- 2026-06-30 01:47 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/110685.shtml)
+- 2026-06-30 01:40 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/538073918.shtml)
+- 2026-06-30 01:46 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/4093340.shtml)
+- 2026-06-30 01:56 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/14342.shtml)
+- 2026-06-30 01:58 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/4575145.shtml)
+- 2026-06-30 01:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/4646523.shtml)
+- 2026-06-30 02:03 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/2868347.shtml)
+- 2026-06-30 01:41 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/48441148.shtml)
+- 2026-06-30 01:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/485470.shtml)

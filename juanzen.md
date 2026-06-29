@@ -1,45 +1,58 @@
-# 英维克：公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任
+# 数字经济创新型企业投融资对接会在福州举办
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月22日，英维克在互动平台回答投资者提问时表示，公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任。（文章来源：证券日报）
+中新网福州4月28日电(彭莉芳)28日，数字经济创新型企业投融资对接会在福州举行，推动政策、产业与资本的精准对接，助力数字经济创新型企业高质量发展。 会上，国家数据发展研究院发布数创企业发展态势研判。福建省数据管理局结合区域实际，推介数创企业总体融资需求和培育发展的配套举措。湖北省数据局、广州市政务服务和数据管理局分别就培育数创企业的经验做法进行了分享。江苏数据交易所、四川数据
 
 ## 正文
 
-证券日报网讯 6月22日，英维克在互动平台回答投资者提问时表示，公司将始终聚焦主业，以扎实的经营成果和长期稳健的发展来回报投资者的信任。
+中新网福州4月28日电(彭莉芳)28日，数字经济创新型企业投融资对接会在福州举行，推动政策、产业与资本的精准对接，助力数字经济创新型企业高质量发展。
 
-（文章来源：证券日报）
+会上，国家数据发展研究院发布数创企业发展态势研判。
+
+福建省数据管理局结合区域实际，推介数创企业总体融资需求和培育发展的配套举措。
+
+湖北省数据局、广州市政务服务和数据管理局分别就培育数创企业的经验做法进行了分享。
+
+江苏数据交易所、四川数据集团等机构围绕数据资产赋能、产业生态构建等主题，探讨了助力数创企业价值释放的具体路径。
+
+在机构推介环节，兴业银行、光大银行及福建省金融投资公司等金融机构，介绍了针对数创企业轻资产、高成长特点定制的信贷产品与金融支持方案。
+
+银行业代表联合发布关于数创企业信贷支持的倡议。
+
+湖北省启动数创企业培育伙伴行动并发布政策工具包，旨在联合多方力量，共同构建开放协同的数创企业培育生态。
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 01:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 01:53 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 01:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 01:32 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 01:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 01:53 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 01:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 01:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 01:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 01:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 01:56 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 01:59 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 01:46 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 01:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 01:48 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 01:45 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 01:37 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 01:59 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 01:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 01:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 02:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/0405440481.shtml)
-- 2026-06-30 01:57 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/0845313666.shtml)
-- 2026-06-30 01:52 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/01345.shtml)
-- 2026-06-30 01:52 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/196646976.shtml)
-- 2026-06-30 01:41 - [周生如故](https://www.blog.minike.top/Article/details/831551588.shtml)
-- 2026-06-30 01:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/60217599060.shtml)
-- 2026-06-30 01:52 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/2956253171.shtml)
-- 2026-06-30 01:53 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/158210.shtml)
-- 2026-06-30 01:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/5189239313.shtml)
-- 2026-06-30 01:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/2240578.shtml)
-- 2026-06-30 01:47 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/0120100.shtml)
-- 2026-06-30 01:48 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/2631757309.shtml)
-- 2026-06-30 01:30 - [极限挑战第一季](https://www.blog.minike.top/Article/details/2287297736.shtml)
-- 2026-06-30 01:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/212985288.shtml)
-- 2026-06-30 01:55 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/732101.shtml)
+- 2026-06-30 01:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/562300.shtml)
+- 2026-06-30 01:43 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/646530.shtml)
+- 2026-06-30 01:37 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/19344.shtml)
+- 2026-06-30 01:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/272780.shtml)
+- 2026-06-30 01:48 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/47866.shtml)
+- 2026-06-30 01:42 - [周生如故](http://www.share.kurohicncr.top/Article/details/081052725.shtml)
+- 2026-06-30 01:44 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/9988590444.shtml)
+- 2026-06-30 01:53 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/568812746593.shtml)
+- 2026-06-30 01:39 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/485579515.shtml)
+- 2026-06-30 01:58 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/02551.shtml)
+- 2026-06-30 01:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/87186154.shtml)
+- 2026-06-30 01:46 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/59346109454.shtml)
+- 2026-06-30 01:43 - [沙丘](http://www.blog.minike.top/Article/details/184124575.shtml)
+- 2026-06-30 01:51 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/1481649.shtml)
+- 2026-06-30 01:41 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/58076.shtml)

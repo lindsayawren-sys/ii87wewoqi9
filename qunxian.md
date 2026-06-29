@@ -1,57 +1,61 @@
-# 中国人民大学与北京人民艺术剧院签订合作框架协议
+# 辽宁鞍山出台“智改数转”三年行动 撬动产业转型
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电 (记者 曾玥)记者从中国人民大学获悉，该校近日与北京人民艺术剧院签订合作框架协议，推动文艺事业与教育事业双向赋能、深度融合。 在中国人民大学党委书记张东刚，北京人民艺术剧院党组副书记、院长冯远征的共同见证下，中国人民大学党委副书记高燕燕、北京人民艺术剧院党组副书记秦新春代表双方签署合作框架协议。 张东刚表示，中国人民大学与北京人民艺术剧院都具有鲜明的红色
+中新网鞍山4月28日电 (杨茜茜)鞍山市政府新闻办28日召开新闻发布会，正式发布《鞍山市深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》及2026年工作要点，依托国家技改试点城市、省级中小企业数字化转型试点城市“双试点”优势，多部门联动推动老工业基地产业升级。 此次三年行动计划聚焦新一代信息技术与制造业融合，部署六大重点行动。作为启动之年，2026年鞍山明确
 
 ## 正文
 
-中新网北京6月22日电 (记者 曾玥)记者从中国人民大学获悉，该校近日与北京人民艺术剧院签订合作框架协议，推动文艺事业与教育事业双向赋能、深度融合。
+中新网鞍山4月28日电 (杨茜茜)鞍山市政府新闻办28日召开新闻发布会，正式发布《鞍山市深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》及2026年工作要点，依托国家技改试点城市、省级中小企业数字化转型试点城市“双试点”优势，多部门联动推动老工业基地产业升级。
 
-在中国人民大学党委书记张东刚，北京人民艺术剧院党组副书记、院长冯远征的共同见证下，中国人民大学党委副书记高燕燕、北京人民艺术剧院党组副书记秦新春代表双方签署合作框架协议。
+此次三年行动计划聚焦新一代信息技术与制造业融合，部署六大重点行动。
 
-张东刚表示，中国人民大学与北京人民艺术剧院都具有鲜明的红色基因，都肩负着党和国家赋予的时代使命。
+作为启动之年，2026年鞍山明确七大核心任务，其中政策补助力度空前：国家技改试点项目按投资额20%补助，单个项目最高支持1000万元；省级数转试点对硬件、软件分别给予20%、40%补助。
 
-面向未来，愿双方携手并肩，赓续红色血脉，不负人民之名，推动资源共享、平台共建、人才共育，统筹优质资源，深耕美育实践，协同构建艺术学科自主知识体系，依托文艺创作阵地推动党的创新理论传播，引导广大师生和群众感悟思想伟力、增强思想力量，以天下之大美、人间之大美、思想之大美启智润心、铸魂育人，为推动社会主义文化繁荣发展和建设文化强国、教育强国作出更大贡献。
+据鞍山市工信局介绍，当地已统筹3.2亿元双试点资金，今年将滚动实施271个转型项目。
 
-冯远征表示，站在新的历史起点上，北京人民艺术剧院愿以此次签约为契机，与中国人民大学进一步深化合作，同向发力、同频共振，探索文教融合新路径，推动艺术院团与高等院校资源共享、优势互补，打通理论与实践双向通道，以数字技术丰富舞台呈现、以艺术思维赋能科研创新，以戏剧之光照亮学生成长成才之路，让广大青年在沉浸式审美体验中坚定文化自信、厚植家国情怀，培养更多堪当民族复兴大任的时代新人。
+目前正开展全域政策宣贯与需求摸排，计划5月中旬前实现全市932户规上工业企业全覆盖，并为企业提供“一企一策”免费诊断服务。
 
-根据协议，双方将秉持“优势互补，资源共享”的原则，聚焦戏剧美育普及、学术交流互建与人才培养创新，共同开发戏剧美育品牌课程与教材、打造高校戏剧类品牌实践，联合开展学术研究和专业人才培养，为推动文艺事业与教育事业双向赋能、深度融合注入新的活力。
+今年当地计划新增智能工厂培育库企业50户以上，争创5家先进级以上智能工厂，此前已向辽宁省推荐8户省级标杆企业、23户省级数字化车间及先进级智能工厂。
 
-(完)
+针对人才、技术痛点，鞍山多部门协同发力：教育系统构建多层次人才培养体系，建成135个产教融合实训基地；科技部门聚焦钢铁、菱镁产业实施省级科技攻关，打造“鞍矿模式”；数据局建成汇聚37亿条数据的共享交换平台，探索“算力租赁”模式降低中小企业转型成本。
+
+鞍山将持续完善工业互联网底座，推进钢铁产业大脑建设，打造“人工智能+制造”标杆场景，力争走出具有地方特色的老工业基地转型新路径。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 01:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 01:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 01:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 01:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 01:54 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 01:53 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 01:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 01:34 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 01:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 01:44 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 01:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 01:40 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:48 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 01:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 01:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 02:05 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 01:52 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 01:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:52 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 01:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 01:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 01:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 01:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 01:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/315017126777.shtml)
-- 2026-06-30 01:55 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/88887089133.shtml)
-- 2026-06-30 01:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/212286897.shtml)
-- 2026-06-30 01:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/1346276.shtml)
-- 2026-06-30 01:53 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/83748706184.shtml)
-- 2026-06-30 01:53 - [千与千寻](http://www.share.minike.top/Article/details/6440359.shtml)
-- 2026-06-30 01:55 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/918454507.shtml)
-- 2026-06-30 01:51 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/7900625001.shtml)
-- 2026-06-30 01:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/434078.shtml)
-- 2026-06-30 01:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/090602644.shtml)
-- 2026-06-30 01:51 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/879286.shtml)
-- 2026-06-30 01:45 - [周生如故](https://www.blog.minike.top/Article/details/94601.shtml)
-- 2026-06-30 01:57 - [绘画区你赢了](http://www.share.minike.top/Article/details/09723422.shtml)
-- 2026-06-30 01:54 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/251551395.shtml)
-- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/43265.shtml)
+- 2026-06-30 01:38 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/7273646144.shtml)
+- 2026-06-30 01:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0963166818.shtml)
+- 2026-06-30 01:44 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/381910614821.shtml)
+- 2026-06-30 01:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/294890315.shtml)
+- 2026-06-30 01:56 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/400782.shtml)
+- 2026-06-30 01:42 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/8228848.shtml)
+- 2026-06-30 01:44 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/202809751.shtml)
+- 2026-06-30 02:03 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/23102132.shtml)
+- 2026-06-30 01:50 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/3717918259.shtml)
+- 2026-06-30 01:45 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/100129358447.shtml)
+- 2026-06-30 01:56 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/268639244594.shtml)
+- 2026-06-30 02:04 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/836869781504.shtml)
+- 2026-06-30 02:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/32573648103.shtml)
+- 2026-06-30 01:58 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/914895013408.shtml)
+- 2026-06-30 01:54 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/5641110.shtml)

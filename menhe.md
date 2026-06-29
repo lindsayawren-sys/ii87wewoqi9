@@ -1,50 +1,56 @@
-# 新西兰龙舟队挑战佛山“龙舟漂移”：中国是头号好地方
+# 突发！西王食品信披违规遭立案 受损股民可索赔
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。 跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上
+根据最新消息，西王食品（维权）股份有限公司（以下简称“西王食品”）因信披违法违规被中国证监会立案。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。（赵敬国律师专栏） 回顾本案， 2026年4月29日西王食品发布《关
 
 ## 正文
 
-发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。
+根据最新消息，西王食品（维权）股份有限公司（以下简称“西王食品”）因信披违法违规被中国证监会立案。
 
-跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上身上都刻着民族图案。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
 
-在端午节的前一周，他们就抵达佛山，开启了训练模式。
+（赵敬国律师专栏） 回顾本案， 2026年4月29日西王食品发布《关于公司及实际控制人收到中国证券监督管理委员会立案告知书的公告》，公告显示因西王食品及实控人涉嫌信披违法违规，被中国证监会立案调查。
 
-尽管来之前也看过一些视频画面，但亲身踏上“漂移”龙舟‌的赛场，汉子们还是被震撼到了。
+信本股民索赔团队提醒，西王食品因信披违法违规被中国证监会立案，受损投资者可通过“新浪股民维权平台”自愿登记索赔。
 
-记者 王庆然 佛山报道 责任编辑：【李季】
+索赔条件： 西王食品：于2026年4月29日之前买入且有持仓，无论在2026年4月29日及之后是否卖出（具体赔付范围由法院确定）（西王食品维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+
+执业至今，赵敬国律师代理投资者诉多家上市公司索赔案件，已经胜诉或已经获赔的案件包括中安科索赔、中兵红箭索赔、步森服饰索赔、中潜股份索赔、奥瑞德索赔、獐子岛索赔、天神娱乐索赔、抚顺特钢索赔、飞乐音响索赔、香溢融通索赔、延安必康索赔、欢瑞世纪（维权）索赔、紫晶存储索赔、泽达易盛索赔、安妮股份索赔等。
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 01:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 01:44 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 01:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 01:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 01:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 01:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 01:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 01:36 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 02:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 02:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 02:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 01:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 01:52 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 01:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 01:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 02:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/276821.shtml)
-- 2026-06-30 01:34 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/029898112.shtml)
-- 2026-06-30 01:57 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/468452575.shtml)
-- 2026-06-30 01:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/646920777.shtml)
-- 2026-06-30 01:39 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/7021101112.shtml)
-- 2026-06-30 01:56 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/33751787879.shtml)
-- 2026-06-30 01:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/80170922143.shtml)
-- 2026-06-30 01:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/914675025677.shtml)
-- 2026-06-30 01:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/059625.shtml)
-- 2026-06-30 01:47 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/04247469.shtml)
-- 2026-06-30 01:42 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/195767320360.shtml)
-- 2026-06-30 01:53 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/041653634924.shtml)
-- 2026-06-30 01:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/461888.shtml)
-- 2026-06-30 01:42 - [月亮](https://www.share.minike.top/Article/details/8763407.shtml)
-- 2026-06-30 01:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/9267808144.shtml)
+- 2026-06-30 01:39 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/182811874430.shtml)
+- 2026-06-30 02:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/151460.shtml)
+- 2026-06-30 01:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/85944.shtml)
+- 2026-06-30 01:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/9665260551.shtml)
+- 2026-06-30 01:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/3331166.shtml)
+- 2026-06-30 01:36 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/9811133.shtml)
+- 2026-06-30 01:47 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/3887509.shtml)
+- 2026-06-30 01:45 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/4823129.shtml)
+- 2026-06-30 01:48 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/32299.shtml)
+- 2026-06-30 01:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/5244925526.shtml)
+- 2026-06-30 01:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/5267641245.shtml)
+- 2026-06-30 01:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/7580532561.shtml)
+- 2026-06-30 01:42 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/49339.shtml)
+- 2026-06-30 01:48 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/6589440.shtml)
+- 2026-06-30 01:50 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/981249.shtml)

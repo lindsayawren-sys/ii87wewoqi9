@@ -1,58 +1,44 @@
-# 金饰价格，半年跌近450元
+# 联合包裹调整后EPS与营收均超预期
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-据央视财经6月21日报道，近期，国际金价持续走弱，国内终端金饰价格同步大幅下调，主流品牌足金饰品克价全线跌破1300元整数关口。 端午假期，记者来到北京菜百黄金卖场进行实地探访，店内黄金饰品区挑选金饰的人围满了柜台。当日足金零售价1260元/克，而今年年初金饰价格曾冲高至1700元上下，短短半年每克下跌近450元，跌幅超25%。金价显著回落已让部分消费者动心。 同样火热的还有以
+联合包裹公布第一季度调整后每股收益为1.07美元，营收212亿美元，高于市场预期的1.02美元和209.9亿美元，但业绩指引和市场反应仍偏谨慎。责任编辑：张俊 SF065
 
 ## 正文
 
-据央视财经6月21日报道，近期，国际金价持续走弱，国内终端金饰价格同步大幅下调，主流品牌足金饰品克价全线跌破1300元整数关口。
+联合包裹公布第一季度调整后每股收益为1.07美元，营收212亿美元，高于市场预期的1.02美元和209.9亿美元，但业绩指引和市场反应仍偏谨慎。
 
-端午假期，记者来到北京菜百黄金卖场进行实地探访，店内黄金饰品区挑选金饰的人围满了柜台。
-
-当日足金零售价1260元/克，而今年年初金饰价格曾冲高至1700元上下，短短半年每克下跌近450元，跌幅超25%。
-
-金价显著回落已让部分消费者动心。
-
-同样火热的还有以旧换新的服务柜台，随着金价下跌，换购时添金部分成本下降，不少消费者选择这个时候更换一下手上的旧款金饰。
-
-在投资金条的区域，也有不少人咨询购买。
-
-记者在现场了解到，目前市场投资氛围趋于理性，多数投资者选择分批小额配置。
-
-来源 央视财经 值班编辑 王丹妮责任编辑：宋雅芳
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 01:35 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 01:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 01:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 01:41 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 01:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 01:55 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 01:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 01:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 01:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 01:42 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 01:34 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 02:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 01:57 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 02:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 01:37 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 01:36 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 02:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 01:51 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 01:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 01:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [月亮](http://www.share.kurohicncr.top/Article/details/933941843528.shtml)
-- 2026-06-30 01:36 - [月亮](https://www.blog.minike.top/Article/details/454625650780.shtml)
-- 2026-06-30 01:51 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/40822390221.shtml)
-- 2026-06-30 01:44 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/8213399811.shtml)
-- 2026-06-30 01:31 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/2828783693.shtml)
-- 2026-06-30 01:53 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/098850.shtml)
-- 2026-06-30 01:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/38873890.shtml)
-- 2026-06-30 01:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/280176319.shtml)
-- 2026-06-30 01:56 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/3431312.shtml)
-- 2026-06-30 01:49 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/579308181.shtml)
-- 2026-06-30 01:50 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/255700503.shtml)
-- 2026-06-30 01:56 - [月亮](https://www.blog.minike.top/Article/details/47928648178.shtml)
-- 2026-06-30 01:47 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/92841996.shtml)
-- 2026-06-30 01:43 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/26766524676.shtml)
-- 2026-06-30 01:31 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/997623.shtml)
+- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/364543356.shtml)
+- 2026-06-30 02:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/70809938.shtml)
+- 2026-06-30 01:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/6174588448.shtml)
+- 2026-06-30 02:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/409142966.shtml)
+- 2026-06-30 01:43 - [蔚来车主罚站](http://www.share.minike.top/Article/details/586971205.shtml)
+- 2026-06-30 01:54 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/85490.shtml)
+- 2026-06-30 01:46 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/1696858.shtml)
+- 2026-06-30 01:49 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/0175688.shtml)
+- 2026-06-30 01:54 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/63122712109.shtml)
+- 2026-06-30 02:01 - [天道](https://www.share.kurohicncr.top/Article/details/179487.shtml)
+- 2026-06-30 01:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/306252.shtml)
+- 2026-06-30 02:02 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/631011432621.shtml)
+- 2026-06-30 01:46 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/261610693.shtml)
+- 2026-06-30 01:46 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/8565022.shtml)
+- 2026-06-30 02:02 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/37587.shtml)

@@ -1,54 +1,57 @@
-# 第7号台风“米克拉”加强为强台风级 向中国台湾岛东南洋面靠近
+# 苏州银行：2025年实现归母净利润53.48亿元，同比增长5.53%
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 (记者 陈溯)记者从中国气象局获悉，今年第7号台风“米克拉”的中心22日上午由台风级加强为强台风级，受其影响，中国部分海域阵风可达10至11级。 上午8点，台风“米克拉”的中心位于台湾鹅銮鼻东偏南方向约890公里的西北太平洋洋面上(北纬17.4度、东经127.9度)，中心附近最大风力15级(48米/秒，强台风级)，中心最低气压为945百帕，七级风圈半径为
+4月28日金融一线消息，苏州银行发布2025年年度报告。数据显示，截至报告期末，集团资产总额7，894.21亿元，较上年末增加957.07亿元，增幅13.80%；各项存款4，705.78亿元，较上年末增加536.13亿元，增幅12.86%；各项贷款3，734.33亿元，较上年末增加400.75亿元，增幅12.02%。 报告期内，集团实现营业收入123.56亿元，比上年同期增长1
 
 ## 正文
 
-中新社北京6月22日电 (记者 陈溯)记者从中国气象局获悉，今年第7号台风“米克拉”的中心22日上午由台风级加强为强台风级，受其影响，中国部分海域阵风可达10至11级。
+4月28日金融一线消息，苏州银行发布2025年年度报告。
 
-上午8点，台风“米克拉”的中心位于台湾鹅銮鼻东偏南方向约890公里的西北太平洋洋面上(北纬17.4度、东经127.9度)，中心附近最大风力15级(48米/秒，强台风级)，中心最低气压为945百帕，七级风圈半径为200至350公里，十级风圈半径为80至90公里，十二级风圈半径为40公里。
+数据显示，截至报告期末，集团资产总额7，894.21亿元，较上年末增加957.07亿元，增幅13.80%；各项存款4，705.78亿元，较上年末增加536.13亿元，增幅12.86%；各项贷款3，734.33亿元，较上年末增加400.75亿元，增幅12.02%。
 
-中央气象台预计，“米克拉”将以每小时15至20公里的速度向西偏北方向移动，强度逐渐增强，并逐渐向中国台湾岛东南洋面靠近。
+报告期内，集团实现营业收入123.56亿元，比上年同期增长1.32亿元，增幅1.08%；实现净利润55.78亿元，比上年同期增长3.05亿元，增幅5.79%；实现归属于母公司股东的净利润53.48亿元，比上年同期增长2.80亿元，增幅5.53%；基本每股收益1.14元/股。
 
-受其影响，23日夜间至27日，巴士海峡，台湾以东洋面、东海南部海面将有7至9级风，阵风10至11级；部分海域风力有10至11级，阵风12至13级。
+截至报告期末，集团不良贷款率0.82%，较年初下降0.01个百分点；拨备覆盖率418.60%，拨贷比3.45%。
 
-(完)
+苏州银行年度分红方案为对全体股东10派1.5元。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 01:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 01:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 01:34 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 01:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 01:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 01:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:54 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 01:40 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 01:30 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 01:42 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 01:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 01:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 01:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 02:05 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 01:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 02:02 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 01:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 01:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 02:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 01:56 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 01:57 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:03 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 01:36 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 01:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 01:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/479624.shtml)
-- 2026-06-30 01:56 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/9981869.shtml)
-- 2026-06-30 01:48 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/2899664.shtml)
-- 2026-06-30 01:44 - [爱很美味](http://www.blog.minike.top/Article/details/3938047127.shtml)
-- 2026-06-30 01:30 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/8201888.shtml)
-- 2026-06-30 01:47 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/2676783.shtml)
-- 2026-06-30 01:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/84180.shtml)
-- 2026-06-30 01:43 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/93346929.shtml)
-- 2026-06-30 01:45 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/37951.shtml)
-- 2026-06-30 01:56 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/27397.shtml)
-- 2026-06-30 01:45 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/593086699941.shtml)
-- 2026-06-30 01:57 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/4299086.shtml)
-- 2026-06-30 01:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/9390393888.shtml)
-- 2026-06-30 01:35 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/13431.shtml)
-- 2026-06-30 01:41 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/0378839650.shtml)
+- 2026-06-30 01:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/3894522.shtml)
+- 2026-06-30 01:57 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/83806748.shtml)
+- 2026-06-30 01:57 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/114208644211.shtml)
+- 2026-06-30 01:40 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/287601424.shtml)
+- 2026-06-30 01:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/55485.shtml)
+- 2026-06-30 02:05 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/5567227.shtml)
+- 2026-06-30 01:50 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/589858190.shtml)
+- 2026-06-30 01:46 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/73948356.shtml)
+- 2026-06-30 01:38 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/07424973258.shtml)
+- 2026-06-30 02:04 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/72619.shtml)
+- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/781234251154.shtml)
+- 2026-06-30 01:47 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/786345418.shtml)
+- 2026-06-30 02:03 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/14696.shtml)
+- 2026-06-30 02:05 - [千与千寻](https://www.share.kurohicncr.top/Article/details/830795.shtml)
+- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/469072076047.shtml)

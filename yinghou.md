@@ -1,61 +1,57 @@
-# 上海市属国企战略入股中央企业！从“资本合作”迈向全方位的“产业协同”与“战略转型”
+# 2026年中国网络文明大会将于5月19日至20日在南宁举办
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月18日，隧道股份与中国能建战略合作签约仪式在沪举行。本次签约是隧道股份继今年3月战略入股中国能建，成为其重要股东后的合作“再升级”，标志着两家在基础设施与能源电力领域分别占据领军地位的龙头企业，将从“资本合作”迈向全方位的“产业协同”与“战略转型”，以能源电力、水利领域重大项目与国家战略项目为牵引，携手推动源网荷储一体化、数能融合、算电协同、城市更新等绿色产业的加速发展和国
+中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。会上，中央网信办(国家网信办)副主任牛一兵表示，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半。主题是“文明网络空间 昂扬奋进力量”。今年的大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办，中国网络社会组
 
 ## 正文
 
-6月18日，隧道股份与中国能建战略合作签约仪式在沪举行。
+中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。
 
-本次签约是隧道股份继今年3月战略入股中国能建，成为其重要股东后的合作“再升级”，标志着两家在基础设施与能源电力领域分别占据领军地位的龙头企业，将从“资本合作”迈向全方位的“产业协同”与“战略转型”，以能源电力、水利领域重大项目与国家战略项目为牵引，携手推动源网荷储一体化、数能融合、算电协同、城市更新等绿色产业的加速发展和国际化业务布局。
+会上，中央网信办(国家网信办)副主任牛一兵表示，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半。
 
-创新央地合作模式打造“以资促产”范本中国能建是由国务院国资委监管的中央企业，是为中国乃至全球能源电力、水利等基础设施领域提供整体解决方案和全产业链服务的综合性特大型集团公司，在能源电力建设领域处于龙头地位。
+主题是“文明网络空间 昂扬奋进力量”。
 
-今年3月，隧道股份以自筹资金约35亿元认购中国能建定向增发的13.73亿股A股股票，相关份额超中国能建65亿元定增总份额半数。
+今年的大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办，中国网络社会组织联合会、广西壮族自治区党委网信办、广西壮族自治区精神文明建设办公室、中共南宁市委、南宁市人民政府联合承办。
 
-后续，隧道股份又出资9.44亿元，通过二级市场买入中国能建港股（H股）约8.31亿股，目前总持股占比达4.98%。
+牛一兵介绍，这次大会按照“十五五”规划纲要关于加强网络文明建设的战略部署，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。
 
-隧道股份表示，此次战略投资，是隧道股份作为上海市属国企积极响应国家关于深化国有企业改革、促进央企与地方国企协同发展号召的实际行动，也是公司践行“十五五”时期企业“科创引领、数智赋能、资本推动、融合发展”策略、提升基础设施全业务领域布局、推动企业可持续发展的重要举措。
+主论坛将邀请有关部门的同志发表主题演讲，安排主流媒体、网络平台、MCN机构、优质网络主播、正能量网络名人、中国好网民代表等分享交流，发布2026年全国网络文明建设优秀案例，启动2026年全民数字素养与技能提升月活动。
 
-通过战略投资，隧道股份将以股权为纽带，与中国能建建立起牢固的产业协同伙伴关系，为后续全方位业务合作奠定坚实基础。
+14场分论坛将重点围绕党的创新理论网络传播、互联网与文明乡风建设、网络文明培育、优化营商网络环境、中国好网民培育、走好网上群众路线、新大众文艺发展、网络辟谣、网络公益建设、互联网企业社会责任、全民数字素养与技能提升、人工智能赋能网络文明建设等主题展开，并将发布一系列网络文明建设的成果。
 
-在股权合作顺利落地的基础上，6月18日，双方又正式签署了战略合作协议，建立面向未来的合作伙伴关系，促进双方在多业务领域的合作交流，推动互利共赢，实现共同发展。
+“铸魂领航 清朗八桂”主题活动将于大会前在南宁市举办，以实景演绎、故事讲述等形式，多元展现AI等前沿科技推动网络空间天朗气清、生态良好的生动景象。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 01:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 01:37 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 01:41 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 01:32 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 01:30 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 01:43 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 01:39 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 01:45 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 01:35 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 01:55 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 01:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 01:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 01:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 01:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 01:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 01:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 01:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 02:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 02:00 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 01:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:39 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 01:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 01:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 01:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/910296392895.shtml)
-- 2026-06-30 01:32 - [金牌调解](https://www.blog.minike.top/Article/details/1411350.shtml)
-- 2026-06-30 01:32 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/4758398004.shtml)
-- 2026-06-30 01:55 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/902025469.shtml)
-- 2026-06-30 01:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/5683744.shtml)
-- 2026-06-30 01:41 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/936898.shtml)
-- 2026-06-30 01:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7439691064.shtml)
-- 2026-06-30 01:58 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/827230105.shtml)
-- 2026-06-30 01:46 - [斛珠夫人](http://www.share.minike.top/Article/details/824167508.shtml)
-- 2026-06-30 01:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/4193045.shtml)
-- 2026-06-30 01:44 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/355922195.shtml)
-- 2026-06-30 01:43 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/89532628.shtml)
-- 2026-06-30 01:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/711457129.shtml)
-- 2026-06-30 01:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/90191.shtml)
-- 2026-06-30 01:38 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/26804112934.shtml)
+- 2026-06-30 01:40 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/91106702691.shtml)
+- 2026-06-30 01:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/079293778286.shtml)
+- 2026-06-30 02:02 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/6957848.shtml)
+- 2026-06-30 01:42 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/43136.shtml)
+- 2026-06-30 02:01 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/08099765.shtml)
+- 2026-06-30 01:44 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/234549815592.shtml)
+- 2026-06-30 02:05 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/02016329826.shtml)
+- 2026-06-30 01:36 - [月亮](https://www.blog.minike.top/Article/details/491907778126.shtml)
+- 2026-06-30 01:44 - [电影后室值得看吗](http://www.share.minike.top/Article/details/700830.shtml)
+- 2026-06-30 02:03 - [日本16强魔咒](https://www.blog.minike.top/Article/details/85715.shtml)
+- 2026-06-30 01:59 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/379906909.shtml)
+- 2026-06-30 01:36 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/29878.shtml)
+- 2026-06-30 01:55 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/91187.shtml)
+- 2026-06-30 02:05 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/2222758115.shtml)
+- 2026-06-30 01:52 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5217040316.shtml)

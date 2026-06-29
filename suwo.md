@@ -1,56 +1,60 @@
-# 花旗：老铺黄金维持“买入”评级 目标价下调至659港元
+# 光大期货矿钢煤焦类日报4.29
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，维持老铺黄金（06181）“买入”评级，基于第二季的营运情况，将老铺黄金2026至2028年的盈利预测下调6%至7%，将其目标价由700港元下调至659港元。该股在近期金价回落中已遭超卖，2027年预测市盈率为10倍，股息率为7.4%，估值具吸引力。 该行预期老铺黄金今年次季销售额将同比减弱，但盈利表现将更强劲，主要由于毛利率扩张足以抵销营运负杠杆效应。该行相信
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3176元/吨，较上一交易收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.03万手。现货价格稳中有跌，成交回落，唐山地区迁安普方坯价格持平于3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/ 吨，全国建材成交量11.6
 
 ## 正文
 
-花旗发布研报称，维持老铺黄金（06181）“买入”评级，基于第二季的营运情况，将老铺黄金2026至2028年的盈利预测下调6%至7%，将其目标价由700港元下调至659港元。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3176元/吨，较上一交易收盘价格下跌14元/吨，跌幅为0.44%，持仓减少4.03万手。
 
-该股在近期金价回落中已遭超卖，2027年预测市盈率为10倍，股息率为7.4%，估值具吸引力。
+现货价格稳中有跌，成交回落，唐山地区迁安普方坯价格持平于3020元/吨，杭州市场中天螺纹价格下跌10元/吨至3210元/ 吨，全国建材成交量11.6万吨。
 
-该行预期老铺黄金今年次季销售额将同比减弱，但盈利表现将更强劲，主要由于毛利率扩张足以抵销营运负杠杆效应。
+中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
 
-该行相信，第二季的表现提供了一个最坏情况案例，以衡量由忠实核心客户所产生的业务规模及盈利能力，若金价进一步下跌，其下行风险有限。
+会议指出要纵深推进全国统一大市场建设，深入整治“内卷式”竞争。
 
-同时，管理层正测试更多措施以应对价格敏感型客户的流失，这有望推动第三季起出现按季改善。
+要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。
 
-该行指出，第二季销售疲弱主要受到SKP（4月促销疲弱）及天猫（618活动疲弱）两大渠道拖累，因这两个渠道拥有较多价格敏感型客户，在公司产品溢价显著飙升（目前较传统黄金珠宝商高出约60%）及金价回落后选择流失。
+推动条件成熟的重大工程项目开工。
 
-该行估计这两个主要渠道以往占销售额约30%6（现降至约20%），其下滑未能完全被2025年下半年开设的新大店销售所抵销。
+后期钢铁行业供需两端或均有政策利好预期，对市场情绪有一定提振。
 
-责任编辑：卢昱君
+临近五一长假，多空资金均较为谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 01:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 01:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 01:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 01:30 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 01:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 01:53 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 01:39 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 01:49 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 01:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 02:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 01:46 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 01:58 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:44 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 01:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 01:57 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 02:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 01:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 01:56 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:39 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/91799671398.shtml)
-- 2026-06-30 01:43 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/973068423339.shtml)
-- 2026-06-30 01:33 - [沙丘](http://www.blog.kurohicncr.top/Article/details/907028391.shtml)
-- 2026-06-30 01:35 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/22086760345.shtml)
-- 2026-06-30 01:40 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/8810242970.shtml)
-- 2026-06-30 01:57 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/7274070965.shtml)
-- 2026-06-30 01:37 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/42531435.shtml)
-- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/00629377.shtml)
-- 2026-06-30 01:33 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/76063890225.shtml)
-- 2026-06-30 01:46 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/26860947883.shtml)
-- 2026-06-30 01:40 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/577206429730.shtml)
-- 2026-06-30 01:51 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/4474252942.shtml)
-- 2026-06-30 01:32 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/062400787.shtml)
-- 2026-06-30 01:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/4430784647.shtml)
-- 2026-06-30 01:37 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/911496.shtml)
+- 2026-06-30 01:45 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/42061293776.shtml)
+- 2026-06-30 01:49 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/375946.shtml)
+- 2026-06-30 01:56 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/248305903.shtml)
+- 2026-06-30 01:57 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/6456584.shtml)
+- 2026-06-30 01:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/14432.shtml)
+- 2026-06-30 01:44 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/0556818.shtml)
+- 2026-06-30 01:37 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/20104081.shtml)
+- 2026-06-30 02:03 - [沙丘](http://www.blog.kurohicncr.top/Article/details/341375.shtml)
+- 2026-06-30 01:50 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/37865.shtml)
+- 2026-06-30 02:04 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/01918224.shtml)
+- 2026-06-30 02:02 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/012760146533.shtml)
+- 2026-06-30 01:43 - [急先锋](http://www.blog.kurohicncr.top/Article/details/18863.shtml)
+- 2026-06-30 01:54 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/229779377595.shtml)
+- 2026-06-30 02:04 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/19216697468.shtml)
+- 2026-06-30 01:53 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/133352328770.shtml)

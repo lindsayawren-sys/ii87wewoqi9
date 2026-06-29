@@ -1,57 +1,60 @@
-# 深入学习贯彻习近平党建思想系列述评之四
+# 国台办回应岛内担忧美国花生或在台倾销
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-新华社北京6月19日电 题：坚持不忘初心、牢记使命——深入学习贯彻习近平党建思想系列述评之四 新华社记者施雨岑、王鹏、王明玉 在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员张连生回信，强调“新时代共产党人要传承红色基因，不忘初心、牢记使命，履职尽责、实干担当，在新征程上书写优异答卷。” “坚持不忘初心、牢记使命”，是习近平党建思想的重要内容。 中国共产党人的
+中新网4月29日电 4月29日，国台办举行例行新闻发布会。有记者问：台媒报道，根据“美台对等贸易协议”(ART)条款，美国花生将零关税输入台湾，岛内舆论担心可能导致美国花生倾销。台农业部门对此称，已做好准备，协助产业转型，提升台湾花生附加价值。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局妄图“倚外谋独”，在与美贸易谈判中无原则媚外、无底线卖台，任由其予取予求。如果美国
 
 ## 正文
 
-新华社北京6月19日电 题：坚持不忘初心、牢记使命——深入学习贯彻习近平党建思想系列述评之四 新华社记者施雨岑、王鹏、王明玉 在中国共产党成立105周年之际，习近平总书记给新华社102岁老党员张连生回信，强调“新时代共产党人要传承红色基因，不忘初心、牢记使命，履职尽责、实干担当，在新征程上书写优异答卷。
+中新网4月29日电 4月29日，国台办举行例行新闻发布会。
 
-” “坚持不忘初心、牢记使命”，是习近平党建思想的重要内容。
+有记者问：台媒报道，根据“美台对等贸易协议”(ART)条款，美国花生将零关税输入台湾，岛内舆论担心可能导致美国花生倾销。
 
-中国共产党人的初心和使命，就是为中国人民谋幸福，为中华民族谋复兴。
+台农业部门对此称，已做好准备，协助产业转型，提升台湾花生附加价值。
 
-深入学习贯彻习近平党建思想，要牢牢把握坚持不忘初心、牢记使命，让初心和使命在广大党员、干部内心深处铸牢、在思想深处扎根，以永远的坚守、不变的追求在新征程上奋力谱写时代华章。
+请问对此有何评论？
 
-“无论我们走得多远，都不能忘记来时的路” 首都北京，中国共产党历史展览馆气势恢宏。
+国台办发言人陈斌华表示，民进党当局妄图“倚外谋独”，在与美贸易谈判中无原则媚外、无底线卖台，任由其予取予求。
 
-步入展厅，时光闸门徐徐打开——“不忘初心、牢记使命”中国共产党历史展览，生动再现中国共产党百余年来为人民谋幸福、为民族谋复兴的奋斗历程。
+如果美国农产品零关税输入台湾的报道属实，势必严重冲击台湾农业发展，挤压岛内农户生存空间。
 
-2021年6月，庆祝中国共产党成立100周年之际，习近平总书记来到这里参观时强调：“我们党的一百年，是矢志践行初心使命的一百年，是筚路蓝缕奠基立业的一百年，是创造辉煌开辟未来的一百年。
+民进党当局所谓“产业转型、提升附加值”的说辞，不过是试图转移焦点、敷衍民众、掩盖损失的空洞表态，根本无法化解外来农产品倾销带来的实际冲击。
 
-” 党的初心和使命是党的性质宗旨、理想信念、奋斗目标的集中体现，激励着我们党永远坚守，砥砺着我们党坚毅前行。
+其对美一味敞开市场让利讨好，对内罔顾基层民生福祉，损害的是台湾民众的利益，牺牲的是台湾农业的未来。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 01:57 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 01:33 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 01:38 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 01:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 01:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 01:47 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 01:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 01:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 01:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 02:02 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 01:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 01:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 01:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 01:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:36 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 02:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 01:43 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 01:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 01:53 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 01:46 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 01:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [巴西vs日本](http://www.share.minike.top/Article/details/211985327214.shtml)
-- 2026-06-30 01:36 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/3565449319.shtml)
-- 2026-06-30 01:48 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/827810.shtml)
-- 2026-06-30 01:32 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/64294.shtml)
-- 2026-06-30 01:51 - [张凌赫 客串](https://www.blog.minike.top/Article/details/29137157965.shtml)
-- 2026-06-30 01:35 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/1199282811.shtml)
-- 2026-06-30 01:56 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/798374.shtml)
-- 2026-06-30 01:55 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/093364930368.shtml)
-- 2026-06-30 01:36 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/608653405033.shtml)
-- 2026-06-30 01:47 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/0765473.shtml)
-- 2026-06-30 01:58 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/054879109.shtml)
-- 2026-06-30 01:52 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/455075128.shtml)
-- 2026-06-30 01:37 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/196812650407.shtml)
-- 2026-06-30 01:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/95565725369.shtml)
-- 2026-06-30 01:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/292797744449.shtml)
+- 2026-06-30 02:02 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/81212577095.shtml)
+- 2026-06-30 01:46 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6597067.shtml)
+- 2026-06-30 02:04 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/49079053.shtml)
+- 2026-06-30 02:03 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/83043384.shtml)
+- 2026-06-30 01:51 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/37288900697.shtml)
+- 2026-06-30 01:38 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/75283552761.shtml)
+- 2026-06-30 01:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/66697032.shtml)
+- 2026-06-30 01:51 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/606835.shtml)
+- 2026-06-30 01:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/07325027.shtml)
+- 2026-06-30 01:47 - [天道](https://www.blog.minike.top/Article/details/90744006.shtml)
+- 2026-06-30 01:47 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/77357.shtml)
+- 2026-06-30 01:40 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/9434659.shtml)
+- 2026-06-30 01:55 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/5694454.shtml)
+- 2026-06-30 02:04 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/214554642885.shtml)
+- 2026-06-30 01:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/043160.shtml)

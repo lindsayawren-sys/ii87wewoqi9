@@ -1,59 +1,59 @@
-# 端午节小长假皇岗、福田口岸迎送港澳旅客46万人次
+# 千年晋祠难老泉高位复流 带动周边产业焕新生
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。其中，经皇岗、福田口岸出入境港澳旅客46万人次。据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。 受香港、深圳、广州等地举办巡游竞渡、古礼
+中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。历经多年系统治理与生态涵养，难老泉实现高位复流。清泉顺着智伯渠流淌，带活了周边产业与百姓生活。 一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。今年春节，
 
 ## 正文
 
-中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。
+中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。
 
-其中，经皇岗、福田口岸出入境港澳旅客46万人次。
+历经多年系统治理与生态涵养，难老泉实现高位复流。
 
-据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。
+清泉顺着智伯渠流淌，带活了周边产业与百姓生活。
 
-受香港、深圳、广州等地举办巡游竞渡、古礼仪式、文创市集、非遗展演、民俗体验、美食品鉴活动，叠加毕业出行等多重需求释放影响，连日来，大批内地居民将香港作为出境首选地，高中毕业生群体“小包团”现象较为明显。
+一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。
 
-同时，不少港澳居民返乡沐龙舟水、休闲娱乐消费、品味岭南韵味、悦享山海风情；令地处深港核心区的皇岗、福田口岸接续迎来出入境“两头忙”。
+今年春节，晋祠博物馆累计接待游客17.57万人次，省外游客占比64%。
 
-21日适逢周日，也是端午节小长假最后一天。
+由周边村民成立的“晋之胜”旅游服务公司，260余名导游讲解客单不断。
 
-皇岗边检站预测，出入境双向客流高峰将于当天18时至22时出现。
+栖迟小筑轰趴馆老板刘金娥把一层改成茶社，用古泉泡茶，开张即火爆。
 
-作为唯一24小时通关的皇岗口岸，在深夜和凌晨时段的出入境客流将更为集中且持续时间长。
+“难老泉复流后，游客一天比一天多，大家想坐下来喝杯茶，看看泉。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 01:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 01:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 01:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 01:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 01:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 01:56 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 01:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 01:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 01:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 01:38 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 01:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 01:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 01:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 01:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 01:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 01:55 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 01:55 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 02:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 01:53 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:05 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 02:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 01:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 01:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/83004339.shtml)
-- 2026-06-30 01:53 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/51016963.shtml)
-- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/0947357.shtml)
-- 2026-06-30 01:56 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/821861.shtml)
-- 2026-06-30 01:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/101013889770.shtml)
-- 2026-06-30 01:43 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/5441413.shtml)
-- 2026-06-30 01:30 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/02212937.shtml)
-- 2026-06-30 01:36 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/57002.shtml)
-- 2026-06-30 01:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/13256147.shtml)
-- 2026-06-30 01:44 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/18144278.shtml)
-- 2026-06-30 01:51 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/905502749752.shtml)
-- 2026-06-30 01:43 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/673565494.shtml)
-- 2026-06-30 01:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/1354754498.shtml)
-- 2026-06-30 01:46 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/8406263.shtml)
-- 2026-06-30 01:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/15852943844.shtml)
+- 2026-06-30 01:45 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/405516848956.shtml)
+- 2026-06-30 01:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/38965834.shtml)
+- 2026-06-30 01:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/9588762205.shtml)
+- 2026-06-30 01:41 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/62227705313.shtml)
+- 2026-06-30 01:37 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0013400.shtml)
+- 2026-06-30 01:41 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/36382.shtml)
+- 2026-06-30 01:37 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/4117489.shtml)
+- 2026-06-30 01:39 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/79817.shtml)
+- 2026-06-30 01:49 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/5904350304.shtml)
+- 2026-06-30 02:03 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/4121347931.shtml)
+- 2026-06-30 02:05 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/31105256678.shtml)
+- 2026-06-30 01:51 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/6068429240.shtml)
+- 2026-06-30 01:47 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/37990.shtml)
+- 2026-06-30 01:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/925178.shtml)
+- 2026-06-30 01:46 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/3741434.shtml)

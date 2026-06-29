@@ -1,58 +1,57 @@
-# 估值筑底、增量可期——公募REITs短期波动不改长期配置价值
+# “五一”假期福建口岸出入境客流预计近13万人次
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-2026年6月，中国公募REITs市场迎来了上市五周年的重要时刻，全市场已上市86只产品，总募集资金规模达2，450亿元。然而，进入二季度以来，公募REITs二级市场持续震荡走弱，5月1日至6月22日，REITs基金指数区间累计跌幅达7.54%；6月8日至22日两周时间，中证REITs全收益指数下跌5．42%。站在五周年的节点上，如何看待当下的波动？公募REITs的长期投资逻辑
+中新网福州4月28日电 (记者 闫旭 通讯员 王鸿瑜 王涛)今年“五一”假期，福建口岸将迎新一轮出入境客流高峰。据厦门边检总站28日预测，5月1日至5日，福建口岸出入境旅客量预计近13万人次，日均出入境旅客量近2.6万人次、较4月日均增长约8.3%。 其中，两岸“小三通”客运航线出入境旅客量预计超3.5万人次，日均出入境旅客量预计超7千人次、较4月日均增长约12.5%。福州黄岐
 
 ## 正文
 
-2026年6月，中国公募REITs市场迎来了上市五周年的重要时刻，全市场已上市86只产品，总募集资金规模达2，450亿元。
+中新网福州4月28日电 (记者 闫旭 通讯员 王鸿瑜 王涛)今年“五一”假期，福建口岸将迎新一轮出入境客流高峰。
 
-然而，进入二季度以来，公募REITs二级市场持续震荡走弱，5月1日至6月22日，REITs基金指数区间累计跌幅达7.54%；6月8日至22日两周时间，中证REITs全收益指数下跌5．42%。
+据厦门边检总站28日预测，5月1日至5日，福建口岸出入境旅客量预计近13万人次，日均出入境旅客量近2.6万人次、较4月日均增长约8.3%。
 
-站在五周年的节点上，如何看待当下的波动？
+其中，两岸“小三通”客运航线出入境旅客量预计超3.5万人次，日均出入境旅客量预计超7千人次、较4月日均增长约12.5%。
 
-公募REITs的长期投资逻辑是否发生了改变？
+福州黄岐至马祖“小三通”客运航线计划于5月1日、3日各增开2个往返航班。
 
-带着这些问题，记者进行了深入采访。
+泉州晋江国际机场计划于4月29日至5月6日期间每天增开一班往返菲律宾马尼拉航班，5月1日当天增开一班往返中国香港航班。
 
-波动源自情绪扰动，REITs基本面根基依然稳固 多位市场分析人士向记者表示，本轮REITs调整并非由基本面系统性恶化所驱动。
+据厦门边检总站相关负责人介绍，为应对假期口岸出入境客流高峰，该总站积极协调机场、航空公司提前掌握航班动态信息及订票人数，加强出入境流量和口岸运行情况监测，实时掌握出入境人员、交通工具通关候检动向，配置充足警力，做到快速削峰、动态削峰。
 
-短期核心矛盾是投资者担心供给放量，引发的情绪性抛盘增加，叠加少量行业如产业园与仓储底层基本面阶段性走弱、存量资金跨资产分流、技术止损负反馈等多重因素共振。
+同时立足口岸近台对台特色，设置同心文化专区，提供方言特色服务，不断提升往来旅客通关体验。
 
-整体来看，上述影响多为情绪面影响与资金面的扰动，经历过一定的波动后，市场依然会回到常态化的运行区间。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 01:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 01:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 01:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 01:32 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 01:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 01:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 01:37 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 01:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 01:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 01:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 01:51 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 01:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 01:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 01:44 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 02:05 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 01:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 01:38 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/52798804.shtml)
-- 2026-06-30 01:45 - [斗破苍穹](http://www.share.minike.top/Article/details/830892.shtml)
-- 2026-06-30 01:57 - [女心理师](http://www.share.kurohicncr.top/Article/details/949775.shtml)
-- 2026-06-30 01:35 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/026765638.shtml)
-- 2026-06-30 01:54 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/001387802201.shtml)
-- 2026-06-30 01:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/518383223977.shtml)
-- 2026-06-30 01:47 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/363201999.shtml)
-- 2026-06-30 01:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/78081923672.shtml)
-- 2026-06-30 01:43 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/5202125.shtml)
-- 2026-06-30 01:31 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/3719924.shtml)
-- 2026-06-30 01:53 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/03837407.shtml)
-- 2026-06-30 01:53 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/25194.shtml)
-- 2026-06-30 01:58 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/83354256814.shtml)
-- 2026-06-30 01:44 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/336040330161.shtml)
-- 2026-06-30 01:33 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/36867277432.shtml)
+- 2026-06-30 01:39 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/453230.shtml)
+- 2026-06-30 01:59 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/181695.shtml)
+- 2026-06-30 02:03 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/43704.shtml)
+- 2026-06-30 01:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/427014460956.shtml)
+- 2026-06-30 02:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/478978921.shtml)
+- 2026-06-30 02:01 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/633677677.shtml)
+- 2026-06-30 02:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/5915784.shtml)
+- 2026-06-30 02:04 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/263263.shtml)
+- 2026-06-30 01:47 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/43853172917.shtml)
+- 2026-06-30 01:53 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/831605478978.shtml)
+- 2026-06-30 01:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/5773572.shtml)
+- 2026-06-30 01:52 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/9829083750.shtml)
+- 2026-06-30 01:44 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/2778812073.shtml)
+- 2026-06-30 01:43 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/8940377.shtml)
+- 2026-06-30 01:56 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/382149355.shtml)

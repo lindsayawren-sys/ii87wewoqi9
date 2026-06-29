@@ -1,58 +1,60 @@
-# 人工智能初创公司Reflection与SpaceX签署计算能力合作协议
+# 5.5万亿江苏银行换帅，新董事长“一人打五份工”！
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-Reflection AI周一表示，该公司已与SpaceX签署了一项协议，该协议将使这家初创公司能够使用由埃隆·马斯克领导的公司旗下Colossus 2数据中心的额外计算能力。 根据协议，这家开源人工智能初创公司将立即获得英伟达GB300芯片的使用权——该芯片用于训练和运行高级模型——并已同意从2026年7月1日起至2029年期间，每月向SpaceX支付1.5亿美元。 具体细节
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 谢美浴 编辑 | 付影 来源 | 独角金融 城商行“一哥”董事长更迭。 在江苏银行（600919.SH）深耕12年的“老将”葛仁余，近日因年龄原因辞去董事长职务，该行选举行长袁军担任第六届董事会董事长，其任职资格尚需报监管部门核准。 表面看，这是一次平稳的新老高管更迭。江苏银行2025年实现营业收
 
 ## 正文
 
-Reflection AI周一表示，该公司已与SpaceX签署了一项协议，该协议将使这家初创公司能够使用由埃隆·马斯克领导的公司旗下Colossus 2数据中心的额外计算能力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据协议，这家开源人工智能初创公司将立即获得英伟达GB300芯片的使用权——该芯片用于训练和运行高级模型——并已同意从2026年7月1日起至2029年期间，每月向SpaceX支付1.5亿美元。
+作者 | 谢美浴 编辑 | 付影 来源 | 独角金融 城商行“一哥”董事长更迭。
 
-具体细节如下： 如果协议执行至期满，总付款金额将达到约63亿美元； 双方均可在前三个月后，提前90天通知对方终止合同。
+在江苏银行（600919.SH）深耕12年的“老将”葛仁余，近日因年龄原因辞去董事长职务，该行选举行长袁军担任第六届董事会董事长，其任职资格尚需报监管部门核准。
 
-这家由英伟达支持的初创公司称：“更强的计算能力为我们开拓开放式模型的边界提供了更多空间”，但未透露更多细节。
+表面看，这是一次平稳的新老高管更迭。
 
-与Reflection的协议是SpaceX近期一系列商业胜利的又一例证，该公司此前还与科技巨头谷歌以及Anthropic达成了协议。
+江苏银行2025年实现营业收入879.42亿元，同比增长8.82%；归母净利润345.01亿元，同比增长8.35%。
 
-本月早些时候，SpaceX表示，从今年10月至2029年6月，谷歌将每月向这家“火箭到AI”集团支付9.2亿美元；在此之前，运力将在9月期间逐步提升，并以较低费用收取。
+2026年一季度末，该行总资产达到5.58万亿元，较2025年末增长13.18%，继续在城商行中领跑。
 
-SpaceX股价在午后交易中下跌约10.6%。
+不过，江苏银行的归母净利润增速已然放缓，从2021年增速30.72%降至2025年的8.82%； 与此同时，银行营收仍较为依赖利息净收入，2025年利息净收入为675.18亿元，占总营收76.78%，同比增长 20.66%；净息差降至1.73%，低于1.8%的行业“警戒线”。
 
-责任编辑：李桐
+目前，袁军一人身兼五职，江苏银行党委书记、执行董事、行长、首席合规官，以及被新选举的董事长头衔，这场“超载”的人事安排，能否让这位“70后”在净息差收窄、盈利增速放缓的关口引领转型？
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 01:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 01:44 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 01:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 01:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 01:35 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 01:38 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 01:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 01:58 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 01:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 01:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 01:47 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 01:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 02:03 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 02:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 01:48 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 01:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 01:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 01:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 02:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 02:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 02:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 02:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 02:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/226478.shtml)
-- 2026-06-30 01:49 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/217620006.shtml)
-- 2026-06-30 01:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/821453.shtml)
-- 2026-06-30 01:43 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/851850796.shtml)
-- 2026-06-30 01:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/8819892.shtml)
-- 2026-06-30 01:54 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/734804613022.shtml)
-- 2026-06-30 01:33 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/29802.shtml)
-- 2026-06-30 01:47 - [恋与深空回应争议](https://www.share.minike.top/Article/details/111877022.shtml)
-- 2026-06-30 01:35 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/210498241773.shtml)
-- 2026-06-30 01:35 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/98690253.shtml)
-- 2026-06-30 01:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/04653.shtml)
-- 2026-06-30 01:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/42152.shtml)
-- 2026-06-30 01:57 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/82408892425.shtml)
-- 2026-06-30 01:58 - [急先锋](http://www.blog.minike.top/Article/details/62022405.shtml)
-- 2026-06-30 01:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/5007407761.shtml)
+- 2026-06-30 02:03 - [一生一世](https://www.blog.minike.top/Article/details/14145.shtml)
+- 2026-06-30 01:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/13274220.shtml)
+- 2026-06-30 01:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/891357460666.shtml)
+- 2026-06-30 01:58 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/24322354.shtml)
+- 2026-06-30 01:56 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/339735915975.shtml)
+- 2026-06-30 02:04 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/5278671132.shtml)
+- 2026-06-30 02:02 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/460467186969.shtml)
+- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/35949.shtml)
+- 2026-06-30 01:51 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/4612742.shtml)
+- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/109115025.shtml)
+- 2026-06-30 01:56 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/73433669159.shtml)
+- 2026-06-30 01:49 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/43294755.shtml)
+- 2026-06-30 01:38 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/87946643702.shtml)
+- 2026-06-30 02:03 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/6407146.shtml)
+- 2026-06-30 01:41 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/24954007746.shtml)

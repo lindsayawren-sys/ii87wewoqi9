@@ -1,57 +1,61 @@
-# 夏季达沃斯论坛将于6月23日至25日在大连举行（组图）
+# 亚马逊推出类OpenClaw智能体，加码进军企业软件市场
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-夏季达沃斯论坛即将启幕 世界经济论坛第十七届新领军者年会（夏季达沃斯论坛）将于6月23日至25日在大连举行，来自90多个国家和地区的1700余名嘉宾将共聚于此，围绕“规模化创新”展开深度探讨。目前，本届年会各项筹备工作已基本就绪。 2026夏季达沃斯论坛主会场大连国际会议中心（6月22日摄）。新华社记者 李钢 摄 6月22日，工作人员在大连国际会议中心进行准备工作。新华社记者
+亚马逊（AMZN）周二推出自研的类 OpenClaw 桌面端 AI 智能体，并上线多款独立 AI 智能服务，正式发力争夺企业软件市场份额。 这款桌面智能体是亚马逊现有云端服务Amazon Quick的全新升级版本，可自主完成多项办公任务，包括撰写邮件、调取个人数据资料等。 亚马逊介绍称，Quick 可跨多生态系统运行，兼容微软 365、谷歌办公套件、斯莱克、祖姆等主流办公工具，
 
 ## 正文
 
-夏季达沃斯论坛即将启幕 世界经济论坛第十七届新领军者年会（夏季达沃斯论坛）将于6月23日至25日在大连举行，来自90多个国家和地区的1700余名嘉宾将共聚于此，围绕“规模化创新”展开深度探讨。
+亚马逊（AMZN）周二推出自研的类 OpenClaw 桌面端 AI 智能体，并上线多款独立 AI 智能服务，正式发力争夺企业软件市场份额。
 
-目前，本届年会各项筹备工作已基本就绪。
+这款桌面智能体是亚马逊现有云端服务Amazon Quick的全新升级版本，可自主完成多项办公任务，包括撰写邮件、调取个人数据资料等。
 
-2026夏季达沃斯论坛主会场大连国际会议中心（6月22日摄）。
+亚马逊介绍称，Quick 可跨多生态系统运行，兼容微软 365、谷歌办公套件、斯莱克、祖姆等主流办公工具，能够无缝调取分散在各平台的用户数据。
 
-新华社记者 李钢 摄 6月22日，工作人员在大连国际会议中心进行准备工作。
+桌面端属性还支持该智能体按需推送提醒：例如文档待更新、遗漏邮件、赛富时系统中有业务订单需跟进等场景。
 
-新华社记者 潘昱龙 摄 6月22日在大连国际会议中心拍摄的新领军者村。
+亚马逊企业级 AI 智能体业务副总裁吉加尔・塔卡表示： “Quick 不局限于问答交互，还可主动执行实操任务，如安排会议、代发邮件、生成数据看板、跟进待办事项等。
 
-新华社记者 潘昱龙 摄 6月22日拍摄的大连国际会议中心外景。
+” 他补充道：“该产品每日主动推送工作待办清单，明确核心工作优先级与处理方式，协助用户高效完成工作。
 
-新华社记者 潘昱龙 摄 6月22日拍摄的大连国际会议中心外景。
+” OpenClaw 此前凭借本地桌面自主操作、调用用户本地数据执行任务的能力，在开发者群体中爆火。
 
-新华社记者 潘昱龙 摄 6月22日，在大连国际会议中心，媒体记者查看会场指引图。
+其优势在于高度自定义、可按需授权数据权限、自动化处理办公流程；但同时也存在严重的安全隐患。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 01:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 01:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 01:32 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 01:49 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 01:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 01:58 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 01:40 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 01:38 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 01:44 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 01:52 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 01:50 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 01:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 02:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 01:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 01:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 01:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 01:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 01:45 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 01:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 02:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:03 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 01:43 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 01:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/360127174205.shtml)
-- 2026-06-30 01:57 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/05193.shtml)
-- 2026-06-30 01:31 - [急先锋](http://www.blog.minike.top/Article/details/6798720.shtml)
-- 2026-06-30 01:53 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/8005694481.shtml)
-- 2026-06-30 01:55 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/794032372249.shtml)
-- 2026-06-30 01:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/04752163.shtml)
-- 2026-06-30 01:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/738655856050.shtml)
-- 2026-06-30 01:38 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/45399.shtml)
-- 2026-06-30 01:42 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/3006189.shtml)
-- 2026-06-30 01:50 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/636285993946.shtml)
-- 2026-06-30 01:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/68704648477.shtml)
-- 2026-06-30 01:30 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/208796907.shtml)
-- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/53334201848.shtml)
-- 2026-06-30 01:48 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/41684476.shtml)
-- 2026-06-30 01:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/995551106.shtml)
+- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/523938964.shtml)
+- 2026-06-30 02:00 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/46610289.shtml)
+- 2026-06-30 01:52 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/8368802.shtml)
+- 2026-06-30 01:43 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/035465437.shtml)
+- 2026-06-30 01:55 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/58934.shtml)
+- 2026-06-30 01:53 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/81646.shtml)
+- 2026-06-30 01:40 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/8339977.shtml)
+- 2026-06-30 01:39 - [日本反击率先破门](http://www.share.minike.top/Article/details/2479407.shtml)
+- 2026-06-30 01:55 - [日本进球](https://www.share.kurohicncr.top/Article/details/893993.shtml)
+- 2026-06-30 01:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/9772944079.shtml)
+- 2026-06-30 02:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/416234181.shtml)
+- 2026-06-30 01:54 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/275125845.shtml)
+- 2026-06-30 01:38 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/47746.shtml)
+- 2026-06-30 01:55 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/80709852.shtml)
+- 2026-06-30 01:48 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/488803241984.shtml)

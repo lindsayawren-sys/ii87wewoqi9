@@ -1,49 +1,56 @@
-# 植物绞杀、独木成林、板根现象……这些热带雨林奇观，你见过吗？
+# 广州琶洲口岸免税店正式开业
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 10:13 来源：中国新闻网 海南热带雨林有八大奇观，你见过吗？6月22日，正值世界雨林日，来自埃及、俄罗斯、加拿大、巴西、柬埔寨等12个国家的媒体人走进海南热带雨林国家公园吊罗山片区，沿原生态雨林徒步栈道深入腹地，探秘植物绞杀、独木成林、板根现象等雨林奇观，近距离感受原始雨林独有的生物多样性，用镜头真实展现海南岛“山海共生、人与自然和谐共生”
+中新网广州4月28日电 (许青青 关悦)粤港澳大湾区跨境消费迎来新利好。据广州海关消息，广州琶洲港澳客运口岸出境免税店(以下简称“广州琶洲口岸免税店”)28日正式开业，将为经琶洲口岸出境旅客提供“海天联运+免税购物”一站式服务。 广州琶洲港澳客运口岸与广交会展馆的直线距离仅100米左右，出境免税店位于琶洲口岸联检大楼二层出境候船大厅，为出境旅客提供便捷优质的免税购物服务，旅客办
 
 ## 正文
 
-发布时间：2026年06月23日 10:13 来源：中国新闻网 海南热带雨林有八大奇观，你见过吗？
+中新网广州4月28日电 (许青青 关悦)粤港澳大湾区跨境消费迎来新利好。
 
-6月22日，正值世界雨林日，来自埃及、俄罗斯、加拿大、巴西、柬埔寨等12个国家的媒体人走进海南热带雨林国家公园吊罗山片区，沿原生态雨林徒步栈道深入腹地，探秘植物绞杀、独木成林、板根现象等雨林奇观，近距离感受原始雨林独有的生物多样性，用镜头真实展现海南岛“山海共生、人与自然和谐共生” 的生态底色。
+据广州海关消息，广州琶洲港澳客运口岸出境免税店(以下简称“广州琶洲口岸免税店”)28日正式开业，将为经琶洲口岸出境旅客提供“海天联运+免税购物”一站式服务。
 
-(记者 林士杰 李宇凡) 责任编辑：【李季】
+广州琶洲港澳客运口岸与广交会展馆的直线距离仅100米左右，出境免税店位于琶洲口岸联检大楼二层出境候船大厅，为出境旅客提供便捷优质的免税购物服务，旅客办完出境手续后可直达购物区域。
+
+广州海关所属广州会展中心海关结合琶洲口岸广交会客商集中、跨境客流密集、通关时效高的特点，量身定制专业化监管方案，推动免税商店与免税品监管应用系统实现数据互联。
+
+同时，推动免税购物服务与口岸现有“海天联运”、离境退税、便捷通关等便民举措深度融合，推动离境退税“一包一码”模式尽快落地，海关在出境监管现场凭密封包装及二维码实现免拆包快速验核。
+
+免税店开业前夕，海关严格落实免税品全链条闭环监管要求，通过入仓核验、台账管理和动态巡查等措施，确保免税品来源合规、储存规范、管理有序。
+
+截至目前，广州会展中心海关已完成2830余件免税品的调拨入库监管工作。
+
+广州会展中心海关相关负责人表示，该关将依托广州会展核心区优势，主动对接广交会等国际展会需求，不断丰富口岸服务功能。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 01:50 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 01:54 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 01:34 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 01:52 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 01:31 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 01:31 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 01:56 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 01:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 01:52 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 01:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 01:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 01:55 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 01:42 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 02:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 01:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 01:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 01:52 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 01:38 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 01:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 01:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:53 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0898046085.shtml)
-- 2026-06-30 01:48 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/53943.shtml)
-- 2026-06-30 01:59 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/04848104326.shtml)
-- 2026-06-30 01:45 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/64881.shtml)
-- 2026-06-30 01:30 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/163233365.shtml)
-- 2026-06-30 01:49 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/704944.shtml)
-- 2026-06-30 01:35 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/8560499373.shtml)
-- 2026-06-30 01:57 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/401164026735.shtml)
-- 2026-06-30 01:55 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/210549203308.shtml)
-- 2026-06-30 01:44 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/636260.shtml)
-- 2026-06-30 01:32 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/332183915110.shtml)
-- 2026-06-30 01:41 - [急先锋](http://www.blog.minike.top/Article/details/37632497688.shtml)
-- 2026-06-30 01:49 - [斛珠夫人](https://www.blog.minike.top/Article/details/67344574454.shtml)
-- 2026-06-30 01:36 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/88986235067.shtml)
-- 2026-06-30 01:39 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/7331651.shtml)
+- 2026-06-30 01:57 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/3961125409.shtml)
+- 2026-06-30 02:05 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/2265077.shtml)
+- 2026-06-30 01:57 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/89976.shtml)
+- 2026-06-30 01:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/51033.shtml)
+- 2026-06-30 01:56 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/388913.shtml)
+- 2026-06-30 01:41 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/44056.shtml)
+- 2026-06-30 02:05 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/01477.shtml)
+- 2026-06-30 02:04 - [千香](https://www.blog.kurohicncr.top/Article/details/449081845583.shtml)
+- 2026-06-30 02:03 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/5413204.shtml)
+- 2026-06-30 01:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/280123222.shtml)
+- 2026-06-30 01:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/6879993.shtml)
+- 2026-06-30 01:43 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/51901984.shtml)
+- 2026-06-30 01:50 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/4236869.shtml)
+- 2026-06-30 01:37 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/24996774.shtml)
+- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/06766045.shtml)

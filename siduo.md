@@ -1,45 +1,51 @@
-# 广西：多条河流超警 洪水预警升级为橙色
+# 杭州护士夫妻度假时救回溺水女子 默契配合获全网点赞
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 13:45 来源：央视新闻 责任编辑：【姜媛媛】
+发布时间：2026年04月30日 10:56 来源：中国新闻网 近日，一条“浙大一院护士夫妻在海南沙滩救人”的视频，在全网传开。视频中，一名女子口吐白沫倒在沙滩上，身旁一男一女跪在沙滩上救人，动作行云流水，配合默契。这对救人的夫妻便是来自浙大一院余杭院区急诊监护室的主管护师姜智文以及综合监护室护师袁苑。4月29日，二人在浙大一院接受采访，从急救配合、患者恢复情况到夫妻感情的升华
 
 ## 正文
 
-发布时间：2026年06月22日 13:45 来源：央视新闻 责任编辑：【姜媛媛】
+发布时间：2026年04月30日 10:56 来源：中国新闻网 近日，一条“浙大一院护士夫妻在海南沙滩救人”的视频，在全网传开。
+
+视频中，一名女子口吐白沫倒在沙滩上，身旁一男一女跪在沙滩上救人，动作行云流水，配合默契。
+
+这对救人的夫妻便是来自浙大一院余杭院区急诊监护室的主管护师姜智文以及综合监护室护师袁苑。
+
+4月29日，二人在浙大一院接受采访，从急救配合、患者恢复情况到夫妻感情的升华，分享了更多感人的细节。
+
+(肖健 制作 刘鹏） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 01:32 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 01:53 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 01:50 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 01:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 01:30 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 01:38 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 01:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 01:35 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 01:55 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 01:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 02:03 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 01:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 02:04 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 01:58 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 01:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 01:49 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 02:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 02:02 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 02:04 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 01:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/07133742827.shtml)
-- 2026-06-30 01:52 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/26802379208.shtml)
-- 2026-06-30 01:56 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/429849409.shtml)
-- 2026-06-30 01:45 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/921872777293.shtml)
-- 2026-06-30 01:37 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/147533019.shtml)
-- 2026-06-30 01:45 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/808959.shtml)
-- 2026-06-30 01:42 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/2891978024.shtml)
-- 2026-06-30 01:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/86780.shtml)
-- 2026-06-30 01:54 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/90664.shtml)
-- 2026-06-30 01:39 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/30207.shtml)
-- 2026-06-30 01:50 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/693241563263.shtml)
-- 2026-06-30 01:56 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/01950552133.shtml)
-- 2026-06-30 01:46 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/91398.shtml)
-- 2026-06-30 01:47 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/4425900.shtml)
-- 2026-06-30 01:49 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/995329753792.shtml)
+- 2026-06-30 01:38 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/4812437707.shtml)
+- 2026-06-30 01:40 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/2943143317.shtml)
+- 2026-06-30 01:54 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/179990394096.shtml)
+- 2026-06-30 01:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/972902102060.shtml)
+- 2026-06-30 01:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/31798145246.shtml)
+- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/1759513090.shtml)
+- 2026-06-30 01:37 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/85247276688.shtml)
+- 2026-06-30 01:42 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/55719.shtml)
+- 2026-06-30 02:04 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/338398433502.shtml)
+- 2026-06-30 01:36 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/6585723.shtml)
+- 2026-06-30 01:47 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/77555209131.shtml)
+- 2026-06-30 01:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/30485046839.shtml)
+- 2026-06-30 01:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/224457776.shtml)
+- 2026-06-30 01:54 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/4655860.shtml)
+- 2026-06-30 01:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/6342441.shtml)

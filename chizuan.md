@@ -1,54 +1,53 @@
-# 嘉信理财进军预测市场业务
+# “债市一姐”告别华西证券，拟转任兴业证券固收首席
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-嘉信理财（Charles Schwab）正涉足预测市场。 知情人士透露，这家券商正与Cboe Global Markets合作，推出“全有或全无”期权合约，让客户能对标普500指数的表现进行“是或否”的二元押注。 这些合约与Kalshi或Polymarket等平台提供的合约略有不同，后者挂牌的是期货合约而非期权。但这些二元期权的本质运作方式是相同的：根据指数收盘价是高于还是低于
+4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。（中国证券报）责任编辑：杨赐
 
 ## 正文
 
-嘉信理财（Charles Schwab）正涉足预测市场。
+4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。
 
-知情人士透露，这家券商正与Cboe Global Markets合作，推出“全有或全无”期权合约，让客户能对标普500指数的表现进行“是或否”的二元押注。
+这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。
 
-这些合约与Kalshi或Polymarket等平台提供的合约略有不同，后者挂牌的是期货合约而非期权。
+记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。
 
-但这些二元期权的本质运作方式是相同的：根据指数收盘价是高于还是低于目标价，它们要么支付固定的现金结算额，要么分文不给。
-
-知情人士称，嘉信理财将在未来几个月向客户提供这些合约。
-
-此外，嘉信理财还在推出一款类似的期权产品，带有Cboe的一项名为“the plus zone”的功能，允许交易员在预测大方向基本准确的情况下获得部分付款，即使指数的收盘价与他们的预测并非完全一致。
-
-责任编辑：王永生
+（中国证券报）责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 01:35 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 01:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 01:57 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 01:43 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 01:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 01:33 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 01:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 01:30 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 01:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 01:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 01:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 01:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 01:57 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 01:47 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 01:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 01:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 01:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 01:53 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 01:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 01:56 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 01:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/436245531.shtml)
-- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/594651496.shtml)
-- 2026-06-30 01:52 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/397952866.shtml)
-- 2026-06-30 01:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/9474938.shtml)
-- 2026-06-30 01:45 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/8503178.shtml)
-- 2026-06-30 01:50 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/251169.shtml)
-- 2026-06-30 01:35 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/079487473241.shtml)
-- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/298387410550.shtml)
-- 2026-06-30 01:37 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/5675323840.shtml)
-- 2026-06-30 01:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/86634008.shtml)
-- 2026-06-30 01:46 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/8813210.shtml)
-- 2026-06-30 01:39 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/85313.shtml)
-- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/438637574312.shtml)
-- 2026-06-30 01:41 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/73621285.shtml)
-- 2026-06-30 01:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/07196766286.shtml)
+- 2026-06-30 01:45 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/2845736525.shtml)
+- 2026-06-30 01:36 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/416415339.shtml)
+- 2026-06-30 01:36 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/81654.shtml)
+- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/47412628.shtml)
+- 2026-06-30 01:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/92992573408.shtml)
+- 2026-06-30 01:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5026843.shtml)
+- 2026-06-30 02:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/7529297.shtml)
+- 2026-06-30 01:56 - [美股](https://www.share.kurohicncr.top/Article/details/844203065.shtml)
+- 2026-06-30 01:57 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/732477684593.shtml)
+- 2026-06-30 01:55 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/7298758.shtml)
+- 2026-06-30 01:40 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/7278176.shtml)
+- 2026-06-30 02:04 - [急先锋](http://www.blog.kurohicncr.top/Article/details/282440.shtml)
+- 2026-06-30 01:43 - [天道](http://www.share.minike.top/Article/details/336595205828.shtml)
+- 2026-06-30 01:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/738993899.shtml)
+- 2026-06-30 01:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/84420.shtml)

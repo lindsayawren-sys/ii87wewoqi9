@@ -1,60 +1,57 @@
-# 长江有色：23日铜价三连跌 下游企业畏高情绪浓厚
+# 比亚迪官宣涨价！港股通汽车ETF华宝（520780）放量大涨超2%，机构：今年新能源车表现有望超预期！
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 6月23日铜期货市场动态：今日沪期铜主力月2608合约早盘窄幅调整，午后跌幅震荡走阔；开盘价报105200元/吨，最高105280元/吨，最低103350元/吨，昨结104800元/吨，今日收盘价报103580元/吨，跌1220元，跌幅1.16%，沪铜主力2608合约全天成交量74840手增加31305手。持仓量148166手增加1154手。亚盘时段，伦铜偏强震
+4月29日早盘，港股新能源汽车链走强，比亚迪、理想汽车、天齐锂业领涨超4%。热门ETF方面，聚焦港股新能源汽车的港股通汽车ETF华宝（520780）场内大涨超2%，量能放量明显。 消息面上，比亚迪官宣涨价！受全球存储硬件成本大幅上涨影响，比亚迪王朝网、海洋网、方程豹部分车型的天神之眼B激光辅助驾驶选装包，价格从9900元上调至12000元，此次选装价格调整将于2026年5月1日
 
 ## 正文
 
-长江有色金属网 6月23日铜期货市场动态：今日沪期铜主力月2608合约早盘窄幅调整，午后跌幅震荡走阔；开盘价报105200元/吨，最高105280元/吨，最低103350元/吨，昨结104800元/吨，今日收盘价报103580元/吨，跌1220元，跌幅1.16%，沪铜主力2608合约全天成交量74840手增加31305手。
+4月29日早盘，港股新能源汽车链走强，比亚迪、理想汽车、天齐锂业领涨超4%。
 
-持仓量148166手增加1154手。
+热门ETF方面，聚焦港股新能源汽车的港股通汽车ETF华宝（520780）场内大涨超2%，量能放量明显。
 
-亚盘时段，伦铜偏强震荡，北京时间15：08最新报价13481.5美元/吨，跌189.5 美元/吨，跌幅1.39%。
+消息面上，比亚迪官宣涨价！
 
-长江铜业网铜价格统计：今日国内现货铜价格三连跌，长江现货1#铜价报104350元/吨，跌240元，升水80-升水120，跌20元；长江综合1#铜价报104305元/吨，跌245元，升水0-升水110，跌25元；广东现货1#铜价报104300元/吨，跌260元，贴水50-升水150，跌40元；上海地区1#铜价报104270元/吨，跌230元，贴水20-升水60，跌10元。
+受全球存储硬件成本大幅上涨影响，比亚迪王朝网、海洋网、方程豹部分车型的天神之眼B激光辅助驾驶选装包，价格从9900元上调至12000元，此次选装价格调整将于2026年5月1日正式生效。
 
-长江铜市分析： 宏观层面，美伊和谈的积极进展虽短暂提振了市场风险偏好，但获利了结盘迅速涌出，令铜价承压。
+展望后市，中信建投表示，当前时点，乘用车内需景气预期及板块估值或已筑底，结构性α看好乘用车出口超预期+高端新能源车加速起量，估值空间看好物理AI重构成长新范式。
 
-当前市场的核心焦点已转向美联储的鹰派转向。
+新能源车出海从2025年下半年开启新一轮强劲增长周期，高油价下供需两端发力导致更有持续性，2026年表现或显著超预期。
 
-鉴于通胀黏性与新任主席沃什的强硬表态，美银与德意志银行等机构纷纷上调加息预期，预计美联储将在9月及12月重启加息。
+* 布局港股通新能源汽车产业链，建议重点关注T+0交易活跃品种港股通汽车ETF华宝（520780），标的指数聚焦整车，同时覆盖汽车零部件、工业金属等细分赛道，同时受益于汽车消费高景气、智能驾驶L3-L4加速落地以及机器人红利外溢等多重利好，重仓小鹏、比亚迪、理想、吉利等稀缺港股智驾龙头。
 
-高利率环境不仅推升借贷成本、抑制经济活动，更推动美元指数强势站上101关口，对以美元计价的工业金属形成明显的估值压制。
+数据来源：沪深交易所等。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 01:37 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:32 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 01:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 01:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 01:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 01:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 01:30 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 01:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 01:42 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 01:47 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 01:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 01:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 01:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 01:40 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 01:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 01:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 01:53 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 01:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 02:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 02:03 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 01:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 01:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/32219780.shtml)
-- 2026-06-30 01:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/87785271.shtml)
-- 2026-06-30 01:32 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/819348.shtml)
-- 2026-06-30 01:54 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/67714648159.shtml)
-- 2026-06-30 01:43 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/7633022.shtml)
-- 2026-06-30 01:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/6590400239.shtml)
-- 2026-06-30 01:31 - [我们的少年时代2](http://www.share.minike.top/Article/details/13598.shtml)
-- 2026-06-30 01:37 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/498466927.shtml)
-- 2026-06-30 01:52 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/846287.shtml)
-- 2026-06-30 01:33 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/0582681691.shtml)
-- 2026-06-30 01:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/96545.shtml)
-- 2026-06-30 01:39 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/1707970.shtml)
-- 2026-06-30 01:56 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/2987861.shtml)
-- 2026-06-30 01:45 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/3715520.shtml)
-- 2026-06-30 01:36 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/62122.shtml)
+- 2026-06-30 01:57 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/5765750285.shtml)
+- 2026-06-30 01:45 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/504598386.shtml)
+- 2026-06-30 02:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/58776077489.shtml)
+- 2026-06-30 01:41 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/967554.shtml)
+- 2026-06-30 01:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/614551574.shtml)
+- 2026-06-30 01:38 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/6978291.shtml)
+- 2026-06-30 01:42 - [巴西vs日本](http://www.blog.minike.top/Article/details/82632175.shtml)
+- 2026-06-30 01:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/99695.shtml)
+- 2026-06-30 01:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/51243523.shtml)
+- 2026-06-30 01:58 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/266089523.shtml)
+- 2026-06-30 01:54 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/13242681.shtml)
+- 2026-06-30 01:59 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/77906.shtml)
+- 2026-06-30 02:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/65043657.shtml)
+- 2026-06-30 01:40 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/83230.shtml)
+- 2026-06-30 01:56 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/88429.shtml)

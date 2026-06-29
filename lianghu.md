@@ -1,49 +1,55 @@
-# 传音控股发布公告 已重新提交H股上市申请并披露相关资料
+# 建行一季度开局良好，经营收入同比增长10.98%
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。（文章来源：央广财经）
+4月29日，建行发布2026年一季度经营业绩。季报显示，建行一季度经营收入和净利润保持双增态势、增幅扩大，实现经营收入2,064.15亿元，同比增长10.98%；净利润868.21亿元，同比增长3.68%；归属于本行股东的净利润862.91亿元，同比增长3.53%。资产总额47.13万亿元，较上年末增长3.29%；负债总额43.36万亿元，较上年末增长3.38%。利息净收入和非
 
 ## 正文
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。
+4月29日，建行发布2026年一季度经营业绩。
 
-本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。
+季报显示，建行一季度经营收入和净利润保持双增态势、增幅扩大，实现经营收入2,064.15亿元，同比增长10.98%；净利润868.21亿元，同比增长3.68%；归属于本行股东的净利润862.91亿元，同比增长3.53%。
 
-（文章来源：央广财经）
+资产总额47.13万亿元，较上年末增长3.29%；负债总额43.36万亿元，较上年末增长3.38%。
+
+利息净收入和非利息收入同比双增，利息净收入同比增长8.13%，实现恢复性增长；非利息净收入同比增长20.15%，占经营收入比重同比提升1.96个百分点，手续费及佣金净收入同比增长6.72%。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 01:36 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 01:51 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 01:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 01:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 01:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 01:53 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 01:53 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 01:35 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 01:49 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 01:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 01:34 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 02:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 01:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 01:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 01:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 01:50 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 01:41 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 01:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 01:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 01:50 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 01:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 02:05 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 01:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 01:38 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 01:36 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 01:56 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/9564894667.shtml)
-- 2026-06-30 01:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/17878648.shtml)
-- 2026-06-30 01:46 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/08608650.shtml)
-- 2026-06-30 01:32 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/432616.shtml)
-- 2026-06-30 01:57 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/3839415.shtml)
-- 2026-06-30 01:48 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/421046595.shtml)
-- 2026-06-30 01:33 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/589067.shtml)
-- 2026-06-30 01:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/219091832512.shtml)
-- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/5636092.shtml)
-- 2026-06-30 01:41 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/1975472.shtml)
-- 2026-06-30 01:51 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/736924588583.shtml)
-- 2026-06-30 01:59 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/07734.shtml)
-- 2026-06-30 01:35 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/8174406.shtml)
-- 2026-06-30 01:43 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/632643197542.shtml)
-- 2026-06-30 01:36 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/93700.shtml)
+- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/1961040761.shtml)
+- 2026-06-30 01:57 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/18721.shtml)
+- 2026-06-30 01:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/284856.shtml)
+- 2026-06-30 01:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/70114464652.shtml)
+- 2026-06-30 01:52 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/3857868932.shtml)
+- 2026-06-30 01:51 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/645302.shtml)
+- 2026-06-30 01:57 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/039003.shtml)
+- 2026-06-30 02:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/403977.shtml)
+- 2026-06-30 02:02 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/2334661806.shtml)
+- 2026-06-30 01:38 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/204979360.shtml)
+- 2026-06-30 01:50 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/095086239.shtml)
+- 2026-06-30 02:03 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/71897.shtml)
+- 2026-06-30 02:05 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/608317152832.shtml)
+- 2026-06-30 01:52 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/167319888.shtml)
+- 2026-06-30 01:40 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8424088.shtml)

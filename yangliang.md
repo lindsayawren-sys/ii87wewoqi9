@@ -1,58 +1,53 @@
-# 宁德时代曾毓群：正大力投资离子电池，计划今年量产
+# 瑞银：有钱客户对私募信贷的热情降温 更偏好流动性与资本保全
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。宁德时代新能源科技股份有限公司创始人、董事长兼总经理曾毓群出席“无电力，不智能”论坛并演讲。 谈及目前储能技术发展的成熟度，曾毓群表示，首先要看是否具备一套完整的支持体系，且规模要足够大。所谓“大规模”，意味着要能够支撑人工智能数据中心等数吉瓦级别电力负荷
+瑞银集团首席财务官Todd Tuckner表示，最近的事态发展已让该公司的有钱客户对私募信贷的热情降温，加剧了该资产类别面临的挑战。 Tuckner周三在分析师电话会议上表示，在当前环境下，有钱客户对私募信贷的热情变得更加“审慎”，这明显反映出宏观经济的不确定性，以及客户更偏好流动性与资本保全。 目前规模达1.8万亿美元的私募信贷产业在历经多年快速扩张后，正遭遇一些增长痛。 T
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
+瑞银集团首席财务官Todd Tuckner表示，最近的事态发展已让该公司的有钱客户对私募信贷的热情降温，加剧了该资产类别面临的挑战。
 
-宁德时代新能源科技股份有限公司创始人、董事长兼总经理曾毓群出席“无电力，不智能”论坛并演讲。
+Tuckner周三在分析师电话会议上表示，在当前环境下，有钱客户对私募信贷的热情变得更加“审慎”，这明显反映出宏观经济的不确定性，以及客户更偏好流动性与资本保全。
 
-谈及目前储能技术发展的成熟度，曾毓群表示，首先要看是否具备一套完整的支持体系，且规模要足够大。
+目前规模达1.8万亿美元的私募信贷产业在历经多年快速扩张后，正遭遇一些增长痛。
 
-所谓“大规模”，意味着要能够支撑人工智能数据中心等数吉瓦级别电力负荷的持续供电，即8760小时不间断运行。
+Tuckner还表示，私募信贷在瑞银的资产负债表中只佔非常小的一部分，私募信贷基金仅占其总杠杆曝险（Leverage Exposure）的50到60个基点。
 
-其次，要看成本效益。
-
-曾毓群强调，电力成本必须低于或至少不高于传统能源的成本，同时还要具备可靠性和确定性。
-
-他以采矿行业为例指出，许多国家对锂矿开采等关键矿产有严格的管控政策，这在客观上延迟了可再生能源的应用。
-
-曾毓群透露，宁德时代正在大力投资离子电池技术，并计划今年实现大规模生产，将储能技术作为重点方向，以摆脱对锂电池的依赖。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 01:40 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:36 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 01:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 01:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 01:47 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 01:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 01:50 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 01:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 01:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 01:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 01:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 02:05 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:01 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 01:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 01:41 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:44 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 02:03 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:02 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 01:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 02:03 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 01:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/0237279.shtml)
-- 2026-06-30 01:49 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/027654292.shtml)
-- 2026-06-30 01:38 - [日本反击率先破门](http://www.share.minike.top/Article/details/59574.shtml)
-- 2026-06-30 01:49 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/7518997.shtml)
-- 2026-06-30 01:59 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/352403210.shtml)
-- 2026-06-30 01:57 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/2602383041.shtml)
-- 2026-06-30 01:30 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/885161176425.shtml)
-- 2026-06-30 01:59 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/41599238.shtml)
-- 2026-06-30 01:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5811431092.shtml)
-- 2026-06-30 01:38 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/13300792011.shtml)
-- 2026-06-30 01:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/54287393.shtml)
-- 2026-06-30 01:36 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/02870516041.shtml)
-- 2026-06-30 01:37 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/069201661612.shtml)
-- 2026-06-30 01:33 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/557779885892.shtml)
-- 2026-06-30 01:51 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/11515509545.shtml)
+- 2026-06-30 01:51 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/8041707.shtml)
+- 2026-06-30 01:54 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/480979282497.shtml)
+- 2026-06-30 01:37 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/874362457.shtml)
+- 2026-06-30 02:05 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/440307371.shtml)
+- 2026-06-30 02:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/9543853.shtml)
+- 2026-06-30 01:41 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/00665223.shtml)
+- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/4786783864.shtml)
+- 2026-06-30 02:04 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/82798.shtml)
+- 2026-06-30 01:36 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/89938.shtml)
+- 2026-06-30 02:02 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/33191628880.shtml)
+- 2026-06-30 02:02 - [扬名立万](https://www.share.minike.top/Article/details/827681152425.shtml)
+- 2026-06-30 01:50 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/765922447.shtml)
+- 2026-06-30 01:37 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/2605097803.shtml)
+- 2026-06-30 01:48 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/86825719934.shtml)
+- 2026-06-30 01:45 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/28369.shtml)

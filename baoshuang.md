@@ -1,56 +1,61 @@
-# 易捷航空董事会拒绝卡斯尔莱克63亿美元收购要约
+# Token、人工智能、太空算力......数字中国建设峰会 这些关键词刷屏
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。 易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，在第九届数字中国建设峰会上，国家数据局、工业和信息化部相关负责人围绕Token（词元）、人工智能、太空算力产业发展最新发声。 人工智能进入训练与推理并重的新阶段 国家数据局局长刘烈宏表示，人工智能发展催生数据生产新方式。当前人工智能正加速演进，呈现从大语言模型向多模态模型拓展，从基础模型向行业模
 
 ## 正文
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。
+4月29日，在第九届数字中国建设峰会上，国家数据局、工业和信息化部相关负责人围绕Token（词元）、人工智能、太空算力产业发展最新发声。
 
-受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支持其将易捷航空私有化的收购计划。
+人工智能进入训练与推理并重的新阶段 国家数据局局长刘烈宏表示，人工智能发展催生数据生产新方式。
 
-按照收购方案，接受要约的易捷航空股东每股可获得 625 便士现金。
+当前人工智能正加速演进，呈现从大语言模型向多模态模型拓展，从基础模型向行业模型深化，从内容生成向智能体自主决策执行跃升，从数字智能向具身智能延伸等趋势，为数据生产带来结构性变化。
 
-相较于该机构首次披露拟发起收购前、公司 5 月 28 日 394.20 便士的收盘价，本次要约溢价约 59%。
+刘烈宏表示，2025年全国数据生产总量达到52.26泽字节（ZB），比上年增长11.2ZB，增幅达27.28%。
 
-卡斯尔莱克要求易捷航空股东在本周五监管申报截止日期前考量该收购方案，届时收购方需正式对外公布明确的收购意向。
+其中，系统软件、人工智能产生的数据量达到26.92ZB，首次超过传统占主体地位的物联感知数据量。
 
-过去一个月内，该机构已先后两次提出收购报价：每股 560 便士、每股 600 便士的要约分别在本周二、上周六遭到拒绝，最新一轮收购要约于上周日被易捷航空董事会否决。
+2025年，用于人工智能训练和推理的数据总量为199.48艾字节（EB），同比增长42.86%。
 
-易捷航空表示，董事会全体一致否决本次最新要约，理由是该报价仍严重低估了公司自身业务价值与未来发展前景，并建议股东现阶段不要接受本次收购邀约。
+其中，推理数据量首次超过训练数据量，达101.34EB，标志着人工智能进入训练与推理并重、应用驱动迭代的新阶段。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 01:43 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 01:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 01:35 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 01:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 01:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 01:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 01:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:37 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 02:04 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 01:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 01:45 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 01:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 01:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 01:51 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 01:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 01:38 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 01:46 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 01:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 02:02 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 01:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 01:58 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 01:37 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 01:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/660325022.shtml)
-- 2026-06-30 01:53 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/6216212.shtml)
-- 2026-06-30 01:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/016188919.shtml)
-- 2026-06-30 01:43 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/6503013.shtml)
-- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/5745046.shtml)
-- 2026-06-30 01:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/515893069.shtml)
-- 2026-06-30 01:41 - [起风了](https://www.share.kurohicncr.top/Article/details/485895130250.shtml)
-- 2026-06-30 01:50 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/387109678.shtml)
-- 2026-06-30 01:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/309645.shtml)
-- 2026-06-30 01:31 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/509496060568.shtml)
-- 2026-06-30 01:31 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/6666387.shtml)
-- 2026-06-30 01:33 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/99910782930.shtml)
-- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/31947.shtml)
-- 2026-06-30 01:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/0165041.shtml)
-- 2026-06-30 01:31 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/74445.shtml)
+- 2026-06-30 01:45 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/60519539572.shtml)
+- 2026-06-30 01:56 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/885337527.shtml)
+- 2026-06-30 01:36 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/358476492058.shtml)
+- 2026-06-30 02:05 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/060679734855.shtml)
+- 2026-06-30 01:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/299513286857.shtml)
+- 2026-06-30 02:01 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/256075.shtml)
+- 2026-06-30 01:37 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/544289538.shtml)
+- 2026-06-30 01:50 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/80285429883.shtml)
+- 2026-06-30 01:49 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/36353.shtml)
+- 2026-06-30 01:45 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/9292153980.shtml)
+- 2026-06-30 01:48 - [第一炉香](https://www.share.minike.top/Article/details/312109927356.shtml)
+- 2026-06-30 01:58 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/17555591.shtml)
+- 2026-06-30 01:50 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/422314.shtml)
+- 2026-06-30 01:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/690651865.shtml)
+- 2026-06-30 01:38 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/273095060966.shtml)

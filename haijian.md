@@ -1,61 +1,58 @@
-# 下周影响市场重要资讯前瞻：6月LPR报价将公布，夏季达沃斯论坛将开幕，近550亿元市值限售股解禁
+# 新质提质 浙江国有控股上市公司总市值达1.28万亿元
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月LPR报价将公布，央行公开市场将有19358亿元逆回购到期，夏季达沃斯论坛将开幕，英伟达将举行年度股东大会，近550亿元市值限售股解禁，2只新股将发行。 【重磅新闻】 6月LPR报价将公布 央行将于下周一（6月22日）公布6月贷款市场报价利率（LPR）。5月20日，央行公布的数据显示，LPR连续12个月
+中新网杭州4月29日电(奚金燕)29日，浙江省国资委联合浙江证监局共同举办“浙里领航‘十五五’ 聚能提质开新局——在浙里看国企”2026年浙江国有控股上市公司集体业绩说明会。 会上，锦华新材、浙江新能、江海股份、汽轮科技4家公司相关负责人分别介绍公司2025年度经营业绩及2026年一季度业绩表现，同时积极回应投资者关切问题，与专业投资者、中小投资者及媒体代表开展面对面互动交流。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网杭州4月29日电(奚金燕)29日，浙江省国资委联合浙江证监局共同举办“浙里领航‘十五五’ 聚能提质开新局——在浙里看国企”2026年浙江国有控股上市公司集体业绩说明会。
 
-6月LPR报价将公布，央行公开市场将有19358亿元逆回购到期，夏季达沃斯论坛将开幕，英伟达将举行年度股东大会，近550亿元市值限售股解禁，2只新股将发行。
+会上，锦华新材、浙江新能、江海股份、汽轮科技4家公司相关负责人分别介绍公司2025年度经营业绩及2026年一季度业绩表现，同时积极回应投资者关切问题，与专业投资者、中小投资者及媒体代表开展面对面互动交流。
 
-【重磅新闻】 6月LPR报价将公布 央行将于下周一（6月22日）公布6月贷款市场报价利率（LPR）。
+据悉，浙江省国资委已连续六年举办国有控股上市公司集体业绩说明会，逐步形成了常态化、规范化的市场沟通机制。
 
-5月20日，央行公布的数据显示，LPR连续12个月“按兵不动”，其中，1年期LPR为3.0%，5年期以上LPR为3.5%。
+集体业绩说明会既是展示浙江国有控股上市公司发展蓝图、深入解读经营答卷、彰显企业核心价值的重要舞台，也是国资国企与投资者、市场高效沟通的关键载体。
 
-国家统计局发布工业经济效益月度报告 6月27日，国家统计局发布工业经济效益月度报告。
+近年来，浙江省国资委以“新质提质”为工作主线，持续深化国有控股上市公司高质量发展专项行动，充分发挥国有控股上市公司在科技创新、产业控制、安全支撑等方面的重要作用。
 
-央行公开市场将有19358亿元逆回购到期 Wind数据显示，下周央行公开市场将有19358亿元逆回购到期，其中下周一至下周五分别到期8180亿元、4495亿元、4203亿元、2480亿元、0亿元。
+如，在地方国资委中率先出台省属国有控股上市公司市值管理制度，引导企业加强市值管理创新、提升发展质量，打造领航上市公司；指导推动国有控股上市公司及国有股东加大股票增持回购力度，助力资本市场平稳运行，彰显国资国企责任担当。
 
-此外，下周四将有3000亿元MLF到期。
+截至4月27日，浙江国有控股上市公司增至79家，总市值约1.28万亿元，较2024年末增长23.13%。
 
-【重磅会议】 夏季达沃斯论坛将开幕 2026夏季达沃斯论坛将于6月23日至25日在大连举办，本届年会突出科技创新引领作用，年会的主题为“规模化创新”，将聚焦人工智能、新能源、生物医药、量子科技等前沿领域，同时，探讨中国“十五五”时期发展新机遇。
+其中，浙江省属国有控股上市公司去年新增2家，共计达到30家，总市值6099亿元，浙江省属上市公司资产总额占省属企业比重近半，全年利润总额占省属企业比重近90%，有力发挥了顶梁柱、压舱石作用，体现了优质资产向上市公司聚集的战略导向。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 01:48 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 01:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 01:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 01:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 01:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 01:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 01:34 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 01:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 01:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 01:55 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:47 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 01:38 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 01:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 01:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 01:51 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 01:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 01:54 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 01:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 01:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 01:49 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 02:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 01:58 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 01:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/0383666.shtml)
-- 2026-06-30 01:55 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/472784903175.shtml)
-- 2026-06-30 01:49 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/756308.shtml)
-- 2026-06-30 01:54 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/62871713.shtml)
-- 2026-06-30 01:59 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/523552337363.shtml)
-- 2026-06-30 01:49 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/940818568227.shtml)
-- 2026-06-30 01:42 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/58614.shtml)
-- 2026-06-30 01:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/8618861071.shtml)
-- 2026-06-30 01:58 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9333060898.shtml)
-- 2026-06-30 01:38 - [美股](https://www.share.minike.top/Article/details/829395520.shtml)
-- 2026-06-30 01:42 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/59054551175.shtml)
-- 2026-06-30 01:50 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/557936700916.shtml)
-- 2026-06-30 01:30 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/130620705.shtml)
-- 2026-06-30 01:56 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/71108973131.shtml)
-- 2026-06-30 01:40 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/4428367.shtml)
+- 2026-06-30 01:50 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5896382650.shtml)
+- 2026-06-30 02:04 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/242902874891.shtml)
+- 2026-06-30 01:37 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/9324409154.shtml)
+- 2026-06-30 01:55 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/305630137.shtml)
+- 2026-06-30 02:03 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/04585.shtml)
+- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/083132726.shtml)
+- 2026-06-30 01:52 - [世界杯](http://www.share.kurohicncr.top/Article/details/91852281080.shtml)
+- 2026-06-30 02:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/24112.shtml)
+- 2026-06-30 01:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/42761186.shtml)
+- 2026-06-30 02:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/52337.shtml)
+- 2026-06-30 01:45 - [孙兴慜道歉](http://www.share.minike.top/Article/details/379609.shtml)
+- 2026-06-30 01:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/21978.shtml)
+- 2026-06-30 01:41 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/88236373570.shtml)
+- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/686948885.shtml)
+- 2026-06-30 02:03 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/513134.shtml)

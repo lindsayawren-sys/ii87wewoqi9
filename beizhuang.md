@@ -1,61 +1,45 @@
-# 广西河池遭洪水侵袭 当地紧急转移疏散民众
+# 华勤技术第一季度归母净利润10.61亿元 同比增长25.96%
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+华勤技术（03296）发布2026年第一季度报告，营业收入人民币407.46亿元，同比增长16.42%；归母净利润10.61亿元，同比增长25.96%；基本每股收益1.04元。责任编辑：卢昱君
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+华勤技术（03296）发布2026年第一季度报告，营业收入人民币407.46亿元，同比增长16.42%；归母净利润10.61亿元，同比增长25.96%；基本每股收益1.04元。
 
-“桑巴军团”卷土重来，内马尔去哪了？
-
-比尔根山会谈临时取消，美伊僵局是否难破？
-
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
-
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
-
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
-
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
-
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 01:47 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 01:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 01:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 01:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 01:54 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 01:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 01:54 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 01:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 01:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 01:40 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 01:30 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 01:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 01:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 01:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 01:59 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 01:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 02:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 01:53 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 02:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 01:44 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 01:54 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 01:56 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 01:52 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 01:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/77311.shtml)
-- 2026-06-30 01:57 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/923376648409.shtml)
-- 2026-06-30 01:57 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/9581706155.shtml)
-- 2026-06-30 01:58 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/018100949.shtml)
-- 2026-06-30 01:32 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/68842.shtml)
-- 2026-06-30 01:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/67244750.shtml)
-- 2026-06-30 01:52 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/8765386773.shtml)
-- 2026-06-30 01:39 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/7960938525.shtml)
-- 2026-06-30 01:47 - [恋与深空 日服](http://www.blog.minike.top/Article/details/86103223530.shtml)
-- 2026-06-30 01:50 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/8864446076.shtml)
-- 2026-06-30 01:35 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/0753264067.shtml)
-- 2026-06-30 01:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/72101563288.shtml)
-- 2026-06-30 01:47 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/137936588.shtml)
-- 2026-06-30 01:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/302426.shtml)
-- 2026-06-30 01:36 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/7991024637.shtml)
+- 2026-06-30 01:47 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/2639522316.shtml)
+- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/712665.shtml)
+- 2026-06-30 01:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/731132.shtml)
+- 2026-06-30 01:43 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/686292.shtml)
+- 2026-06-30 01:54 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/420184177.shtml)
+- 2026-06-30 01:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/8991440.shtml)
+- 2026-06-30 01:40 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/1422406.shtml)
+- 2026-06-30 01:57 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/30277837431.shtml)
+- 2026-06-30 01:42 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/099151067169.shtml)
+- 2026-06-30 01:39 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/1214470182.shtml)
+- 2026-06-30 02:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/91323696.shtml)
+- 2026-06-30 01:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/67109265373.shtml)
+- 2026-06-30 01:47 - [一见倾心](https://www.share.minike.top/Article/details/88940851.shtml)
+- 2026-06-30 02:05 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/534359546.shtml)
+- 2026-06-30 01:57 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/7524292.shtml)

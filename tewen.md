@@ -1,60 +1,58 @@
-# 广东揭阳：赛龙舟演绎水上“速度与激情”
+# 早盘：美股走低 纳指下跌逾200点
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。 据报道，OpenAI近期营收和新用户增长均低于其内
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+油价上涨以及OpenAI发布的疲软报告令科技股承压。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+阿联酋宣布退出OPEC。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
+道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+据报道，OpenAI近期营收和新用户增长均低于其内部目标。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+这一消息拖累科技股走低。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 01:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 01:49 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 01:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 01:34 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 01:51 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 01:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 01:51 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 01:47 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 01:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 01:51 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 01:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 01:33 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 01:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 01:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 01:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 01:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 01:36 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 02:02 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 01:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 02:00 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:52 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 01:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 01:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/9137399.shtml)
-- 2026-06-30 01:48 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/204026.shtml)
-- 2026-06-30 01:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/97399780475.shtml)
-- 2026-06-30 01:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/733224.shtml)
-- 2026-06-30 01:47 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/532853.shtml)
-- 2026-06-30 01:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/024301.shtml)
-- 2026-06-30 01:50 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/196645213.shtml)
-- 2026-06-30 01:36 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/448150095.shtml)
-- 2026-06-30 01:57 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/3019397520.shtml)
-- 2026-06-30 01:36 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/815819841334.shtml)
-- 2026-06-30 01:35 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/916148.shtml)
-- 2026-06-30 01:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/52704.shtml)
-- 2026-06-30 01:43 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/420359607379.shtml)
-- 2026-06-30 01:47 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/40236231.shtml)
-- 2026-06-30 01:43 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/05072499.shtml)
+- 2026-06-30 01:42 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/06905368.shtml)
+- 2026-06-30 01:41 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0487381.shtml)
+- 2026-06-30 02:04 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/11361817.shtml)
+- 2026-06-30 01:46 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/046517051.shtml)
+- 2026-06-30 01:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/3642722336.shtml)
+- 2026-06-30 01:41 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/768490684590.shtml)
+- 2026-06-30 01:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/00947.shtml)
+- 2026-06-30 01:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/032322.shtml)
+- 2026-06-30 02:02 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/797111.shtml)
+- 2026-06-30 02:05 - [TOP Prada](https://www.blog.minike.top/Article/details/0812648.shtml)
+- 2026-06-30 01:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/751096348.shtml)
+- 2026-06-30 02:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/267960714316.shtml)
+- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/29678647.shtml)
+- 2026-06-30 01:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/09100728.shtml)
+- 2026-06-30 02:05 - [新官上任三把火](http://www.blog.minike.top/Article/details/332530.shtml)

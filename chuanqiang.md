@@ -1,56 +1,61 @@
-# 新华时评｜以更有力有效之举打击电诈“翻新”
+# 13家上市银行一季报率先亮相，营收最高增长42%，资产负债双优化助推息差企稳
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-新华社北京6月22日电题：以更有力有效之举打击电诈“翻新” 新华社记者刘硕、李明辉 诱导下载陌生App打卡，使受害者逐步“入局”最终上当转账；打着“专业荐股”等旗号，哄骗股民掉入“暴富”陷阱；使用小众通联软件对被害人进行深度洗脑……公安部近期通报显示，电信网络诈骗犯罪手段持续翻新，迷惑性不断增强。面对新形势新变化，需以更有力有效之举筑牢防线，守好百姓“钱袋子”。 这两年来电信诈
+财联社4月28日讯（编辑 杨斌）季报发布渐入高峰，从目前已发布一季报的13家上市银行来看，一季度银行业绩喜人。13家银行营收、净利全部正增长，部分银行由2025的负增长转正，增速提升幅度可超过25个百分点。 财联社拆解银行一季报收入发现，净利息收入大增成为银行业绩改善的主要原因。业内指出，一季度银行息差阶段性企稳，利息收入回暖确定性强，而财富管理也支撑手续费维持正增长。 5家银
 
 ## 正文
 
-新华社北京6月22日电题：以更有力有效之举打击电诈“翻新” 新华社记者刘硕、李明辉 诱导下载陌生App打卡，使受害者逐步“入局”最终上当转账；打着“专业荐股”等旗号，哄骗股民掉入“暴富”陷阱；使用小众通联软件对被害人进行深度洗脑……公安部近期通报显示，电信网络诈骗犯罪手段持续翻新，迷惑性不断增强。
+财联社4月28日讯（编辑 杨斌）季报发布渐入高峰，从目前已发布一季报的13家上市银行来看，一季度银行业绩喜人。
 
-面对新形势新变化，需以更有力有效之举筑牢防线，守好百姓“钱袋子”。
+13家银行营收、净利全部正增长，部分银行由2025的负增长转正，增速提升幅度可超过25个百分点。
 
-这两年来电信诈骗打击治理成果显著，但电诈犯罪案件仍然多发高发，诈骗手段不断迭代升级，伪装形式愈发隐蔽。
+财联社拆解银行一季报收入发现，净利息收入大增成为银行业绩改善的主要原因。
 
-犯罪分子从以往主要通过电话、短信方式，转为现在更多通过网络聊天、短视频直播、电商购物、平台生活服务、网络游戏等寻找作案目标。
+业内指出，一季度银行息差阶段性企稳，利息收入回暖确定性强，而财富管理也支撑手续费维持正增长。
 
-未成年人及学生群体已成电诈重点侵害对象。
+5家银行营收增速由负转正 目前，已公布2026年一季报的银行以城农商行为主。
 
-有力有效遏制电诈，必须保持高压严打态势不放松。
+13家银行的一季度的营收全部实现增长，且增长幅度较2025年年报扩大。
 
-相关部门提升识别精准度、打击成功率和防骗有效性，把反诈防火墙砌在高危领域中，让更多好用、实用、易用的防骗工具走进老百姓的日常生活。
+其中，沪农商行、贵阳银行、紫金银行、平安银行、北京银行等5家银行的2025年营业收入同比下滑，而进入2026年一季度后营收增速悉数转正。
 
-构筑更坚实的反诈防线，重点要抓好薄弱环节。
+图：上市银行一季报营收及增速 净利润的表现呈现相似的趋势，13家上市银行一季度的增速全部为正。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 01:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 01:46 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 01:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 01:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 01:31 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 01:44 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 01:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 01:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 01:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 01:42 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 02:05 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 01:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 01:46 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 01:57 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 02:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 01:52 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 02:03 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 01:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 02:03 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/57327.shtml)
-- 2026-06-30 01:56 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/978310.shtml)
-- 2026-06-30 01:30 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3718718.shtml)
-- 2026-06-30 01:32 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/687756135688.shtml)
-- 2026-06-30 01:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/04660128594.shtml)
-- 2026-06-30 01:52 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/42868.shtml)
-- 2026-06-30 01:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/961672603082.shtml)
-- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/38560492244.shtml)
-- 2026-06-30 01:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/18839203.shtml)
-- 2026-06-30 01:34 - [速度与激情9](https://www.share.minike.top/Article/details/06597765.shtml)
-- 2026-06-30 01:33 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/452975092791.shtml)
-- 2026-06-30 01:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/634333.shtml)
-- 2026-06-30 01:51 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5981936.shtml)
-- 2026-06-30 01:44 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/45796190417.shtml)
-- 2026-06-30 01:53 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/6835341029.shtml)
+- 2026-06-30 02:05 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/286045515.shtml)
+- 2026-06-30 01:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/858690876.shtml)
+- 2026-06-30 01:43 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/99808272.shtml)
+- 2026-06-30 02:02 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/8260786612.shtml)
+- 2026-06-30 01:37 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/1995412283.shtml)
+- 2026-06-30 01:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/66002379.shtml)
+- 2026-06-30 01:52 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/84933527495.shtml)
+- 2026-06-30 01:36 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/96439148.shtml)
+- 2026-06-30 01:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/09287.shtml)
+- 2026-06-30 01:44 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/65177788975.shtml)
+- 2026-06-30 01:54 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/7755642831.shtml)
+- 2026-06-30 01:53 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/5456216910.shtml)
+- 2026-06-30 01:44 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/757680.shtml)
+- 2026-06-30 01:39 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/953459750.shtml)
+- 2026-06-30 01:47 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/0536700.shtml)

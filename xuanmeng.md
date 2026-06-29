@@ -1,49 +1,61 @@
-# 快讯：现货黄金触及4100美元/盎司下方 日内跌超2%
+# 空客一季度营收超预期但利润腰斩，防务业务抵消交付下滑
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-北京时间6月23日下午，现货黄金触及4100美元/盎司下方，日内跌超2%。 责任编辑：朱赫楠
+飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。 财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期
 
 ## 正文
 
-北京时间6月23日下午，现货黄金触及4100美元/盎司下方，日内跌超2%。
+飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。
 
-责任编辑：朱赫楠
+财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。
+
+经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期的约3.78亿至4.44亿欧元区间。
+
+商用飞机交付受阻，防务业务成亮点 交付数据方面，空客第一季度共交付114架商用飞机，较去年同期的136架下降16%。
+
+其中A320系列交付81架，A220交付19架，A350交付11架，A330交付3架。
+
+交付放缓的主要原因是核心供应商普惠的发动机持续短缺，以及A320机身整流罩生产缺陷导致的修复工作。
+
+空客首席执行官在声明中表示：“第一季度业绩反映了民用飞机交付量的下降以及防务与航天的强劲表现。
+
+”国防与航天部门成为本季度的亮点，收入增长7%至28亿欧元，调整后息税前利润激增69%至1.3亿欧元，主要得益于订单量同比大增91%至约50亿欧元。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 01:40 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 01:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 01:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 01:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 01:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 01:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 01:51 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 01:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 01:57 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 01:40 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 01:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 01:47 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 01:38 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 02:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 01:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 01:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 01:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 01:54 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 01:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 02:04 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 02:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 01:43 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 01:36 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 01:52 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 01:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 02:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/19307090.shtml)
-- 2026-06-30 01:35 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/40230264.shtml)
-- 2026-06-30 01:43 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/67609214819.shtml)
-- 2026-06-30 01:47 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/31434913.shtml)
-- 2026-06-30 01:49 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/88116.shtml)
-- 2026-06-30 01:49 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/238229877.shtml)
-- 2026-06-30 01:55 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/82176151462.shtml)
-- 2026-06-30 01:59 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/60987.shtml)
-- 2026-06-30 01:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/423789339274.shtml)
-- 2026-06-30 01:32 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/86948765474.shtml)
-- 2026-06-30 01:33 - [斗破苍穹](http://www.blog.minike.top/Article/details/275313.shtml)
-- 2026-06-30 01:43 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/2153348.shtml)
-- 2026-06-30 01:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/435812.shtml)
-- 2026-06-30 01:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/9826093323.shtml)
-- 2026-06-30 01:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/711972540.shtml)
+- 2026-06-30 01:49 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/85405952.shtml)
+- 2026-06-30 02:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/186513471.shtml)
+- 2026-06-30 01:43 - [恋与深空 日服](http://www.share.minike.top/Article/details/0805477516.shtml)
+- 2026-06-30 02:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/693916103.shtml)
+- 2026-06-30 01:56 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/2172965664.shtml)
+- 2026-06-30 01:49 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/263582337588.shtml)
+- 2026-06-30 01:51 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/92050141.shtml)
+- 2026-06-30 01:51 - [我们的少年时代2](http://www.blog.minike.top/Article/details/735219577286.shtml)
+- 2026-06-30 01:50 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/946299329.shtml)
+- 2026-06-30 02:04 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/07818818456.shtml)
+- 2026-06-30 01:46 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4448449993.shtml)
+- 2026-06-30 01:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/15256.shtml)
+- 2026-06-30 02:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/71302543.shtml)
+- 2026-06-30 01:54 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/073841.shtml)
+- 2026-06-30 01:42 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/646144.shtml)

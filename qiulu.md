@@ -1,57 +1,52 @@
-# （美加墨世界杯）从佛得角队，感受足球的动人
+# 奋进“十五五”，广东“有数”！
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 题：从佛得角队，感受足球的动人 作者 刘梦青 邢翀 当地时间21日，美国迈阿密硬石体育场见证了世界杯“新军”的历史时刻：佛得角队2:2战平乌拉圭队，并由此成为世界杯近百年历史上第一支在前两场小组赛面对前世界杯冠军保持不败的队伍。 佛得角队门将沃津尼亚说，“我们做了件很伟大的事，让全世界看到佛得角。”佛得角队的首场比赛中，40岁的沃津尼亚用7次极限扑救筑起
+4月28日，《广东省国民经济和社会发展第十五个五年规划纲要》(简称《规划纲要》)正式发布。全省GDP年均增长5%左右、全社会研发经费投入年均增长5%、海洋生产总值达2.8万亿元……《规划纲要》提出了八个方面的主要目标，围绕经济发展、创新驱动、民生福祉、城乡区域、绿色低碳和安全保障等方面设置了六大类22项指标，并明确了“十五五”时期经济社会发展重点战略任务。展望未来，从党的二十大
 
 ## 正文
 
-中新社北京6月22日电 题：从佛得角队，感受足球的动人 作者 刘梦青 邢翀 当地时间21日，美国迈阿密硬石体育场见证了世界杯“新军”的历史时刻：佛得角队2:2战平乌拉圭队，并由此成为世界杯近百年历史上第一支在前两场小组赛面对前世界杯冠军保持不败的队伍。
+4月28日，《广东省国民经济和社会发展第十五个五年规划纲要》(简称《规划纲要》)正式发布。
 
-佛得角队门将沃津尼亚说，“我们做了件很伟大的事，让全世界看到佛得角。
+全省GDP年均增长5%左右、全社会研发经费投入年均增长5%、海洋生产总值达2.8万亿元……《规划纲要》提出了八个方面的主要目标，围绕经济发展、创新驱动、民生福祉、城乡区域、绿色低碳和安全保障等方面设置了六大类22项指标，并明确了“十五五”时期经济社会发展重点战略任务。
 
-”佛得角队的首场比赛中，40岁的沃津尼亚用7次极限扑救筑起防线，让劲旅西班牙队全场颗粒无收。
+展望未来，从党的二十大召开到二〇三五年，用13年时间基本实现社会主义现代化、建成一个现代化的新广东。
 
-佛得角队0:0逼平西班牙队，从夺冠热门身上拿到队史世界杯第一分。
+一组数据海报，带你了解！
 
-次轮面对乌拉圭，佛得角队证明其首战成绩绝非偶然。
-
-第21分钟，皮纳主罚任意球直接破门，帮助球队打入队史世界杯首球。
-
-尽管乌拉圭队随后反扑，但比赛末段，瓦雷拉抓住对手后场失误，抢断后冷静推射破门，将比分顽强扳平。
-
-连平两支世界冠军球队，佛得角队不仅打破外界对于小国球队的刻板印象，用防守纪律、身体对抗、反击效率和精神韧性为自己正名，而且让人们看到，世界杯不只属于传统强队，也属于那些虽第一次出现却敢于用尽全力改写命运的球队。
+统筹：陈海敏 策划：叶莉子 设计：曹雅琴 校对：陈学德 来源：南方网
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 01:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 01:38 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 01:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 01:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 01:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 01:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 01:55 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 01:31 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 01:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 01:40 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 01:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 01:53 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 01:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 01:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 01:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 01:57 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 01:50 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 01:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 01:46 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 01:51 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/90872997.shtml)
-- 2026-06-30 01:50 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/78078.shtml)
-- 2026-06-30 01:59 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/3411000.shtml)
-- 2026-06-30 01:52 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/755885234220.shtml)
-- 2026-06-30 01:31 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/26594249.shtml)
-- 2026-06-30 01:35 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/849282685725.shtml)
-- 2026-06-30 01:34 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/370883616.shtml)
-- 2026-06-30 01:56 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38621962.shtml)
-- 2026-06-30 01:54 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/702332.shtml)
-- 2026-06-30 01:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/49063506.shtml)
-- 2026-06-30 01:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/80744.shtml)
-- 2026-06-30 01:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/10905617.shtml)
-- 2026-06-30 01:46 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/941402.shtml)
-- 2026-06-30 01:49 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6667355117.shtml)
-- 2026-06-30 01:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/698572.shtml)
+- 2026-06-30 02:02 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/87102416.shtml)
+- 2026-06-30 01:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/12149091973.shtml)
+- 2026-06-30 01:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/008064.shtml)
+- 2026-06-30 01:46 - [天道](https://www.share.minike.top/Article/details/56035.shtml)
+- 2026-06-30 02:04 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/380420.shtml)
+- 2026-06-30 01:43 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/99863.shtml)
+- 2026-06-30 01:42 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/3665171.shtml)
+- 2026-06-30 01:58 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/53117937.shtml)
+- 2026-06-30 01:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/265342682.shtml)
+- 2026-06-30 02:03 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/82742388.shtml)
+- 2026-06-30 02:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/243792714508.shtml)
+- 2026-06-30 02:04 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/03299004.shtml)
+- 2026-06-30 01:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/96954.shtml)
+- 2026-06-30 02:00 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/8420643.shtml)
+- 2026-06-30 01:54 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/52726095.shtml)

@@ -1,59 +1,61 @@
-# 博时宏观观点：海外地缘和流动性风险逐步落地，市场风格或迎来再平衡
+# 比亚迪2026年一季报出炉：营收净利短期承压，逆势加码研发
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-海外地缘和流动性风险逐步落地，全A情绪从底部回暖，行业间分化度进一步上行，科技拥挤度达到历史极值，但产业景气仍高涨，对于科技板块基本面形成支撑。大的风格切换时点暂未到来，或通过波动加大来消化极致分化。 海外方面，美联储6月FOMC维持基准利率不变，鹰派点阵图抬升加息预期，沃什首秀意图展现美联储独立性与改革前景，但定价进一步紧缩较困难，预计今年可能是维持当前利率观望。 国内方面，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日，比亚迪股份有限公司（01211.HK / 002594.SZ）正式披露了第一季度财务报告。 报告期内，比亚迪实现营业收入1502.25亿元，较上年同期的1703.60亿元下降11.82%。收入端的收缩直接影响了盈利表现，一季度归属于上市公司股东的净利润为40.85亿元，较去年同期的91.55亿元
 
 ## 正文
 
-海外地缘和流动性风险逐步落地，全A情绪从底部回暖，行业间分化度进一步上行，科技拥挤度达到历史极值，但产业景气仍高涨，对于科技板块基本面形成支撑。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大的风格切换时点暂未到来，或通过波动加大来消化极致分化。
+4月28日，比亚迪股份有限公司（01211.HK / 002594.SZ）正式披露了第一季度财务报告。
 
-海外方面，美联储6月FOMC维持基准利率不变，鹰派点阵图抬升加息预期，沃什首秀意图展现美联储独立性与改革前景，但定价进一步紧缩较困难，预计今年可能是维持当前利率观望。
+报告期内，比亚迪实现营业收入1502.25亿元，较上年同期的1703.60亿元下降11.82%。
 
-国内方面，5月出口强劲带动生产增速稳健，但内需数据低于市场预期，社零受高基数及补贴退坡多重“逆风”影响增速转负。
+收入端的收缩直接影响了盈利表现，一季度归属于上市公司股东的净利润为40.85亿元，较去年同期的91.55亿元下滑55.38%；扣非净利润为41.48亿元，同比下降49.24%。
 
-潘行长在陆家嘴论坛的讲话对货币政策立场的表述较为中性，短期货币政策“稳”；吴主席在陆家嘴论坛宣布多项资本市场新政，强调科技包容性升级。
+为了抵御市场寒意，比亚迪在成本控制上做出了明显努力，当期营业成本为1219.74亿元，同比下降10.44%。
 
-市场策略方面，债券方面，上周债市利率震荡回落。
+期间费用也基本稳住了阵脚，销售与管理费用分别控制在58.27亿元和50.83亿元。
 
-近期DR001利率快速上行，给债市带来回调压力。
+利润空间被大幅挤压，主要源于财务与投资端的双重波动。
 
-陆家嘴论坛上潘行长表示收窄利率走廊并适时增加隔夜逆回购品种。
+受本期汇兑损失影响（上年同期为汇兑收益），财务费用从上年同期的净收益19.08亿元转为净支出20.99亿元，变动幅度超过200%。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 01:59 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 01:33 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 01:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 01:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 01:52 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 01:30 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 01:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 01:49 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 01:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:30 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 01:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 01:32 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 02:04 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 02:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:51 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 01:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 01:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 01:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 01:58 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 01:59 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 01:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 01:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 01:58 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 02:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 01:41 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 01:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 01:52 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/0115763394.shtml)
-- 2026-06-30 01:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/6001571.shtml)
-- 2026-06-30 01:48 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/94956902.shtml)
-- 2026-06-30 01:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/3146194981.shtml)
-- 2026-06-30 01:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/50025959889.shtml)
-- 2026-06-30 01:34 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/302438853261.shtml)
-- 2026-06-30 01:37 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/3165349769.shtml)
-- 2026-06-30 01:45 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/672866473026.shtml)
-- 2026-06-30 01:46 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/198081222831.shtml)
-- 2026-06-30 01:37 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/0154398325.shtml)
-- 2026-06-30 01:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/08374147.shtml)
-- 2026-06-30 01:57 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/771436.shtml)
-- 2026-06-30 01:53 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/1357336647.shtml)
-- 2026-06-30 01:32 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/88137.shtml)
-- 2026-06-30 01:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/040673.shtml)
+- 2026-06-30 01:49 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/60862535.shtml)
+- 2026-06-30 01:39 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/6313164.shtml)
+- 2026-06-30 01:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/4758473.shtml)
+- 2026-06-30 01:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/53608.shtml)
+- 2026-06-30 01:56 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/78215167916.shtml)
+- 2026-06-30 01:48 - [小娘惹](http://www.share.minike.top/Article/details/0175877.shtml)
+- 2026-06-30 01:57 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/487314645.shtml)
+- 2026-06-30 02:00 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/737807.shtml)
+- 2026-06-30 01:45 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/32067163.shtml)
+- 2026-06-30 01:49 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/226309818.shtml)
+- 2026-06-30 01:56 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/4259396105.shtml)
+- 2026-06-30 01:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/635437.shtml)
+- 2026-06-30 01:47 - [日本16强魔咒](https://www.blog.minike.top/Article/details/767764725.shtml)
+- 2026-06-30 01:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/34216240602.shtml)
+- 2026-06-30 01:56 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/33132337.shtml)

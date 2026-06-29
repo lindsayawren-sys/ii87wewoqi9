@@ -1,58 +1,47 @@
-# 银行智能体，告别数字游戏
+# 东方盛虹：2025年净利润1.34亿元 同比扭亏
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-来源：新金融琅琊榜 作者：董云峰 编辑：叶冬 智能体风头正盛。 从国有大行、股份行到城农商行，各家银行披露的智能体数量从数百个一路攀升至上万个，概念热度居高不下。 然而，究竟什么才算真正的金融智能体？规模快速扩张的背后，又有多少应用真正转化为了实打实的业务价值与经营效能？ 定义与统计标准的缺失，让智能体的跨机构横向对比失去了统一标尺，也在一定程度上催生了重数量、轻实效的倾向。
+人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑
 
 ## 正文
 
-来源：新金融琅琊榜 作者：董云峰 编辑：叶冬 智能体风头正盛。
+人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。
 
-从国有大行、股份行到城农商行，各家银行披露的智能体数量从数百个一路攀升至上万个，概念热度居高不下。
+报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑战，原油价格呈宽幅震荡、中枢下移趋势，叠加部分下游行业需求阶段性承压，公司营业收入增长受到一定影响。
 
-然而，究竟什么才算真正的金融智能体？
-
-规模快速扩张的背后，又有多少应用真正转化为了实打实的业务价值与经营效能？
-
-定义与统计标准的缺失，让智能体的跨机构横向对比失去了统一标尺，也在一定程度上催生了重数量、轻实效的倾向。
-
-而机构内部治理体系与技术迭代的适配性不足，以及行业公共基础设施缺位，也在制约着智能体走向全链路的体系化价值释放。
-
-6月18日，国家金融监督管理总局正式发布《关于银行业保险业人工智能安全开发应用的指导意见》（简称《指导意见》），首次明确写入“稳妥探索金融智能体建设”，并从顶层设计层面划定了安全发展的框架。
-
-银行智能体的数字游戏该结束了。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 01:33 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 01:38 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 01:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 01:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 01:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 01:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 01:30 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 01:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 01:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 01:37 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 01:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 01:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 02:04 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 01:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 02:04 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 01:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 01:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 01:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 01:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 01:56 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 02:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 01:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/263548.shtml)
-- 2026-06-30 01:35 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/67531829.shtml)
-- 2026-06-30 01:58 - [我们的少年时代2](http://www.blog.minike.top/Article/details/8894152.shtml)
-- 2026-06-30 01:44 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/848645319179.shtml)
-- 2026-06-30 01:45 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/326281591.shtml)
-- 2026-06-30 01:30 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/199253.shtml)
-- 2026-06-30 01:37 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/78841435171.shtml)
-- 2026-06-30 01:49 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/3184953.shtml)
-- 2026-06-30 01:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/063391.shtml)
-- 2026-06-30 01:38 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/43750843500.shtml)
-- 2026-06-30 01:59 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/664957.shtml)
-- 2026-06-30 01:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/25358.shtml)
-- 2026-06-30 01:38 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/2756437.shtml)
-- 2026-06-30 01:47 - [极限挑战第一季](http://www.share.minike.top/Article/details/61345787088.shtml)
-- 2026-06-30 01:42 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/510698786.shtml)
+- 2026-06-30 01:38 - [月亮](https://www.blog.kurohicncr.top/Article/details/4469251.shtml)
+- 2026-06-30 01:46 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/2265892.shtml)
+- 2026-06-30 01:43 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/132328.shtml)
+- 2026-06-30 02:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/82449.shtml)
+- 2026-06-30 02:03 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/88666516.shtml)
+- 2026-06-30 01:39 - [爱很美味](https://www.share.minike.top/Article/details/11716.shtml)
+- 2026-06-30 02:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/7130226.shtml)
+- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/29211409.shtml)
+- 2026-06-30 01:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/596019.shtml)
+- 2026-06-30 01:41 - [青春环游记第三季](https://www.share.minike.top/Article/details/148462658366.shtml)
+- 2026-06-30 01:49 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/37448.shtml)
+- 2026-06-30 01:40 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/130603566.shtml)
+- 2026-06-30 01:45 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/689736.shtml)
+- 2026-06-30 01:48 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/23379.shtml)
+- 2026-06-30 01:47 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/466275721.shtml)

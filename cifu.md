@@ -1,58 +1,52 @@
-# “戒碳水能瘦脸”是真的吗
+# 习近平向上海合作组织绿色和可持续发展论坛致贺信
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-近日，社交平台上“碳水吃多了脸浮肿”“戒碳水能瘦脸”等说法引发热议，不少网友分享“戒碳”“断碳”经历，试图靠不吃主食改变面部轮廓。这些说法靠谱吗？要回答这个问题，首先需要厘清3个常被混为一谈的概念——主食、碳水化合物和碳水。主食是具体食物类别，主要包括谷类、杂豆、薯类等，富含植物性蛋白质、B族维生素、矿物质及膳食纤维；碳水化合物是一大类有机化合物，包括糖、淀粉、膳食纤维等；碳水
+新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。 习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。 习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，
 
 ## 正文
 
-近日，社交平台上“碳水吃多了脸浮肿”“戒碳水能瘦脸”等说法引发热议，不少网友分享“戒碳”“断碳”经历，试图靠不吃主食改变面部轮廓。
+新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。
 
-这些说法靠谱吗？
+习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。
 
-要回答这个问题，首先需要厘清3个常被混为一谈的概念——主食、碳水化合物和碳水。
+习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。
 
-主食是具体食物类别，主要包括谷类、杂豆、薯类等，富含植物性蛋白质、B族维生素、矿物质及膳食纤维；碳水化合物是一大类有机化合物，包括糖、淀粉、膳食纤维等；碳水不是专业名词，日常交流中是碳水化合物的口语简称，常被窄化为糖和淀粉。
+中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，推动完善全球环境治理体系，携手共建清洁、美丽、可持续的世界。
 
-三者并不能等同。
-
-脸浮肿是吃多了碳水化合物吗？
-
-中国农业大学食品科学与营养工程学院教授范志红指出，面部浮肿成因复杂，蛋白质摄入不足、盐分超标、肥胖、胃肠紊乱、食物慢性过敏乃至某些疾病都可能导致。
-
-只要主食摄入合理，并搭配充足蔬菜、优质蛋白和适度运动，并不会必然导致面部松弛或脂肪堆积。
+本次论坛当日在浙江宁波开幕，主题为“践行全球治理倡议，共促上合组织绿色和可持续发展”，由上合组织睦邻友好合作委员会、生态环境部和浙江省人民政府共同主办。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 01:52 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 01:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 01:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 01:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 01:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 01:55 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 01:55 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 01:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 01:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:42 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 01:57 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 01:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 01:54 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 02:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 02:00 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 02:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 01:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 01:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 01:37 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/591759431750.shtml)
-- 2026-06-30 01:34 - [房价什么时候能涨](http://www.share.minike.top/Article/details/2791101.shtml)
-- 2026-06-30 01:52 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/18084388.shtml)
-- 2026-06-30 01:55 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/26613329.shtml)
-- 2026-06-30 01:35 - [一生一世](http://www.share.minike.top/Article/details/256393098920.shtml)
-- 2026-06-30 01:31 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/71644414167.shtml)
-- 2026-06-30 01:37 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/43314133.shtml)
-- 2026-06-30 01:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/32353481013.shtml)
-- 2026-06-30 01:34 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/4825354.shtml)
-- 2026-06-30 01:39 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/1279198342.shtml)
-- 2026-06-30 01:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/2231436.shtml)
-- 2026-06-30 01:53 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/553779825.shtml)
-- 2026-06-30 01:30 - [速度与激情9](https://www.blog.minike.top/Article/details/528311973084.shtml)
-- 2026-06-30 01:39 - [千香](http://www.share.kurohicncr.top/Article/details/09082335.shtml)
-- 2026-06-30 01:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/7031096.shtml)
+- 2026-06-30 01:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/9975067.shtml)
+- 2026-06-30 01:51 - [内马尔替补](http://www.share.minike.top/Article/details/3641435.shtml)
+- 2026-06-30 02:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/21737333.shtml)
+- 2026-06-30 01:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/95271.shtml)
+- 2026-06-30 01:49 - [内马尔替补](http://www.blog.minike.top/Article/details/11565764252.shtml)
+- 2026-06-30 02:05 - [一生一世](https://www.share.kurohicncr.top/Article/details/984478.shtml)
+- 2026-06-30 01:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/5228051556.shtml)
+- 2026-06-30 02:00 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/99482005.shtml)
+- 2026-06-30 01:48 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/180708.shtml)
+- 2026-06-30 01:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/106398940638.shtml)
+- 2026-06-30 01:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7313138.shtml)
+- 2026-06-30 01:52 - [日本16强魔咒](http://www.blog.minike.top/Article/details/803974941783.shtml)
+- 2026-06-30 01:59 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/11002914889.shtml)
+- 2026-06-30 01:43 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/3236615758.shtml)
+- 2026-06-30 01:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/342910577.shtml)

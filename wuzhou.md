@@ -1,61 +1,57 @@
-# 三部门印发《利用外资固稳促优行动方案》
+# 2025年扣除后营业收入超过3亿元，*ST宇顺提交申请撤销退市风险警示
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据商务部网站消息，6月22日，商务部、国家发展改革委、财政部联合印发《利用外资固稳促优行动方案》，围绕扩大市场准入、提升外商投资便利度、提高投资促进水平、健全外商投资服务保障体系、优化外资管理五方面提出15条举措。全文如下：商务部 国家发展改革委 财政部关于印发 《利用外资固稳促优行动方案》的通知 商资发〔2026〕97号 各省、自治区、直辖市人民政府，新疆
+4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅
 
 ## 正文
 
-中新网6月22日电 据商务部网站消息，6月22日，商务部、国家发展改革委、财政部联合印发《利用外资固稳促优行动方案》，围绕扩大市场准入、提升外商投资便利度、提高投资促进水平、健全外商投资服务保障体系、优化外资管理五方面提出15条举措。
+4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。
 
-全文如下：商务部 国家发展改革委 财政部关于印发 《利用外资固稳促优行动方案》的通知 商资发〔2026〕97号 各省、自治区、直辖市人民政府，新疆生产建设兵团，国务院有关部门： 经国务院同意，现将《利用外资固稳促优行动方案》印发给你们，请结合实际抓好贯彻落实。
+随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅增加404.62%，经营质量与盈利结构持续优化。
 
-商务部 国家发展改革委 财政部 2026年6月16日 (本文有删减) 利用外资固稳促优行动方案 为多措并举做好稳外资工作，推动利用外资固稳促优，经国务院同意，现制定如下行动方案。
+进入2026年后经营持续向好，多项财务指标亮眼：*ST宇顺一季度实现营业收入2.65亿元，同比大幅增加480.44%；归母净利润4925.58万元，同比大幅增加4202.23%；扣非净利润4769.52万元，同比大幅增加9382.47%。
 
-一、扩大市场准入 (一)深化服务业领域开放。
+2025年，*ST宇顺在巩固原有核心业务的基础上，通过战略并购实现业务版图的重大拓展，切入 IDC 基础服务商赛道，构建起触控显示应用、气体检测仪器仪表、配电设备与数据中心基础设施服务三大业务格局。
 
-稳步扩大职业技能培训机构、职业院校、高水平理工农医类大学对外开放试点。
+IDC 业务从无到有的突破性落地，是上市公司经营回暖的重要原因。
 
-支持北京提升国家服务业扩大开放综合示范区建设水平，推动数字经济、医药健康等现代服务业重点领域开放举措先行先试。
+在*ST宇顺收购中恩云（北京）数据科技有限公司等三家数据中心标的公司100%股权（以下合称“中恩云”）的过程中，2025年11月执行标的公司过渡期管理措施取得控制权，重组实现实质性落地；2025年12月起，中恩云正式纳入上市公司合并报表范围，并于2026 年4 月完成100%股权过户登记。
 
-推动全面升级内地与香港、澳门关于建立更紧密经贸关系的安排，在服务业领域加大对港澳投资者率先开放力度。
+得益于优质资产的并表，*ST宇顺2025年经营情况显著改善，新增IDC业务收入约8098.76万元，全年实现扣除后营业收入3.25亿元，远超退市相关规则中“扣除后营业收入低于3亿元”的警示红线。
 
-(二)稳步提升金融业开放水平。
+由于相关财务指标符合申请对股票交易撤销退市风险警示的条件，4月28日，*ST宇顺向深交所提出对公司股票交易撤销退市风险警示的申请。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 01:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 01:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 01:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 01:56 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 01:31 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 01:33 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 01:47 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 01:40 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 01:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 01:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 01:44 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 01:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 01:37 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 01:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 02:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 01:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 01:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 01:49 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 01:45 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 01:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 02:05 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 01:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:39 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 01:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/08805487.shtml)
-- 2026-06-30 01:40 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/735997752.shtml)
-- 2026-06-30 01:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/346413.shtml)
-- 2026-06-30 01:41 - [毒液2](https://www.blog.kurohicncr.top/Article/details/1478070.shtml)
-- 2026-06-30 01:59 - [啊啊啊](http://www.blog.minike.top/Article/details/1607293.shtml)
-- 2026-06-30 01:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/1454206063.shtml)
-- 2026-06-30 01:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/408153120002.shtml)
-- 2026-06-30 01:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/291584443.shtml)
-- 2026-06-30 01:32 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/72653.shtml)
-- 2026-06-30 01:38 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/918401755809.shtml)
-- 2026-06-30 01:42 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/2382686918.shtml)
-- 2026-06-30 01:50 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/925153348710.shtml)
-- 2026-06-30 01:50 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/160302244315.shtml)
-- 2026-06-30 01:58 - [请回答王牌2019](http://www.blog.minike.top/Article/details/762868.shtml)
-- 2026-06-30 01:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/11689482316.shtml)
+- 2026-06-30 01:53 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/03799290669.shtml)
+- 2026-06-30 01:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/15583383358.shtml)
+- 2026-06-30 01:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/943300.shtml)
+- 2026-06-30 01:56 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/41928.shtml)
+- 2026-06-30 01:44 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/87355.shtml)
+- 2026-06-30 01:54 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/267620.shtml)
+- 2026-06-30 01:44 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/342826.shtml)
+- 2026-06-30 02:00 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/098895167.shtml)
+- 2026-06-30 02:03 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0684835.shtml)
+- 2026-06-30 01:41 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/783882710543.shtml)
+- 2026-06-30 01:38 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/3188591.shtml)
+- 2026-06-30 01:46 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/3844077985.shtml)
+- 2026-06-30 01:51 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/76041.shtml)
+- 2026-06-30 02:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/82669218897.shtml)
+- 2026-06-30 01:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/4896388.shtml)

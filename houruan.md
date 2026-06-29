@@ -1,60 +1,57 @@
-# （美加墨世界杯）阿根廷法国两连胜提前出线 梅西登顶历史射手榜
+# 中信建投期货：4月30日能化早报
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社达拉斯/费城6月22日电 当地时间22日，在美国进行的2026美加墨世界杯小组赛次轮比赛中，卫冕冠军阿根廷以2:0战胜欧洲球队奥地利，小组两连胜提前出线。球王梅西独中两元，以18球独占世界杯历史射手榜头名。J组的阿根廷队和奥地利队在首轮分别击败阿尔及利亚队与约旦队，同积3分，列小组前两位。阿根廷队名将梅西更是在首轮上演帽子戏法，和德国传奇射手克洛泽并列世界杯历史射手榜第一
+橡胶：再度冲高回落 周三，国产全乳胶17450/吨，环比上涨200元/吨；泰国20号混合胶16900元/吨，环比上日上涨250元/吨。 原料端：泰国胶水报收80.75泰铢/公斤，环比上日上涨0.5泰铢/公斤；泰国杯胶报收63.0 泰铢/公斤，环比上日上涨0.3泰铢/公斤；云南胶水报收16.2元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。 截至2026年4月
 
 ## 正文
 
-中新社达拉斯/费城6月22日电 当地时间22日，在美国进行的2026美加墨世界杯小组赛次轮比赛中，卫冕冠军阿根廷以2:0战胜欧洲球队奥地利，小组两连胜提前出线。
+橡胶：再度冲高回落 周三，国产全乳胶17450/吨，环比上涨200元/吨；泰国20号混合胶16900元/吨，环比上日上涨250元/吨。
 
-球王梅西独中两元，以18球独占世界杯历史射手榜头名。
+原料端：泰国胶水报收80.75泰铢/公斤，环比上日上涨0.5泰铢/公斤；泰国杯胶报收63.0 泰铢/公斤，环比上日上涨0.3泰铢/公斤；云南胶水报收16.2元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日持平。
 
-J组的阿根廷队和奥地利队在首轮分别击败阿尔及利亚队与约旦队，同积3分，列小组前两位。
+截至2026年4月26日，中国天然橡胶社会库存133.3万吨，环比下降0.1万吨，降幅0.1%。
 
-阿根廷队名将梅西更是在首轮上演帽子戏法，和德国传奇射手克洛泽并列世界杯历史射手榜第一。
+中国深色胶社会总库存为92万吨，增加0.2%。
 
-当日在美国达拉斯体育场进行的比赛中，梅西在上半场错失一次破门良机后，第38分钟阿根廷队球员法昆多·梅迪纳助攻梅西推射破门，梅西打进个人世界杯第17球，加冕世界杯历史射手王，带领队伍以1:0领先。
+其中青岛现货库存增1.1%；云南降1.4%；越南10降12%；NR库存小计降6%。
 
-下半场，梅西状态更加神勇。
+中国浅色胶社会总库存为41.3万吨，环比降0.6%。
 
-伤停补时阶段，梅西插入禁区第一脚射门被挡出，随后自己补射得手。
+其中老全乳胶环比降0.5%，3L环比降5.2%，RU库存小计增加1.2%。
 
-阿根廷以2:0完胜奥地利。
+观点：近期，泰国等全球天然橡胶主产区正逐步进入季节性的增产期，在经历了4月的高温少雨天气后，近期泰国等主产区降雨环比增加，而气温则未显著下降。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 01:34 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 01:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 01:37 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 01:53 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 01:43 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 01:35 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 01:57 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 01:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 01:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 01:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 01:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 01:39 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 01:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 01:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:48 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 01:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 01:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 01:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 02:01 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 02:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 01:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 01:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 02:03 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 02:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/23241235.shtml)
-- 2026-06-30 01:38 - [爱很美味](https://www.share.minike.top/Article/details/77314.shtml)
-- 2026-06-30 01:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/86750.shtml)
-- 2026-06-30 01:31 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/461134.shtml)
-- 2026-06-30 01:36 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/69872335070.shtml)
-- 2026-06-30 01:58 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/703728335.shtml)
-- 2026-06-30 01:59 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/950185341336.shtml)
-- 2026-06-30 01:40 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/7666207.shtml)
-- 2026-06-30 01:44 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/64864591.shtml)
-- 2026-06-30 01:47 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/38460205.shtml)
-- 2026-06-30 01:41 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/61098351.shtml)
-- 2026-06-30 01:34 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/87105824222.shtml)
-- 2026-06-30 01:37 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/6386227.shtml)
-- 2026-06-30 01:51 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/159878116678.shtml)
-- 2026-06-30 01:55 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/36672089463.shtml)
+- 2026-06-30 01:58 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/3660099275.shtml)
+- 2026-06-30 01:42 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/0425465.shtml)
+- 2026-06-30 01:41 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/601063008677.shtml)
+- 2026-06-30 01:47 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/7242548411.shtml)
+- 2026-06-30 01:55 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/045927.shtml)
+- 2026-06-30 02:02 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/314104720647.shtml)
+- 2026-06-30 01:40 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/700160.shtml)
+- 2026-06-30 01:51 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/3354281623.shtml)
+- 2026-06-30 02:04 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/232244202.shtml)
+- 2026-06-30 01:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/73141.shtml)
+- 2026-06-30 02:00 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/17339544164.shtml)
+- 2026-06-30 01:44 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/4997474722.shtml)
+- 2026-06-30 01:36 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/23194141.shtml)
+- 2026-06-30 02:00 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/120842741.shtml)
+- 2026-06-30 01:43 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/28847.shtml)

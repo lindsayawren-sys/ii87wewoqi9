@@ -1,52 +1,54 @@
-# 日经225指数首次突破72000点大关，得益于AI热潮
+# 探访具身机器人“岗前学校” 信息采集员“一对一”教学
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-日本股市周一首次突破72000点大关，因人工智能（AI）投资热情高涨，盖过美伊和平谈判的不确定性。 日经225指数早盘上涨1.4%，报72，247.21点，此前一度触及72，269.64点的盘中纪录高位。东证指数上涨1.1%，报4，089.59点。 日经周五报道，日本计划设定一个目标，到2040年在17个战略领域实现公共和民间投资总计约2.3万亿美元，作为首相高市早苗新增长战略
+发布时间：2026年04月28日 20:38 来源：中国新闻网 分拣蔬果、夹面包、抓饮料瓶、开关台灯、给杯子倒水……4月27日，位于福州软件园内由福建省具福科技有限公司建设的具身机器人大型数据采集工厂里，信息采集员正与具身机器人开展“一对一”训练。这所数据采集工厂是专为具身机器人开设的“岗前学校”。在训练中，机器人通过身上搭载的多组摄像头和传感器，精准捕捉手臂摆动、关节角度、夹
 
 ## 正文
 
-日本股市周一首次突破72000点大关，因人工智能（AI）投资热情高涨，盖过美伊和平谈判的不确定性。
+发布时间：2026年04月28日 20:38 来源：中国新闻网 分拣蔬果、夹面包、抓饮料瓶、开关台灯、给杯子倒水……4月27日，位于福州软件园内由福建省具福科技有限公司建设的具身机器人大型数据采集工厂里，信息采集员正与具身机器人开展“一对一”训练。
 
-日经225指数早盘上涨1.4%，报72，247.21点，此前一度触及72，269.64点的盘中纪录高位。
+这所数据采集工厂是专为具身机器人开设的“岗前学校”。
 
-东证指数上涨1.1%，报4，089.59点。
+在训练中，机器人通过身上搭载的多组摄像头和传感器，精准捕捉手臂摆动、关节角度、夹抓力度等每一个动作细节，并将数据实时汇入云端。
 
-日经周五报道，日本计划设定一个目标，到2040年在17个战略领域实现公共和民间投资总计约2.3万亿美元，作为首相高市早苗新增长战略的一部分。
+作为关键的“数字基建”，它通过“学科训练”和“岗前培训”，致力于打通从实验室炫技到落地千行百业的“最后一公里”。
 
-卡塔尔和巴基斯坦（美伊和平谈判的调解方）表示谈判在紧张开局后取得进展并将继续进行，随后股市延续涨势。
-
-责任编辑：于健 SF069
+(记者 张斌 制作 徐妙巧） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 01:52 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 01:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 01:32 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 01:55 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 01:53 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 01:59 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:33 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 01:32 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 01:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 01:49 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 01:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 01:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 02:02 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 01:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 01:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 02:05 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 01:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 01:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:53 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 01:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 02:02 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 01:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 01:45 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [美人鱼](https://www.blog.minike.top/Article/details/887201242.shtml)
-- 2026-06-30 01:47 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/150879.shtml)
-- 2026-06-30 01:51 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/116772666116.shtml)
-- 2026-06-30 01:53 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/35339.shtml)
-- 2026-06-30 01:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/351466365077.shtml)
-- 2026-06-30 01:50 - [房价什么时候能涨](http://www.share.minike.top/Article/details/355587811189.shtml)
-- 2026-06-30 01:42 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/057510.shtml)
-- 2026-06-30 01:34 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/7059680.shtml)
-- 2026-06-30 01:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0577374.shtml)
-- 2026-06-30 01:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/2597314117.shtml)
-- 2026-06-30 01:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/4072755189.shtml)
-- 2026-06-30 01:56 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/58711405.shtml)
-- 2026-06-30 01:36 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/01737371.shtml)
-- 2026-06-30 01:55 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/62624733244.shtml)
-- 2026-06-30 01:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/0512469453.shtml)
+- 2026-06-30 01:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/2659098361.shtml)
+- 2026-06-30 01:56 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/368498.shtml)
+- 2026-06-30 02:02 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/690867325.shtml)
+- 2026-06-30 01:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/0714047279.shtml)
+- 2026-06-30 02:04 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/07613618.shtml)
+- 2026-06-30 02:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/816920908.shtml)
+- 2026-06-30 01:49 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/338109.shtml)
+- 2026-06-30 02:04 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/281616661942.shtml)
+- 2026-06-30 01:59 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/39103.shtml)
+- 2026-06-30 01:53 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/3224444708.shtml)
+- 2026-06-30 01:36 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/8934149274.shtml)
+- 2026-06-30 01:59 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/734725206945.shtml)
+- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/6867865.shtml)
+- 2026-06-30 01:54 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/437225691413.shtml)
+- 2026-06-30 02:01 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/062974972581.shtml)

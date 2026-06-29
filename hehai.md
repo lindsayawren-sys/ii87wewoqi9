@@ -1,48 +1,60 @@
-# 劲仔食品：回购公司股份用于注销并减少注册资本
+# 假期闲钱往哪放？这个底仓品种吸金461亿
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月22日，劲仔食品发布公告称，公司于2026年6月22日召开2026年第二次临时股东会，本次会议由公司董事会召集，董事长周劲松主持，采用现场表决与网络投票相结合的方式召开，本次会议审议并逐项通过了《关于回购公司股份用于注销并减少注册资本》项下全部9个子议案，所有议案均为特别决议事项，已获得有效表决权股份总数的2/3以上通过。（文章来源：北京商报）
+3月以来，全球市场波动明显加剧。地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？ 刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。在市场波动加剧的背景下，短债基金依然保持了可观的
 
 ## 正文
 
-6月22日，劲仔食品发布公告称，公司于2026年6月22日召开2026年第二次临时股东会，本次会议由公司董事会召集，董事长周劲松主持，采用现场表决与网络投票相结合的方式召开，本次会议审议并逐项通过了《关于回购公司股份用于注销并减少注册资本》项下全部9个子议案，所有议案均为特别决议事项，已获得有效表决权股份总数的2/3以上通过。
+3月以来，全球市场波动明显加剧。
 
-（文章来源：北京商报）
+地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。
+
+面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？
+
+刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。
+
+据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。
+
+在市场波动加剧的背景下，短债基金依然保持了可观的资金流入，侧面印证了其作为资产配置底仓的独特价值——不投权益、主投高评级短期债券，波动可控，且假期票息收益不间断，恰好契合闲钱理财的核心诉求。
+
+眼下，五一小长假即将到来。
+
+需要留意的是，假期期间海外金融市场仍将正常交易，外围消息面存在不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 01:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 01:34 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 01:38 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 01:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 01:59 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 01:57 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 01:33 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 01:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 01:46 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 01:30 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 01:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 02:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 02:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 01:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 01:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 02:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 01:40 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 01:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 01:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 01:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 01:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 01:48 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 01:47 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 02:00 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/06468205424.shtml)
-- 2026-06-30 01:46 - [世界杯](https://www.share.minike.top/Article/details/3824442.shtml)
-- 2026-06-30 01:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/538540.shtml)
-- 2026-06-30 01:48 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/5471747.shtml)
-- 2026-06-30 01:37 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/692457.shtml)
-- 2026-06-30 01:52 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/31625301220.shtml)
-- 2026-06-30 01:47 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/501954219.shtml)
-- 2026-06-30 01:55 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/7247898.shtml)
-- 2026-06-30 01:58 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/38889255.shtml)
-- 2026-06-30 01:51 - [《贺子珍》](https://www.blog.minike.top/Article/details/193026722.shtml)
-- 2026-06-30 01:46 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/442713081.shtml)
-- 2026-06-30 01:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/6325393.shtml)
-- 2026-06-30 01:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/84952616.shtml)
-- 2026-06-30 01:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/94881919183.shtml)
-- 2026-06-30 01:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/606718652.shtml)
+- 2026-06-30 02:04 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/02554.shtml)
+- 2026-06-30 01:59 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/960754577.shtml)
+- 2026-06-30 01:54 - [月亮](http://www.share.minike.top/Article/details/73225335408.shtml)
+- 2026-06-30 01:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/3449563131.shtml)
+- 2026-06-30 01:45 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/58797.shtml)
+- 2026-06-30 01:55 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/477360110.shtml)
+- 2026-06-30 01:54 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/3037612.shtml)
+- 2026-06-30 01:42 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/36857993.shtml)
+- 2026-06-30 01:38 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/218054804.shtml)
+- 2026-06-30 01:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/80307392511.shtml)
+- 2026-06-30 01:54 - [一生一世](http://www.blog.minike.top/Article/details/336729574928.shtml)
+- 2026-06-30 01:45 - [扫黑风暴](http://www.blog.minike.top/Article/details/2634248653.shtml)
+- 2026-06-30 02:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/68561.shtml)
+- 2026-06-30 01:46 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/853502872.shtml)
+- 2026-06-30 02:04 - [日本进球](https://www.blog.kurohicncr.top/Article/details/612414145.shtml)

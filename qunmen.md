@@ -1,56 +1,58 @@
-# 端午假期湖北A级景区揽客逾494万人次
+# 云南迪庆纳帕海国际重要湿地新增3种鸟类新记录
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月21日电 (记者 梁婷)记者21日从湖北省文旅厅获悉，端午假期，湖北短途周边游、城市微度假、亲子家庭游、民俗文化体验游成主流，武汉市位列全国端午热门出行目的地第一梯队。截至6月21日，该省A级旅游景区共接待游客494.04万人次，同比增长7.13%。 湖北聚焦屈原文化、楚文化、水乡龙舟等本土文化资源，开展端午主题民俗展演、国风游园、非遗市集、龙舟赛事等各类活动10
+中新网迪庆4月28日电 (赵旭燕)西南林业大学研究生汪山贵近日在迪庆藏族自治州纳帕海国际重要湿地开展鸟类监测工作时，拍摄到3种疑似纳帕海鸟类新记录的照片。28日，经西南林业大学副教授刘强鉴定并查阅相关资料，确认照片中的鸟类分别是长尾雀、灰腹绣眼鸟、暗绿绣眼鸟，3种均为纳帕海鸟类新记录。 长尾雀，是雀形目燕雀科朱雀属的鸟类。体长16–18厘米，是尾羽极长的中型雀类。繁殖期雄鸟头、
 
 ## 正文
 
-中新网武汉6月21日电 (记者 梁婷)记者21日从湖北省文旅厅获悉，端午假期，湖北短途周边游、城市微度假、亲子家庭游、民俗文化体验游成主流，武汉市位列全国端午热门出行目的地第一梯队。
+中新网迪庆4月28日电 (赵旭燕)西南林业大学研究生汪山贵近日在迪庆藏族自治州纳帕海国际重要湿地开展鸟类监测工作时，拍摄到3种疑似纳帕海鸟类新记录的照片。
 
-截至6月21日，该省A级旅游景区共接待游客494.04万人次，同比增长7.13%。
+28日，经西南林业大学副教授刘强鉴定并查阅相关资料，确认照片中的鸟类分别是长尾雀、灰腹绣眼鸟、暗绿绣眼鸟，3种均为纳帕海鸟类新记录。
 
-湖北聚焦屈原文化、楚文化、水乡龙舟等本土文化资源，开展端午主题民俗展演、国风游园、非遗市集、龙舟赛事等各类活动1000余场。
+长尾雀，是雀形目燕雀科朱雀属的鸟类。
 
-其中，宜昌作为屈原文化核心承载地，举办2026屈原故里端午文化节，推出屈原端午诗会、两岸同胞屈原文化交流、国际青年文明讲堂等系列活动；荆州古城“端午奇妙夜”打造水陆空三维视听盛宴，无人机光影、楚宫乐舞联动重现千年楚人竞渡盛景。
+体长16–18厘米，是尾羽极长的中型雀类。
 
-湖北以端午民俗文化为核心，推动文旅产业与商业、赛事、演艺深度融合。
+繁殖期雄鸟头、胸及腰呈玫瑰红至粉绯色，具黑褐色纵纹；雌鸟与幼鸟羽色较暗，以灰褐为基调。
 
-国家级中国龙舟公开赛落地荆州、仙桃，省级龙舟大赛在红安全面开赛，宜昌、咸宁、汉川、秭归等多地同步开展特色龙舟主题活动。
+食性以植物种子、浆果及少量昆虫为主。
 
-宜昌举办长江三峡大学生龙舟公开赛，复原峡江传统“抢红夺标赛”；天门龙舟公开赛完整复刻祭江祈福、龙头点睛等传统古礼。
+分布于西伯利亚至中国东北、华北、朝鲜半岛及日本，冬季多迁往低地。
 
-此外，襄阳唐城《大唐倚梦》、神农架《秘境神农架》、宜都《三峡千古情》等夜间实景演艺持续引流聚客。
+灰腹绣眼鸟，是雀形目绣眼鸟科绣眼鸟属的鸟类。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 01:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 01:46 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 01:54 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 01:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 01:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 01:54 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 01:56 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 01:58 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 01:34 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 01:49 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 01:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 01:42 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 02:01 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 01:54 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 01:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 02:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 01:36 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 01:56 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 01:54 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 01:43 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/23027601135.shtml)
-- 2026-06-30 01:34 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/828531434.shtml)
-- 2026-06-30 01:39 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/726109.shtml)
-- 2026-06-30 01:43 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/784853790.shtml)
-- 2026-06-30 01:35 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/13935827.shtml)
-- 2026-06-30 01:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/42901159666.shtml)
-- 2026-06-30 01:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6757384798.shtml)
-- 2026-06-30 01:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/8589198960.shtml)
-- 2026-06-30 01:40 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/801429.shtml)
-- 2026-06-30 01:56 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/08662744.shtml)
-- 2026-06-30 01:37 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/55847436993.shtml)
-- 2026-06-30 01:51 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/17861704.shtml)
-- 2026-06-30 01:50 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/78566884.shtml)
-- 2026-06-30 01:43 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/52925839.shtml)
-- 2026-06-30 01:49 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/33250286.shtml)
+- 2026-06-30 01:42 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/030839394.shtml)
+- 2026-06-30 01:41 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/77012.shtml)
+- 2026-06-30 02:02 - [《贺子珍》](http://www.blog.minike.top/Article/details/82093746.shtml)
+- 2026-06-30 01:45 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/014760819321.shtml)
+- 2026-06-30 01:44 - [日本进球](https://www.blog.minike.top/Article/details/6606685818.shtml)
+- 2026-06-30 01:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/80614456.shtml)
+- 2026-06-30 01:54 - [月亮](http://www.share.minike.top/Article/details/8165605711.shtml)
+- 2026-06-30 01:54 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/5606994.shtml)
+- 2026-06-30 01:45 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/50337.shtml)
+- 2026-06-30 01:44 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/05399.shtml)
+- 2026-06-30 01:46 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/158614374699.shtml)
+- 2026-06-30 01:47 - [田曦薇没招了](http://www.blog.minike.top/Article/details/29192705.shtml)
+- 2026-06-30 01:36 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/7072100817.shtml)
+- 2026-06-30 02:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/3170750.shtml)
+- 2026-06-30 01:53 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/673081108.shtml)

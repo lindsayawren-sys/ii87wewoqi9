@@ -1,60 +1,56 @@
-# 两岸媒体人走进重庆摩托车主题文创园 感受“摩托之都”魅力
+# 第四届全国插画扶持计划优秀作品展在广州启幕
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-佛得角队的世界杯奇迹，为什么打动人心？观影总场次创历史新高，暑期档的“好戏”才刚刚开场美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“
+中新网广州4月29日电 (记者 郭军)“四时有梦”——第四届全国插画扶持计划(CIAC)优秀作品展开幕式暨颁奖典礼29日在广州人民艺术中心举行。来自内地及港澳地区的知名艺术家与获奖作者、插画爱好者等200余人出席。 据悉，CIAC由广州市文学艺术界联合会与广州市动漫艺术家协会共同主办，旨在挖掘和推广具有中国气韵和时代风貌的华人原创插画师。第四届CIAC大赛延续设立“无限定主题”
 
 ## 正文
 
-佛得角队的世界杯奇迹，为什么打动人心？
+中新网广州4月29日电 (记者 郭军)“四时有梦”——第四届全国插画扶持计划(CIAC)优秀作品展开幕式暨颁奖典礼29日在广州人民艺术中心举行。
 
-观影总场次创历史新高，暑期档的“好戏”才刚刚开场美甲店免费为老人做“摘豆角美甲” 收获网友点赞“小城游”火爆背后：优质文旅供给成为消费“催化剂”端午食粽习俗为何成为具有广泛影响力的文化现象？
+来自内地及港澳地区的知名艺术家与获奖作者、插画爱好者等200余人出席。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+据悉，CIAC由广州市文学艺术界联合会与广州市动漫艺术家协会共同主办，旨在挖掘和推广具有中国气韵和时代风貌的华人原创插画师。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+第四届CIAC大赛延续设立“无限定主题”主赛道、“读懂广州”专题赛道及“动态插画”赛道，征集到来自海内外近万份投稿。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
+组委会经过多轮评审后，遴选出146组获奖作品，与10余位海内外一线插画名家，以及30余位往届大奖作者作品同台展出。
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+本次展览以“春”“夏”“秋”“冬”四个篇章串联，呈现中国插画艺术的萌发、盛放、丰藏与沉淀，展陈面积近1000平方米。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+据了解，第四届CIAC大赛金奖花落“95后”国风画师阿押AYACY《五侠女》。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+该作品充满东方韵味的笔墨与现代造型色彩相结合，刻画出五位侠女的跌宕人生与精神力量。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 01:53 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 01:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 01:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 01:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 01:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 01:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 01:54 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 01:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 01:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 01:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 01:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 01:57 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 01:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 01:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 01:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 01:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 01:50 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 01:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 01:56 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 01:49 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/239410776246.shtml)
-- 2026-06-30 01:59 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/7128481.shtml)
-- 2026-06-30 01:49 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/89222.shtml)
-- 2026-06-30 01:55 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/0121895.shtml)
-- 2026-06-30 01:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/31338076241.shtml)
-- 2026-06-30 01:57 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/217710484220.shtml)
-- 2026-06-30 01:56 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/9612832351.shtml)
-- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/7397818103.shtml)
-- 2026-06-30 01:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7231324939.shtml)
-- 2026-06-30 01:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/5667551.shtml)
-- 2026-06-30 01:47 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/3741013.shtml)
-- 2026-06-30 01:52 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/03400273223.shtml)
-- 2026-06-30 01:58 - [美股](http://www.share.minike.top/Article/details/77644613.shtml)
-- 2026-06-30 01:40 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/74739109.shtml)
-- 2026-06-30 01:35 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/05609182.shtml)
+- 2026-06-30 01:39 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/45458428211.shtml)
+- 2026-06-30 01:42 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/6133659302.shtml)
+- 2026-06-30 01:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/12816594.shtml)
+- 2026-06-30 01:57 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/725554.shtml)
+- 2026-06-30 01:59 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/0146764539.shtml)
+- 2026-06-30 02:03 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/41091.shtml)
+- 2026-06-30 01:42 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/04243.shtml)
+- 2026-06-30 01:38 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/5687413790.shtml)
+- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/08737821.shtml)
+- 2026-06-30 01:47 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/5488762.shtml)
+- 2026-06-30 01:57 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/7580259177.shtml)
+- 2026-06-30 02:02 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/3745522.shtml)
+- 2026-06-30 01:55 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/72125.shtml)
+- 2026-06-30 02:00 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/972759.shtml)
+- 2026-06-30 01:42 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/1115817.shtml)

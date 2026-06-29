@@ -1,53 +1,57 @@
-# 台湾大学教授苑举正：大足石刻是伦理的极致表现
+# 受贿4643万余元 国家药监局原副局长陈时飞一审获刑14年
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 14:41 来源：中国新闻网 6月23日，来自海峡两岸的专家学者、媒体记者参访世界文化遗产大足石刻。 台湾资深媒体人、台湾大学哲学系教授苑举正此前参观大足石刻后表示，大足石刻呈现出“慈、善、孝、义、廉”五个字的精华，是一个伦理的极致表现。 世界文化遗产“大足石刻”是集儒、释、道三教造像于一体的大型石窟造像群，是中国晚期石窟艺术的代表，始建于初唐
+2026年4月29日，上海市第二中级人民法院一审公开宣判国家药品监督管理局原党组成员、副局长陈时飞受贿案，对被告人陈时飞以受贿罪判处有期徒刑十四年，并处罚金人民币四百万元；扣押在案的受贿所得财物及其孳息，依法上缴国库。 经审理查明：2003年至2024年，被告人陈时飞利用担任浙江省药品监督管理局副局长，浙江省食品药品监督管理局副局长、局长，国家药品监督管理局副局长等职务上的便利
 
 ## 正文
 
-发布时间：2026年06月23日 14:41 来源：中国新闻网 6月23日，来自海峡两岸的专家学者、媒体记者参访世界文化遗产大足石刻。
+2026年4月29日，上海市第二中级人民法院一审公开宣判国家药品监督管理局原党组成员、副局长陈时飞受贿案，对被告人陈时飞以受贿罪判处有期徒刑十四年，并处罚金人民币四百万元；扣押在案的受贿所得财物及其孳息，依法上缴国库。
 
-台湾资深媒体人、台湾大学哲学系教授苑举正此前参观大足石刻后表示，大足石刻呈现出“慈、善、孝、义、廉”五个字的精华，是一个伦理的极致表现。
+经审理查明：2003年至2024年，被告人陈时飞利用担任浙江省药品监督管理局副局长，浙江省食品药品监督管理局副局长、局长，国家药品监督管理局副局长等职务上的便利，为他人在办理许可等事项上提供帮助，直接或通过其亲属非法收受财物共计折合人民币4643万余元。
 
-世界文化遗产“大足石刻”是集儒、释、道三教造像于一体的大型石窟造像群，是中国晚期石窟艺术的代表，始建于初唐，至两宋达到鼎盛，‌ 5万余尊石窟造像代表了公元9世纪至13世纪世界石窟艺术的最高水平，被誉为“世界石窟艺术史上最后的丰碑”。
+上海市第二中级人民法院认为，被告人陈时飞的行为构成受贿罪，受贿数额特别巨大，应依法惩处。
 
-大足石刻具有鲜明的民族化、世俗化、生活化等诸多特色。
+鉴于其到案后如实供述罪行，认罪悔罪，积极退赃，受贿所得财物及其孳息已全部追缴到案，具有法定、酌定从轻处罚情节，依法可对其从轻处罚。
 
-(记者 肖江川） 责任编辑：【罗攀】
+法庭遂作出上述判决。
+
+据悉，上海市第二中级人民法院于2026年1月28日公开开庭审理了该案。
+
+庭审中，检察机关出示了相关证据，被告人陈时飞及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，陈时飞进行了最后陈述，并当庭表示认罪悔罪。
+
+人大代表、政协委员和各界群众20余人旁听了庭审。
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 01:58 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 01:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 01:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 01:43 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 01:58 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 01:42 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 01:53 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 01:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 01:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 01:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 01:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 02:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 01:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 01:50 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 01:39 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 01:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 01:40 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 01:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 02:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 01:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 01:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 01:46 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/1756178396.shtml)
-- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/9702908.shtml)
-- 2026-06-30 01:31 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/7007680.shtml)
-- 2026-06-30 01:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/3809136446.shtml)
-- 2026-06-30 01:57 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/41374498521.shtml)
-- 2026-06-30 01:36 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/214461686.shtml)
-- 2026-06-30 01:41 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/95244320391.shtml)
-- 2026-06-30 01:34 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/993643.shtml)
-- 2026-06-30 02:00 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/48008.shtml)
-- 2026-06-30 01:59 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/75615778.shtml)
-- 2026-06-30 01:53 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/370983499.shtml)
-- 2026-06-30 01:53 - [锐评T1零封KC](http://www.share.minike.top/Article/details/1562078.shtml)
-- 2026-06-30 01:34 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/62054703.shtml)
-- 2026-06-30 01:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/970186.shtml)
-- 2026-06-30 01:37 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/516788.shtml)
+- 2026-06-30 01:45 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/278660.shtml)
+- 2026-06-30 01:39 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/1778161.shtml)
+- 2026-06-30 02:00 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/226520.shtml)
+- 2026-06-30 01:45 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/9237546941.shtml)
+- 2026-06-30 01:56 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/20156.shtml)
+- 2026-06-30 01:51 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/0940725.shtml)
+- 2026-06-30 01:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/7791081774.shtml)
+- 2026-06-30 01:36 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/701721.shtml)
+- 2026-06-30 02:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/105071.shtml)
+- 2026-06-30 01:39 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/910042.shtml)
+- 2026-06-30 01:51 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/268671911932.shtml)
+- 2026-06-30 01:45 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/5879892.shtml)
+- 2026-06-30 01:39 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/61896.shtml)
+- 2026-06-30 02:01 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/47568813.shtml)
+- 2026-06-30 01:44 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/456998.shtml)

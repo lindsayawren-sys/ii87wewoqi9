@@ -1,56 +1,55 @@
-# 创新药再受挫，华宝基金港股通创新药ETF（520880）历史新低！龙头密集回购增持，底部价值信号已现？
+# 截至去年底，我国已出台网络领域立法180余部
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月22日，AH创新药再受挫，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）双双创下历史新低。 A股制药板块低开低走，场内唯一表征制药板块的药ETF华宝（562050）盘中跌逾3%，成份股普跌，博瑞医药（维权）20CM跌停。 港股通创新药单边下行，100%创新药研发标的——港股通创新药ETF华宝（520880）盘中亦跌超3%，50
+中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。会上，中央宣传部文明培育局局长赵树杰表示，网络给人们的精神世界带来历史性变革，我们在享受到信息技术革命带来“红利”的同时，也面临一些不文明、不守法行为的困扰。精神文明建设工作要面向互联网这个主战场最前沿，坚持重在建设、扬善抑恶，培育积极向上的文明风尚。 赵树杰提到，要以法治精神推动网络生态治理
 
 ## 正文
 
-6月22日，AH创新药再受挫，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）双双创下历史新低。
+中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。
 
-A股制药板块低开低走，场内唯一表征制药板块的药ETF华宝（562050）盘中跌逾3%，成份股普跌，博瑞医药（维权）20CM跌停。
+会上，中央宣传部文明培育局局长赵树杰表示，网络给人们的精神世界带来历史性变革，我们在享受到信息技术革命带来“红利”的同时，也面临一些不文明、不守法行为的困扰。
 
-港股通创新药单边下行，100%创新药研发标的——港股通创新药ETF华宝（520880）盘中亦跌超3%，50只成份股尽墨，权重股康方生物挫近8%创近一年新低。
+精神文明建设工作要面向互联网这个主战场最前沿，坚持重在建设、扬善抑恶，培育积极向上的文明风尚。
 
-值得关注的是，二季度以来，A股与H股医药板块迎来回购增持浪潮。
+赵树杰提到，要以法治精神推动网络生态治理。
 
-4月1日至6月18日，A股和H股数十家医药上市公司发布增持公告，部分药企公告回购次数高达40余次，累计回购金额与股数持续放大；产业资本正以真金白银向市场传递明确信号：当前价位已具备显著投资价值。
+据统计，截至去年底，我国已出台网络领域立法180余部，要把网络生态治理的要求纳入精神文明创建指标体系，依托新时代文明实践中心(所、站)宣传普及网络法律知识，推动依法打击网络谣言、网络暴力、“饭圈”乱象等行为。
 
-创新药龙头企业是本轮回购潮的核心力量：中国生物制药公告未来12个月以不超过20亿港元回购，直言“公司价值被严重低估”；康方生物在公布重磅临床数据后迅速推出2亿港元回购方案，管理层更拟以5000万港元自有资金增持，明确表示“股份现行交易价格未能反映内在价值”。
+围绕落实《未成年人保护法》等法律法规，帮助未成年人正确认识和使用网络、提升数字素养，发挥网络育人作用。
 
-历史经验表明，当公司自身成为最坚定的多头，当回购公告从“偶发”变为“频发”，板块底部区域的特征便愈发清晰。
-
-逢低吸纳创新药核心资产，关注两大投资利器： 投纯正创新药，认准港股通创新药ETF华宝（520880），100%布局创新药研发类公司，前十大权重股占比超七成，龙头属性突出，底层资产是港股，高弹性、T+0。
+相信通过深入普法、严格执法，必定能够推动形成讲规矩守秩序的网络环境。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 01:45 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 01:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 01:36 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 01:45 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 01:38 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 01:36 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 01:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 01:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 01:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 01:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 01:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 02:01 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 01:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 01:41 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 01:37 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 02:02 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 01:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 01:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 01:53 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 01:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/7666512.shtml)
-- 2026-06-30 01:48 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/9909429.shtml)
-- 2026-06-30 01:41 - [金刚川](https://www.share.minike.top/Article/details/122853.shtml)
-- 2026-06-30 01:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/14066215.shtml)
-- 2026-06-30 01:50 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/610672937115.shtml)
-- 2026-06-30 01:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/60034.shtml)
-- 2026-06-30 01:55 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/2665237791.shtml)
-- 2026-06-30 01:36 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/07606346884.shtml)
-- 2026-06-30 01:43 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/781627161.shtml)
-- 2026-06-30 01:48 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/6158524729.shtml)
-- 2026-06-30 01:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/5318935.shtml)
-- 2026-06-30 01:49 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/601520.shtml)
-- 2026-06-30 01:53 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/283672.shtml)
-- 2026-06-30 01:40 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/44234059744.shtml)
-- 2026-06-30 01:49 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/9159968.shtml)
+- 2026-06-30 02:00 - [天道](http://www.share.minike.top/Article/details/449302.shtml)
+- 2026-06-30 01:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/22918317179.shtml)
+- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/39241853.shtml)
+- 2026-06-30 01:45 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/6172286.shtml)
+- 2026-06-30 01:36 - [第一炉香](https://www.blog.minike.top/Article/details/75065.shtml)
+- 2026-06-30 01:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/848185.shtml)
+- 2026-06-30 01:36 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/5823201489.shtml)
+- 2026-06-30 01:43 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/22545.shtml)
+- 2026-06-30 01:51 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/464981.shtml)
+- 2026-06-30 01:43 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/8273309178.shtml)
+- 2026-06-30 02:03 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/8297967980.shtml)
+- 2026-06-30 01:54 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/468288.shtml)
+- 2026-06-30 01:37 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/37983761.shtml)
+- 2026-06-30 01:42 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/77844.shtml)
+- 2026-06-30 01:38 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/915118433573.shtml)

@@ -1,58 +1,56 @@
-# 从“临时救场”到“古城名片”：太原古县城“卖货郎”用真诚传递快乐
+# True Anomaly融资6.5亿美元，为特朗普“金穹”项目研发太空拦截器
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网太原6月22日电 题：从“临时救场”到“古城名片”：太原古县城“卖货郎”用真诚传递快乐 中新网记者 杨静 “简单的一个微笑，也能换来别人的好情绪，这是我最大的收获。”杨翔说。 刚过去的端午假期，他还是那个最受游客欢迎的太原古县城“卖货郎”——头戴虎头帽、身着红绸青衣、鼻头点着红白油彩，挑着沉甸甸的货担，穿行在青石板街上，没有一句台词，全凭即兴表情与肢体动作，却引得游客层层
+要点： 总部位于科罗拉多州、为特朗普政府宏大的 “金穹”天基导弹防御系统研发太空拦截器的初创公司 True Anomaly 于周二宣布，已完成6.5 亿美元 融资。 这家成立四年的公司目前估值22 亿美元，累计融资总额达10 亿美元。True Anomaly 计划将这笔资金用于业务扩张，并在今年年底前将员工人数从目前水平增加近一倍至 500 人。 “太空已成为作战领域，我们的对
 
 ## 正文
 
-中新网太原6月22日电 题：从“临时救场”到“古城名片”：太原古县城“卖货郎”用真诚传递快乐 中新网记者 杨静 “简单的一个微笑，也能换来别人的好情绪，这是我最大的收获。
+要点： 总部位于科罗拉多州、为特朗普政府宏大的 “金穹”天基导弹防御系统研发太空拦截器的初创公司 True Anomaly 于周二宣布，已完成6.5 亿美元 融资。
 
-”杨翔说。
+这家成立四年的公司目前估值22 亿美元，累计融资总额达10 亿美元。
 
-刚过去的端午假期，他还是那个最受游客欢迎的太原古县城“卖货郎”——头戴虎头帽、身着红绸青衣、鼻头点着红白油彩，挑着沉甸甸的货担，穿行在青石板街上，没有一句台词，全凭即兴表情与肢体动作，却引得游客层层围拢，笑声不断。
+True Anomaly 计划将这笔资金用于业务扩张，并在今年年底前将员工人数从目前水平增加近一倍至 500 人。
 
-杨翔在演艺行业闯荡了20余年。
+“太空已成为作战领域，我们的对手正以前所未有的规模构建太空作战能力，” 公司首席执行官埃文・罗杰斯（Even Rogers）向 CNBC 表示。
 
-他学过民族舞，跑过舞蹈队，学习杂技、魔术、变脸、喷火等技艺，练就了一身即兴表演的本领。
+全球太空竞赛正持续升温，投资者对埃隆・马斯克旗下 SpaceX 期待已久的上市热情高涨，私人太空企业因此受益。
 
-今年大年初一，杨翔接到师父电话，邀他来太原古县城演出。
+初创公司 Vast 与 Sierra Space 近期均完成了5 亿美元及以上的融资。
 
-“当时演员不够，师父说你再饰演一下卖货郎，就一直演到现在。
+与此同时，美国政府通过 “阿尔忒弥斯”（Artemis）计划，近半个世纪来首次将宇航员送回月球，并持续投资太空安全领域。
 
-”偶然接下这个角色，没想到短短几个月便走红网络，杨翔成了许多游客专程前来“打卡”的古城名片。
+地缘政治紧张局势下，国防装备需求激增，为太空企业创造巨大机遇，尤其是那些可近距离追踪并拦截导弹的卫星及装备制造商。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 01:55 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 01:34 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 01:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:49 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 01:46 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 01:42 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 01:48 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 01:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 01:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 01:42 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 01:44 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 01:55 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:05 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 01:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 01:53 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 01:39 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:01 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 01:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 02:00 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 01:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 01:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/274627123.shtml)
-- 2026-06-30 01:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/31103.shtml)
-- 2026-06-30 01:38 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/914049.shtml)
-- 2026-06-30 01:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/91126129.shtml)
-- 2026-06-30 01:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/97261693491.shtml)
-- 2026-06-30 01:44 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/621198761.shtml)
-- 2026-06-30 01:51 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/229780.shtml)
-- 2026-06-30 01:34 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/01022326.shtml)
-- 2026-06-30 01:57 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/815663227.shtml)
-- 2026-06-30 01:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/165284780.shtml)
-- 2026-06-30 01:41 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/267628340175.shtml)
-- 2026-06-30 01:53 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/538442.shtml)
-- 2026-06-30 01:57 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/942036583.shtml)
-- 2026-06-30 01:32 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/270707216047.shtml)
-- 2026-06-30 01:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/896721980998.shtml)
+- 2026-06-30 01:59 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/55591006618.shtml)
+- 2026-06-30 01:47 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/051888.shtml)
+- 2026-06-30 01:51 - [美股](https://www.share.kurohicncr.top/Article/details/331570.shtml)
+- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/2784194.shtml)
+- 2026-06-30 01:56 - [日本16强魔咒](https://www.blog.minike.top/Article/details/675833679.shtml)
+- 2026-06-30 01:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/68428566.shtml)
+- 2026-06-30 01:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/450552024870.shtml)
+- 2026-06-30 01:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/429973.shtml)
+- 2026-06-30 01:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/491496807646.shtml)
+- 2026-06-30 01:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/2856382.shtml)
+- 2026-06-30 01:36 - [千香](https://www.share.minike.top/Article/details/4620925920.shtml)
+- 2026-06-30 01:58 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/66482.shtml)
+- 2026-06-30 01:44 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/45463000.shtml)
+- 2026-06-30 01:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/666136.shtml)
+- 2026-06-30 02:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/6706418892.shtml)

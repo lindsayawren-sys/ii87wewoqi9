@@ -1,58 +1,48 @@
-# 中国银联董俊峰：AI智能体时代亟需构建跨境信任共识
+# 可口可乐表现优异 上调全年业绩预期
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。中国银联董事长董俊峰表示，APEC区域覆盖了全球接近40%的人口、50%的贸易量和接近60%的GDP，在全球贸易互联互通中扮演着不可替代的角色。 董俊峰从三个维度分享了银联的观察与判断。 从行业态势来看，董俊峰表示，在APEC这
+可口可乐公司公布的第一季度每股收益和营收均高于预期，将全年每股收益增长上调至8%至9%，并报告全球单箱销量增长3%。责任编辑：张俊 SF065
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+可口可乐公司公布的第一季度每股收益和营收均高于预期，将全年每股收益增长上调至8%至9%，并报告全球单箱销量增长3%。
 
-中国银联董事长董俊峰表示，APEC区域覆盖了全球接近40%的人口、50%的贸易量和接近60%的GDP，在全球贸易互联互通中扮演着不可替代的角色。
-
-董俊峰从三个维度分享了银联的观察与判断。
-
-从行业态势来看，董俊峰表示，在APEC这样的区域市场里，数字钱包越来越成为非常重要的支付工具。
-
-他指出，从数据看，过去几年数字钱包的支付交易大概占到整个零售支付份额的60%以上，这样的渗透率在全球其他地区来说是非常高的。
-
-董俊峰提到，很多银行，包括非银行金融机构，也包括一些金融科技公司和一些平台企业，都做了自己的数字钱包，有卡基的数字钱包，有账基的数字钱包，还有一些基于智能体的数字钱包。
-
-他认为，数字化的趋势大大改善了整个区域支付的普惠性，覆盖了很多以前没有银行账户的客户。
-
-基于数字钱包渗透率的提升，董俊峰指出，跨境支付中的二维码支付网络或者数字钱包支付的标准互联互通需求不断在提升，但不同国家的二维码标准是不一样的。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 01:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 01:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 01:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 01:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 01:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:52 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 01:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 01:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 01:53 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 01:32 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 01:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 01:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 01:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 01:57 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 01:57 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 02:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 02:00 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 02:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 01:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 01:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 01:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 01:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 01:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 01:46 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 01:57 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/71406764754.shtml)
-- 2026-06-30 01:41 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/7026167.shtml)
-- 2026-06-30 01:38 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/6318801281.shtml)
-- 2026-06-30 01:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/0537944.shtml)
-- 2026-06-30 01:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/079679.shtml)
-- 2026-06-30 01:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/75208.shtml)
-- 2026-06-30 01:39 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/560656.shtml)
-- 2026-06-30 01:59 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/63877.shtml)
-- 2026-06-30 01:52 - [斗破苍穹](https://www.share.minike.top/Article/details/564741767980.shtml)
-- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/9773921.shtml)
-- 2026-06-30 01:53 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/506607848.shtml)
-- 2026-06-30 01:42 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/0538791.shtml)
-- 2026-06-30 01:56 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/4868745001.shtml)
-- 2026-06-30 01:54 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/94744946.shtml)
-- 2026-06-30 01:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/872244599384.shtml)
+- 2026-06-30 01:39 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/29282794.shtml)
+- 2026-06-30 01:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7917480921.shtml)
+- 2026-06-30 01:39 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/6490477340.shtml)
+- 2026-06-30 02:02 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/681742.shtml)
+- 2026-06-30 01:54 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/913193.shtml)
+- 2026-06-30 01:41 - [恋与深空回应争议](http://www.share.minike.top/Article/details/3983668.shtml)
+- 2026-06-30 01:56 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/0121494.shtml)
+- 2026-06-30 01:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/91595862.shtml)
+- 2026-06-30 01:54 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/33739.shtml)
+- 2026-06-30 02:04 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/7214938757.shtml)
+- 2026-06-30 01:38 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/877892030025.shtml)
+- 2026-06-30 01:43 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/04730751057.shtml)
+- 2026-06-30 01:49 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/77611635.shtml)
+- 2026-06-30 01:51 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/216369588.shtml)
+- 2026-06-30 01:41 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/3592361.shtml)

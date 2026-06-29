@@ -1,61 +1,49 @@
-# MLCC涨价潮调查：部分型号价格数倍跳涨，有商户捂货惜售，背后是AI需求引爆还是渠道炒作？
+# 网信部门依法查处“剪映”App等生成合成内容标识违法问题网站平台
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。 2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格
+中新网4月28日电 据“网信中国”微信公众号消息，近期网信部门工作中发现，“剪映”“猫箱”App及“即梦AI”网站存在未有效落实人工智能生成合成内容标识规定要求等问题，违反《网络安全法》《生成式人工智能服务管理暂行办法》《人工智能生成合成内容标识办法》等法律规定。国家互联网信息办公室指导属地互联网信息办公室，依法对上述网站平台采取约谈、责令改正、警告、从严处理责任人等处置处罚措
 
 ## 正文
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 每经记者|陈鹏丽 王晶 朱成祥 每经编辑|许绍航 一场围绕“电子工业大米”MLCC（多层陶瓷电容器）的超级周期，似乎才刚刚拉开序幕。
+中新网4月28日电 据“网信中国”微信公众号消息，近期网信部门工作中发现，“剪映”“猫箱”App及“即梦AI”网站存在未有效落实人工智能生成合成内容标识规定要求等问题，违反《网络安全法》《生成式人工智能服务管理暂行办法》《人工智能生成合成内容标识办法》等法律规定。
 
-2026年5月以来，一种名为MLCC的基础电子元件，彻底摆脱了过去几年不温不火的行情，成为市场追捧的焦点。
+国家互联网信息办公室指导属地互联网信息办公室，依法对上述网站平台采取约谈、责令改正、警告、从严处理责任人等处置处罚措施。
 
-从二级市场到线下卖场，这股热潮在深圳华强北、上海赛格电子市场里得到了最直观的体现：一些高规格型号的MLCC，价格相比年初已经翻了三至五倍，商户直言MLCC现在“一天一个价”，甚至还有商户向记者“诉苦”称，敲定订单后，“时隔两小时去拿货却涨价五成”。
+国家互联网信息办公室相关负责人表示，网站平台要严守法律底线红线，严格落实人工智能生成合成内容标识相关规定要求。
 
-“很多客户担心后面涨，都在询价‧‧‧‧‧‧（上游）有些人手上有（货），他也告诉你没有。
-
-”一位深圳的电容贸易商向记者描述着市场的微妙心态。
-
-在这场涨价风波中，有人看好后市，宁愿压在手里也不出货；也有从其他行业跨界而来的资金入场囤货，试图分一杯羹。
-
-这场席卷市场的涨价潮，究竟是AI算力需求井喷点燃的“真火”，还是渠道炒作拱起来的“虚火”？
-
-记者通过走访市场、采访产业链上下游的多位人士，试图还原此轮MLCC行情背后的真相。
+网信部门将深入推进依法管网治网，持续加大人工智能生成合成内容标识监督管理力度，切实维护社会公共利益，推动人工智能健康有序发展。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 01:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 01:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 01:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 01:30 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 01:33 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 01:34 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 01:44 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 01:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 01:35 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 01:45 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 01:35 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 01:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 01:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 01:43 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 01:59 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:05 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 01:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 01:52 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 01:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 01:56 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 01:37 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 01:46 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:56 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 01:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/9901592.shtml)
-- 2026-06-30 01:40 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/7564941144.shtml)
-- 2026-06-30 01:52 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/57224306642.shtml)
-- 2026-06-30 01:51 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/474259981898.shtml)
-- 2026-06-30 01:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/5386424.shtml)
-- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/09225.shtml)
-- 2026-06-30 01:36 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/348594675002.shtml)
-- 2026-06-30 01:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/5105302.shtml)
-- 2026-06-30 01:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/511015029.shtml)
-- 2026-06-30 01:48 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3323551061.shtml)
-- 2026-06-30 01:49 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/5564800216.shtml)
-- 2026-06-30 01:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/93515.shtml)
-- 2026-06-30 01:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/02729945287.shtml)
-- 2026-06-30 01:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/74528.shtml)
-- 2026-06-30 01:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/996951218.shtml)
+- 2026-06-30 01:49 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/37747.shtml)
+- 2026-06-30 01:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/48745945596.shtml)
+- 2026-06-30 01:43 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/414534.shtml)
+- 2026-06-30 01:44 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/048252863.shtml)
+- 2026-06-30 01:45 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4441374.shtml)
+- 2026-06-30 01:48 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/0493726.shtml)
+- 2026-06-30 01:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/1290999795.shtml)
+- 2026-06-30 01:58 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/30269532838.shtml)
+- 2026-06-30 02:02 - [起风了](http://www.share.kurohicncr.top/Article/details/530487449957.shtml)
+- 2026-06-30 02:05 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/2436323.shtml)
+- 2026-06-30 01:38 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4206088.shtml)
+- 2026-06-30 01:49 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/800644837087.shtml)
+- 2026-06-30 01:55 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/85909519581.shtml)
+- 2026-06-30 01:43 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/658342994652.shtml)
+- 2026-06-30 01:58 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/5789900326.shtml)

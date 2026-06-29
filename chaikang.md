@@ -1,49 +1,61 @@
-# 友阿股份：公司主营业务为百货零售业
+# 中钢协：钢材市场供强需弱考验企业自律控产的定力
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月22日，友阿股份在互动平台回答投资者提问时表示，公司主营业务为百货零售业，主要分为百货商场、购物中心、奥特莱斯、便利店四种业态板块。近年来，公司也在结合市场形势变化对旗下位于长沙市核心商圈的部分实体门店进行泛文娱化改造或打造社区商业中心。公司为国际知名便利店品牌7-ELEVEN湖南区域特许经营商，具体加盟详情请关注微信公众号，查找2026年最新加盟政策。（文章
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，钢材市场供强需弱考验企业自律控产的定力。 一季度，国内钢铁需求仍处于“总量见顶、结构优化”的转型期，呈现“地产偏弱、基建托底、制造业有韧性”的特点。其中，房地产开发投资、房屋新开工面积同比分别下降11.2%、20.3%，两位数的降幅显示房地产市场仍在筑底过程中，建筑用钢需求持续下降；基础设施投资同比增长8.9%，对基建用钢
 
 ## 正文
 
-证券日报网讯 6月22日，友阿股份在互动平台回答投资者提问时表示，公司主营业务为百货零售业，主要分为百货商场、购物中心、奥特莱斯、便利店四种业态板块。
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，钢材市场供强需弱考验企业自律控产的定力。
 
-近年来，公司也在结合市场形势变化对旗下位于长沙市核心商圈的部分实体门店进行泛文娱化改造或打造社区商业中心。
+一季度，国内钢铁需求仍处于“总量见顶、结构优化”的转型期，呈现“地产偏弱、基建托底、制造业有韧性”的特点。
 
-公司为国际知名便利店品牌7-ELEVEN湖南区域特许经营商，具体加盟详情请关注微信公众号，查找2026年最新加盟政策。
+其中，房地产开发投资、房屋新开工面积同比分别下降11.2%、20.3%，两位数的降幅显示房地产市场仍在筑底过程中，建筑用钢需求持续下降；基础设施投资同比增长8.9%，对基建用钢形成较强托底作用；制造业投资同比增长4.1%，汽车、造船、家电、装备制造等行业用钢成为钢铁需求的关键支撑，制造业提质升级、新能源和人工智能等新兴产业催生新的需求增长点。
 
-（文章来源：证券日报）
+后期，随着国家财政与金融政策加强协同，着力激发有潜能的消费、扩大有效益的投资，叠加建筑业随着天气回暖逐步复工复产，预计钢铁需求将环比有所改善。
+
+钢协对会员企业的调研结果显示，60%的企业预判二季度钢材需求将环比上升，多数企业对后市保持乐观判断。
+
+乐观的判断对自律控产的执行将产生冲击，需要关注的是，虽然一季度钢铁企业通过主动减产来消化需求收缩的冲击，一定程度上缓解了市场供需矛盾，但供强需弱的态势并未改变，钢材库存水平仍然保持高位，自律控产稍有放松就会破坏十分脆弱的市场供需关系。
+
+4月中旬，重点统计钢铁企业粗钢日产环比增长0.4%，企业钢材库存量环比上升6.4%、同比上升11.5%，钢材社会库存环比下降2.0%、同比上升14.2%，显示需求的恢复强度不足以充分消化同期的供给增量。
+
+当前，钢材市场供强需弱的矛盾仍然突出，保效益仍是首要任务，钢铁企业仍要保持战略定力，践行“三定三不要”经营原则，坚持自律控产降库存不动摇。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 01:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 01:38 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 01:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 01:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 01:34 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 01:54 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 01:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 01:48 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 01:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 01:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 02:00 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 01:53 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 01:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 01:43 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 01:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 02:04 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 01:50 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 01:49 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 01:37 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 01:54 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 01:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 01:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 02:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/607638.shtml)
-- 2026-06-30 01:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/41812200.shtml)
-- 2026-06-30 01:55 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/26884.shtml)
-- 2026-06-30 01:47 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/4047137212.shtml)
-- 2026-06-30 01:49 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/42120703492.shtml)
-- 2026-06-30 01:53 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/57299.shtml)
-- 2026-06-30 01:52 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/942098600019.shtml)
-- 2026-06-30 01:41 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/75672345913.shtml)
-- 2026-06-30 01:58 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/79149039.shtml)
-- 2026-06-30 01:39 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/909225.shtml)
-- 2026-06-30 01:45 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/26233.shtml)
-- 2026-06-30 01:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/77355.shtml)
-- 2026-06-30 01:59 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/24774260.shtml)
-- 2026-06-30 01:30 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/550188997974.shtml)
-- 2026-06-30 01:30 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/5268529.shtml)
+- 2026-06-30 01:39 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/98453.shtml)
+- 2026-06-30 02:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/08123495.shtml)
+- 2026-06-30 01:47 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/416241997.shtml)
+- 2026-06-30 01:38 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/5979346.shtml)
+- 2026-06-30 01:59 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/4535689.shtml)
+- 2026-06-30 01:41 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/67497.shtml)
+- 2026-06-30 01:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/8718124.shtml)
+- 2026-06-30 01:39 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/63219.shtml)
+- 2026-06-30 01:37 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/69923726433.shtml)
+- 2026-06-30 01:51 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/53314675.shtml)
+- 2026-06-30 01:43 - [美股](http://www.blog.minike.top/Article/details/87237081599.shtml)
+- 2026-06-30 01:45 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/853451010781.shtml)
+- 2026-06-30 01:56 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/453404473.shtml)
+- 2026-06-30 01:46 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/227429672952.shtml)
+- 2026-06-30 01:41 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/631886.shtml)

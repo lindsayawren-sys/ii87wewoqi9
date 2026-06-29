@@ -1,61 +1,52 @@
-# 多地洪涝灾害严重 广西电力部门快速响应全力保电
+# 中国人寿：一季度实现归母净利润195.05亿元，同比减少32.3%
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。 洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急
+4月29日金融一线消息，中国人寿发布2026年一季度报告。数据显示，2026年第一季度实现现归属于母公司股东的净利润195.05亿元，同比减少32.3%。2026年一季度，公司实现总保费人民币3，584.78亿元，同比增长1.1%，其中，长险新单保费为人民币856.60亿元，同比增长29.9%；短期险保费为人民币427.02亿元，同比增长2.9%；续期保费为人民币2，301.1
 
 ## 正文
 
-中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。
+4月29日金融一线消息，中国人寿发布2026年一季度报告。
 
-洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急供电，满足受灾地区基本用电需求。
+数据显示，2026年第一季度实现现归属于母公司股东的净利润195.05亿元，同比减少32.3%。
 
-同时，组织力量全面开展抢修。
+2026年一季度，公司实现总保费人民币3，584.78亿元，同比增长1.1%，其中，长险新单保费为人民币856.60亿元，同比增长29.9%；短期险保费为人民币427.02亿元，同比增长2.9%；续期保费为人民币2，301.16亿元，受部分业务续期止收影响，同比下降6.8%。
 
-6月21日18时20分，龙江出现192.44米洪峰水位，超警戒水位4.44米，为1970年以来最大洪水。
-
-受持续强降雨及龙江水位上涨影响，河池市金城江区城区多处出现严重积水，当地医院、学校、居民小区、农贸市场等遭受洪水浸泡。
-
-面对河池严重汛情，南方电网广西电网公司从南宁等地跨区域调配排涝车、排涝方舱、发电车等共47台，从桂林、百色、来宾等地协调300多人的成建制抢修队伍支援河池抗汛抢修保电。
-
-6月21日凌晨，河池市人民医院外科楼一楼内涝，河池供电局第一时间前置一辆400千瓦应急发电车至医院，在配电房被水浸泡紧急避险停电时及时接入，保障了医院稳定供电。
-
-目前，河池市人民医院门诊大楼由市电供电，外科楼、宿舍区由发电车应急供电，医院用电不受影响。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 01:45 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 01:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 01:49 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 01:59 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 01:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 01:42 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 01:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 01:48 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 01:59 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 01:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 01:48 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 01:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:50 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 01:46 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 01:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 01:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 01:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 02:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 01:49 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:05 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 01:57 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 01:42 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 01:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 01:44 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/23144110664.shtml)
-- 2026-06-30 01:57 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/0406043.shtml)
-- 2026-06-30 01:46 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/036704230.shtml)
-- 2026-06-30 01:41 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/5452340.shtml)
-- 2026-06-30 01:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/65771403096.shtml)
-- 2026-06-30 01:57 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/482633819.shtml)
-- 2026-06-30 01:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8469636780.shtml)
-- 2026-06-30 01:42 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/25716155.shtml)
-- 2026-06-30 01:45 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/7854484.shtml)
-- 2026-06-30 01:40 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/2364094254.shtml)
-- 2026-06-30 01:59 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/717146.shtml)
-- 2026-06-30 01:37 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/031569758169.shtml)
-- 2026-06-30 01:38 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/082586561091.shtml)
-- 2026-06-30 01:37 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/9293355225.shtml)
-- 2026-06-30 01:31 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/302139.shtml)
+- 2026-06-30 01:44 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/82937569525.shtml)
+- 2026-06-30 01:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/55183034939.shtml)
+- 2026-06-30 02:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/491566597.shtml)
+- 2026-06-30 01:45 - [小娘惹](https://www.share.kurohicncr.top/Article/details/370483.shtml)
+- 2026-06-30 01:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/9525583.shtml)
+- 2026-06-30 02:06 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/96716605.shtml)
+- 2026-06-30 01:57 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/2248330444.shtml)
+- 2026-06-30 02:01 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/6467091832.shtml)
+- 2026-06-30 01:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/4645169.shtml)
+- 2026-06-30 02:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/17837.shtml)
+- 2026-06-30 01:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/2433557.shtml)
+- 2026-06-30 01:55 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/610952.shtml)
+- 2026-06-30 02:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/17270791458.shtml)
+- 2026-06-30 02:03 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/068222330.shtml)
+- 2026-06-30 01:37 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/93370159674.shtml)

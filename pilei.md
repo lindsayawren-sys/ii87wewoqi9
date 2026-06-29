@@ -1,56 +1,56 @@
-# 建滔、智谱携手冲高18%！规模最大港股通信息技术ETF华宝（159131）涨超3%，盘中价格创上市新高！
+# 菲律宾能源部：新建燃煤电站禁令维持不变
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-今日（6月22日）早盘，港股硬科技强势领涨，智谱、建滔集团携手涨逾18%，中芯国际涨超3%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高3.09%，盘中价格刷新上市以来高点，实时成交额1.9亿元。 银河证券认为，中期维度下，AI算力产业链、半导体、互联网平台仍是港股最具稀缺性和成长性的方向，建议关注半导体设备/材料、AI平台应用与软件等盈利确
+中新网马尼拉4月28日电 (记者 张兴龙)据菲律宾媒体28日报道，菲能源部表示，政府对新建燃煤电站项目实施的禁令将继续维持，目前没有解除该禁令的计划。 针对外界有关菲能源部正推动取消燃煤电站建设禁令的说法，该机构强调“禁令没有被解除，也不会被解除”。 菲能源部指出，根据现行政策，若燃煤电站项目在2019年前已获得许可，即便尚未动工，仍可继续推进建设；但新的燃煤项目将无法再获得许
 
 ## 正文
 
-今日（6月22日）早盘，港股硬科技强势领涨，智谱、建滔集团携手涨逾18%，中芯国际涨超3%。
+中新网马尼拉4月28日电 (记者 张兴龙)据菲律宾媒体28日报道，菲能源部表示，政府对新建燃煤电站项目实施的禁令将继续维持，目前没有解除该禁令的计划。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高3.09%，盘中价格刷新上市以来高点，实时成交额1.9亿元。
+针对外界有关菲能源部正推动取消燃煤电站建设禁令的说法，该机构强调“禁令没有被解除，也不会被解除”。
 
-银河证券认为，中期维度下，AI算力产业链、半导体、互联网平台仍是港股最具稀缺性和成长性的方向，建议关注半导体设备/材料、AI平台应用与软件等盈利确定性强的细分领域。
+菲能源部指出，根据现行政策，若燃煤电站项目在2019年前已获得许可，即便尚未动工，仍可继续推进建设；但新的燃煤项目将无法再获得许可审批。
 
-从近六月表现来看，聚焦港股硬科技的港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超30%，跑赢同期恒生科技45%，跑赢港股通科技41%，跑赢港股通互联网超58%，锐度和弹性显著领先。
+菲能源部表示，政府当前重点并非新增燃煤项目，而是推动现有电站提升发电能力，以增加电力供应。
 
-统计区间：2025.11.17-2026.6.17。
+与此同时，菲能源部正对已在2019年前获得许可的项目进行评估，并要求具备条件的项目尽快动工，以缓解电力成本压力。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+菲律宾政府于2020年宣布暂停审批新的燃煤电站项目，旨在推动能源结构向更清洁、可持续方向转型。
 
-指数过往业绩不预示未来表现。
-
-港股稀缺“纯血”硬科技！
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 01:34 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 01:30 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 01:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 01:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 01:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 01:43 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 01:39 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 01:39 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:33 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 02:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 01:54 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 01:40 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 01:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 01:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 01:53 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 01:57 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 01:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 01:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/76169140387.shtml)
-- 2026-06-30 01:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/94655674878.shtml)
-- 2026-06-30 01:51 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/233335.shtml)
-- 2026-06-30 01:56 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/1889223704.shtml)
-- 2026-06-30 01:32 - [流金岁月](http://www.blog.minike.top/Article/details/987298.shtml)
-- 2026-06-30 01:32 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/7832487348.shtml)
-- 2026-06-30 01:32 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/29638.shtml)
-- 2026-06-30 01:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/32206.shtml)
-- 2026-06-30 01:51 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/112531423.shtml)
-- 2026-06-30 01:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/38593732.shtml)
-- 2026-06-30 01:58 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/1999782892.shtml)
-- 2026-06-30 01:52 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/9605409099.shtml)
-- 2026-06-30 01:57 - [这一刀 会很帅](https://www.share.minike.top/Article/details/809352.shtml)
-- 2026-06-30 01:36 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/09604.shtml)
-- 2026-06-30 01:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/81144854.shtml)
+- 2026-06-30 01:50 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/0141057733.shtml)
+- 2026-06-30 02:00 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/17946.shtml)
+- 2026-06-30 01:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/2613818751.shtml)
+- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/79958006285.shtml)
+- 2026-06-30 01:49 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/33901073.shtml)
+- 2026-06-30 01:46 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/2417017.shtml)
+- 2026-06-30 02:01 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/58691746.shtml)
+- 2026-06-30 02:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/222076.shtml)
+- 2026-06-30 01:40 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/761607.shtml)
+- 2026-06-30 01:56 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/825201977220.shtml)
+- 2026-06-30 01:55 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/08455303054.shtml)
+- 2026-06-30 01:57 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/3306817614.shtml)
+- 2026-06-30 01:54 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/390544917374.shtml)
+- 2026-06-30 01:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/017717.shtml)
+- 2026-06-30 01:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/338937.shtml)

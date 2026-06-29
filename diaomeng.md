@@ -1,60 +1,57 @@
-# SpaceX的高评级引发质疑 宏大叙事考验债券投资者信心
+# 民间救援者起底电诈园，称最恨“蛇头”，救人靠找“硬”关系谈钱
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-将近十年前，穆迪首次评估英伟达时，给予其Baa1投资级评级，理由是其债务负担较轻，且在上市16年后自由现金流超过10亿美元。 上周，穆迪同样对埃隆·马斯克的SpaceX给予Baa1评级，尽管其公开的财务记录有限，“自由现金流持续为负”，以及未来几年仍需进行大量资本支出。 从很多方面来看，都反映出信用市场对马斯克及其近乎梦幻般宏大愿景的信任程度：包括可重复使用火箭、覆盖全球的卫星
+中新网北京4月29日电 (刘洋)近日，“女生受邀去泰国泼水节被转卖电诈园”一事引发全网关注，电诈园区的诱骗套路、当事人能否逃出生天再次成为焦点。 为何被骗至电诈园区的事件屡出不穷？旅游路上是否会被强行拉走？记者连线民间救援人员和曾误入电诈园区的当事人，起底电诈园区和救援内情。 苏磊从事电诈园区受害者救援工作近2年。去年，他曾耗时半年将一名中国留学生从电诈园区中解救出来。 该名在
 
 ## 正文
 
-将近十年前，穆迪首次评估英伟达时，给予其Baa1投资级评级，理由是其债务负担较轻，且在上市16年后自由现金流超过10亿美元。
+中新网北京4月29日电 (刘洋)近日，“女生受邀去泰国泼水节被转卖电诈园”一事引发全网关注，电诈园区的诱骗套路、当事人能否逃出生天再次成为焦点。
 
-上周，穆迪同样对埃隆·马斯克的SpaceX给予Baa1评级，尽管其公开的财务记录有限，“自由现金流持续为负”，以及未来几年仍需进行大量资本支出。
+为何被骗至电诈园区的事件屡出不穷？
 
-从很多方面来看，都反映出信用市场对马斯克及其近乎梦幻般宏大愿景的信任程度：包括可重复使用火箭、覆盖全球的卫星网络、人工智能，甚至太空数据中心。
+旅游路上是否会被强行拉走？
 
-债券投资者正排队向该公司提供约200亿美元的融资，而且规模可能还会增加。
+记者连线民间救援人员和曾误入电诈园区的当事人，起底电诈园区和救援内情。
 
-在股票市场，信任程度如此跳跃较为常见。
+苏磊从事电诈园区受害者救援工作近2年。
 
-买家愿意为宏大叙事买单，希望获得爆炸性收益。
+去年，他曾耗时半年将一名中国留学生从电诈园区中解救出来。
 
-然而，在投资级信用市场领域，却极为罕见。
+该名在韩留学生在招聘群内看到“带烟”的兼职。
 
-该市场看重的是现金流稳定、杠杆可控以及稳健且更加温和的回报。
+中介告知他，回国途中从首尔转机到泰国，把香烟交给指定人员就能拿到一笔小费。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 01:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 01:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 01:51 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 01:48 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 01:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 01:56 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 01:49 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 01:35 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 01:41 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 01:50 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 01:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 01:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 02:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 02:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 01:47 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 01:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 01:50 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 02:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 01:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 01:38 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 01:42 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 01:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 01:36 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/08180146.shtml)
-- 2026-06-30 01:38 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/735007.shtml)
-- 2026-06-30 01:34 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2197202.shtml)
-- 2026-06-30 01:37 - [月亮](http://www.blog.kurohicncr.top/Article/details/72135.shtml)
-- 2026-06-30 01:51 - [毒液2](https://www.share.kurohicncr.top/Article/details/08718.shtml)
-- 2026-06-30 01:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/5433996.shtml)
-- 2026-06-30 01:56 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/295077854.shtml)
-- 2026-06-30 01:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/165583743742.shtml)
-- 2026-06-30 01:57 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/30705.shtml)
-- 2026-06-30 01:31 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/27166.shtml)
-- 2026-06-30 01:54 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/13927.shtml)
-- 2026-06-30 01:41 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/294561726.shtml)
-- 2026-06-30 01:46 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/3502083.shtml)
-- 2026-06-30 01:57 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/91184.shtml)
-- 2026-06-30 01:44 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/57913.shtml)
+- 2026-06-30 01:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/24896.shtml)
+- 2026-06-30 01:49 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/4642292.shtml)
+- 2026-06-30 02:03 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/5605425949.shtml)
+- 2026-06-30 02:01 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/297976683291.shtml)
+- 2026-06-30 01:36 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/80835797605.shtml)
+- 2026-06-30 01:38 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/8893545316.shtml)
+- 2026-06-30 01:37 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/09999705.shtml)
+- 2026-06-30 02:03 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/89487.shtml)
+- 2026-06-30 01:47 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/698797251.shtml)
+- 2026-06-30 02:01 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/016114709.shtml)
+- 2026-06-30 01:49 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/875769.shtml)
+- 2026-06-30 01:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/00534081056.shtml)
+- 2026-06-30 01:43 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/06869.shtml)
+- 2026-06-30 01:59 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/593582.shtml)
+- 2026-06-30 01:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/06202.shtml)

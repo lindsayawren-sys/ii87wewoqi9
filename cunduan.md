@@ -1,56 +1,54 @@
-# 韩国6月份初步数据显示人工智能热潮继续推动出口强劲增长
+# 中钢协：积极开展产能治理、产量调控、行业自律
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-专题：成长主导但谨慎追高 配置上关注三条线索 韩国6月份初步数据显示出口继续保持强劲增长，得益于半导体行业景气持续。 韩国海关周一公布的数据显示，本月前20天经工作日差异调整后的出口同比增长49.7%。5月份前20天的同比增幅为52.6%。 未经工作日差异调整后的出口同比增长60.4%，进口增长23.2%，贸易顺差达到175亿美元。 最新数据表明，在与人工智能和数据中心相关的投
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。 政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽
 
 ## 正文
 
-专题：成长主导但谨慎追高 配置上关注三条线索 韩国6月份初步数据显示出口继续保持强劲增长，得益于半导体行业景气持续。
+4月29日，中国钢铁工业协会召开信息发布会，中钢协表示，后期要控总量，积极开展产能治理、产量调控、行业自律。
 
-韩国海关周一公布的数据显示，本月前20天经工作日差异调整后的出口同比增长49.7%。
+政府工作报告明确提出，综合运用产能调控、标准引领、价格执法、质量监管等手段，深入整治“内卷式”竞争，营造良好市场生态。
 
-5月份前20天的同比增幅为52.6%。
+钢铁行业要根除“内卷式”竞争，必须发挥制度优势，政府、行业、企业协同治理，在当前严格落实粗钢产量调控政策、不断优化调控机制的基础上，推动产能治理新机制尽快落地，采用市场化、法治化方式严控增量、优化存量、畅通退出，清理违法违规产能，淘汰技术落后、环境污染重、生产效率低的装备，建立完善科学有效的长效机制。
 
-未经工作日差异调整后的出口同比增长60.4%，进口增长23.2%，贸易顺差达到175亿美元。
+严格落实部分钢铁产品实施出口许可证管理措施，按照“促高端、稳周边、严监管”的导向，进一步优化出口结构、规范出口秩序，实现出口平稳有序、有效化解外部风险。
 
-最新数据表明，在与人工智能和数据中心相关的投资热潮推动下，外需依然强劲。
+按照党中央、国务院关于治理价格无序竞争的工作部署，发挥行业协会作用，开展分品种产能监测预警工作，建立中国钢铁行业价格监督员制度，构建“监测—识别—报告—研判—调解—认定—处置”闭环工作机制，引导企业严格自律。
 
-半导体仍是韩国经济增长的主要驱动力，有助于抵消经济其他领域的疲弱。
+同时，按照《关于推动行业协会商会深化改革的意见》提出的“行业协会商会要建立健全行业自律管理制度和自律约束机制，依法开展行业信用评价工作，提升行业诚信建设水平”等工作要求，有效衔接价格监督与信用评价，将行业价格监督作为行业信用评价体系的重要内容。
 
-芯片出口再次领涨，同比增长188.4%。
-
-计算机相关产品出口增长293.3%。
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 01:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:58 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 01:40 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 01:49 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 01:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 01:47 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 01:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 02:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 01:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 01:50 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:04 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 02:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 01:57 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/025001401.shtml)
-- 2026-06-30 01:42 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/763073154.shtml)
-- 2026-06-30 01:30 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/311624.shtml)
-- 2026-06-30 01:40 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/178123.shtml)
-- 2026-06-30 01:46 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/014215157726.shtml)
-- 2026-06-30 01:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/24522556689.shtml)
-- 2026-06-30 01:58 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/735158046.shtml)
-- 2026-06-30 01:39 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/84498168.shtml)
-- 2026-06-30 01:49 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/4618182.shtml)
-- 2026-06-30 01:38 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/352700573.shtml)
-- 2026-06-30 01:30 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/75716368.shtml)
-- 2026-06-30 01:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/01460672832.shtml)
-- 2026-06-30 01:43 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/6291784267.shtml)
-- 2026-06-30 01:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/4215428046.shtml)
-- 2026-06-30 01:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/808586.shtml)
+- 2026-06-30 01:46 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/8604026034.shtml)
+- 2026-06-30 01:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/7228733142.shtml)
+- 2026-06-30 01:56 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/977362827404.shtml)
+- 2026-06-30 02:01 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/37088.shtml)
+- 2026-06-30 01:53 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/17950160137.shtml)
+- 2026-06-30 01:50 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/115282.shtml)
+- 2026-06-30 01:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/068214.shtml)
+- 2026-06-30 01:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/759642.shtml)
+- 2026-06-30 01:58 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/63554.shtml)
+- 2026-06-30 01:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/5749667.shtml)
+- 2026-06-30 01:43 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/325297.shtml)
+- 2026-06-30 01:44 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/664012971402.shtml)
+- 2026-06-30 01:43 - [恋与深空致歉](http://www.blog.minike.top/Article/details/610453371982.shtml)
+- 2026-06-30 01:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/89527818.shtml)
+- 2026-06-30 01:59 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/24324131.shtml)

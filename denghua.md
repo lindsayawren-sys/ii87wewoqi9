@@ -1,52 +1,56 @@
-# 建设银行：完成发行300亿元无固定期限资本债券
+# 鲍威尔称将留在美联储担任理事 但将“保持低调”
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。本期债券募集的资金将依据适用法律和监管部门的批准
+专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 美联储主席杰罗姆·鲍威尔表示，他将在主席任期届满后继续留在该央行担任理事，从而结束了数月来外界关于他去留问题的猜测。 这一决定打破了以往美联储主席在任期结束后离开该央行的惯例，但鲍威尔表示，针对他本人及美联储的刑事调查威胁持续存在，使他别无选择只能留下。 “我的主席任期将于5月15日结束，之后我将继续担任理事一
 
 ## 正文
 
-6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。
+专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 美联储主席杰罗姆·鲍威尔表示，他将在主席任期届满后继续留在该央行担任理事，从而结束了数月来外界关于他去留问题的猜测。
 
-本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。
+这一决定打破了以往美联储主席在任期结束后离开该央行的惯例，但鲍威尔表示，针对他本人及美联储的刑事调查威胁持续存在，使他别无选择只能留下。
 
-本期债券募集的资金将依据适用法律和监管部门的批准，补充该行的其他一级资本。
+“我的主席任期将于5月15日结束，之后我将继续担任理事一段时间，具体时长待定，”鲍威尔周三在新闻发布会上说。
 
-责任编辑：秦艺
+上一位在卸任主席后仍留任理事会的是马里纳·埃克尔斯，他在1948年卸任美联储主席后继续担任政策制定者，直至1951年。
+
+鲍威尔此举迅速招来特朗普的批评。
+
+一直推动美联储降息的特朗普多次批评鲍威尔。
+
+他在社交媒体上表示：“杰罗姆·‘太迟’·鲍威尔想留在美联储，因为他在别处找不到工作——没人想要他。
+
+” “我计划作为理事保持低调，”他说，“美联储主席只有一个。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 01:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 01:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 01:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 01:34 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 01:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 01:34 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 01:45 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 01:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 01:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 01:46 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 01:32 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 01:36 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 01:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 01:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 01:59 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:52 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 01:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 01:44 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 02:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 01:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 02:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/710608688620.shtml)
-- 2026-06-30 01:54 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/656147902.shtml)
-- 2026-06-30 01:37 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/75825820.shtml)
-- 2026-06-30 01:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/648463427.shtml)
-- 2026-06-30 01:46 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/859005881077.shtml)
-- 2026-06-30 01:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/436128781.shtml)
-- 2026-06-30 01:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/761133756.shtml)
-- 2026-06-30 01:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/8772593053.shtml)
-- 2026-06-30 01:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/825756057.shtml)
-- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/2030964647.shtml)
-- 2026-06-30 01:44 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/8434528961.shtml)
-- 2026-06-30 01:38 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/45469.shtml)
-- 2026-06-30 01:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/598764.shtml)
-- 2026-06-30 01:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/6307579.shtml)
-- 2026-06-30 01:47 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/4542523.shtml)
+- 2026-06-30 02:04 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/252605647293.shtml)
+- 2026-06-30 01:49 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/49896.shtml)
+- 2026-06-30 01:58 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/53601.shtml)
+- 2026-06-30 01:46 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/574216.shtml)
+- 2026-06-30 02:00 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/29588401525.shtml)
+- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/253365335.shtml)
+- 2026-06-30 01:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/439068079769.shtml)
+- 2026-06-30 01:50 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/04351.shtml)
+- 2026-06-30 01:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/804114191914.shtml)
+- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/219927100.shtml)
+- 2026-06-30 01:54 - [请回答王牌2019](https://www.share.minike.top/Article/details/611274709208.shtml)
+- 2026-06-30 01:43 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/01953.shtml)
+- 2026-06-30 01:48 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/3904213467.shtml)
+- 2026-06-30 01:56 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/1300685.shtml)
+- 2026-06-30 01:44 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/47031507971.shtml)

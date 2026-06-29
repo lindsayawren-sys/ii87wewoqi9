@@ -1,59 +1,59 @@
-# 高通接近收购人工智能芯片初创公司Modular
+# “五一”假期临近 公安机关发布景区游览、大型活动安全提示
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-知情人士称，高通正就收购人工智能芯片初创公司Modular Inc．进行深入谈判，潜在交易对Modular的估值约为40亿美元。交易最快未来几周宣布。 知情人士补充称，双方尚未达成最终协议，谈判仍可能无果而终，交易细节也可能发生变化。 芯片公司都在寻求掌握人工智能前沿领域的技术和人才。高通正在努力扩大产品线，并建立合作联盟，以挑战行业领头羊英伟达。 根据Modular网站提供的
+中新网4月29日电 据公安部微信公众号消息，“五一”假期临近，文旅市场呈现火热态势。公安机关提示，前往景区游览时，请严格遵守景区管理规定，按照指定线路游览，不在设有危险警示标志的地方停留、拍照、摄像。游山时，请按照顺序上下山路；涉水游玩时，请做好安全防护，不跨越隔离设施进入危险水域，不在水边追逐打闹。如因游客数量超过安全容量，景区采取暂停售票、暂缓进入等措施时，请理解配合管理人
 
 ## 正文
 
-知情人士称，高通正就收购人工智能芯片初创公司Modular Inc．进行深入谈判，潜在交易对Modular的估值约为40亿美元。
+中新网4月29日电 据公安部微信公众号消息，“五一”假期临近，文旅市场呈现火热态势。
 
-交易最快未来几周宣布。
+公安机关提示，前往景区游览时，请严格遵守景区管理规定，按照指定线路游览，不在设有危险警示标志的地方停留、拍照、摄像。
 
-知情人士补充称，双方尚未达成最终协议，谈判仍可能无果而终，交易细节也可能发生变化。
+游山时，请按照顺序上下山路；涉水游玩时，请做好安全防护，不跨越隔离设施进入危险水域，不在水边追逐打闹。
 
-芯片公司都在寻求掌握人工智能前沿领域的技术和人才。
+如因游客数量超过安全容量，景区采取暂停售票、暂缓进入等措施时，请理解配合管理人员工作。
 
-高通正在努力扩大产品线，并建立合作联盟，以挑战行业领头羊英伟达。
+请不要前往未经开发的区域游玩。
 
-根据Modular网站提供的信息，Chris Lattner和Tim Davis于2022年在硅谷创立了Modular，两人在谷歌相识，对“人工智能基础设施的碎片化”感到不满。
+参加演唱会、体育赛事等大型活动时，请注意活动时间，尽量错开高峰日、入场高峰时段，尽量乘坐公共交通工具前往，自驾车注意避开临时交通管制的区域，将车辆停放在指定停车场地。
 
-该公司在2025年9月以16亿美元估值融资2.5亿美元，累计融资额达到3.8亿美元。
+请勿携带易燃易爆等危险物品入场，自觉接受并配合安检。
 
-责任编辑：李桐
+进入活动现场后请注意引导指示标识，注意观察了解安全出口和疏散通道的位置，遇有紧急突发情况时，请听从现场广播及工作人员指挥有序疏散。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 01:54 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 01:48 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 01:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 01:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 01:32 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 01:59 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 01:55 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 01:50 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 01:35 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 01:46 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 01:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:59 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 01:52 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 01:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 01:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 01:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 01:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 01:37 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 02:01 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 01:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 01:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 01:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:52 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/101661259173.shtml)
-- 2026-06-30 01:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8125069404.shtml)
-- 2026-06-30 01:42 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/61745419.shtml)
-- 2026-06-30 01:48 - [送你一朵小红花](https://www.share.minike.top/Article/details/32141893.shtml)
-- 2026-06-30 01:34 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/830080582637.shtml)
-- 2026-06-30 01:36 - [TOP Prada](https://www.share.minike.top/Article/details/842699.shtml)
-- 2026-06-30 01:59 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/430623.shtml)
-- 2026-06-30 01:40 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/61244.shtml)
-- 2026-06-30 01:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/456744846.shtml)
-- 2026-06-30 01:35 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/14680827.shtml)
-- 2026-06-30 01:35 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/0384089121.shtml)
-- 2026-06-30 01:58 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/022890.shtml)
-- 2026-06-30 01:55 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/11967.shtml)
-- 2026-06-30 01:47 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/975963.shtml)
-- 2026-06-30 01:57 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/4415094731.shtml)
+- 2026-06-30 01:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/62147274.shtml)
+- 2026-06-30 01:40 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/9136234.shtml)
+- 2026-06-30 01:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/36062790408.shtml)
+- 2026-06-30 01:41 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/82825.shtml)
+- 2026-06-30 01:55 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/81724917941.shtml)
+- 2026-06-30 01:48 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/55867.shtml)
+- 2026-06-30 01:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/103729033.shtml)
+- 2026-06-30 01:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/71681.shtml)
+- 2026-06-30 01:58 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/01110.shtml)
+- 2026-06-30 01:48 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/723433076.shtml)
+- 2026-06-30 01:41 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/013352939137.shtml)
+- 2026-06-30 01:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/266850025.shtml)
+- 2026-06-30 01:51 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/044074200096.shtml)
+- 2026-06-30 02:03 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/85086372917.shtml)
+- 2026-06-30 02:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/37572345823.shtml)

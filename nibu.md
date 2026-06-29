@@ -1,57 +1,60 @@
-# 全国夏播进入高峰 科技赋能提质增效
+# 新北市长民调结果出炉，蓝白共推李四川参选
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-原标题：【在希望的田野上】全国夏播进入高峰 科技赋能提质增效 央视网消息(新闻联播)：农业农村部最新农情调度显示，目前全国夏播粮食进度过七成。得益于新技术和新装备的使用，今年粮食主产区的夏播品质和效率大幅提升。 夏播粮食面积占全年粮食面积的四分之一，目前中稻播栽、玉米播种已接近尾声。 黄淮海地区是我国最大的夏玉米主产区。在山东邹平的连片高标准农田里，旋耕机、整地机、播种机“接力
+中新网4月28日电(燕新台)新北市长选战“蓝白合”民调结果28日出炉，中国国民党与台湾民众党决定，共同推举民调胜出的国民党籍李四川参选。 2026年台湾地区将举行地方公职人员选举(也称“九合一”选举)。据此前报道，蓝白两党3月18日通过合作协议，正式确认将在“九合一”选举中采取部分县市联合竞选、联合治理的合作方向。 其中，在“县市长提名合作机制”方面，双方同意采取“先提名、再整
 
 ## 正文
 
-原标题：【在希望的田野上】全国夏播进入高峰 科技赋能提质增效 央视网消息(新闻联播)：农业农村部最新农情调度显示，目前全国夏播粮食进度过七成。
+中新网4月28日电(燕新台)新北市长选战“蓝白合”民调结果28日出炉，中国国民党与台湾民众党决定，共同推举民调胜出的国民党籍李四川参选。
 
-得益于新技术和新装备的使用，今年粮食主产区的夏播品质和效率大幅提升。
+2026年台湾地区将举行地方公职人员选举(也称“九合一”选举)。
 
-夏播粮食面积占全年粮食面积的四分之一，目前中稻播栽、玉米播种已接近尾声。
+据此前报道，蓝白两党3月18日通过合作协议，正式确认将在“九合一”选举中采取部分县市联合竞选、联合治理的合作方向。
 
-黄淮海地区是我国最大的夏玉米主产区。
+其中，在“县市长提名合作机制”方面，双方同意采取“先提名、再整合、共同推举一人”的方式合作，遵守现任者优先原则，在现任者选择不连任或两党均无现任者的县市，双方将于各自完成提名后以“民意调查”为主要依据选出最终候选人。
 
-在山东邹平的连片高标准农田里，旋耕机、整地机、播种机“接力奔跑”。
+台湾民众党主席、新北市长参选人黄国昌在28日下午的两党共同记者会上表示，对结果欣然接受，自己会全力辅选李四川。
 
-今年夏播期间，新技术、新装备成为提质增效的突出亮点。
+李四川则感谢黄国昌以大局为重，表示自己虽然民调胜出，但也是责任的开始，必须全力以赴。
 
-眼下，河南夏季大宗作物集中播种基本结束。
+据中评社介绍，新北市人口数近400万，合格选民数全台最高。
 
-河南大力推广花生起垄种植、秋作物水肥一体化等新技术，应用面积超700万亩。
+新北市选民结构长期被认为蓝略大于绿，是国民党的“铁票防线”之一。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 01:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 01:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 01:33 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 01:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 01:47 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 01:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 01:49 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 01:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 01:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 01:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 01:59 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 01:55 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 01:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 01:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 01:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 02:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 02:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 01:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:50 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 02:05 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 01:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/395840423743.shtml)
-- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/341761713647.shtml)
-- 2026-06-30 01:41 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/99853368080.shtml)
-- 2026-06-30 01:47 - [女心理师](https://www.share.minike.top/Article/details/014323179020.shtml)
-- 2026-06-30 01:46 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/919904730.shtml)
-- 2026-06-30 01:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/13103599917.shtml)
-- 2026-06-30 01:39 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/55331.shtml)
-- 2026-06-30 01:58 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/86923.shtml)
-- 2026-06-30 01:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/6582630204.shtml)
-- 2026-06-30 01:53 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/45039.shtml)
-- 2026-06-30 01:55 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/606322289.shtml)
-- 2026-06-30 01:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/356036346.shtml)
-- 2026-06-30 01:53 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/273590774222.shtml)
-- 2026-06-30 01:55 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/7357443707.shtml)
-- 2026-06-30 01:55 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/989385.shtml)
+- 2026-06-30 01:52 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/798652870055.shtml)
+- 2026-06-30 01:49 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/76613838488.shtml)
+- 2026-06-30 02:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/32229503.shtml)
+- 2026-06-30 01:36 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/451521894386.shtml)
+- 2026-06-30 02:02 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/30897.shtml)
+- 2026-06-30 01:40 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/42814.shtml)
+- 2026-06-30 01:59 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/8922851.shtml)
+- 2026-06-30 01:36 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/2550549.shtml)
+- 2026-06-30 01:46 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/9872560.shtml)
+- 2026-06-30 01:41 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/196007.shtml)
+- 2026-06-30 01:59 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/78271757228.shtml)
+- 2026-06-30 02:02 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/2206694.shtml)
+- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/45241664.shtml)
+- 2026-06-30 01:40 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/8850465191.shtml)
+- 2026-06-30 02:01 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/79327962.shtml)

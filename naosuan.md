@@ -1,46 +1,57 @@
-# 平陆运河航线船员签注工作启动
+# 阿迪达斯季度业绩亮眼 股价大涨
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 09:23 来源：央视新闻 责任编辑：【王祎】
+专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。 德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。 公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9
 
 ## 正文
 
-发布时间：2026年06月23日 09:23 来源：央视新闻 责任编辑：【王祎】
+专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。
+
+德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。
+
+公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9 亿欧元（折合 77.2 亿美元）。
+
+剔除汇率波动影响后，销售额大涨 14%，远高于市场分析师预期的 8.3%。
+
+德意志银行分析师评价称，阿迪达斯再度交出亮眼季度财报。
+
+其在研报中表示：“我们认为阿迪达斯本季表现强劲，在多个核心品类实现市场领跑。
+
+” 阿迪达斯法兰克福盘中股价涨幅超 7%；不过年内该股仍累计下跌超 10%，投资者持续评估地缘政治紧张局势与关税政策，对运动服饰消费需求带来的潜在冲击。
+
+首席执行官比约恩・古尔登坦言，当前市场波动剧烈，尤其生活方式鞋履板块尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 01:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 01:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 01:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 01:45 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 01:53 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 01:40 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 01:55 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 01:34 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 01:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 01:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 01:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 01:33 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 01:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 02:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 02:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 01:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 01:43 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 02:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 01:37 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 01:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 01:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 01:42 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 01:37 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 02:02 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/175047.shtml)
-- 2026-06-30 01:39 - [金刚川](https://www.share.kurohicncr.top/Article/details/66507.shtml)
-- 2026-06-30 01:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/6578455699.shtml)
-- 2026-06-30 01:49 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/1505502.shtml)
-- 2026-06-30 01:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/1856410.shtml)
-- 2026-06-30 01:37 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/937610936529.shtml)
-- 2026-06-30 01:39 - [周生如故](https://www.share.minike.top/Article/details/9516820.shtml)
-- 2026-06-30 01:59 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/79814538.shtml)
-- 2026-06-30 01:44 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/70289.shtml)
-- 2026-06-30 01:38 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/99168.shtml)
-- 2026-06-30 01:54 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/530454.shtml)
-- 2026-06-30 01:47 - [沉睡花园](https://www.share.minike.top/Article/details/22340.shtml)
-- 2026-06-30 01:31 - [小娘惹](http://www.share.kurohicncr.top/Article/details/27489804090.shtml)
-- 2026-06-30 01:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/918016898.shtml)
-- 2026-06-30 01:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/683669.shtml)
+- 2026-06-30 01:38 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/186777096515.shtml)
+- 2026-06-30 01:57 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/397974288.shtml)
+- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/925375767.shtml)
+- 2026-06-30 01:57 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/975690.shtml)
+- 2026-06-30 01:52 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/58283.shtml)
+- 2026-06-30 01:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/642335.shtml)
+- 2026-06-30 01:54 - [送你一朵小红花](https://www.share.minike.top/Article/details/4209710.shtml)
+- 2026-06-30 01:59 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/5575511.shtml)
+- 2026-06-30 01:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5758676.shtml)
+- 2026-06-30 01:53 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/285407164.shtml)
+- 2026-06-30 02:04 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/93273.shtml)
+- 2026-06-30 02:02 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/19214.shtml)
+- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/020423807571.shtml)
+- 2026-06-30 01:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/8430049.shtml)
+- 2026-06-30 01:48 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/0178371.shtml)

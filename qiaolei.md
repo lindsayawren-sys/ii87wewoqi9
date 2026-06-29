@@ -1,53 +1,56 @@
-# 珠江流域西江发生2026年第1号洪水
+# 美国债市：短期和中期国债下跌 7年期国债中标收益率略高于发行前水平
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 (记者 陈溯)记者22日从中国水利部获悉，受降雨影响，珠江流域西江出现明显洪水过程。22日17时30分，西江干流武宣水文站(广西来宾)流量涨至25000立方米每秒，依据水利部《全国主要江河洪水编号规定》，此次洪水编号为“西江2026年第1号洪水”，为中国今年大江大河首次编号洪水。水利部当天专题会商西江汛情，维持针对广东、广西、贵州的洪水防御Ⅳ级应急响应，
+美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。 纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。美国10年期国债收益率报4.35%左右，
 
 ## 正文
 
-中新社北京6月22日电 (记者 陈溯)记者22日从中国水利部获悉，受降雨影响，珠江流域西江出现明显洪水过程。
+美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。
 
-22日17时30分，西江干流武宣水文站(广西来宾)流量涨至25000立方米每秒，依据水利部《全国主要江河洪水编号规定》，此次洪水编号为“西江2026年第1号洪水”，为中国今年大江大河首次编号洪水。
+美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。
 
-水利部当天专题会商西江汛情，维持针对广东、广西、贵州的洪水防御Ⅳ级应急响应，针对西江洪水防御提前发出通知，并派出工作组赴一线加强指导。
+纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。
 
-水利部珠江水利委员会将针对广东、广西、贵州的洪水防御应急响应提升至Ⅲ级，滚动开展大江大河与中小河流洪水监测预报；调度西江上游天生桥一级、龙滩、光照等水库拦蓄洪水22.59亿立方米，全力避免红水河、柳江洪水恶劣遭遇；提前调度大藤峡水利枢纽预泄腾库2.18亿立方米，22日起根据洪水演进，运用大藤峡水利枢纽拦蓄洪水，全力减轻西江干流防洪压力；指导广西调度柳江干流麻石、浮石、古顶、大埔、红花及支流贝江落久等水库拦蓄洪水超3亿立方米，减轻柳州等地防洪压力。
+美国10年期国债收益率报4.35%左右，日间上涨约1个基点，而欧洲债券在伦敦交易时段跑输。
 
-水利部表示，将紧盯西江汛情，加强雨水情监测预报预警，滚动会商研判，指导督促地方做好堤防巡查防守、水库安全度汛、中小河流洪水及山洪灾害防御，以及沿河城镇低洼区民众转移等工作。
+短债的下跌伴随着市场对美联储的政策预期转鹰，OIS合约消化的年底前降息幅度约为5个基点，而周一收盘时为8个基点；同时，掉期市场也排除了明年进行一次完整降息的可能性。
 
-(完)
+美国7年期国债中标收益率较发行前交易水平高约0.5个基点，标售后中期国债维持跌势。
+
+不过，标售指标表现稳健，一级交易商获配11.6%，低于之前一次；直接投标人获配增至30%，间接投标人获配降至58.4%。
+
+在国债期货市场，早盘2年期和5年期国债合约的大宗卖盘加剧了走弱势头。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 01:38 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 01:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 01:39 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 01:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 01:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 01:37 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 01:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 01:41 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 01:52 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 01:45 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 01:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 01:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 01:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 01:45 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 02:05 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 01:43 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 01:54 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 02:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 02:00 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 02:01 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/54214600.shtml)
-- 2026-06-30 01:58 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/1970786.shtml)
-- 2026-06-30 01:30 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/470305813.shtml)
-- 2026-06-30 01:38 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/13177.shtml)
-- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/343565422.shtml)
-- 2026-06-30 01:55 - [沙丘](http://www.share.minike.top/Article/details/17003860.shtml)
-- 2026-06-30 01:43 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/8346744451.shtml)
-- 2026-06-30 01:34 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/69683.shtml)
-- 2026-06-30 01:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/6300464984.shtml)
-- 2026-06-30 01:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/1815317172.shtml)
-- 2026-06-30 01:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/4817214981.shtml)
-- 2026-06-30 01:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/3175508.shtml)
-- 2026-06-30 01:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/31922253.shtml)
-- 2026-06-30 01:45 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/42736770.shtml)
-- 2026-06-30 01:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/23829.shtml)
+- 2026-06-30 01:39 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/5504374009.shtml)
+- 2026-06-30 01:51 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/92569634015.shtml)
+- 2026-06-30 01:40 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/70464.shtml)
+- 2026-06-30 01:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/72800462366.shtml)
+- 2026-06-30 01:38 - [天道](https://www.share.minike.top/Article/details/04980796136.shtml)
+- 2026-06-30 01:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/79585356486.shtml)
+- 2026-06-30 01:43 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/481978.shtml)
+- 2026-06-30 02:00 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/57288082.shtml)
+- 2026-06-30 01:44 - [刘宇宁 好听](https://www.share.minike.top/Article/details/276261.shtml)
+- 2026-06-30 01:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/06402781775.shtml)
+- 2026-06-30 01:54 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/69011648157.shtml)
+- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/654020961.shtml)
+- 2026-06-30 01:56 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/064335961.shtml)
+- 2026-06-30 02:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/92658690592.shtml)
+- 2026-06-30 01:41 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/024507.shtml)

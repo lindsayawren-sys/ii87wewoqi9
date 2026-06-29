@@ -1,55 +1,58 @@
-# 民盟三亚市委会开展南繁种业CRO发展情况专题调研
+# 2025银行年报观察室｜江苏两大农商行的冷暖答卷：常熟“县域称王”，紫金“夹缝求生”
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-6月17日，民盟三亚市委会课题调研组赴崖州区开展南繁种业CRO发展情况专题调研。 调研组先后走访国家技术转移海南中心三亚崖州湾科技城创新服务平台、海南农乐南繁科技有限公司、广东省科学院海南产业技术研究院、中国农业大学三亚研究院，分别与各单位管理运营团队、一线科研骨干开展座谈交流。 本次调研立足公共科创平台、市场化种业企业、高校科研院所三类不同主体，深入摸排南繁种业CRO平台建设
+来源：北京商报 同是江苏本土的上市农商行，常熟农商行与紫金农商行同样扎根长三角经济热土，却走出了截然不同的两种农商行“人生”。一边是常熟农商行在县域的沃土上稳稳扎根，资产规模突破4000亿元大关；一边是紫金农商行在省会城市的金融红海中奋力挣扎，营收净利双双下滑。 同一个赛道、相近的起点，为何最终答卷天差地别？在银行业存量竞争的时代，中小银行究竟靠什么穿越周期？ 业绩“冰与火”
 
 ## 正文
 
-6月17日，民盟三亚市委会课题调研组赴崖州区开展南繁种业CRO发展情况专题调研。
+来源：北京商报 同是江苏本土的上市农商行，常熟农商行与紫金农商行同样扎根长三角经济热土，却走出了截然不同的两种农商行“人生”。
 
-调研组先后走访国家技术转移海南中心三亚崖州湾科技城创新服务平台、海南农乐南繁科技有限公司、广东省科学院海南产业技术研究院、中国农业大学三亚研究院，分别与各单位管理运营团队、一线科研骨干开展座谈交流。
+一边是常熟农商行在县域的沃土上稳稳扎根，资产规模突破4000亿元大关；一边是紫金农商行在省会城市的金融红海中奋力挣扎，营收净利双双下滑。
 
-本次调研立足公共科创平台、市场化种业企业、高校科研院所三类不同主体，深入摸排南繁种业CRO平台建设、日常运营、业务开展整体情况，聚焦产业发展现存短板、机制堵点、政策瓶颈等关键问题深入研讨，充分交流意见，共商破解路径。
+同一个赛道、相近的起点，为何最终答卷天差地别？
 
-民盟三亚市委会副主委严平、潘芳燕等参加调研活动。
+在银行业存量竞争的时代，中小银行究竟靠什么穿越周期？
 
-(民盟三亚市委会供稿)来源：中国民主同盟海南省委员会微信公众号
+业绩“冰与火” 从南京向东，直线距离不过190公里，3个小时的车程便到了常熟。
+
+但这段并不遥远的路程，却足以隔开两家同处江苏的农商行在2025年的经营轨迹。
+
+近日，常熟农商行与紫金农商行同日披露2025年业绩情况，前者实现营收与净利润双双增长，资产质量保持稳健；后者则面临盈利下滑、风险指标上升的境况。
+
+从行业来看，2025年银行业息差阶段性企稳，但风险端仍在承压，分化进一步加剧。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 01:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 01:52 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 01:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 01:43 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 01:40 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 01:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 01:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 01:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 01:30 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 01:35 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 01:50 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 01:35 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 01:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 01:56 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 01:53 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 02:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 01:56 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 01:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 01:52 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 02:00 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 02:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 01:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 02:05 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:59 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/622052406.shtml)
-- 2026-06-30 01:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/398346.shtml)
-- 2026-06-30 01:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/4684665891.shtml)
-- 2026-06-30 01:47 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/956041832.shtml)
-- 2026-06-30 01:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/258539.shtml)
-- 2026-06-30 01:42 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/56200187984.shtml)
-- 2026-06-30 01:59 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/82036452.shtml)
-- 2026-06-30 01:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/11806830.shtml)
-- 2026-06-30 01:40 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/934266250.shtml)
-- 2026-06-30 01:49 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/723958.shtml)
-- 2026-06-30 01:44 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/167342640.shtml)
-- 2026-06-30 01:34 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/22564298.shtml)
-- 2026-06-30 01:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/74590049099.shtml)
-- 2026-06-30 01:31 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/714824615.shtml)
-- 2026-06-30 01:56 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/10489302536.shtml)
+- 2026-06-30 01:45 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/4890314468.shtml)
+- 2026-06-30 01:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/94928.shtml)
+- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/873386.shtml)
+- 2026-06-30 01:58 - [日本16强魔咒](http://www.blog.minike.top/Article/details/6309803.shtml)
+- 2026-06-30 01:54 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/028629005.shtml)
+- 2026-06-30 01:58 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/05692.shtml)
+- 2026-06-30 01:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/78710.shtml)
+- 2026-06-30 01:44 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/25346735.shtml)
+- 2026-06-30 01:50 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/90994.shtml)
+- 2026-06-30 01:43 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/71062129314.shtml)
+- 2026-06-30 02:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/82082.shtml)
+- 2026-06-30 01:57 - [极限挑战第一季](https://www.blog.minike.top/Article/details/6499483.shtml)
+- 2026-06-30 01:53 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/9252209042.shtml)
+- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/278892143756.shtml)
+- 2026-06-30 02:05 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/77365948.shtml)

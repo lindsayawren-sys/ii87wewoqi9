@@ -1,60 +1,59 @@
-# 随着更多船只通过 伊朗原油经霍尔木兹海峡的运输量激增
+# 酒价内参4月30日价格发布：青花郎下跌7元 回落至700元下方
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-随着该地区航运活动增加以及德黑兰和华盛顿努力达成持久和平协议，伊朗通过霍尔木兹海峡公开运输的原油量已增加至中东战争爆发以来的最高水平。 船舶追踪数据显示，Elva号、Virgo号和Vigor号这三艘受美国制裁的超级油轮于周一早些时候驶入这一战略要冲，船上载有约600万桶伊朗原油。这些油轮均显示正驶往新加坡附近水域，伊朗原油据称将在那里转运至其他船只。 周一清晨，Elva号（白色
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。整体价格在高位快速下探，市场运行呈放量加速调整态势。 今日白酒市场11大单品三涨六跌两平，输家占据明显上风。上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380
 
 ## 正文
 
-随着该地区航运活动增加以及德黑兰和华盛顿努力达成持久和平协议，伊朗通过霍尔木兹海峡公开运输的原油量已增加至中东战争爆发以来的最高水平。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。
 
-船舶追踪数据显示，Elva号、Virgo号和Vigor号这三艘受美国制裁的超级油轮于周一早些时候驶入这一战略要冲，船上载有约600万桶伊朗原油。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。
 
-这些油轮均显示正驶往新加坡附近水域，伊朗原油据称将在那里转运至其他船只。
+整体价格在高位快速下探，市场运行呈放量加速调整态势。
 
-周一清晨，Elva号（白色）、Vigor号（红色）和Virgo号被看见驶入霍尔木兹海峡。
+今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
 
-这些超级油轮是海峡两岸双向运输量普遍回升的一部分，该海峡是能源丰富的波斯湾产油国向全球市场输送石油和天然气的关键通道。
+上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380元关口上方；五粮液普五八代上涨2元/瓶；习酒君品小幅上涨1元/瓶。
 
-在2月底战争爆发之前，全球约五分之一的原油和液化天然气曾通过这条狭窄的水道运输。
+下跌方面，国窖1573与古井贡古20跌幅居前，均下跌8元/瓶，后者已连续两天大幅下挫，跌破550元关口；青花郎下跌7元/瓶，回落至700元下方；精品茅台下跌4元/瓶；飞天茅台下跌3元/瓶；水晶剑南春下跌2元/瓶，但近期其价格中枢一直呈上升势头。
 
-这三艘伊朗船只来自该OPEC成员国的主要石油出口码头、位于内海深处的哈尔克岛。
+五粮液1618及洋河梦之蓝M6+的价格环比保持不变。
 
-这批货量补充了伊朗近期从阿曼湾恰巴哈尔港出口的约2000万桶石油。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 01:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 01:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 01:43 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 01:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 01:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 01:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 01:41 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 01:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 01:51 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 01:40 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 01:51 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 01:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 01:37 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:41 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 01:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 02:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 02:00 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 01:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 01:45 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 01:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 01:46 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 01:45 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 01:41 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 01:46 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 01:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 01:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/69763207.shtml)
-- 2026-06-30 01:52 - [世界杯](http://www.share.minike.top/Article/details/542489221442.shtml)
-- 2026-06-30 01:33 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/39354.shtml)
-- 2026-06-30 01:52 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/3570797036.shtml)
-- 2026-06-30 01:37 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/94332.shtml)
-- 2026-06-30 01:48 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/3339947.shtml)
-- 2026-06-30 01:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/31669.shtml)
-- 2026-06-30 01:41 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/579962.shtml)
-- 2026-06-30 01:39 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/459976657313.shtml)
-- 2026-06-30 01:33 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/534843289.shtml)
-- 2026-06-30 01:50 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/334103693546.shtml)
-- 2026-06-30 01:38 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/51251147.shtml)
-- 2026-06-30 01:32 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/17202155055.shtml)
-- 2026-06-30 01:33 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/51804657.shtml)
-- 2026-06-30 01:32 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/905588261.shtml)
+- 2026-06-30 01:40 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/8735944.shtml)
+- 2026-06-30 01:37 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/20695656.shtml)
+- 2026-06-30 01:57 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0863360.shtml)
+- 2026-06-30 01:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/09929980500.shtml)
+- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/96419458570.shtml)
+- 2026-06-30 01:56 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/925426637.shtml)
+- 2026-06-30 01:50 - [月亮](http://www.blog.kurohicncr.top/Article/details/5355657.shtml)
+- 2026-06-30 01:36 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/44658.shtml)
+- 2026-06-30 01:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/50976291.shtml)
+- 2026-06-30 02:03 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/77237432.shtml)
+- 2026-06-30 01:49 - [刘念回应](https://www.blog.minike.top/Article/details/217807066.shtml)
+- 2026-06-30 01:53 - [极限挑战第一季](https://www.share.minike.top/Article/details/208375946651.shtml)
+- 2026-06-30 01:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/303861245830.shtml)
+- 2026-06-30 01:59 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/38855.shtml)
+- 2026-06-30 01:44 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/65689.shtml)

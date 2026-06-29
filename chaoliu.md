@@ -1,60 +1,61 @@
-# 外国驻港领团和商界代表赴湘参访 看好湘港协同发展
+# “五一”假期临近 各地出台惠民举措带动文旅消费
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月23日电 (记者 戴小橦)由中国外交部驻香港特别行政区特派员公署举办的外国驻港领团和商界赴湖南参访活动22日在湘展开行程。 在中非经贸合作促进创新示范园，代表团成员实地感受到湖南对非经贸合作的市场活力。多位参访人员详细问询当地对非进出口贸易、跨境合作项目落地、创新服务体系建设等情况，了解湖南主动联通海外市场、深耕海外经贸合作的创新实践。 当日，参访团还前往湖南中车
+央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。 临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。 从5月起，四川将陆续发放3000万元省级文旅消费券，
 
 ## 正文
 
-中新网长沙6月23日电 (记者 戴小橦)由中国外交部驻香港特别行政区特派员公署举办的外国驻港领团和商界赴湖南参访活动22日在湘展开行程。
+央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。
 
-在中非经贸合作促进创新示范园，代表团成员实地感受到湖南对非经贸合作的市场活力。
+临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。
 
-多位参访人员详细问询当地对非进出口贸易、跨境合作项目落地、创新服务体系建设等情况，了解湖南主动联通海外市场、深耕海外经贸合作的创新实践。
+“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。
 
-当日，参访团还前往湖南中车智行科技有限公司考察。
+从5月起，四川将陆续发放3000万元省级文旅消费券，场景涉及酒店、民宿、研学基地等。
 
-在企业展厅及智能化生产车间，大家细致观摩智能交通装备、智慧运维系统等成果，听取企业在核心技术攻关、产业链布局、场景化落地、海外市场拓展等方面的详细介绍，了解企业在自主创新、技术迭代、智能制造升级等方面的突破。
+“五一”期间，全省策划推出1800多场活动，全面释放文旅消费新动能。
 
-参访团成员对长沙完备的高端制造产业链、扎实的产业根基、持续迸发的科创潜力印象深刻。
+湖北整合旅游资源，推出包括度假休闲、乡村研学等在内的十大文旅融合主题产品。
 
-多位参访团成员表示，以往国际社会更多熟知湖南的文旅特色，此次实地探访，刷新了对当地产业能级与科创实力的认知。
+同时，全省联动实施“一票通享”政策，游客凭高铁票、演唱会门票和赛事门票，可以享受景区和酒店住宿的优惠折扣。
 
-湖南依托雄厚的工业基础，持续深耕高端装备、智能科技赛道，实现了传统制造向智能制造的跨越式升级，发展后劲十足。
+“五一”假期，福建福州的上百场文旅活动，突出“诗画闽江”“魅力海滨”主题，传统文化结合潮流玩法，通过游戏、互动和沉浸式体验，让游客感受古韵新风。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 01:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 01:49 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 01:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 01:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 01:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 01:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 01:41 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 01:38 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 01:49 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 01:41 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 01:41 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 01:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 01:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:40 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 01:36 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 01:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 01:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 01:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 01:46 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 01:58 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 02:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 01:36 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 01:51 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/155104218099.shtml)
-- 2026-06-30 01:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/784282.shtml)
-- 2026-06-30 01:32 - [锐评T1零封KC](http://www.share.minike.top/Article/details/74977.shtml)
-- 2026-06-30 01:30 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/75929016561.shtml)
-- 2026-06-30 01:49 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/494615965.shtml)
-- 2026-06-30 01:58 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/53183.shtml)
-- 2026-06-30 01:30 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/8381361.shtml)
-- 2026-06-30 01:50 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/5607189.shtml)
-- 2026-06-30 01:54 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/07360890233.shtml)
-- 2026-06-30 01:52 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/482599.shtml)
-- 2026-06-30 01:37 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/35745.shtml)
-- 2026-06-30 01:50 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/236892153.shtml)
-- 2026-06-30 01:52 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/88674.shtml)
-- 2026-06-30 01:42 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/30178.shtml)
-- 2026-06-30 01:33 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/19544.shtml)
+- 2026-06-30 01:36 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/37235.shtml)
+- 2026-06-30 01:40 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/8420043571.shtml)
+- 2026-06-30 01:45 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/064358984.shtml)
+- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/0981595519.shtml)
+- 2026-06-30 01:41 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/91567157.shtml)
+- 2026-06-30 01:44 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/1312876186.shtml)
+- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/96712616955.shtml)
+- 2026-06-30 01:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/175364093643.shtml)
+- 2026-06-30 01:58 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/79567.shtml)
+- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/56063.shtml)
+- 2026-06-30 01:49 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/3330057110.shtml)
+- 2026-06-30 01:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/106498.shtml)
+- 2026-06-30 01:36 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/099820.shtml)
+- 2026-06-30 01:44 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/4107638.shtml)
+- 2026-06-30 01:39 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/78809707.shtml)

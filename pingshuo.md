@@ -1,53 +1,59 @@
-# 外交部：日本“新型军国主义”威胁地区和平稳定
+# 新疆乌恰县赴广州招商推介 助大湾区企业拓展中亚市场
 
-> 更新时间：2026-06-30 02:00:03 UTC+8
+> 更新时间：2026-06-30 02:06:02 UTC+8
 
 ## 摘要
 
-人民财讯6月23日电，6月23日，外交部发言人郭嘉昆主持例行记者会。有记者就日本向乌克兰提供援助提问。 郭嘉昆表示，近年来，日本大肆推进“再军事化”，发展中远程强力进攻武器，解禁杀伤性武器出口，同域外国家互动频繁，扩大自卫队活动范围，打造可以实战的作战体系。这是在突破日本宪法、国际法规制和“专守防卫”等原则，挑战战后国际秩序，与日方自诩的“和平国家”形象背道而驰。日本“新型军国
+中新网广州4月29日电 (记者 程景伟)由新疆维吾尔自治区克孜勒苏柯尔克孜自治州乌恰县人民政府主办的“东联湾区智造 西拓中亚市场”招商推介会28日在广州举行，旨在抢抓中吉乌铁路建设机遇，深化粤疆产业协作，为粤港澳大湾区企业打通通往中亚市场的“黄金通道”。 来自粤港澳大湾区的30多家商协会、300多家企业代表等共400余人参会，共同探讨粤疆产业协同、湾区与中亚互联互通的合作新机遇
 
 ## 正文
 
-人民财讯6月23日电，6月23日，外交部发言人郭嘉昆主持例行记者会。
+中新网广州4月29日电 (记者 程景伟)由新疆维吾尔自治区克孜勒苏柯尔克孜自治州乌恰县人民政府主办的“东联湾区智造 西拓中亚市场”招商推介会28日在广州举行，旨在抢抓中吉乌铁路建设机遇，深化粤疆产业协作，为粤港澳大湾区企业打通通往中亚市场的“黄金通道”。
 
-有记者就日本向乌克兰提供援助提问。
+来自粤港澳大湾区的30多家商协会、300多家企业代表等共400余人参会，共同探讨粤疆产业协同、湾区与中亚互联互通的合作新机遇。
 
-郭嘉昆表示，近年来，日本大肆推进“再军事化”，发展中远程强力进攻武器，解禁杀伤性武器出口，同域外国家互动频繁，扩大自卫队活动范围，打造可以实战的作战体系。
+乌恰县招商引资服务中心主任陈艳作主旨推介，以“在中国西极寻找下一个千亿风口”为主题，详细解读了乌恰不仅是地理上的“西极”，更是国家战略的“焦点”。
 
-这是在突破日本宪法、国际法规制和“专守防卫”等原则，挑战战后国际秩序，与日方自诩的“和平国家”形象背道而驰。
+陈艳表示，依托伊尔克什坦、吐尔尕特两大国家一类陆路口岸优势，叠加中吉乌铁路建设带来的历史性机遇，乌恰正从“边陲末梢”蝶变为“开放前沿”。
 
-日本“新型军国主义”成势为患，威胁地区和平稳定，国际社会必须高度警惕，坚决遏制。
+会上，新疆维吾尔自治区人民政府驻广州办事处、新疆生产建设兵团驻广州办事处及广东省物流行业协会等机构代表齐聚一堂，共同为粤疆产业协作与中亚市场开拓建言献策。
 
-责任编辑：刘万里 SF014
+多家企业代表现身说法，分享了“珠三角技术+乌恰资源”“立足口岸+服务中亚”的成功模式，生动诠释产业融合“双向奔赴”的共赢之路。
+
+其间，24家珠三角行业领军企业与乌恰县达成战略合作协议，涵盖装备制造、日化用品、家居建材、食品加工等领域。
+
+与会企业家表示，看中乌恰，不仅是看中其当下的资源，更是看中其未来作为中亚贸易枢纽的巨大潜力。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 01:43 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 01:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 01:32 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 01:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 01:46 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 01:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 01:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 01:45 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 01:49 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 01:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 01:48 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:01 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 01:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 01:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 01:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 01:59 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 01:42 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 01:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 01:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:05 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 01:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/10448744262.shtml)
-- 2026-06-30 01:48 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/2566361.shtml)
-- 2026-06-30 01:46 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/846333.shtml)
-- 2026-06-30 01:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/0644035770.shtml)
-- 2026-06-30 01:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/430505.shtml)
-- 2026-06-30 01:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/56705.shtml)
-- 2026-06-30 01:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8357470.shtml)
-- 2026-06-30 01:43 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/147832.shtml)
-- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/82407711.shtml)
-- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/5276927081.shtml)
-- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/809346202355.shtml)
-- 2026-06-30 01:51 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/913782274.shtml)
-- 2026-06-30 01:57 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/9419846.shtml)
-- 2026-06-30 01:48 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/823646.shtml)
-- 2026-06-30 01:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/791970.shtml)
+- 2026-06-30 01:49 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/092103.shtml)
+- 2026-06-30 01:41 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/06640138.shtml)
+- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/29636878.shtml)
+- 2026-06-30 02:03 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/02809669.shtml)
+- 2026-06-30 01:44 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/19463.shtml)
+- 2026-06-30 01:41 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/2646353287.shtml)
+- 2026-06-30 01:37 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/16853.shtml)
+- 2026-06-30 01:58 - [逃狱兄弟](https://www.share.minike.top/Article/details/111990136782.shtml)
+- 2026-06-30 01:58 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/61988.shtml)
+- 2026-06-30 02:01 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/4457560.shtml)
+- 2026-06-30 01:58 - [点菜也要教吗](https://www.blog.minike.top/Article/details/74585.shtml)
+- 2026-06-30 02:05 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/30585355006.shtml)
+- 2026-06-30 01:44 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/1105322.shtml)
+- 2026-06-30 01:37 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/7987005.shtml)
+- 2026-06-30 01:51 - [美股](https://www.share.minike.top/Article/details/28786347.shtml)
