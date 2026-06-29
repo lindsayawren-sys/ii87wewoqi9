@@ -1,55 +1,58 @@
-# 俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售
+# 探索月球南极、火星、木星 中国航天未来这么干
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-俄罗斯联邦航空运输署周一表示，将解除对俄罗斯航班的限制，允许其恢复飞越伊朗领空。该机构还解除了飞往阿联酋航班的机票销售暂停令，此举实际上恢复了两国间的商业航班运营。 该机构在一份声明中称：“对俄罗斯航空公司飞越伊朗领空的限制已经取消。”俄罗斯旅游业协会理事会成员阿尔图尔·穆拉迪安（Artur Muradyan）表示：“关键的区域枢纽正稳步恢复全面运营，并重启此前暂停的航班和航线
+国家航天局昨天(24日)发布了我国深空探测的未来规划，其中，今年即将实施的嫦娥七号任务进展顺利。据了解，目前嫦娥七号已经进场，计划下半年发射，将去往月球南极开展水冰探索及环境勘察。 今年嫦娥七号将赴月球南极“找水” 探月与航天工程中心主任 关锋：从科学上来讲，现在还没有任何探测器进入月球的南极，月球上到底有没有水？这是一个科学方面的问题。 第二个问题是嫦娥七号要到月球南极，这里
 
 ## 正文
 
-俄罗斯联邦航空运输署周一表示，将解除对俄罗斯航班的限制，允许其恢复飞越伊朗领空。
+国家航天局昨天(24日)发布了我国深空探测的未来规划，其中，今年即将实施的嫦娥七号任务进展顺利。
 
-该机构还解除了飞往阿联酋航班的机票销售暂停令，此举实际上恢复了两国间的商业航班运营。
+据了解，目前嫦娥七号已经进场，计划下半年发射，将去往月球南极开展水冰探索及环境勘察。
 
-该机构在一份声明中称：“对俄罗斯航空公司飞越伊朗领空的限制已经取消。
+今年嫦娥七号将赴月球南极“找水” 探月与航天工程中心主任 关锋：从科学上来讲，现在还没有任何探测器进入月球的南极，月球上到底有没有水？
 
-”俄罗斯旅游业协会理事会成员阿尔图尔·穆拉迪安（Artur Muradyan）表示：“关键的区域枢纽正稳步恢复全面运营，并重启此前暂停的航班和航线。
+这是一个科学方面的问题。
 
-”责任编辑：李桐
+第二个问题是嫦娥七号要到月球南极，这里从来没有人类的探测器涉足过，这次任务主要是对月球南极环境进行详勘。
+
+月球南极的太阳高度角比较低，可能温度都是极低的，对探测器、对人类深空探测都是一个新的挑战。
+
+天问二号已接近目标小行星 去年5月29日，天问二号成功发射，开启小行星2016HO3探测与采样返回之旅，如今快一年的时间，天问二号目前是个什么样的状态？
+
+专家表示，天问二号在轨飞行目前一切正常，已接近目标小行星。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:24 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:24 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:18 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:25 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:37 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:47 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:20 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:47 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:41 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:45 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:23 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:40 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:47 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:47 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:44 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 12:35 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 12:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 12:27 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 12:40 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 12:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 12:42 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 12:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 12:29 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 12:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 12:39 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 12:27 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.kurohicncr.top/Article/details/595150010.shtml)
-- 2026-06-29 12:20 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.blog.minike.top/Article/details/583586.shtml)
-- 2026-06-29 12:29 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.blog.minike.top/Article/details/1087678.shtml)
-- 2026-06-29 12:46 - [一季度消费市场平稳增长 升级态势持续显现](http://www.share.kurohicncr.top/Article/details/066796075052.shtml)
-- 2026-06-29 12:42 - [日本气象厅解除对所有地区的海啸预警](http://www.share.kurohicncr.top/Article/details/856965.shtml)
-- 2026-06-29 12:36 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/4487663.shtml)
-- 2026-06-29 12:22 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.blog.kurohicncr.top/Article/details/0561231.shtml)
-- 2026-06-29 12:26 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.share.minike.top/Article/details/567204112556.shtml)
-- 2026-06-29 12:20 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.kurohicncr.top/Article/details/605558920.shtml)
-- 2026-06-29 12:41 - [南华期货：第一季度净利润同比增长138.82%](http://www.share.minike.top/Article/details/876085632.shtml)
-- 2026-06-29 12:26 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](http://www.blog.kurohicncr.top/Article/details/143833051849.shtml)
-- 2026-06-29 12:46 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/8152558153.shtml)
-- 2026-06-29 12:39 - [特朗普称预计停火到期后将继续轰炸伊朗](http://www.blog.minike.top/Article/details/5691204.shtml)
+- 2026-06-29 12:26 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/611946559860.shtml)
+- 2026-06-29 12:49 - [男子在家一丝不挂 邻居拍照发业主群](http://www.share.kurohicncr.top/Article/details/7305395.shtml)
+- 2026-06-29 12:23 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/33381569.shtml)
+- 2026-06-29 12:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/483912409.shtml)
+- 2026-06-29 12:42 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/158501.shtml)
+- 2026-06-29 12:35 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/0481500054.shtml)
+- 2026-06-29 12:43 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/038409349046.shtml)
+- 2026-06-29 12:38 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/00977821330.shtml)
+- 2026-06-29 12:26 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/772382.shtml)
+- 2026-06-29 12:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/469546724802.shtml)
+- 2026-06-29 12:38 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/49588310786.shtml)
+- 2026-06-29 12:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/59659.shtml)
+- 2026-06-29 12:35 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/7836292283.shtml)
+- 2026-06-29 12:44 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/0827451.shtml)
+- 2026-06-29 12:41 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/98809.shtml)

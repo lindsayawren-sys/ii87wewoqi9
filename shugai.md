@@ -1,59 +1,57 @@
-# 万亿中原银行，变天了
+# 五一假期出行注意了 明起新一轮降水将来袭
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-文/瑞财经 许淑敏 周锋也算是火速升职。 2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。 距今不过半年时间，周锋就成为了中原银行的一把手。 4月21日，中原银行官宣将帅齐换。 郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。 周锋出生于1977年，博士研究生学历，在加入中原银行之前，
+暴雨再度上线！明起新一轮降水来袭 五一假期南方多雨模式持续 中国天气网讯 明天(4月26日)夜间起，南方大部将再次迎来新一轮降水过程，并且5月1日还会有新一轮降水来袭并持续至“五一”假期，西南地区东部、江汉、江南、华南等地将先后有大到暴雨和强对流天气，恰逢“五一”假期来临，需提前安排出行计划。 今天，南方降水普遍停歇，大部地区进入降水间歇期，迎来晴好天气。不过明天夜间起，新一轮
 
 ## 正文
 
-文/瑞财经 许淑敏 周锋也算是火速升职。
+暴雨再度上线！
 
-2025年10月担任中原银行行长，同年11月担任副董事长，其任职资格2026年1月才正式获批。
+明起新一轮降水来袭 五一假期南方多雨模式持续 中国天气网讯 明天(4月26日)夜间起，南方大部将再次迎来新一轮降水过程，并且5月1日还会有新一轮降水来袭并持续至“五一”假期，西南地区东部、江汉、江南、华南等地将先后有大到暴雨和强对流天气，恰逢“五一”假期来临，需提前安排出行计划。
 
-距今不过半年时间，周锋就成为了中原银行的一把手。
+今天，南方降水普遍停歇，大部地区进入降水间歇期，迎来晴好天气。
 
-4月21日，中原银行官宣将帅齐换。
+不过明天夜间起，新一轮大范围降雨过程来袭，5月1日开始还将有第二轮降水过程，并且会持续至“五一”假期期间。
 
-郭浩因工作调动辞任中原银行董事长，周锋接替这一职位，并辞去行长、副董事长职务，张涛成为该行行长。
+具体来看，4月26日夜间起，西南地区将率先迎来新一轮降雨，之后持续向东发展，直至29日，西南地区东部、江汉、江南、华南等地先后有大到暴雨，局地有短时强降雨和雷暴大风等强对流天气。
 
-周锋出生于1977年，博士研究生学历，在加入中原银行之前，他曾任河南省人民政府副秘书长、河南省濮阳市副市长，也曾在原中国银行保险监督管理委员会河南监管局工作过。
+紧接着，受冷空气影响，中东部大部将迎来新一轮降雨过程，北方还将出现大风降温沙尘天气。
 
-他跟前任郭浩一样，兼具地方政府治理与金融监管的经验。
+预计5月1日至5月3日，中东部大部有小雨或阵雨，其中江淮、江南和华南的部分地区有中到大雨，局地暴雨，并伴有强对流天气。
 
-从履历上看，郭浩也是博士，加入中原银行前，曾任河南省鹤壁市委副书记、市长，河南省政府副秘书长，河南省政府金融服务办公室副主任等职。
+同时，西北、华北及黄淮等地气温将下降4℃至8℃，部分地区降温幅度可达10℃，并且部分地区伴有4至6级偏北风，西北、华北北部的部分地区将出现沙尘天气。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:22 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:30 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:30 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:41 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:22 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:18 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:38 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:35 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:28 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:28 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:32 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:43 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:34 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 12:30 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 12:31 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 12:50 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 12:30 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 12:51 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 12:24 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 12:33 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 12:36 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 12:21 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 12:23 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/86043425419.shtml)
-- 2026-06-29 12:41 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/12031445432.shtml)
-- 2026-06-29 12:30 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.share.minike.top/Article/details/633671060.shtml)
-- 2026-06-29 12:24 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.minike.top/Article/details/66675712365.shtml)
-- 2026-06-29 12:34 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/95548052014.shtml)
-- 2026-06-29 12:38 - [一场展览，看香港工程的过去与未来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.share.minike.top/Article/details/25578.shtml)
-- 2026-06-29 12:24 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.minike.top/Article/details/37983.shtml)
-- 2026-06-29 12:29 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.kurohicncr.top/Article/details/7277586034.shtml)
-- 2026-06-29 12:44 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/69907405.shtml)
-- 2026-06-29 12:41 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.minike.top/Article/details/5912607717.shtml)
-- 2026-06-29 12:19 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.share.minike.top/Article/details/100067939166.shtml)
-- 2026-06-29 12:27 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.blog.kurohicncr.top/Article/details/24896.shtml)
+- 2026-06-29 12:38 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.kurohicncr.top/Article/details/7565851159.shtml)
+- 2026-06-29 12:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/066443.shtml)
+- 2026-06-29 12:49 - [中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/636244986.shtml)
+- 2026-06-29 12:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/25338331482.shtml)
+- 2026-06-29 12:47 - [宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/64125283.shtml)
+- 2026-06-29 12:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/228370986602.shtml)
+- 2026-06-29 12:46 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/08927665.shtml)
+- 2026-06-29 12:33 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/59424526436.shtml)
+- 2026-06-29 12:50 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/936810356933.shtml)
+- 2026-06-29 12:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/777582178681.shtml)
+- 2026-06-29 12:32 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/53828256.shtml)
+- 2026-06-29 12:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2394783.shtml)
+- 2026-06-29 12:44 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.minike.top/Article/details/985159909.shtml)
+- 2026-06-29 12:32 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/6865849740.shtml)
+- 2026-06-29 12:21 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/47136.shtml)

@@ -1,56 +1,61 @@
-# 降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂
+# 用猪血刷墙？神兽是下凡的神仙？ 打假故宫“伪知识”
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-财联社4月21日讯（记者 郭子硕）步入二季度，多家银行在开门红结束后密集调降存款利率，以期压降负债成本。当前，民营银行存款利率普遍迈入 “1 字头” 时代，但财联社记者近期调研发现，仍有民营银行不惜大幅“加息”进行揽储。 近期，天津金城银行通过专属存款等操作，逆势上调三年期定期产品的利率，从1.75%直跳2.1%，罕见上浮了35个基点。相较于当前行业普遍不超过20个基点的上调幅
+用猪血刷墙？神兽是下凡的神仙？ 坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知
 
 ## 正文
 
-财联社4月21日讯（记者 郭子硕）步入二季度，多家银行在开门红结束后密集调降存款利率，以期压降负债成本。
+用猪血刷墙？
 
-当前，民营银行存款利率普遍迈入 “1 字头” 时代，但财联社记者近期调研发现，仍有民营银行不惜大幅“加息”进行揽储。
+神兽是下凡的神仙？
 
-近期，天津金城银行通过专属存款等操作，逆势上调三年期定期产品的利率，从1.75%直跳2.1%，罕见上浮了35个基点。
+坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。
 
-相较于当前行业普遍不超过20个基点的上调幅度，这一上行幅度显得尤为突出。
+这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。
 
-此次上调之后，金城银行同期限的定期产品利率已显著高于该行大额存单利率水平。
+作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。
 
-2026 年初，该行大额存单 1 年、2 年、3 年存款利率分别为 2%、1.9%、1.8%；目前已降至 1 年期 1.95%、2 年期 1.9%、3 年期 1.7%。
+而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知识的不实传言，以及部分导游对故宫知识的错误解读。
 
-其 2 年期、3 年期定存利率已分别超大额存单15个基点、35个基点，形成明显利率倒挂。
+公众为何走进故宫：从“打卡”到“求知”故宫又名紫禁城，在历史上曾为明清皇宫。
 
-三年期定存利率罕见上浮35个基点，可绕开限额约束 “之前三年期存款利率大概在 1.7%左右，这个月起调整了政策，三年期定存产品利率能提升到2.1%了。
+故宫拥有世界上现存规模最大、保存最为完整的木结构古代宫殿建筑群。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:34 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:46 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:20 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:34 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:34 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:19 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:33 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:26 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:28 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 12:35 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 12:26 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 12:24 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 12:33 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 12:24 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 12:33 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 12:24 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 12:26 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 12:38 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 12:48 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 12:43 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 12:28 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 12:48 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.kurohicncr.top/Article/details/513777.shtml)
-- 2026-06-29 12:28 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.share.kurohicncr.top/Article/details/921206644.shtml)
-- 2026-06-29 12:45 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.minike.top/Article/details/240208486.shtml)
-- 2026-06-29 12:42 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.share.minike.top/Article/details/683155188.shtml)
-- 2026-06-29 12:37 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.kurohicncr.top/Article/details/360305.shtml)
-- 2026-06-29 12:45 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [万亿中原银行，变天了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.kurohicncr.top/Article/details/708239436339.shtml)
-- 2026-06-29 12:37 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [外资转向加仓中国资产](http://www.share.kurohicncr.top/Article/details/821017.shtml)
-- 2026-06-29 12:35 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.share.kurohicncr.top/Article/details/338680352775.shtml)
-- 2026-06-29 12:44 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/8915363.shtml)
-- 2026-06-29 12:45 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.blog.kurohicncr.top/Article/details/71146.shtml)
-- 2026-06-29 12:40 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.kurohicncr.top/Article/details/6226226265.shtml)
-- 2026-06-29 12:19 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/60046463801.shtml)
+- 2026-06-29 12:40 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/112101797677.shtml)
+- 2026-06-29 12:42 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/83906848.shtml)
+- 2026-06-29 12:24 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/743038925401.shtml)
+- 2026-06-29 12:25 - [请回答王牌2019](https://www.share.minike.top/Article/details/832824019.shtml)
+- 2026-06-29 12:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/159079.shtml)
+- 2026-06-29 12:38 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/85748.shtml)
+- 2026-06-29 12:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/0234765332.shtml)
+- 2026-06-29 12:32 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/76877775.shtml)
+- 2026-06-29 12:42 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/4318446845.shtml)
+- 2026-06-29 12:47 - [中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/29306556393.shtml)
+- 2026-06-29 12:39 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/1843386435.shtml)
+- 2026-06-29 12:50 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/62576820043.shtml)
+- 2026-06-29 12:50 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/9828249776.shtml)
+- 2026-06-29 12:38 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/479797.shtml)
+- 2026-06-29 12:28 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.kurohicncr.top/Article/details/62156348093.shtml)

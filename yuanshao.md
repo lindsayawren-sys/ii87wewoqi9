@@ -1,60 +1,60 @@
-# 西贝正在“换号重生”
+# 五一去海边！远洋蔚蓝海岸携手迪卡侬，开启运动能量场
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-图片拍摄：界面新闻 牙韩翔 界面新闻记者 | 马越 界面新闻编辑 | 牙韩翔 贾国龙的西贝餐厅正在“换号重生”。 界面新闻获悉，部分西贝餐厅正在加快改装成为另一个品牌天边砂锅焖面。例如刚刚正式营业的天边砂锅焖面上海东方路门店，就是由西贝餐厅升级改造而来。而上海吴江路的西贝餐厅，也已经改造成为了天边砂锅焖面。 除了北京首店外，天边砂锅焖面在2个月内快速扩张到了呼和浩特、上海、杭州
+运动，让这片海更动人。 作为远洋集团文旅赛道的旗舰级实践，秦皇岛·远洋蔚蓝海岸深植远洋“健康”基因，致力于在这片2.8公里的黄金海岸线上，构建一座永不落幕、持续生长的“运动能量场”。 在这里，运动不只是竞技，而是一种生活方式。 从专业化赛事阵地，到全龄化运动社区、再到沉浸式文旅体验，作为国家体育总局首批高质量户外目的地，蔚蓝海岸已成为中帆协北方总部基地、也吸引了全球知名运动品牌
 
 ## 正文
 
-图片拍摄：界面新闻 牙韩翔 界面新闻记者 | 马越 界面新闻编辑 | 牙韩翔 贾国龙的西贝餐厅正在“换号重生”。
+运动，让这片海更动人。
 
-界面新闻获悉，部分西贝餐厅正在加快改装成为另一个品牌天边砂锅焖面。
+作为远洋集团文旅赛道的旗舰级实践，秦皇岛·远洋蔚蓝海岸深植远洋“健康”基因，致力于在这片2.8公里的黄金海岸线上，构建一座永不落幕、持续生长的“运动能量场”。
 
-例如刚刚正式营业的天边砂锅焖面上海东方路门店，就是由西贝餐厅升级改造而来。
+在这里，运动不只是竞技，而是一种生活方式。
 
-而上海吴江路的西贝餐厅，也已经改造成为了天边砂锅焖面。
+从专业化赛事阵地，到全龄化运动社区、再到沉浸式文旅体验，作为国家体育总局首批高质量户外目的地，蔚蓝海岸已成为中帆协北方总部基地、也吸引了全球知名运动品牌迪卡侬等志同道合的伙伴，以及一大群热爱生活、满载活力的你。
 
-除了北京首店外，天边砂锅焖面在2个月内快速扩张到了呼和浩特、上海、杭州和深圳等城市。
+这个五一，即刻出发！
 
-截至目前全国已经有11家门店。
+北京2小时直达。
 
-这个品牌的目前开店速度极快，例如目前上海已经开出了4家门店，界面新闻获悉五一之后还会有新店陆续开出。
+快来加入“LIVE运动生活节”，一同开启5日的滨海狂欢吧。
 
-除了北京首店之外，这些门店绝大多数是由原来的西贝餐厅改造而来。
+文体旅融合：把运动搬进风景里 蔚蓝海岸积极响应国家“文体旅融合”号召，此次联合迪卡侬将沙滩转化为一座超大规模的沉浸式“运动能量场”： 重磅赛事落地：看顶尖高手海边过招 五一期间，两大国家级及省级重点赛事将同期落地远洋蔚蓝海岸，奉上极具观赏性的竞技盛宴： 全龄狂欢：是竞技场，更是治愈生活场 除了硬核竞技，蔚蓝海岸也为各年龄段的“朋友”定制了专属度假节奏 ： 别让这个五一，止步于朋友圈的摄影展。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:44 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:20 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:24 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:47 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:35 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:36 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:46 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:42 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:30 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:23 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:32 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:42 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:19 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:22 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 12:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 12:41 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 12:51 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 12:22 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 12:50 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 12:49 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 12:40 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 12:51 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 12:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 12:49 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 12:26 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:26 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 12:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.kurohicncr.top/Article/details/89294.shtml)
-- 2026-06-29 12:23 - [合并助力建筑公司CannonDesign实现全球布局](http://www.blog.minike.top/Article/details/7344287677.shtml)
-- 2026-06-29 12:22 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.blog.minike.top/Article/details/30282242.shtml)
-- 2026-06-29 12:35 - [特朗普：我会记住不寻求退还关税的公司](http://www.share.kurohicncr.top/Article/details/6344668.shtml)
-- 2026-06-29 12:19 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.kurohicncr.top/Article/details/4567523.shtml)
-- 2026-06-29 12:35 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.share.kurohicncr.top/Article/details/375972.shtml)
-- 2026-06-29 12:33 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.kurohicncr.top/Article/details/1620576371.shtml)
-- 2026-06-29 12:35 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.kurohicncr.top/Article/details/23966351865.shtml)
-- 2026-06-29 12:34 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/244988990370.shtml)
-- 2026-06-29 12:44 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/5245242.shtml)
-- 2026-06-29 12:32 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/22918472.shtml)
+- 2026-06-29 12:42 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/2205302815.shtml)
+- 2026-06-29 12:48 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/74501509.shtml)
+- 2026-06-29 12:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/98604936321.shtml)
+- 2026-06-29 12:42 - [房屋抵押权与租赁权如何协调](http://www.blog.minike.top/Article/details/813196926.shtml)
+- 2026-06-29 12:48 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/0377941.shtml)
+- 2026-06-29 12:25 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/285352044095.shtml)
+- 2026-06-29 12:42 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/52295911.shtml)
+- 2026-06-29 12:31 - [马杜罗社交媒体账号再发文](https://www.share.minike.top/Article/details/60091070253.shtml)
+- 2026-06-29 12:40 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/6917898791.shtml)
+- 2026-06-29 12:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/653542621.shtml)
+- 2026-06-29 12:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/296081.shtml)
+- 2026-06-29 12:31 - [高超感谢女友王佳欣](http://www.blog.kurohicncr.top/Article/details/2579678674.shtml)
+- 2026-06-29 12:25 - [复盘葡萄牙逼平哥伦比亚](https://www.blog.kurohicncr.top/Article/details/762959753.shtml)
+- 2026-06-29 12:51 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/723194085088.shtml)
+- 2026-06-29 12:34 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/06754751006.shtml)

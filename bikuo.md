@@ -1,56 +1,57 @@
-# 上海着力打造首个“次元友好街区”
+# 瑞银：中国建筑国际维持“买入”评级 目标价下调至11.5港元
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社上海4月22日电 (记者 郑莹莹)上海市徐汇区文化和旅游局副局长陈申22日在沪受访时透露，上海徐汇区正依托“元界Neo World”元宇宙街区，打造全上海首个“次元友好街区”。 徐汇区是上海的游戏产业“强区”。2025年，上海徐汇区游戏产业年营收已突破780亿元人民币，集聚米哈游、鹰角网络、莉莉丝等知名企业，形成产业集群效应。 上海徐汇区于2025年7月推出“元界Neo
+瑞银发布研报称，下调中国建筑国际（03311）目标价14.8%，从13.5港元降至11.5港元，维持“买入”评级。 基于该公司2025年业绩及2026年指引，将2026年/2027年的盈利预测分别下调25%/27%。 自2025年中以来，该公司股价已下跌超过20%。该行认为这充分反映受中国建筑兴业（00830）拖累而导致的2025年盈利未达预期（若不计入中国建筑兴业，核心业务增
 
 ## 正文
 
-中新社上海4月22日电 (记者 郑莹莹)上海市徐汇区文化和旅游局副局长陈申22日在沪受访时透露，上海徐汇区正依托“元界Neo World”元宇宙街区，打造全上海首个“次元友好街区”。
+瑞银发布研报称，下调中国建筑国际（03311）目标价14.8%，从13.5港元降至11.5港元，维持“买入”评级。
 
-徐汇区是上海的游戏产业“强区”。
+基于该公司2025年业绩及2026年指引，将2026年/2027年的盈利预测分别下调25%/27%。
 
-2025年，上海徐汇区游戏产业年营收已突破780亿元人民币，集聚米哈游、鹰角网络、莉莉丝等知名企业，形成产业集群效应。
+自2025年中以来，该公司股价已下跌超过20%。
 
-上海徐汇区于2025年7月推出“元界Neo World”元宇宙街区，全长1.9公里，街区内商业体与多家游戏公司总部比邻而居，游戏产品商店及相关展览鳞次栉比。
+该行认为这充分反映受中国建筑兴业（00830）拖累而导致的2025年盈利未达预期（若不计入中国建筑兴业，核心业务增长依然强劲）。
 
-陈申表示，徐汇区正在上述区域打造上海首个“次元友好街区”，为“次元爱好者”构建长期运营的友好空间，营造氛围、活动、服务、消费等全方位友好的环境。
+虽然该行预计2026年上半年盈利压力将对股价造成影响，但随着香港投资的进展以及低基数效应，2026年下半年预计将会好转。
 
-徐汇区游戏产业服务中心负责人归艳告诉中新社记者，徐汇“元界Neo World”元宇宙街区在去年7月开街后，已初步聚拢人气，今年街区有望继续扩容，计划推出“痛车”专属车位、角色扮演妆造间、二次创作互动区等常态化服务，还将打造春、夏、秋、冬四季主题活动。
+展望2027年，该行预期随着中国建筑兴业亏损收窄和香港各项措施取得进一步进展，公司盈利将加速。
 
-(完)
+该行表示，该公司2026年第一季收入和经营利润均同比下降10%，低于该行预期，但与公司最新的2026年业绩指引一致。
+
+该行认为下降的主要原因是2025年上半年基数较高。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:30 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:44 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:33 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:26 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:18 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:29 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:25 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:23 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:22 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:21 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:47 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:36 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 12:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 12:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 12:23 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 12:26 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 12:36 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 12:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 12:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 12:45 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 12:32 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 12:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.minike.top/Article/details/366610422.shtml)
-- 2026-06-29 12:47 - [日本放宽武器出口限制引发各界批评](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.share.kurohicncr.top/Article/details/10496506489.shtml)
-- 2026-06-29 12:31 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.kurohicncr.top/Article/details/03162279.shtml)
-- 2026-06-29 12:18 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.blog.kurohicncr.top/Article/details/842355.shtml)
-- 2026-06-29 12:42 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](http://www.share.kurohicncr.top/Article/details/764037349.shtml)
-- 2026-06-29 12:43 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.share.minike.top/Article/details/98200433.shtml)
-- 2026-06-29 12:20 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.minike.top/Article/details/5519783847.shtml)
-- 2026-06-29 12:22 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/4459700.shtml)
-- 2026-06-29 12:47 - [贵州梵净山：夕阳映照落日如画](http://www.share.kurohicncr.top/Article/details/186262.shtml)
-- 2026-06-29 12:34 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [4月22日央行开展60亿元7天期逆回购操作](http://www.share.minike.top/Article/details/566448725414.shtml)
-- 2026-06-29 12:45 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.minike.top/Article/details/088333321.shtml)
-- 2026-06-29 12:36 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.minike.top/Article/details/81985629370.shtml)
+- 2026-06-29 12:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/95546759447.shtml)
+- 2026-06-29 12:28 - [中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/03167049.shtml)
+- 2026-06-29 12:26 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/827203.shtml)
+- 2026-06-29 12:31 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/6121908.shtml)
+- 2026-06-29 12:37 - [向佑说向佐是一生依靠](https://www.blog.kurohicncr.top/Article/details/85775027.shtml)
+- 2026-06-29 12:36 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.blog.kurohicncr.top/Article/details/46389323.shtml)
+- 2026-06-29 12:40 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.kurohicncr.top/Article/details/749459.shtml)
+- 2026-06-29 12:38 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/781497668564.shtml)
+- 2026-06-29 12:27 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/602737401.shtml)
+- 2026-06-29 12:47 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.minike.top/Article/details/6915643.shtml)
+- 2026-06-29 12:34 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/810068505584.shtml)
+- 2026-06-29 12:25 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/107050208.shtml)
+- 2026-06-29 12:44 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/134424.shtml)
+- 2026-06-29 12:51 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3654368608.shtml)
+- 2026-06-29 12:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.kurohicncr.top/Article/details/2469090891.shtml)

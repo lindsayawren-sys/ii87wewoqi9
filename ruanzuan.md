@@ -1,56 +1,60 @@
-# 登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中
+# ATFX汇市前瞻:超级央行周 美联储携四大央行利率决议
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。在抵京前，查波曾先后赴湖南省、青海省参访。在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更
+专题：ATFX外汇专栏投稿 美联储FOMC公布利率决议 4月27日，本周四凌晨两点，美联储FOMC将公布四月末的利率决议结果，主流预期认为美联储将维持3.5%到3.75%的联邦基金利率区间不变。 ▲ATFX图 这将是现任美联储主席鲍威尔能够决策的最后一个美联储决议，5月15日之后美联储将迎来新的主席，也就是特朗普提名的凯文沃什。 凯文沃什极有可能按照特朗普的意愿采取超宽松货币政
 
 ## 正文
 
-视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。
+专题：ATFX外汇专栏投稿 美联储FOMC公布利率决议 4月27日，本周四凌晨两点，美联储FOMC将公布四月末的利率决议结果，主流预期认为美联储将维持3.5%到3.75%的联邦基金利率区间不变。
 
-在抵京前，查波曾先后赴湖南省、青海省参访。
+▲ATFX图 这将是现任美联储主席鲍威尔能够决策的最后一个美联储决议，5月15日之后美联储将迎来新的主席，也就是特朗普提名的凯文沃什。
 
-在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。
+凯文沃什极有可能按照特朗普的意愿采取超宽松货币政策，这也就意味着，四月末的美联储决议可能是降息之前的最后一次决议。
 
-查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更大合作。
+当前美国通胀高企，市场认为美联储应该提高利率，鲍威尔坚持不加息的话，周四结果公布之后，美元指数极有可能遭受明显的利空冲击。
 
-踏上海拔两千多米的青藏高原，莫桑比克总统查波在青海开启“绿色”之旅。
+美国3月核心PCE物价指数 周四20点30分，美国将公布一系列经济数据，其中最受关注的是3月份PCE物价指数。
 
-参访清洁能源和绿色算力调度中心，行走光伏组件全自动智能生产线，走进矿产开发企业，从水电站如何选址，到怎样建立风光互补综合能源体系，再到光伏板制作工艺，查波听得认真，问得仔细，遇到自己感兴趣的产品，他更是直接拿起来向随行人员展示。
+由于三月份美国和伊朗之间的战争导致国际油价持续上涨，所以市场预期美国的PC物价指数会出现较大幅度的升高。
 
-所到之处，访华团的成员也纷纷拿起手机和笔记本，记录着自己在中国的“绿水青山”中找到的发展密码。
+▲ATFX图 美国3月PCE物价指数同比前值为2.8%，预期值为3.5%，预期增加0.7个百分点。
 
-莫桑比克总统 丹尼尔·查波：我十分认同“绿水青山就是金山银山”的理念。
+3.5%的通胀水平，已经远远超出2%的美联储调控目标。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [硫酸短缺令铜生产商承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:40 - [以树为媒、以情为桥 京藏少年“共植同心树”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:42 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:40 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:34 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:44 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:33 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:30 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:24 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:37 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:23 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 12:32 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 12:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 12:36 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 12:36 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 12:48 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 12:34 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 12:21 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:23 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 12:49 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 12:36 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 12:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:45 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 12:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [光大期货：4月22日金融日报](http://www.share.minike.top/Article/details/514916.shtml)
-- 2026-06-29 12:22 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](http://www.share.minike.top/Article/details/12624209.shtml)
-- 2026-06-29 12:28 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](http://www.share.kurohicncr.top/Article/details/272485274491.shtml)
-- 2026-06-29 12:34 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](http://www.blog.minike.top/Article/details/21259121.shtml)
-- 2026-06-29 12:29 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](http://www.share.minike.top/Article/details/306891.shtml)
-- 2026-06-29 12:24 - [智达藏语大模型及系列应用产品成果发布](http://www.share.kurohicncr.top/Article/details/69996503320.shtml)
-- 2026-06-29 12:21 - [法国官方宣布财政节支措施以应对中东局势](http://www.share.minike.top/Article/details/171229.shtml)
-- 2026-06-29 12:37 - [美国财长贝森特：财政部将继续对伊朗施压](http://www.share.minike.top/Article/details/691149.shtml)
-- 2026-06-29 12:31 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.kurohicncr.top/Article/details/402983.shtml)
-- 2026-06-29 12:21 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.share.minike.top/Article/details/3602503493.shtml)
-- 2026-06-29 12:30 - [摩根士丹利下调黄金前景预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.share.minike.top/Article/details/21083.shtml)
-- 2026-06-29 12:30 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [瞄准、击发 直击官兵轻武器实弹射击训练](http://www.share.minike.top/Article/details/965477934.shtml)
+- 2026-06-29 12:30 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/7592324669.shtml)
+- 2026-06-29 12:48 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/043769743.shtml)
+- 2026-06-29 12:51 - [金牌调解](http://www.blog.minike.top/Article/details/0254096.shtml)
+- 2026-06-29 12:23 - [毒液2](https://www.share.minike.top/Article/details/466081.shtml)
+- 2026-06-29 12:43 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/4061788187.shtml)
+- 2026-06-29 12:31 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/532376277338.shtml)
+- 2026-06-29 12:47 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/03958.shtml)
+- 2026-06-29 12:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/1773346.shtml)
+- 2026-06-29 12:22 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/108891062.shtml)
+- 2026-06-29 12:32 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/000010469883.shtml)
+- 2026-06-29 12:32 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/8546850647.shtml)
+- 2026-06-29 12:24 - [三只羊线下课已下架](http://www.blog.minike.top/Article/details/109909738.shtml)
+- 2026-06-29 12:33 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/48755.shtml)
+- 2026-06-29 12:41 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/877182880763.shtml)
+- 2026-06-29 12:24 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/950945575477.shtml)

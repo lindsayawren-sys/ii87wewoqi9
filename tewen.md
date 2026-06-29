@@ -1,56 +1,60 @@
-# 乌力格尔：蒙古族说唱里的一部民族交融史
+# “胡琴之夜”音乐会在国家大剧院上演
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网兴安盟4月21日电 题：乌力格尔：蒙古族说唱里的一部民族交融史 作者 张玮 叶茹汗 “这四胡拉得真地道，说书人口吐莲花，把草原英雄的故事讲得活灵活现，太有滋味了。”近日，内蒙古自治区兴安盟科右中旗乌力格尔厅迎来2026年首场演出，69岁的包石头端坐在观众席上，边跟着节奏打拍子边感慨。 舞台中央，国家级非物质文化遗产代表性项目乌力格尔兴安盟级代表性传承人吴海清端坐台前，自拉
+中新网北京4月26日电 4月25日，第三届国乐之春闭幕式“胡琴之夜”音乐会在国家大剧院音乐厅上演。 本场音乐会以“民族一家亲 万象共和鸣”为主题，由中央音乐学院与中央民族乐团联合主办，中央音乐学院民乐系、教育部中华优秀传统文化(中国民族音乐)传承基地、中央音乐学院民族室内乐团共同承办，中国民族管弦乐学会胡琴专业委员会协办。二胡演奏家、中央音乐学院院长、中国民族管弦乐学会胡琴专业
 
 ## 正文
 
-中新网兴安盟4月21日电 题：乌力格尔：蒙古族说唱里的一部民族交融史 作者 张玮 叶茹汗 “这四胡拉得真地道，说书人口吐莲花，把草原英雄的故事讲得活灵活现，太有滋味了。
+中新网北京4月26日电 4月25日，第三届国乐之春闭幕式“胡琴之夜”音乐会在国家大剧院音乐厅上演。
 
-”近日，内蒙古自治区兴安盟科右中旗乌力格尔厅迎来2026年首场演出，69岁的包石头端坐在观众席上，边跟着节奏打拍子边感慨。
+本场音乐会以“民族一家亲 万象共和鸣”为主题，由中央音乐学院与中央民族乐团联合主办，中央音乐学院民乐系、教育部中华优秀传统文化(中国民族音乐)传承基地、中央音乐学院民族室内乐团共同承办，中国民族管弦乐学会胡琴专业委员会协办。
 
-舞台中央，国家级非物质文化遗产代表性项目乌力格尔兴安盟级代表性传承人吴海清端坐台前，自拉自唱、声情并茂。
+二胡演奏家、中央音乐学院院长、中国民族管弦乐学会胡琴专业委员会会长于红梅，携手唐峰、齐·宝力高、朱昌耀、邓建栋、姜克美等胡琴名家，与指挥家刘沙、中央民族乐团、中央音乐学院民族室内乐团联袂登台。
 
-时而语调激昂讲述英雄传奇，时而婉转低回诉说草原故事，台下观众跟着节奏点头附和，为精彩桥段鼓掌喝彩。
+在胡琴名曲联奏《民族一家亲》的旋律中，本场音乐会拉开帷幕，独奏、齐奏、联奏次第展开。
 
-“乌力格尔”系蒙古语，意为“说书”，是蒙古族特有的曲艺形式，在广泛吸收民间文学和民间音乐的基础上发展起来，秉承陶力和好来宝的深厚积淀并借鉴蒙古族长篇叙事民歌的艺术风格。
+整场演出以胡琴艺术发展为脉络，融贯古今经典与当代力作，既有《二泉映月》的苍凉悲诉、《红军哥哥回来了》的红色记忆，也有《蒙山沂水情》里织就的家国眷恋、《云裳诉》的清雅婉约与深沉情思，还有《长城随想曲》以恢弘气魄勾勒的民族脊梁。
 
-吴海清告诉记者，厅内常年安排说书人驻场表演，曲目既有经典传统篇章，也有贴合时代的新创作品。
+作为第三届“国乐之春”的压轴演出，本场“胡琴之夜”音乐会近60位演奏家同台献艺，从名家领衔到少年新秀，老中青少四代演奏家以弦音相承、薪火相继，充分展现了胡琴的艺术魅力及深厚底蕴。
 
-“我们以四胡伴奏，用通俗易懂的语言、生动鲜活的演绎，将民间故事、英雄事迹娓娓道来，让观众在沉浸式聆听中感受非遗底蕴、传承民族文化。
+“国乐之春”是国家大剧院重点打造的品牌艺术节之一，自2022年创办以来，已成为民族音乐展示与交流的重要平台。
 
-” 科右中旗文化旅游体育局副局长马图雅介绍，乌力格尔雏形可追溯至成吉思汗时期，据《蒙古秘史》记载，贵族携艺人“执胡尔弹唱先祖功业”，以声载史，形成早期说唱传统。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:38 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:28 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:18 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:23 - [贵州梵净山：夕阳映照落日如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:41 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:30 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:46 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:34 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:21 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:35 - [房屋抵押权与租赁权如何协调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 12:26 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 12:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 12:30 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 12:24 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 12:23 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 12:26 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 12:34 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 12:27 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 12:47 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 12:42 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 12:31 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 12:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 12:38 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [甘肃一季度对东盟进出口货值同比增长逾四成](http://www.share.kurohicncr.top/Article/details/46012431.shtml)
-- 2026-06-29 12:41 - [第三届国际核技术应用产业发展大会开幕](http://www.share.minike.top/Article/details/83484.shtml)
-- 2026-06-29 12:27 - [中信建投期货：4月22日工业品早报](http://www.share.kurohicncr.top/Article/details/1235602.shtml)
-- 2026-06-29 12:32 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.blog.minike.top/Article/details/3788803976.shtml)
-- 2026-06-29 12:39 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](http://www.share.kurohicncr.top/Article/details/626352661472.shtml)
-- 2026-06-29 12:30 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.kurohicncr.top/Article/details/4366333156.shtml)
-- 2026-06-29 12:44 - [【理响中国】文化建设要着眼于人、落脚于人](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [关键词读懂一季度工业和信息化亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/7012878.shtml)
-- 2026-06-29 12:39 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.minike.top/Article/details/474116.shtml)
-- 2026-06-29 12:19 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.blog.kurohicncr.top/Article/details/098968.shtml)
-- 2026-06-29 12:43 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.minike.top/Article/details/556145205.shtml)
-- 2026-06-29 12:40 - [机械车位闲置，如何盘活改造？](http://www.share.kurohicncr.top/Article/details/736217.shtml)
-- 2026-06-29 12:19 - [波兰想卖黄金换军费？财长怒批：这方案根本不切实际！](http://www.share.kurohicncr.top/Article/details/935753904.shtml)
-- 2026-06-29 12:30 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](http://www.share.kurohicncr.top/Article/details/1934410.shtml)
+- 2026-06-29 12:37 - [海清白玉兰奖运](https://www.share.minike.top/Article/details/36671791028.shtml)
+- 2026-06-29 12:35 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/610489.shtml)
+- 2026-06-29 12:47 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/73159.shtml)
+- 2026-06-29 12:38 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/2750993.shtml)
+- 2026-06-29 12:47 - [扬名立万](https://www.blog.minike.top/Article/details/469560302976.shtml)
+- 2026-06-29 12:51 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/972149.shtml)
+- 2026-06-29 12:42 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/040255938.shtml)
+- 2026-06-29 12:21 - [天津打雷](http://www.blog.minike.top/Article/details/86584.shtml)
+- 2026-06-29 12:40 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/50041408.shtml)
+- 2026-06-29 12:44 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/86047814144.shtml)
+- 2026-06-29 12:50 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/3807921950.shtml)
+- 2026-06-29 12:41 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9703079.shtml)
+- 2026-06-29 12:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/9740252641.shtml)
+- 2026-06-29 12:31 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.minike.top/Article/details/990585779036.shtml)
+- 2026-06-29 12:50 - [扬名立万](http://www.share.kurohicncr.top/Article/details/51213216512.shtml)

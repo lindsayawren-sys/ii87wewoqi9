@@ -1,60 +1,56 @@
-# 年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》
+# 4月26日起南方地区将出现强降雨过程 北方地区多大风天气
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-当代年轻人的金钱观、消费观、理财观，正在悄然发生改变。 近日，由上海证监局、上海证券报社、国泰基金、易方达基金多方联合打造的《第四期全国大学生财富素养调查蓝皮书》正式发布。 本次调查聚焦高校青年群体，围绕日常消费、理财实践、风险辨别、学习需求等多个维度展开，覆盖全国近百所高校学子，共回收有效问卷3000余份，样本结构均衡合理，致力于通过真实的调研数据，描绘新时代大学生的财富素养
+中新网4月25日电 据中央气象台网站消息，昨日，海南、广东、云南等地出现大到暴雨；云南、河南、山西等局地出现强对流天气。预计26日起，西南地区东部、江南、华南等地将有降雨过程，局地并伴有强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，西藏东南部有较强降雨，关注对交通运输、设施农业、工程建设等的影响。 昨日海南广东云南等地出现大到暴雨 云南河南山
 
 ## 正文
 
-当代年轻人的金钱观、消费观、理财观，正在悄然发生改变。
+中新网4月25日电 据中央气象台网站消息，昨日，海南、广东、云南等地出现大到暴雨；云南、河南、山西等局地出现强对流天气。
 
-近日，由上海证监局、上海证券报社、国泰基金、易方达基金多方联合打造的《第四期全国大学生财富素养调查蓝皮书》正式发布。
+预计26日起，西南地区东部、江南、华南等地将有降雨过程，局地并伴有强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；未来三天，西藏东南部有较强降雨，关注对交通运输、设施农业、工程建设等的影响。
 
-本次调查聚焦高校青年群体，围绕日常消费、理财实践、风险辨别、学习需求等多个维度展开，覆盖全国近百所高校学子，共回收有效问卷3000余份，样本结构均衡合理，致力于通过真实的调研数据，描绘新时代大学生的财富素养全貌。
+昨日海南广东云南等地出现大到暴雨 云南河南山西等局地出现强对流天气 昨日8时至今日6时，四川南部、云南东部、广东南部、海南岛等地部分地区出现大到暴雨，海南岛东北部及云南昆明、广东茂名局地大暴雨，海南海口、文昌局地特大暴雨；上述地区最大小时降雨量30～60毫米，海南岛局地70～117毫米；山西南部、河南西部、四川南部、云南中东部等局地出现雷暴大风，云南局地出现冰雹。
 
-调查显示，大学生生活费逐步增多，且更加具备良好的日常财务管理能力：每月生活费超2000元的大学生群体由上一报告期的39.06%大幅增长至59.85%。
+西北地区东部、内蒙古、东北地区及河北南部等地部分地区出现6～8级阵风，局地9～10级。
 
-尤为可喜的是，财务规划意识愈发成为群体共识：64.55%的学生明确表示“花钱有一定计划”，较上一报告期提升近5个百分点；另有5.89%的学生表示有“严格计划”，占比提升超2个百分点。
+内蒙古东北部、黑龙江西北部等地部分地区出现降雪或雨夹雪天气，局地出现中到大雪。
 
-而在可支配生活费增加的同时，大学生消费观念保持理性，生活费更多用于购买书籍试题付费课程、各类会员月卡续费等。
+26日起南方地区将出现强降雨过程 26日至29日，西南地区东部、江汉、江南、华南等地部分地区将自西向东出现大到暴雨，局地大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气，主要降水时段为27日至28日。
 
-值得一提的是，将生活费用于“参与股票基金等投资”的大学生比例相较上一报告期提升近10个百分点，反映出当代大学生正在逐步拥抱投资理财行为。
+北方地区多大风天气 25日至27日，北方地区多大风天气，新疆东部、西北地区东部、内蒙古、华北、黄淮、东北地区及青藏高原等地部分地区有4～6级风、阵风7～8级。
 
-调查发现，大学生参与股票、基金、债券等大类资产投资的比例均有明显增加；此外持有金融资产5000元以上的学生占比已达29.60%，接近上一报告期的两倍。
+此外，25日至26日，内蒙古东北部、东北地区等地有小到中雨(雪)或雨夹雪；华北、黄淮等地部分地区有分散性阵雨或雷阵雨，局地伴有短时大风。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:32 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:28 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:18 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:23 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:38 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:40 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:30 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:19 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:35 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:31 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:31 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:47 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:37 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:22 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 12:42 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 12:35 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:34 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 12:35 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 12:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 12:35 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 12:45 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 12:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 12:47 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.minike.top/Article/details/774155989.shtml)
-- 2026-06-29 12:30 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.share.kurohicncr.top/Article/details/2525519.shtml)
-- 2026-06-29 12:30 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.share.minike.top/Article/details/28309434304.shtml)
-- 2026-06-29 12:21 - [人民币兑美元中间价报6.8635，下调41点](http://www.blog.kurohicncr.top/Article/details/96829920191.shtml)
-- 2026-06-29 12:32 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.blog.minike.top/Article/details/419382928.shtml)
-- 2026-06-29 12:41 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.kurohicncr.top/Article/details/4623597.shtml)
-- 2026-06-29 12:32 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.blog.minike.top/Article/details/921858876520.shtml)
-- 2026-06-29 12:26 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.blog.minike.top/Article/details/981738436.shtml)
-- 2026-06-29 12:47 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.kurohicncr.top/Article/details/5823644.shtml)
-- 2026-06-29 12:44 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/76180118.shtml)
-- 2026-06-29 12:23 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.blog.kurohicncr.top/Article/details/4066446.shtml)
-- 2026-06-29 12:25 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [广西仫佬山乡：多彩民俗展风情](http://www.blog.kurohicncr.top/Article/details/351671669678.shtml)
+- 2026-06-29 12:49 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/44952.shtml)
+- 2026-06-29 12:39 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/97513.shtml)
+- 2026-06-29 12:51 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/59905.shtml)
+- 2026-06-29 12:25 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/68742.shtml)
+- 2026-06-29 12:27 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/29001.shtml)
+- 2026-06-29 12:33 - [刘宇宁现偶我就不要了](http://www.blog.minike.top/Article/details/4427585100.shtml)
+- 2026-06-29 12:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/48041199.shtml)
+- 2026-06-29 12:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.minike.top/Article/details/545320212.shtml)
+- 2026-06-29 12:47 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/393244.shtml)
+- 2026-06-29 12:42 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/7222155.shtml)
+- 2026-06-29 12:39 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/53192878186.shtml)
+- 2026-06-29 12:31 - [某高校学生被辅导员等人扭送至公安](http://www.blog.minike.top/Article/details/9331281.shtml)
+- 2026-06-29 12:37 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/2242543.shtml)
+- 2026-06-29 12:25 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/2263103758.shtml)
+- 2026-06-29 12:23 - [香港航天员黎家盈带招牌笑容工作](https://www.blog.minike.top/Article/details/428206.shtml)

@@ -1,59 +1,46 @@
-# 小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权
+# 视频|李大霄：未来券商或成金融航母
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-最近一则视频引发广泛关注：博主以29元全款买下5件“小学小卖部彩妆”，包括发际线粉、胎毛刘海贴等产品，相关视频竟登上了某购物平台的热榜。经核查，这些产品均无生产厂家、无生产日期、无合格证，是典型的三无产品。更令人担忧的是，这类彩妆的目标用户群正是中小学生，购买门槛低、宣传有趣，却存在直接接触皮肤的安全风险。 儿童和青少年的皮肤比成人更敏感脆弱，一旦接触重金属超标或含有刺激性成分
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-最近一则视频引发广泛关注：博主以29元全款买下5件“小学小卖部彩妆”，包括发际线粉、胎毛刘海贴等产品，相关视频竟登上了某购物平台的热榜。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-经核查，这些产品均无生产厂家、无生产日期、无合格证，是典型的三无产品。
-
-更令人担忧的是，这类彩妆的目标用户群正是中小学生，购买门槛低、宣传有趣，却存在直接接触皮肤的安全风险。
-
-儿童和青少年的皮肤比成人更敏感脆弱，一旦接触重金属超标或含有刺激性成分的劣质化妆品，可能引发皮疹、过敏甚至更严重的皮肤损伤。
-
-三无产品缺乏成分标注，无法判断实际危害，家长往往在孩子出现反应后才意识到风险。
-
-儿童彩妆的安全标准要求 我国对化妆品的监管要求明确：所有化妆品（包括儿童化妆品）必须取得国家药品监督管理局的备案或注册，产品需标注生产企业、地址、成分、使用期限等信息，缺少任何一项均属违规。
-
-针对12岁以下儿童的专用化妆品，还须在标签上明确标注“儿童化妆品”字样，并按照更严格的儿童化妆品安全技术规范进行配方管理。
-
-三无彩妆没有备案、没有成分标注、没有质量保证，完全处于监管之外。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:23 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:20 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:40 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:34 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:25 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:21 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:45 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:32 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:45 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:34 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:34 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:46 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:35 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 12:25 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 12:41 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 12:48 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 12:31 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 12:39 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 12:39 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 12:49 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 12:42 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 12:22 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 12:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 12:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.share.minike.top/Article/details/597532651248.shtml)
-- 2026-06-29 12:23 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.minike.top/Article/details/13165257.shtml)
-- 2026-06-29 12:29 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.minike.top/Article/details/43568706271.shtml)
-- 2026-06-29 12:47 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.blog.minike.top/Article/details/26288522.shtml)
-- 2026-06-29 12:19 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.share.minike.top/Article/details/220258867.shtml)
-- 2026-06-29 12:43 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.blog.minike.top/Article/details/85275.shtml)
-- 2026-06-29 12:24 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.share.kurohicncr.top/Article/details/38045726.shtml)
-- 2026-06-29 12:38 - [一季度消费市场平稳增长 升级态势持续显现](http://www.share.minike.top/Article/details/307904521779.shtml)
-- 2026-06-29 12:32 - [日本气象厅解除对所有地区的海啸预警](http://www.blog.minike.top/Article/details/40195768875.shtml)
-- 2026-06-29 12:18 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.blog.kurohicncr.top/Article/details/98350.shtml)
-- 2026-06-29 12:22 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.share.minike.top/Article/details/11968.shtml)
+- 2026-06-29 12:28 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/058668.shtml)
+- 2026-06-29 12:48 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/30934.shtml)
+- 2026-06-29 12:41 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/7572366.shtml)
+- 2026-06-29 12:45 - [谢霆锋演唱会变大型呲水现场](http://www.blog.minike.top/Article/details/596448253.shtml)
+- 2026-06-29 12:29 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/818899702493.shtml)
+- 2026-06-29 12:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/22730606.shtml)
+- 2026-06-29 12:34 - [神23乘组太空出差满月](http://www.blog.kurohicncr.top/Article/details/325067135129.shtml)
+- 2026-06-29 12:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/0714670728.shtml)
+- 2026-06-29 12:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/76458.shtml)
+- 2026-06-29 12:25 - [起风了](https://www.share.minike.top/Article/details/6156636857.shtml)
+- 2026-06-29 12:50 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/4701150.shtml)
+- 2026-06-29 12:21 - [加拿大92分钟绝杀](http://www.share.kurohicncr.top/Article/details/11661600.shtml)
+- 2026-06-29 12:26 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/242278376256.shtml)
+- 2026-06-29 12:34 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/8473487889.shtml)
+- 2026-06-29 12:35 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.share.kurohicncr.top/Article/details/92279685.shtml)

@@ -1,56 +1,52 @@
-# 牧原股份一季度净亏损12.15亿元，同比转亏
+# 中国著名作家手稿展首展在河南郑州开展 86位作家200余件手稿展出
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-4月21日，上市猪企牧原股份（002714.SZ）发布2026年一季报。 报告期内，牧原股份实现营业收入298.94亿元，同比下降17.1%。归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元，同比下降127.05%。扣非净利润为-11.41亿元，上年同期为45.09亿元，同比下降125.32%。基本每股收益-0.22元，上年同期为0.83元。 牧原股份表示，净利
+发布时间：2026年04月26日 15:09 来源：中国新闻网 4月25日，“与星同行——中国著名作家手稿展首展”在河南省美术馆亮相，共展出86位作家的200余件珍贵手稿，均为首次与读者见面。观众在字里行间重温经典，致敬作家，感悟文学力量的深厚底蕴。 据介绍，郑州首展后，该展览将在全国进行巡展。全国巡展结束后，活动主办方将对展出手稿进行拍卖，所筹款项将捐赠至由莫言发起的“与莫言
 
 ## 正文
 
-4月21日，上市猪企牧原股份（002714.SZ）发布2026年一季报。
+发布时间：2026年04月26日 15:09 来源：中国新闻网 4月25日，“与星同行——中国著名作家手稿展首展”在河南省美术馆亮相，共展出86位作家的200余件珍贵手稿，均为首次与读者见面。
 
-报告期内，牧原股份实现营业收入298.94亿元，同比下降17.1%。
+观众在字里行间重温经典，致敬作家，感悟文学力量的深厚底蕴。
 
-归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元，同比下降127.05%。
+据介绍，郑州首展后，该展览将在全国进行巡展。
 
-扣非净利润为-11.41亿元，上年同期为45.09亿元，同比下降125.32%。
+全国巡展结束后，活动主办方将对展出手稿进行拍卖，所筹款项将捐赠至由莫言发起的“与莫言同行”公益行动设立的“两块砖公益基金”，用于帮助孤独症儿童及其家庭，将文学资源转化为帮扶孤独症家庭的实际力量，让更多“星星的孩子”及其家庭感受到来自文学的温暖与呵护。
 
-基本每股收益-0.22元，上年同期为0.83元。
-
-牧原股份表示，净利润本期较上年同期减少，主要系生猪价格下降，收入减少所致。
-
-2025年，牧原股份实现营业收入1441.45亿元，同比增4.49%。
-
-归属于上市公司股东的净利润154.87亿元，同比下降13.39%。
+(赵梦阳） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:19 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:18 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:34 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:38 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:20 - [“GNV·北极星”号豪华客滚船完成升级改造启航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:41 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:27 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:23 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:25 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:45 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 12:47 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 12:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 12:36 - [国乒男单资格赛全员出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 12:34 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 12:21 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 12:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 12:46 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 12:23 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 12:33 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 12:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 12:28 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.blog.minike.top/Article/details/46256149.shtml)
-- 2026-06-29 12:31 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.share.minike.top/Article/details/7821056329.shtml)
-- 2026-06-29 12:47 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](http://www.share.minike.top/Article/details/933791689.shtml)
-- 2026-06-29 12:28 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.blog.minike.top/Article/details/32187366152.shtml)
-- 2026-06-29 12:36 - [商汤-W授出合共2.38亿份受限制股份单位](http://www.blog.minike.top/Article/details/502303.shtml)
-- 2026-06-29 12:18 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](http://www.share.kurohicncr.top/Article/details/4157407.shtml)
-- 2026-06-29 12:42 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.share.kurohicncr.top/Article/details/366746.shtml)
-- 2026-06-29 12:27 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [广州纪念詹天佑诞辰165周年](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](http://www.blog.minike.top/Article/details/5804879449.shtml)
+- 2026-06-29 12:50 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/047441.shtml)
+- 2026-06-29 12:34 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/31925.shtml)
+- 2026-06-29 12:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/0444489.shtml)
+- 2026-06-29 12:43 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.minike.top/Article/details/2998576688.shtml)
+- 2026-06-29 12:42 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/81194642.shtml)
+- 2026-06-29 12:36 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/4086773.shtml)
+- 2026-06-29 12:29 - [《贺子珍》](http://www.blog.minike.top/Article/details/94524024917.shtml)
+- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/01754.shtml)
+- 2026-06-29 12:44 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/93098.shtml)
+- 2026-06-29 12:34 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/6040989433.shtml)
+- 2026-06-29 12:33 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/33529464991.shtml)
+- 2026-06-29 12:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.kurohicncr.top/Article/details/77278385390.shtml)
+- 2026-06-29 12:29 - [复盘葡萄牙逼平哥伦比亚](http://www.blog.kurohicncr.top/Article/details/278863.shtml)
+- 2026-06-29 12:34 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/0986031804.shtml)
+- 2026-06-29 12:29 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/51111160.shtml)

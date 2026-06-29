@@ -1,51 +1,60 @@
-# 日本央行称日本金融体系稳定，但警告中东和非银行风险
+# 新疆中医药产业高质量发展大会在和田召开
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-日本央行周四表示，日本金融体系整体保持稳定，但有必要密切关注中东局势发展以及外国非银行机构活动日益频繁所带来的影响。 日本央行在其金融体系报告中指出：“非银行机构在信贷或流动性方面面临的压力更容易蔓延至多个司法管辖区的银行业。”责任编辑：于健 SF069
+中新网乌鲁木齐4月27日电 (胡嘉琛 陈雪)新疆中医药产业高质量发展大会27日在和田举行。会议旨在健全新疆中药材全产业链体系，强化科技创新、人才支撑和质量监管，深化区域协同与开放合作，加快推动中医药产业提质增效、转型升级。 会议发布新疆道地药材目录和特色药材目录(第一批)；发布新疆中药材产地趁鲜切制加工品种目录并介绍新疆中药材种植区划概况。 会议举行战略合作签约仪式，协议围绕药
 
 ## 正文
 
-日本央行周四表示，日本金融体系整体保持稳定，但有必要密切关注中东局势发展以及外国非银行机构活动日益频繁所带来的影响。
+中新网乌鲁木齐4月27日电 (胡嘉琛 陈雪)新疆中医药产业高质量发展大会27日在和田举行。
 
-日本央行在其金融体系报告中指出：“非银行机构在信贷或流动性方面面临的压力更容易蔓延至多个司法管辖区的银行业。
+会议旨在健全新疆中药材全产业链体系，强化科技创新、人才支撑和质量监管，深化区域协同与开放合作，加快推动中医药产业提质增效、转型升级。
 
-”责任编辑：于健 SF069
+会议发布新疆道地药材目录和特色药材目录(第一批)；发布新疆中药材产地趁鲜切制加工品种目录并介绍新疆中药材种植区划概况。
+
+会议举行战略合作签约仪式，协议围绕药材基地建设、技术研发、成果转化、人才培养等深化合作，助力中医药产业链“强链补链延链”。
+
+会议同步举行院士工作站、岐黄学者工作室揭牌仪式。
+
+阿吉艾克拜尔·艾萨院士工作站，刘建勋、胡凯文岐黄学者工作室正式启用，为新疆中医药科技创新与高层次人才培养搭建高端平台。
+
+此外，新疆中医医院和田医院揭牌成立，7个名医工作室同步落地。
+
+现场为名誉院长、名誉主任颁发聘书并举行拜师仪式，推动优质中医药医疗资源下沉基层，提升基层中医药服务能力。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:36 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:40 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:26 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:45 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:21 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:25 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:47 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:24 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:40 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:33 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:21 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:40 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:18 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:32 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:32 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 12:28 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 12:38 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 12:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 12:35 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 12:35 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 12:45 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 12:22 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 12:44 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 12:44 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 12:29 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 12:24 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 12:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/340959100479.shtml)
-- 2026-06-29 12:31 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.minike.top/Article/details/7369195.shtml)
-- 2026-06-29 12:29 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.kurohicncr.top/Article/details/9039718063.shtml)
-- 2026-06-29 12:20 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.minike.top/Article/details/27204098204.shtml)
-- 2026-06-29 12:31 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.blog.minike.top/Article/details/408389006.shtml)
-- 2026-06-29 12:28 - [致敬！在繁花盛放的春天接英雄回家](http://www.blog.kurohicncr.top/Article/details/79584532480.shtml)
-- 2026-06-29 12:47 - [万亿中原银行，变天了](http://www.share.minike.top/Article/details/35034302375.shtml)
-- 2026-06-29 12:32 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.blog.kurohicncr.top/Article/details/083793398041.shtml)
-- 2026-06-29 12:34 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/246518295990.shtml)
-- 2026-06-29 12:42 - [外资转向加仓中国资产](http://www.blog.minike.top/Article/details/331138571.shtml)
-- 2026-06-29 12:18 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.share.kurohicncr.top/Article/details/37103862580.shtml)
-- 2026-06-29 12:37 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.kurohicncr.top/Article/details/3050118.shtml)
-- 2026-06-29 12:41 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.share.kurohicncr.top/Article/details/611751909.shtml)
-- 2026-06-29 12:32 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.kurohicncr.top/Article/details/7667349931.shtml)
+- 2026-06-29 12:31 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/01889.shtml)
+- 2026-06-29 12:44 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/403440089245.shtml)
+- 2026-06-29 12:25 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/73531624.shtml)
+- 2026-06-29 12:24 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/11707503.shtml)
+- 2026-06-29 12:27 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/4137847.shtml)
+- 2026-06-29 12:49 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/068010.shtml)
+- 2026-06-29 12:45 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/460222878.shtml)
+- 2026-06-29 12:27 - [詹姆斯下赛季会在哪里](https://www.blog.minike.top/Article/details/36378.shtml)
+- 2026-06-29 12:43 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/92872919615.shtml)
+- 2026-06-29 12:42 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/8858231.shtml)
+- 2026-06-29 12:40 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/189715049.shtml)
+- 2026-06-29 12:22 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/41682118.shtml)
+- 2026-06-29 12:39 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/0446970708.shtml)
+- 2026-06-29 12:50 - [四川宜宾地震](http://www.blog.minike.top/Article/details/91388980.shtml)
+- 2026-06-29 12:35 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/8141997238.shtml)

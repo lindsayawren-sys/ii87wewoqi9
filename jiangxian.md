@@ -1,57 +1,56 @@
-# *ST太和（605081）立案调查+监管！符合条件股民可索赔
+# 网飞联合创始人：娱乐业不易被AI颠覆，但需警惕短视频
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-近日，上海太和水科技发展股份有限公司（以下简称“太和水”或“公司”）发布公告收到立案调查通知书和行政监管措施决定书，涉及相关信息虚假记载。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月30日-2026年3月19日期间买入且有持仓，无论在2026年3月20日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。（赵敬
+网飞联合创始人里德·哈斯廷斯表示，娱乐业可能将是受人工智能颠覆最小的行业之一，但公司面临的更大风险来自于观众观看习惯的改变。 “你不会去看机器人打篮球赛” 哈斯廷斯在播客节目中提到，行业的核心在于人类冲突、现场对抗和真实的表演。人类不会愿意观看机器人打篮球赛，也不会接受AI生成的戏剧。但他也承认，AI确实可以在视觉特效和后期制作等环节节省制作成本。 网飞管理层曾表达过类似观点。
 
 ## 正文
 
-近日，上海太和水科技发展股份有限公司（以下简称“太和水”或“公司”）发布公告收到立案调查通知书和行政监管措施决定书，涉及相关信息虚假记载。
+网飞联合创始人里德·哈斯廷斯表示，娱乐业可能将是受人工智能颠覆最小的行业之一，但公司面临的更大风险来自于观众观看习惯的改变。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2026年1月30日-2026年3月19日期间买入且有持仓，无论在2026年3月20日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿登记索赔。
+“你不会去看机器人打篮球赛” 哈斯廷斯在播客节目中提到，行业的核心在于人类冲突、现场对抗和真实的表演。
 
-（赵敬国律师专栏） 回顾本案，公司于2026年4月21日在巨潮资讯网以公告的方式披露了《关于收到中国证券监督管理委员会立案告知书的公告》和《关于收到中国证券监督管理委员会上海监管局行政监管措施决定书的公告》，经查太和水公司存在以下违规情形：公司于2026年1月30日披露的《2025年度业绩预亏暨风险提示公告》（以下简称“《业绩预告》”）中，预计2025年年度营业收入为38，000.00万元到40，000.00万元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为37，792.75万元到39，792.75万元。
+人类不会愿意观看机器人打篮球赛，也不会接受AI生成的戏剧。
 
-公司于2026年3月20日披露的《关于2025年度业绩预告相关事项监管工作函的回复公告》（以下简称“《回复公告》”）列示，2025年第四季度新增工程项目15个，共累计确认收入2.1亿元，并载明上述项目不存在提前确认收入或不符合收入确认的情形。
+但他也承认，AI确实可以在视觉特效和后期制作等环节节省制作成本。
 
-经我局核查，公司存在通过虚构工程项目、提前确认进度等方式确认工程项目收入的情况，导致《回复公告》存在虚假记载，《业绩预告》披露的预计实现营业收入金额不实。
+网飞管理层曾表达过类似观点。
 
-。
+联合首席执行官泰德·萨兰多斯表示，他不认为AI能写出比优秀编剧更好的剧本，或者取代一位出色的演员。
 
-信本股民索赔团队提醒，太和水被证监会立案调查，因此受损投资者可通过“新浪股民维权平台”自愿登记索赔。
+真正的威胁来自观看习惯 更大的问题在于年轻消费者是否仍愿意观看长视频内容，还是将更多时间花费在短视频上。
 
-索赔条件： 太和水：于2026年1月30日-2026年3月19日期间买入且有持仓，无论在2026年3月20日及之后是否卖出。
+网飞已经在应对这一趋势——正在其移动应用中加入竖屏视频板块，以提升内容发现性，抢占手机端的用户注意力。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [IPO前因《蓝皮书》疑遭行业协会批评，背后护家科技一年花10亿做推广](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:18 - [欧洲和美国3月份公司违约率上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:31 - [碎片化刷短视频 正在悄悄伤害你的大脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:29 - [此行间·读书正当时！听总书记分享读书心得](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:19 - [凯莱英获Norges Bank增持8.53万股 每股作价约98.94港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:30 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:46 - [一周展望：美股迎地缘与财报检验，沃什出席美联储主席提名听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:21 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:21 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:22 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:42 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:29 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 12:47 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 12:40 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 12:26 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 12:30 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 12:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 12:49 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 12:34 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 12:50 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:20 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [美伊停火最后24小时口水战升级，和平仍存一线希望](http://www.blog.kurohicncr.top/Article/details/770094993.shtml)
-- 2026-06-29 12:38 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.kurohicncr.top/Article/details/39817265.shtml)
-- 2026-06-29 12:31 - [牧原股份一季度净亏损12.15亿元，同比转亏](http://www.blog.minike.top/Article/details/65540482.shtml)
-- 2026-06-29 12:42 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](http://www.share.minike.top/Article/details/32375261.shtml)
-- 2026-06-29 12:37 - [GTC泽汇:北欧黄金并购加速布局](http://www.blog.kurohicncr.top/Article/details/764532.shtml)
-- 2026-06-29 12:18 - [智能时代，我们还需要深度阅读吗？](http://www.blog.minike.top/Article/details/638609339293.shtml)
-- 2026-06-29 12:31 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.share.minike.top/Article/details/7511066758.shtml)
-- 2026-06-29 12:39 - [湖南永顺：山间云雾 人间烟火](http://www.share.minike.top/Article/details/17506302.shtml)
-- 2026-06-29 12:36 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.blog.minike.top/Article/details/8839292575.shtml)
-- 2026-06-29 12:47 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.blog.minike.top/Article/details/20734.shtml)
-- 2026-06-29 12:35 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.kurohicncr.top/Article/details/9298532.shtml)
-- 2026-06-29 12:23 - [金针菇概念股，净利润大增超7000%](http://www.share.minike.top/Article/details/4449369708.shtml)
+- 2026-06-29 12:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/667266871956.shtml)
+- 2026-06-29 12:23 - [流金岁月](http://www.share.kurohicncr.top/Article/details/11620.shtml)
+- 2026-06-29 12:42 - [三只羊线下课已下架](https://www.share.minike.top/Article/details/20681.shtml)
+- 2026-06-29 12:23 - [伊朗球员道歉 说着说着哭了](https://www.blog.minike.top/Article/details/58250642.shtml)
+- 2026-06-29 12:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/871845031.shtml)
+- 2026-06-29 12:46 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/199628937.shtml)
+- 2026-06-29 12:29 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/296743726354.shtml)
+- 2026-06-29 12:31 - [请回答王牌2019](https://www.share.minike.top/Article/details/22108887903.shtml)
+- 2026-06-29 12:32 - [青春环游记第三季](https://www.blog.minike.top/Article/details/11451702832.shtml)
+- 2026-06-29 12:39 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/150695207075.shtml)
+- 2026-06-29 12:48 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/90860.shtml)
+- 2026-06-29 12:24 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/436819.shtml)
+- 2026-06-29 12:49 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/256404623.shtml)
+- 2026-06-29 12:51 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/31323.shtml)
+- 2026-06-29 12:42 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/3846781819.shtml)

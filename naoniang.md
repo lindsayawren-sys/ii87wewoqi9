@@ -1,54 +1,58 @@
-# 国台办：坚决反对美国一些人搞“以台遏华”
+# 上海家化发布2026年一季报：Q1毛利率同比提升2.4个百分点 实现了量质齐升的良性发展
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-4月22日，国务院台办举行例行新闻发布会。有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。民进党当局图谋“以武谋独”
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美
 
 ## 正文
 
-4月22日，国务院台办举行例行新闻发布会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者问：美国国会跨党派参议员日前致函台湾民意机构，敦促其通过台湾所谓“国防特别预算”，以“强化台湾防卫能力”，并加速采购美国军备，并有议员呼吁美国行政部门继续推进美国对台军售程序，请问发言人对此有何评论？
+4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。
 
-发言人张晗表示，一段时间以来，美国一些人妄图“打台湾牌”，搞“以台遏华”，阻挠中国统一，我们对此坚决反对。
+报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。
 
-民进党当局图谋“以武谋独”“倚外谋独”，甘当美国军火商的“提款机”，最终只会将台岛变成“火药桶”“弹药库”，毁台、害台，自取灭亡。
+国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美妆线上渠道同比增长62.5%，个护业务线上渠道同比增长37.9%。
 
-(总台央视记者 赵超逸 张立雷)
+期末，应收账款同比下降16.6%，现金流3.78亿元，整体经营质量稳步向好。
+
+此外，公司一季度毛利率同比提升2.4个百分点，实现了量质齐升的良性发展。
+
+2026年第一季度，上海家化继续深入“聚焦核心品牌、聚焦品牌建设、聚焦线上、聚焦效率”的经营战略，在2025年扭亏为盈基础上持续深化战略落地、夯实增长底盘，实现开局稳健增长。
+
+核心品牌推新不断，深耕品牌内核建设 2026年第一季度，便携式六神驱蚊蛋、玉泽干敏修护霜、佰草集大白泥面膜三大亿元单品齐头并进，延续良好增长态势，均实现高速增长，进一步夯实市场地位。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:28 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:44 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:23 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:19 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:25 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:43 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:41 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:21 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:24 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:18 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:47 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:33 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:27 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:24 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 12:23 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 12:31 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 12:44 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 12:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 12:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 12:47 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 12:44 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:26 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 12:45 - [凯恩何时能拿到国际大赛冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 12:46 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.minike.top/Article/details/3043364.shtml)
-- 2026-06-29 12:25 - [全民阅读活动周 各地举办多场活动](http://www.blog.kurohicncr.top/Article/details/410104.shtml)
-- 2026-06-29 12:33 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.minike.top/Article/details/884495335.shtml)
-- 2026-06-29 12:22 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.kurohicncr.top/Article/details/5272145151.shtml)
-- 2026-06-29 12:18 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.share.minike.top/Article/details/6111234.shtml)
-- 2026-06-29 12:25 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.share.minike.top/Article/details/9872160.shtml)
-- 2026-06-29 12:31 - [特朗普：我会记住不寻求退还关税的公司](http://www.blog.kurohicncr.top/Article/details/6291027.shtml)
-- 2026-06-29 12:46 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.minike.top/Article/details/10047874596.shtml)
-- 2026-06-29 12:22 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.blog.minike.top/Article/details/75298344.shtml)
-- 2026-06-29 12:33 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.minike.top/Article/details/9368905902.shtml)
-- 2026-06-29 12:28 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.blog.minike.top/Article/details/90825.shtml)
-- 2026-06-29 12:41 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.share.minike.top/Article/details/49752.shtml)
-- 2026-06-29 12:20 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/49704.shtml)
+- 2026-06-29 12:33 - [复盘葡萄牙逼平哥伦比亚](https://www.blog.kurohicncr.top/Article/details/26420.shtml)
+- 2026-06-29 12:36 - [三轮车被自家狗“推”进池塘](https://www.share.kurohicncr.top/Article/details/246801.shtml)
+- 2026-06-29 12:49 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/7430639.shtml)
+- 2026-06-29 12:43 - [美人鱼](https://www.blog.minike.top/Article/details/44452.shtml)
+- 2026-06-29 12:49 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/88394.shtml)
+- 2026-06-29 12:48 - [薛之谦演唱会](https://www.share.minike.top/Article/details/766278.shtml)
+- 2026-06-29 12:33 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/010302.shtml)
+- 2026-06-29 12:50 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/4633214.shtml)
+- 2026-06-29 12:26 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/603314821.shtml)
+- 2026-06-29 12:45 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/1449571.shtml)
+- 2026-06-29 12:32 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/968082710264.shtml)
+- 2026-06-29 12:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/53767731.shtml)
+- 2026-06-29 12:25 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/609750226885.shtml)
+- 2026-06-29 12:48 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/551497763090.shtml)

@@ -1,59 +1,53 @@
-# 一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报
+# 河北：从“一人来雄安”变为“全家来雄安”
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李山 编辑丨张颖国 A股市场年报披露进入倒计时，一家一年涨停33次的“大牛股”，却在最后一次涨停当晚上演业绩变脸的“黑天鹅”事件。4月21日晚间，*ST华嵘（维权）（600421）发布了一则重磅公告，将2025年年度业绩由“预盈”大幅修正为“预亏”。此次业绩修正不仅意味着公司此前的扭亏努力化为泡影，更
+发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。 王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。
 
-记者丨李山 编辑丨张颖国 A股市场年报披露进入倒计时，一家一年涨停33次的“大牛股”，却在最后一次涨停当晚上演业绩变脸的“黑天鹅”事件。
+王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推进第三批疏解项目落地，形成压茬推进的良好态势。
 
-4月21日晚间，*ST华嵘（维权）（600421）发布了一则重磅公告，将2025年年度业绩由“预盈”大幅修正为“预亏”。
+进一步优化完善雄安新区的疏解政策，深化拓展京雄“同城化”事项，确保疏解对象的创业条件、居住条件、福利待遇不低于留在北京时的水平，从“一人来雄安”变为“全家来雄安”，以雄安为家、在新区扎根。
 
-此次业绩修正不仅意味着公司此前的扭亏努力化为泡影，更直接将公司推向了财务类强制退市的悬崖边缘，导致其股价从涨停骤变为开盘跌停。
-
-目前针对*ST华嵘的索赔已拉开帷幕，受损股民可关注“投资快报”公众号，通过右侧“股民索赔”菜单栏挽回损失。
-
-财务数据大幅下修 时间回溯至2026年1月29日，彼时*ST华嵘发布了一份业绩预盈公告。
-
-公司预计2025年年度归属于上市公司股东的净利润为650万元至800万元，营业收入约为1.85亿元至1.95亿元。
-
-受此消息刺激，该股随后连续多个交易日涨停，二级市场反应明显。
+(赵安源 陈林 赵丹媚 制作 徐妙巧） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:34 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:28 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:36 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:41 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:44 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:41 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:27 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:46 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:32 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:30 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:44 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:18 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 12:46 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 12:32 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 12:35 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 12:27 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 12:38 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 12:22 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 12:49 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 12:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 12:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 12:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 12:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 12:45 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 12:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 12:51 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.minike.top/Article/details/814182754321.shtml)
-- 2026-06-29 12:34 - [致敬！在繁花盛放的春天接英雄回家](http://www.share.minike.top/Article/details/42929843444.shtml)
-- 2026-06-29 12:27 - [万亿中原银行，变天了](http://www.blog.minike.top/Article/details/77506.shtml)
-- 2026-06-29 12:33 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.minike.top/Article/details/452204114.shtml)
-- 2026-06-29 12:40 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [外资转向加仓中国资产](http://www.blog.kurohicncr.top/Article/details/558487583.shtml)
-- 2026-06-29 12:33 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.blog.minike.top/Article/details/519805771152.shtml)
-- 2026-06-29 12:42 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/328451717113.shtml)
-- 2026-06-29 12:42 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.minike.top/Article/details/112990.shtml)
-- 2026-06-29 12:41 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/49510.shtml)
-- 2026-06-29 12:27 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](http://www.share.kurohicncr.top/Article/details/44961548630.shtml)
-- 2026-06-29 12:36 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.kurohicncr.top/Article/details/64580882207.shtml)
-- 2026-06-29 12:31 - [全民阅读活动周 各地举办多场活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.minike.top/Article/details/71714405.shtml)
+- 2026-06-29 12:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/3028015184.shtml)
+- 2026-06-29 12:51 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/5936367.shtml)
+- 2026-06-29 12:40 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/648109736212.shtml)
+- 2026-06-29 12:28 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/72593199.shtml)
+- 2026-06-29 12:45 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/4479501.shtml)
+- 2026-06-29 12:51 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/63662147369.shtml)
+- 2026-06-29 12:30 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1146342474.shtml)
+- 2026-06-29 12:27 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/1122443622.shtml)
+- 2026-06-29 12:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/604463717706.shtml)
+- 2026-06-29 12:23 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/382360.shtml)
+- 2026-06-29 12:26 - [委内瑞拉强震致中国公民8遇难1失联](http://www.share.minike.top/Article/details/858213.shtml)
+- 2026-06-29 12:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/2097796.shtml)
+- 2026-06-29 12:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/138982857530.shtml)
+- 2026-06-29 12:30 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/499981221764.shtml)
+- 2026-06-29 12:46 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/30759184114.shtml)

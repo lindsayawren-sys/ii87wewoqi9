@@ -1,47 +1,60 @@
-# 美国启动关税退款
+# 这次DeepSeek没炸市场，因为它在等一个更大的爆点
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 14:08 来源：央视新闻客户端 责任编辑：【杜晓姣】
+来源|凤凰网《财经连环话》 作者| 袁鑫笛 2025年初，DeepSeek用R1制造了一个“时刻“。 那次发布的震感，从硅谷传到华尔街，英伟达单日蒸发6000亿美元，黄仁勋的财富缩水速度比他签名的皮夹克还快。全世界的科技媒体集体失语了三天，然后用同一个词描述他们看到的东西：震撼。 一年多后，DeepSeek再次发布新旗舰，这一次叫V4。 但这一次，没有人蒸发，没有人失语，中芯国
 
 ## 正文
 
-发布时间：2026年04月22日 14:08 来源：央视新闻客户端 责任编辑：【杜晓姣】
+来源|凤凰网《财经连环话》 作者| 袁鑫笛 2025年初，DeepSeek用R1制造了一个“时刻“。
+
+那次发布的震感，从硅谷传到华尔街，英伟达单日蒸发6000亿美元，黄仁勋的财富缩水速度比他签名的皮夹克还快。
+
+全世界的科技媒体集体失语了三天，然后用同一个词描述他们看到的东西：震撼。
+
+一年多后，DeepSeek再次发布新旗舰，这一次叫V4。
+
+但这一次，没有人蒸发，没有人失语，中芯国际涨了12%，华虹涨了19%，智谱跌了10%——市场的反应精准、克制、充满职业感。
+
+就像一个早就预判了你出牌的对手，平静地收走了筹码。
+
+这说明一件事：DeepSeek已经不再是一个“意外“，它开始成为一种“预期“。
+
+而预期，是比震撼更危险的东西。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:45 - [美联航财报前瞻：原油暴涨、高端客群发力、并购传闻均成焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:26 - [库克宣布将卸任苹果CEO，特朗普、巴菲特、奥特曼等人这样说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:22 - [北京查处多起违规拼豆玩具案 严打无证产品筑牢儿童安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:27 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:18 - [美财长：将继续对伊朗“极限施压”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:41 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:37 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:19 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:34 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:36 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:46 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:34 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:20 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:28 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:32 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 12:27 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 12:33 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:48 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 12:30 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 12:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 12:38 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 12:30 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 12:47 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 12:49 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:29 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 12:41 - [三只羊大杨哥不直播改卖课](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 12:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 12:23 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [多型舰艇齐聚上海并对民众开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](http://www.blog.kurohicncr.top/Article/details/93103611.shtml)
-- 2026-06-29 12:39 - [正确政绩观｜世昌里社区的“三问三答”](http://www.share.minike.top/Article/details/20213.shtml)
-- 2026-06-29 12:47 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](http://www.share.kurohicncr.top/Article/details/04164.shtml)
-- 2026-06-29 12:37 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.share.minike.top/Article/details/975616556119.shtml)
-- 2026-06-29 12:22 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.share.minike.top/Article/details/2976621.shtml)
-- 2026-06-29 12:37 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.blog.kurohicncr.top/Article/details/672539.shtml)
-- 2026-06-29 12:24 - [工信部：开展人工智能中小企业创业支持计划](http://www.share.kurohicncr.top/Article/details/723358478385.shtml)
-- 2026-06-29 12:19 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](http://www.blog.kurohicncr.top/Article/details/28754.shtml)
-- 2026-06-29 12:38 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](http://www.share.kurohicncr.top/Article/details/224015.shtml)
-- 2026-06-29 12:40 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.share.kurohicncr.top/Article/details/75799.shtml)
-- 2026-06-29 12:25 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](http://www.share.kurohicncr.top/Article/details/174495045948.shtml)
-- 2026-06-29 12:37 - [福建武夷山：春茶开山 仪式感满满](http://www.share.kurohicncr.top/Article/details/37216152026.shtml)
+- 2026-06-29 12:43 - [欧洲极端高温东扩](http://www.blog.minike.top/Article/details/7052467765.shtml)
+- 2026-06-29 12:33 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/5379835381.shtml)
+- 2026-06-29 12:24 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/593866125841.shtml)
+- 2026-06-29 12:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/4744486.shtml)
+- 2026-06-29 12:41 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/59869169.shtml)
+- 2026-06-29 12:27 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/101718.shtml)
+- 2026-06-29 12:28 - [线路错接女子替7户邻居交17年电费](http://www.blog.minike.top/Article/details/888519.shtml)
+- 2026-06-29 12:51 - [这位天才台湾人第一次来大陆，开智了](https://www.share.minike.top/Article/details/107960837569.shtml)
+- 2026-06-29 12:26 - [三轮车被自家狗“推”进池塘](https://www.share.kurohicncr.top/Article/details/83901039.shtml)
+- 2026-06-29 12:35 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/95597044.shtml)
+- 2026-06-29 12:31 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/282384826.shtml)
+- 2026-06-29 12:47 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/849372277.shtml)
+- 2026-06-29 12:36 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/34123377.shtml)
+- 2026-06-29 12:44 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/346021838170.shtml)
+- 2026-06-29 12:35 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/7869754.shtml)

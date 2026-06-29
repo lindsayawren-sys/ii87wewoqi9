@@ -1,57 +1,53 @@
-# 厦门举办连横逝世九十周年纪念座谈会
+# 金融街嘉年华“筷乐大作战”，30秒夹多少领多少
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。 台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。 连胜文分享了重读《台湾通史》的感悟。他表示，小时候能背诵序言却不太理解，
+专题：2026金融街智绘春光嘉年华 4月25日，今日进行的2026金融街智绘春光嘉年华上，主办单位特别设置的“筷乐大作战”互动点位，约20名家长、孩童排队“候战”，凭长筷现场夹取零食，30秒内夹起多少带走多少。 据游戏规则，参赛人需先和机器人/吉祥物猜拳，成功后可进行长筷子夹取零食挑战，30秒内夹取多少带走多少。现场，有参赛者一筷夹起数袋零食，引发围观者一片“哇哦”惊呼。 新浪
 
 ## 正文
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。
+专题：2026金融街智绘春光嘉年华 4月25日，今日进行的2026金融街智绘春光嘉年华上，主办单位特别设置的“筷乐大作战”互动点位，约20名家长、孩童排队“候战”，凭长筷现场夹取零食，30秒内夹起多少带走多少。
 
-台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。
+据游戏规则，参赛人需先和机器人/吉祥物猜拳，成功后可进行长筷子夹取零食挑战，30秒内夹取多少带走多少。
 
-连胜文分享了重读《台湾通史》的感悟。
+现场，有参赛者一筷夹起数袋零食，引发围观者一片“哇哦”惊呼。
 
-他表示，小时候能背诵序言却不太理解，随着年龄增大，对这部著作的感触愈深。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-“尤其是‘筚路蓝缕，以启山林’一句，它所展现的，是中华民族不怕苦、不怕难、脚踏实地的精神。
-
-” 现场，厦门大学台湾研究院副院长刘奎、《台湾通史》译注本总统稿人邓孔昭等专家学者，围绕连横的史学思想、爱国精神及其当代价值展开研讨。
-
-刘奎指出，《台湾通史》明确提出“台湾之人，中国之人也，而又闽粤之族也”，揭示台湾与祖国大陆在政治、经济、文化等方面的历史渊源，并以史讴歌台湾先民的开拓精神，歌颂台湾民众矢志不渝的爱国情怀，“今天我们纪念连横先生，正是要传承发扬他求真务实的治史精神。
-
-” 本次活动由福建省连横文化研究院与厦门大学台湾研究院共同主办。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:22 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:26 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:46 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:47 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:29 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:42 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:40 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:28 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:26 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:31 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:41 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 12:45 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 12:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 12:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 12:30 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 12:50 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:49 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 12:45 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 12:23 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 12:28 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 12:38 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 12:48 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 12:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](http://www.blog.minike.top/Article/details/8437703417.shtml)
-- 2026-06-29 12:30 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.blog.minike.top/Article/details/16287576754.shtml)
-- 2026-06-29 12:19 - [全民阅读活动周 各地举办多场活动](http://www.share.kurohicncr.top/Article/details/471055013550.shtml)
-- 2026-06-29 12:18 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](http://www.blog.minike.top/Article/details/91647.shtml)
-- 2026-06-29 12:33 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.minike.top/Article/details/8775557990.shtml)
-- 2026-06-29 12:44 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.share.kurohicncr.top/Article/details/544067595.shtml)
-- 2026-06-29 12:42 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.blog.kurohicncr.top/Article/details/834045.shtml)
-- 2026-06-29 12:43 - [特朗普：我会记住不寻求退还关税的公司](http://www.share.kurohicncr.top/Article/details/555903385201.shtml)
-- 2026-06-29 12:37 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.share.kurohicncr.top/Article/details/069873123.shtml)
-- 2026-06-29 12:33 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.share.kurohicncr.top/Article/details/0286911686.shtml)
-- 2026-06-29 12:47 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.share.minike.top/Article/details/257196023.shtml)
-- 2026-06-29 12:27 - [人民币兑美元中间价报6.8635，下调41点](http://www.blog.kurohicncr.top/Article/details/5502409104.shtml)
-- 2026-06-29 12:41 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.blog.minike.top/Article/details/2651045.shtml)
-- 2026-06-29 12:46 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.kurohicncr.top/Article/details/9872622.shtml)
-- 2026-06-29 12:30 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [伊朗球员致歉](https://www.share.minike.top/Article/details/04998241.shtml)
+- 2026-06-29 12:27 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/094330560475.shtml)
+- 2026-06-29 12:30 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/63130.shtml)
+- 2026-06-29 12:41 - [T1对战KC](http://www.blog.minike.top/Article/details/225286.shtml)
+- 2026-06-29 12:29 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/95852837.shtml)
+- 2026-06-29 12:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/5111247044.shtml)
+- 2026-06-29 12:25 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/01443956.shtml)
+- 2026-06-29 12:36 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/04283569.shtml)
+- 2026-06-29 12:37 - [男子在家一丝不挂 邻居拍照发业主群](https://www.share.minike.top/Article/details/830562954.shtml)
+- 2026-06-29 12:50 - [天津打雷](http://www.share.minike.top/Article/details/09055.shtml)
+- 2026-06-29 12:45 - [人民日报：伊朗队昂着头告别世界杯](https://www.share.minike.top/Article/details/47220.shtml)
+- 2026-06-29 12:50 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/9028220.shtml)
+- 2026-06-29 12:47 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/9087196645.shtml)
+- 2026-06-29 12:49 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/2761107.shtml)
+- 2026-06-29 12:49 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/8198326.shtml)

@@ -1,56 +1,49 @@
-# 中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌
+# 氦气供应紧张威胁芯片产业
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 11:34 来源：中国新闻网 第六届亚洲沙滩运动会将于4月22日开幕。开幕式上，中国体育代表团旗手将由沙滩手球运动员沈萍和三人篮球运动员颜鹏担任。 沈萍受访时表示，得知成为中国体育代表团旗手时，她内心既激动又倍感荣幸，希望向亚洲各国展现出中国运动员朝气、热情、奔放的精神风貌。 谈及本届赛事目标，沈萍表示，队伍将力争冲击冠亚军决赛。她认为，越南、
+霍尔木兹海峡周边的动荡以及卡塔尔液化天然气产量削减已导致氦气供应趋紧，这可能给台积电等代工厂带来成本上升和延误风险。责任编辑：张俊 SF065
 
 ## 正文
 
-发布时间：2026年04月22日 11:34 来源：中国新闻网 第六届亚洲沙滩运动会将于4月22日开幕。
+霍尔木兹海峡周边的动荡以及卡塔尔液化天然气产量削减已导致氦气供应趋紧，这可能给台积电等代工厂带来成本上升和延误风险。
 
-开幕式上，中国体育代表团旗手将由沙滩手球运动员沈萍和三人篮球运动员颜鹏担任。
-
-沈萍受访时表示，得知成为中国体育代表团旗手时，她内心既激动又倍感荣幸，希望向亚洲各国展现出中国运动员朝气、热情、奔放的精神风貌。
-
-谈及本届赛事目标，沈萍表示，队伍将力争冲击冠亚军决赛。
-
-她认为，越南、菲律宾是本次赛事劲旅，其中越南队是最大对手。
-
-作为一名老将，沈萍寄语年轻队员称，竞技体育需敢打敢拼、轻装上阵，队员应放开自我享受比赛。
-
-(陈英清 王晓斌 骆云飞 部分素材来源 第六届亚洲沙滩运动会组委会) 责任编辑：【曲克】
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:37 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:18 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:35 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:37 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:35 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:25 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:36 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:18 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:43 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:24 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:20 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:38 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 12:48 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 12:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 12:47 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 12:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 12:26 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 12:48 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 12:45 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 12:27 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 12:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 12:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 12:40 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 12:33 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 12:30 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.kurohicncr.top/Article/details/24310966444.shtml)
-- 2026-06-29 12:35 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.kurohicncr.top/Article/details/0453820270.shtml)
-- 2026-06-29 12:20 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.blog.minike.top/Article/details/031264720.shtml)
-- 2026-06-29 12:36 - [致敬！在繁花盛放的春天接英雄回家](http://www.blog.minike.top/Article/details/225319524557.shtml)
-- 2026-06-29 12:34 - [万亿中原银行，变天了](http://www.share.kurohicncr.top/Article/details/35218689.shtml)
-- 2026-06-29 12:18 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.minike.top/Article/details/773579.shtml)
-- 2026-06-29 12:35 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.kurohicncr.top/Article/details/83740065.shtml)
-- 2026-06-29 12:20 - [外资转向加仓中国资产](http://www.share.minike.top/Article/details/857857.shtml)
-- 2026-06-29 12:28 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.share.minike.top/Article/details/038588783184.shtml)
-- 2026-06-29 12:22 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.minike.top/Article/details/0226383.shtml)
-- 2026-06-29 12:19 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/409544945118.shtml)
-- 2026-06-29 12:23 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](http://www.blog.kurohicncr.top/Article/details/75339736.shtml)
-- 2026-06-29 12:40 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.kurohicncr.top/Article/details/5462942598.shtml)
+- 2026-06-29 12:34 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/47619107.shtml)
+- 2026-06-29 12:26 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/4880213863.shtml)
+- 2026-06-29 12:29 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/529783471.shtml)
+- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/571851.shtml)
+- 2026-06-29 12:46 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/0441698703.shtml)
+- 2026-06-29 12:33 - [青春环游记第三季](http://www.blog.minike.top/Article/details/651944836733.shtml)
+- 2026-06-29 12:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/46707.shtml)
+- 2026-06-29 12:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/987582.shtml)
+- 2026-06-29 12:41 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/86244215561.shtml)
+- 2026-06-29 12:33 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/7096684.shtml)
+- 2026-06-29 12:26 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/02587.shtml)
+- 2026-06-29 12:31 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/39935069812.shtml)
+- 2026-06-29 12:27 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/004570.shtml)
+- 2026-06-29 12:37 - [《贺子珍》](https://www.share.minike.top/Article/details/42737002.shtml)
+- 2026-06-29 12:35 - [赵今麦客串电影版开端](https://www.blog.minike.top/Article/details/349882370.shtml)

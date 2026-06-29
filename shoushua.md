@@ -1,58 +1,50 @@
-# 消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限
+# 大华继显：长城汽车目标价降至15港元 维持“买入”评级
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。 网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。目前，美国已有多家银行获
+大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。 该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。盈利下跌主要由于销售及研发开支高于预期，但若
 
 ## 正文
 
-据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。
+大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。
 
-在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。
+该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。
 
-网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。
+盈利下跌主要由于销售及研发开支高于预期，但若剔除去年同期的10.3亿元外汇收益，首季纯利实质应录得超过30%的同比增长。
 
-目前，美国已有多家银行获得了Mythos的使用权限。
+大华继显表示，长城汽车投资主题中的盈利复苏仍然完整，受惠于强劲产品管线、新技术推出及出口复苏。
 
-一位知情人士向路透透露，Anthropic计划将Mythos AI的接入范围扩展至欧洲和英国的银行及其他机构。
-
-该消息人士匿名表示，这一过程包括一系列审查，以确保推广以安全方式进行。
-
-另一位知情消息人士表示，欧洲的银行可能在数日内获得接入权限，而第一位知情人士则称，推广过程可能需要数天或数周时间。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:30 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:31 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:44 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:18 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:25 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:20 - [一场展览，看香港工程的过去与未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:33 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:43 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:37 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:40 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:30 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 12:32 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 12:39 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 12:44 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 12:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:36 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 12:49 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 12:24 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 12:30 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 12:30 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.kurohicncr.top/Article/details/52143688.shtml)
-- 2026-06-29 12:38 - [关键词读懂一季度工业和信息化亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/55529336.shtml)
-- 2026-06-29 12:41 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.minike.top/Article/details/0465522.shtml)
-- 2026-06-29 12:47 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.share.kurohicncr.top/Article/details/24301.shtml)
-- 2026-06-29 12:40 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.minike.top/Article/details/8011678649.shtml)
-- 2026-06-29 12:35 - [机械车位闲置，如何盘活改造？](http://www.blog.kurohicncr.top/Article/details/42501.shtml)
-- 2026-06-29 12:44 - [波兰想卖黄金换军费？财长怒批：这方案根本不切实际！](http://www.share.kurohicncr.top/Article/details/1921523.shtml)
-- 2026-06-29 12:46 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](http://www.blog.kurohicncr.top/Article/details/287624.shtml)
-- 2026-06-29 12:43 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.share.minike.top/Article/details/83921.shtml)
-- 2026-06-29 12:33 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](http://www.blog.kurohicncr.top/Article/details/079903532780.shtml)
-- 2026-06-29 12:28 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.share.kurohicncr.top/Article/details/5074147.shtml)
-- 2026-06-29 12:32 - [习近平同莫桑比克总统查波会谈](http://www.share.minike.top/Article/details/97230.shtml)
-- 2026-06-29 12:43 - [下班后仅占用“几分钟”处理工作 算加班吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.blog.minike.top/Article/details/086555.shtml)
+- 2026-06-29 12:48 - [医护人员观影《四渡》传承长征精神](http://www.blog.kurohicncr.top/Article/details/824150104.shtml)
+- 2026-06-29 12:33 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/25311395.shtml)
+- 2026-06-29 12:42 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.share.kurohicncr.top/Article/details/088323553498.shtml)
+- 2026-06-29 12:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4934303.shtml)
+- 2026-06-29 12:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/92432.shtml)
+- 2026-06-29 12:46 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/05379614.shtml)
+- 2026-06-29 12:36 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/499838920.shtml)
+- 2026-06-29 12:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/499538.shtml)
+- 2026-06-29 12:39 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/22162600.shtml)
+- 2026-06-29 12:38 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/64872594.shtml)
+- 2026-06-29 12:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/838312.shtml)
+- 2026-06-29 12:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/04345339222.shtml)
+- 2026-06-29 12:35 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/6032327.shtml)
+- 2026-06-29 12:24 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/317570472.shtml)
+- 2026-06-29 12:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/636094.shtml)

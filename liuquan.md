@@ -1,56 +1,57 @@
-# 第十三批在韩中国人民志愿军烈士遗骸启程回国
+# “教会AI，你走人” 美三大科技巨头一个月裁员4.6万人，员工们都经历了什么？
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社韩国仁川4月22日电 (记者 刘旭 金旭)4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批12位在韩中国人民志愿军烈士遗骸及146件遗物。 中国退役军人事务部副部长徐耀率中方交接代表团、韩国国防部次官李斗熙率韩国送还中国军人遗骸代表团出席仪式。中韩双方代表现场签署交接书，中方举行悼念仪式，现场唱响中华人民共和国国歌，中国驻韩国大使戴兵为志
+文 | 《硅谷观察》郑峻 这个月，美国三大科技巨头裁减了总计4.67万个工作岗位，都是因为AI。 一个普通的工作日，周二，数以万计的甲骨文员工早上打开工作邮件，看到了发件人为‘Oracle Leadership’的一封信。邮件发自清晨六点，只有五行，核心只有一句话：“经过审慎考量，公司决定取消您的职位，今天是您最后一个工作日。” 没有HR的事先通知，没有直属上司的提前谈话，没有
 
 ## 正文
 
-中新社韩国仁川4月22日电 (记者 刘旭 金旭)4月22日上午，中韩双方在韩国仁川国际机场共同举行交接仪式，韩方向中方移交第十三批12位在韩中国人民志愿军烈士遗骸及146件遗物。
+文 | 《硅谷观察》郑峻 这个月，美国三大科技巨头裁减了总计4.67万个工作岗位，都是因为AI。
 
-中国退役军人事务部副部长徐耀率中方交接代表团、韩国国防部次官李斗熙率韩国送还中国军人遗骸代表团出席仪式。
+一个普通的工作日，周二，数以万计的甲骨文员工早上打开工作邮件，看到了发件人为‘Oracle Leadership’的一封信。
 
-中韩双方代表现场签署交接书，中方举行悼念仪式，现场唱响中华人民共和国国歌，中国驻韩国大使戴兵为志愿军烈士棺椁覆盖国旗，中方全体人员向志愿军烈士遗骸行三鞠躬礼，中国人民解放军仪仗司礼大队礼兵持国旗护送烈士棺椁登上解放军空军运-20B运输机，烈士英灵将回到祖国和人民怀抱。
+邮件发自清晨六点，只有五行，核心只有一句话：“经过审慎考量，公司决定取消您的职位，今天是您最后一个工作日。
 
-中国退役军人事务部、中央宣传部、中央对外联络部、中央网信办、外交部、国家发展改革委、财政部、军委政治工作部等军地有关部门组成的中方交接代表团组全体人员、中国驻韩国大使馆相关人员共同见证迎接志愿军烈士回家。
+” 没有HR的事先通知，没有直属上司的提前谈话，没有任何预兆。
 
-徐耀在交接仪式上表示，中韩双方贯彻两国元首达成的重要共识，遵循人道主义原则，本着坦诚友好、务实合作精神，连续13年实施在韩中国人民志愿军烈士遗骸交接，将1023位烈士遗骸接回祖国。
+这数万人就失去了工作。
 
-在韩志愿军烈士遗骸交接已成为中韩友好合作的生动范例，对于加深两国友谊，深化双方合作交流具有重要意义。
+在看到邮件的同时，他们的权限已注销，再也无法登录公司系统，他们的门禁也失效了，再也无法进入办公室。
 
-中方感谢韩方相关部门和工作人员付出的努力，中方将进一步深化与韩方的友好合作交流，积极推进在韩中国人民志愿军烈士遗骸保护相关工作，让更多志愿军烈士英魂早日回到祖国。
+就在那个早晨，甲骨文完成了其48年历史上规模最大的一次裁员：涉及人数估计在2万至3万之间，约占全球16.2万员工的18%。
 
-4月21日上午，中韩双方在韩国仁川共同举行了第十三批在韩中国人民志愿军烈士遗骸装殓仪式。
+Reddit的甲骨文论坛和职场匿名论坛Blind很快被震惊与愤怒的帖子淹没——有人整个团队在一小时内全灭，有人工作了十几年，连一次面对面的告别都没有。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:42 - [美财长：将继续对伊朗“极限施压”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:27 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:24 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:46 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:23 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:40 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:38 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:43 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:18 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 12:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 12:49 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 12:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 12:35 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 12:36 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 12:21 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 12:47 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 12:45 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 12:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 12:22 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.blog.kurohicncr.top/Article/details/59857.shtml)
-- 2026-06-29 12:28 - [伊朗武装部队称已做好充分战斗准备](http://www.blog.minike.top/Article/details/293196721.shtml)
-- 2026-06-29 12:18 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.share.minike.top/Article/details/4063658.shtml)
-- 2026-06-29 12:39 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.share.kurohicncr.top/Article/details/158080950.shtml)
-- 2026-06-29 12:45 - [工信部：开展人工智能中小企业创业支持计划](http://www.share.kurohicncr.top/Article/details/67591.shtml)
-- 2026-06-29 12:35 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](http://www.share.kurohicncr.top/Article/details/8944139345.shtml)
-- 2026-06-29 12:40 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.share.minike.top/Article/details/33524.shtml)
-- 2026-06-29 12:32 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [福建武夷山：春茶开山 仪式感满满](http://www.blog.minike.top/Article/details/527836228281.shtml)
-- 2026-06-29 12:27 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.share.minike.top/Article/details/49151.shtml)
-- 2026-06-29 12:34 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.minike.top/Article/details/8009806.shtml)
-- 2026-06-29 12:42 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.share.minike.top/Article/details/544025378.shtml)
-- 2026-06-29 12:42 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](http://www.blog.minike.top/Article/details/9414455901.shtml)
+- 2026-06-29 12:36 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/70248303560.shtml)
+- 2026-06-29 12:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/13401.shtml)
+- 2026-06-29 12:42 - [请回答王牌2019](https://www.share.minike.top/Article/details/973670170.shtml)
+- 2026-06-29 12:40 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.kurohicncr.top/Article/details/89746502014.shtml)
+- 2026-06-29 12:36 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/25525.shtml)
+- 2026-06-29 12:49 - [曝韩国球员目睹出局时正吃饭](http://www.share.kurohicncr.top/Article/details/5331083368.shtml)
+- 2026-06-29 12:27 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/014605710929.shtml)
+- 2026-06-29 12:40 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/49096493246.shtml)
+- 2026-06-29 12:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/43022472144.shtml)
+- 2026-06-29 12:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/87788.shtml)
+- 2026-06-29 12:50 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/47530484.shtml)
+- 2026-06-29 12:23 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/661382.shtml)
+- 2026-06-29 12:45 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/2227143.shtml)
+- 2026-06-29 12:31 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/6316916.shtml)
+- 2026-06-29 12:27 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/0947656380.shtml)

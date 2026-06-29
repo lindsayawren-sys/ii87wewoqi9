@@ -1,42 +1,61 @@
-# 赛分科技：聘任顾楹瑶为公司证券事务代表
+# 焦点访谈｜从乡村书院到菜市书屋 全民阅读绘就文化新图景
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-证券日报网讯 4月21日，赛分科技发布公告称，公司于2026年4月20日召开第二届董事会2026年第三次会议，审议通过了《关于聘任公司证券事务代表的议案》，同意聘任顾楹瑶女士为公司证券事务代表，任期自本次董事会审议通过之日起至公司第二届董事会任期届满之日止。
+央视网消息(焦点访谈)：4月20日，全国首个“全民阅读活动周”与第五届全民阅读大会同步启幕。“人民群众多读书，我们的民族精神就会厚重起来、深邃起来。”党的十八大以来，习近平总书记高度重视全民阅读，作出了一系列重要指示批示，为全民阅读提供的公共服务越来越完善。2025年的统计显示，全国共有公共图书馆3253个，人均图书拥有量7.71册，这些公共图书馆全都免费向公众开放。4月25日
 
 ## 正文
 
-证券日报网讯 4月21日，赛分科技发布公告称，公司于2026年4月20日召开第二届董事会2026年第三次会议，审议通过了《关于聘任公司证券事务代表的议案》，同意聘任顾楹瑶女士为公司证券事务代表，任期自本次董事会审议通过之日起至公司第二届董事会任期届满之日止。
+央视网消息(焦点访谈)：4月20日，全国首个“全民阅读活动周”与第五届全民阅读大会同步启幕。
+
+“人民群众多读书，我们的民族精神就会厚重起来、深邃起来。
+
+”党的十八大以来，习近平总书记高度重视全民阅读，作出了一系列重要指示批示，为全民阅读提供的公共服务越来越完善。
+
+2025年的统计显示，全国共有公共图书馆3253个，人均图书拥有量7.71册，这些公共图书馆全都免费向公众开放。
+
+4月25日，我们首先来到江西，向您介绍一位热爱阅读、创办书院服务乡亲的基层阅读推广人。
+
+袁宇是江西省万载县里泉村村民，其另一个身份是万载县文宇阁书院院长。
+
+他喜欢收集书，更喜欢读书，他与书的不解之缘是从小就结下的。
+
+江西省基层阅读推广人、江西省万载县文宇阁书院院长袁宇：“小时候印象特别深，我10岁生日那天，家里一位亲戚送了一套《西游记》小人书给我，当时特别开心，比吃了蛋糕还更开心。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:41 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:44 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:24 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:47 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:42 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:23 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:30 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:44 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:28 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 12:37 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 12:23 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 12:25 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 12:47 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 12:44 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:24 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 12:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 12:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 12:39 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 12:36 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 12:25 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 12:51 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 12:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 12:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/187673840507.shtml)
-- 2026-06-29 12:39 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.blog.kurohicncr.top/Article/details/0115596.shtml)
-- 2026-06-29 12:31 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.minike.top/Article/details/372544.shtml)
-- 2026-06-29 12:26 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.share.minike.top/Article/details/066530869.shtml)
-- 2026-06-29 12:40 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.blog.kurohicncr.top/Article/details/4808568929.shtml)
-- 2026-06-29 12:25 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](http://www.share.minike.top/Article/details/1626850893.shtml)
-- 2026-06-29 12:28 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.kurohicncr.top/Article/details/78050337.shtml)
-- 2026-06-29 12:37 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.share.minike.top/Article/details/726577.shtml)
-- 2026-06-29 12:28 - [贵州梵净山：夕阳映照落日如画](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/5918603.shtml)
-- 2026-06-29 12:23 - [4月22日央行开展60亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/2046983207.shtml)
-- 2026-06-29 12:34 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.share.minike.top/Article/details/77165876632.shtml)
-- 2026-06-29 12:43 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/601933574917.shtml)
-- 2026-06-29 12:45 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.share.minike.top/Article/details/654751635460.shtml)
+- 2026-06-29 12:36 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/66222710.shtml)
+- 2026-06-29 12:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/935240.shtml)
+- 2026-06-29 12:22 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4580820204.shtml)
+- 2026-06-29 12:40 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/504254.shtml)
+- 2026-06-29 12:33 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/64795289.shtml)
+- 2026-06-29 12:30 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/437963175481.shtml)
+- 2026-06-29 12:34 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/798108479057.shtml)
+- 2026-06-29 12:34 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/1630814672.shtml)
+- 2026-06-29 12:27 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/389395.shtml)
+- 2026-06-29 12:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/5217350666.shtml)
+- 2026-06-29 12:39 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/440970.shtml)
+- 2026-06-29 12:24 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/52058783926.shtml)
+- 2026-06-29 12:27 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/55419.shtml)
+- 2026-06-29 12:32 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/5654460021.shtml)
+- 2026-06-29 12:43 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/012018796866.shtml)

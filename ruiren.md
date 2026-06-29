@@ -1,61 +1,57 @@
-# “我来说法”不止于说法：“新新相联”的“进阶攻略”
+# 中银国际：五矿资源重申“买入”评级 目标价升至10.71港元
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-以法律为刃、公益为心维护公平正义、守护妇女儿童、赋能社区治理，而她的每一次探索、实践，都与基层民生紧密相连。 打开手机，启动摄像，与社区居民热络聊起身边常见的法律事儿，近日，在位于山东省青岛市即墨区的“新新相联”新的社会阶层人士统战工作实践创新基地，山东鲁宁(即墨)律师事务所主任唐艳正为该基地所属普法项目“我来说法”录制内容。 作为青岛市新的社会阶层人士联谊会理事、即墨区新的社
+中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。 该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。贵金属产量的大幅增长也使得相关矿山的C1成本降低。 该行表示，尽管贵金属产量
 
 ## 正文
 
-以法律为刃、公益为心维护公平正义、守护妇女儿童、赋能社区治理，而她的每一次探索、实践，都与基层民生紧密相连。
+中银国际发布研报称，上调五矿资源（01208）目标价至10.71港元，重申“买入”评级。
 
-打开手机，启动摄像，与社区居民热络聊起身边常见的法律事儿，近日，在位于山东省青岛市即墨区的“新新相联”新的社会阶层人士统战工作实践创新基地，山东鲁宁(即墨)律师事务所主任唐艳正为该基地所属普法项目“我来说法”录制内容。
+该行表示，五矿资源2026年第一季铜产量同比增9%，主要得益于金塞维尔矿区的强劲增长和拉斯班巴斯矿区的稳健增长。
 
-作为青岛市新的社会阶层人士联谊会理事、即墨区新的社会阶层人士联谊会常务副会长，唐艳已从专注个案的律师，转变为赋能基层治理的组织者。
+更重要的是，其黄金和白银产量分别同比增长24%和27%，拉斯班巴斯矿区和罗斯伯里矿区均实现了强劲增长。
 
-唐艳以法律为刃、公益为心维护公平正义、守护妇女儿童、赋能社区治理，而她的每一次探索、实践，都与基层民生紧密相连。
+贵金属产量的大幅增长也使得相关矿山的C1成本降低。
 
-用责任、爱心与严谨“修复社会” 2007年，唐艳自山东师范大学法学专业毕业，同年通过国家司法考试，投身律师行业。
+该行表示，尽管贵金属产量的强劲增长势头可能无法持续全年，但仍将2026-2028年的盈利预测上调1%-2%。
 
-“医生疗愈身体，律师‘修复社会’，二者皆需责任、爱心与严谨。
-
-”从业之初的一次演讲中，唐艳道出了自己对律师职业的理解。
-
-在山东文鼎律师事务所工作的十三年间，唐艳从一名助理律师做起，潜心钻研业务，在纷繁复杂的案件中锤炼专业能力，逐渐在业界赢得口碑。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:36 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:24 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:24 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:31 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:28 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:30 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:27 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:26 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:44 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:23 - [贵州梵净山：夕阳映照落日如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:23 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:20 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:34 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:34 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:23 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 12:33 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 12:45 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 12:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 12:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 12:50 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 12:49 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 12:40 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 12:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 12:42 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 12:32 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 12:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 12:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 12:21 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:34 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:18 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/8946250988.shtml)
-- 2026-06-29 12:47 - [特朗普称预计停火到期后将继续轰炸伊朗](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.blog.minike.top/Article/details/47876552.shtml)
-- 2026-06-29 12:33 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](http://www.blog.kurohicncr.top/Article/details/707286.shtml)
-- 2026-06-29 12:36 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.minike.top/Article/details/31901951.shtml)
-- 2026-06-29 12:19 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.minike.top/Article/details/83145471.shtml)
-- 2026-06-29 12:36 - [甘肃一季度对东盟进出口货值同比增长逾四成](http://www.share.minike.top/Article/details/211421308733.shtml)
-- 2026-06-29 12:20 - [第三届国际核技术应用产业发展大会开幕](http://www.blog.minike.top/Article/details/4895485.shtml)
-- 2026-06-29 12:31 - [中信建投期货：4月22日工业品早报](http://www.share.kurohicncr.top/Article/details/265637.shtml)
-- 2026-06-29 12:46 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](http://www.blog.kurohicncr.top/Article/details/3726601473.shtml)
-- 2026-06-29 12:25 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.blog.minike.top/Article/details/8597152.shtml)
-- 2026-06-29 12:22 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.kurohicncr.top/Article/details/2256930.shtml)
-- 2026-06-29 12:18 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.share.kurohicncr.top/Article/details/20348482156.shtml)
-- 2026-06-29 12:20 - [关键词读懂一季度工业和信息化亮眼“成绩单”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/66161.shtml)
+- 2026-06-29 12:43 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/36067420289.shtml)
+- 2026-06-29 12:33 - [乌拉圭出局之路](http://www.blog.minike.top/Article/details/788419709643.shtml)
+- 2026-06-29 12:26 - [媒体：湖人把薪资空间玩明白了](https://www.blog.kurohicncr.top/Article/details/120544.shtml)
+- 2026-06-29 12:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/038478494.shtml)
+- 2026-06-29 12:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/2089010.shtml)
+- 2026-06-29 12:31 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/7865523.shtml)
+- 2026-06-29 12:49 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/5544561374.shtml)
+- 2026-06-29 12:38 - [流金岁月](https://www.share.minike.top/Article/details/19399.shtml)
+- 2026-06-29 12:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/968608400927.shtml)
+- 2026-06-29 12:42 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/985258869369.shtml)
+- 2026-06-29 12:22 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/26395.shtml)
+- 2026-06-29 12:32 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/984336847584.shtml)
+- 2026-06-29 12:29 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/29203922.shtml)
+- 2026-06-29 12:49 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/934471022.shtml)

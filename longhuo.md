@@ -1,47 +1,58 @@
-# 陪审团裁定优步负有责任
+# 宁夏到2030年基本建成全民人工智能素养教育培训体系
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-一个联邦陪审团裁定优步（UBER）对北卡罗来纳州一名司机的殴打行为负有责任，并判给5000美元赔偿。此前有一项裁决认定优步对乘客负有“不可委托”的照管义务，目前更广泛的性侵诉讼仍在进行中。责任编辑：张俊 SF065
+中新网银川4月25日电 (记者 于晶)4月25日，记者从宁夏回族自治区人力资源和社会保障厅获悉，宁夏印发《“数智赋能宁夏·惠及千行万家”全民数字素养与技能提升行动实施方案(2026-2030年)》，提出到2030年，基本建成覆盖全民、贯穿终身的人工智能素养教育培训体系。方案明确，未来5年内，宁夏将实现全民人工智能知识普及水平显著提升，全社会对人工智能的认知度和接受度明显增强。重
 
 ## 正文
 
-一个联邦陪审团裁定优步（UBER）对北卡罗来纳州一名司机的殴打行为负有责任，并判给5000美元赔偿。
+中新网银川4月25日电 (记者 于晶)4月25日，记者从宁夏回族自治区人力资源和社会保障厅获悉，宁夏印发《“数智赋能宁夏·惠及千行万家”全民数字素养与技能提升行动实施方案(2026-2030年)》，提出到2030年，基本建成覆盖全民、贯穿终身的人工智能素养教育培训体系。
 
-此前有一项裁决认定优步对乘客负有“不可委托”的照管义务，目前更广泛的性侵诉讼仍在进行中。
+方案明确，未来5年内，宁夏将实现全民人工智能知识普及水平显著提升，全社会对人工智能的认知度和接受度明显增强。
 
-责任编辑：张俊 SF065
+重点行业从业人员人工智能应用能力将普遍提高，适应智能化生产和服务的能力显著增强。
+
+根据方案，宁夏将面向不同群体实施分层次、分类别的人工智能素养提升行动。
+
+针对工程技术人员、科研人员等专业技术人才，宁夏将依托专业技术人才知识更新工程，在高级研修项目、急需紧缺人才培养项目中纳入人工智能专题方向；支持高校、科研院所与企业共建人工智能实训基地，开展产学研合作培养；实施人工智能领域青年人才培育计划，选拔优秀青年人才赴国(境)外知名机构进修；同时，举办人工智能技术竞赛、创新创业大赛等活动，加强人工智能(数字经济)系列职称评审，激发创新活力。
+
+面向制造业、服务业等一线工人，宁夏将把人工智能基础应用能力纳入职业技能培训必修模块，开展人工智能相关职业(工种)技能等级认定，面向社会开展人工智能、大数据等专业的职业技能培训和技能等级评价，并举办全区人工智能职业技能竞赛，建设一批智能制造公共实训基地。
+
+此外，方案还对新型职业农民、大中小学师生、村(社区)工作者以及城乡居民、老年人等群体作出专项部署。
+
+其中，将推动人工智能技术在农业生产、经营、管理各环节的应用；构建与学历教育相衔接的人工智能素养培育体系；提升基层工作者数字化治理和便民服务能力；同时提升老年人等群体的人工智能基础认知和日常应用能力。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:25 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:39 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:47 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:25 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:24 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:27 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:36 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:19 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:34 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:25 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:21 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 12:43 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 12:50 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 12:38 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 12:43 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 12:46 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 12:33 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 12:25 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 12:24 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 12:37 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 12:22 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 12:38 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.share.minike.top/Article/details/650125175961.shtml)
-- 2026-06-29 12:25 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.blog.minike.top/Article/details/0918828.shtml)
-- 2026-06-29 12:45 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.blog.kurohicncr.top/Article/details/618429100.shtml)
-- 2026-06-29 12:43 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.share.minike.top/Article/details/253899451.shtml)
-- 2026-06-29 12:46 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.share.minike.top/Article/details/579972478268.shtml)
-- 2026-06-29 12:40 - [贵州梵净山：夕阳映照落日如画](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/551093814792.shtml)
-- 2026-06-29 12:31 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/8634662.shtml)
-- 2026-06-29 12:39 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/808715107880.shtml)
-- 2026-06-29 12:29 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/3810087.shtml)
-- 2026-06-29 12:32 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.minike.top/Article/details/299656384.shtml)
+- 2026-06-29 12:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/65045829296.shtml)
+- 2026-06-29 12:29 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/607839725.shtml)
+- 2026-06-29 12:41 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/7064487.shtml)
+- 2026-06-29 12:24 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/6600075917.shtml)
+- 2026-06-29 12:47 - [双高胎](https://www.blog.kurohicncr.top/Article/details/6348292862.shtml)
+- 2026-06-29 12:51 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/092729305.shtml)
+- 2026-06-29 12:49 - [白鹿呵呵挽手比心](https://www.blog.kurohicncr.top/Article/details/68925621.shtml)
+- 2026-06-29 12:31 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/8750655.shtml)
+- 2026-06-29 12:42 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/789060.shtml)
+- 2026-06-29 12:41 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/9912081806.shtml)
+- 2026-06-29 12:32 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/697855452.shtml)
+- 2026-06-29 12:40 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/0438955231.shtml)
+- 2026-06-29 12:24 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/20996722210.shtml)
+- 2026-06-29 12:31 - [大罗力挺内马尔](https://www.share.minike.top/Article/details/04939114811.shtml)
+- 2026-06-29 12:24 - [老虎瘦成纸片还吃草 园方回应](https://www.share.kurohicncr.top/Article/details/3123743799.shtml)

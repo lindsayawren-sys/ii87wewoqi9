@@ -1,52 +1,56 @@
-# 瞄准、击发 直击官兵轻武器实弹射击训练
+# 港股IPO创近五年新高 富国港股通成长精选即将于4月28日结束募集
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 14:24 来源：中国新闻网 联勤保障部队第九六四医院组织开展轻武器实弹射击训练。卧倒、装弹、瞄准、击发，参训官兵动作一气呵成。以战领训、以训促战，在实弹射击中锤炼过硬射击本领，全面提升战场卫勤保障能力。练兵备战，我们时刻准备着！(作者：王志奇 姜梦 蒋求实 宋可欣 姚天宝） 责任编辑：【魏聪聪】
+今年以来，港股IPO市场表现火热。据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力
 
 ## 正文
 
-发布时间：2026年04月21日 14:24 来源：中国新闻网 联勤保障部队第九六四医院组织开展轻武器实弹射击训练。
+今年以来，港股IPO市场表现火热。
 
-卧倒、装弹、瞄准、击发，参训官兵动作一气呵成。
+据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。
 
-以战领训、以训促战，在实弹射击中锤炼过硬射击本领，全面提升战场卫勤保障能力。
+从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。
 
-练兵备战，我们时刻准备着！
+毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力愈发突出。
 
-(作者：王志奇 姜梦 蒋求实 宋可欣 姚天宝） 责任编辑：【魏聪聪】
+在此背景下，即将于4月28日结募的富国港股通成长精选混合（A 类：026923；C 类：026924）将通过聚焦港股高成长标的，助力投资者分享中国新经济红利。
+
+跨境投资实力派 积淀不凡 富国港股通成长精选混合拟任基金经理为富国基金海外权益投资部副总监彭陈晨，她具有11年证券从业经验，超4年投资经理年限，出道即专注跨境投资。
+
+经年累月的深度研究与广度覆盖，让彭陈晨能够基于全球产业链视角，深度挖掘优质成长企业，并将GARP策略内化于自己的投资框架中。
+
+她希望能以合理的价格买到尽可能高的成长，重视性价比和安全边际。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:26 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:24 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:19 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:29 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:23 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:38 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:25 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:33 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:21 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:20 - [“GNV·北极星”号豪华客滚船完成升级改造启航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:33 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:43 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:37 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 12:36 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 12:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 12:39 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 12:29 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 12:36 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 12:46 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:33 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 12:24 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.minike.top/Article/details/70808.shtml)
-- 2026-06-29 12:18 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.minike.top/Article/details/832787607642.shtml)
-- 2026-06-29 12:46 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.share.minike.top/Article/details/71347.shtml)
-- 2026-06-29 12:46 - [西贝正在“换号重生”](http://www.blog.kurohicncr.top/Article/details/0386332046.shtml)
-- 2026-06-29 12:40 - [长城基金：新兴科技是主线，价值也有春天](http://www.share.minike.top/Article/details/04229068.shtml)
-- 2026-06-29 12:26 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.share.kurohicncr.top/Article/details/464603105101.shtml)
-- 2026-06-29 12:19 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.blog.minike.top/Article/details/92179.shtml)
-- 2026-06-29 12:21 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.share.kurohicncr.top/Article/details/9899599.shtml)
-- 2026-06-29 12:45 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](http://www.share.minike.top/Article/details/26219977555.shtml)
-- 2026-06-29 12:36 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](http://www.blog.kurohicncr.top/Article/details/219933.shtml)
-- 2026-06-29 12:32 - [商汤-W授出合共2.38亿份受限制股份单位](http://www.share.minike.top/Article/details/83449406.shtml)
-- 2026-06-29 12:27 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](http://www.blog.minike.top/Article/details/67169965.shtml)
-- 2026-06-29 12:23 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](http://www.blog.minike.top/Article/details/3734824.shtml)
-- 2026-06-29 12:19 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.share.kurohicncr.top/Article/details/56669.shtml)
-- 2026-06-29 12:19 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](http://www.blog.kurohicncr.top/Article/details/21688.shtml)
+- 2026-06-29 12:28 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/792027.shtml)
+- 2026-06-29 12:24 - [虞书欣灿如繁星明天定档](https://www.share.kurohicncr.top/Article/details/29720741.shtml)
+- 2026-06-29 12:37 - [BW2026游览指南](https://www.blog.minike.top/Article/details/8349062.shtml)
+- 2026-06-29 12:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/7198383411.shtml)
+- 2026-06-29 12:24 - [这位猫咪，请你自重！](http://www.blog.kurohicncr.top/Article/details/720772008282.shtml)
+- 2026-06-29 12:36 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/223427309.shtml)
+- 2026-06-29 12:43 - [多家银行收紧个人贵金属业务](https://www.share.minike.top/Article/details/706174267612.shtml)
+- 2026-06-29 12:29 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/635751038643.shtml)
+- 2026-06-29 12:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/37344951522.shtml)
+- 2026-06-29 12:33 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/8162589896.shtml)
+- 2026-06-29 12:44 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/64533.shtml)
+- 2026-06-29 12:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/26558610158.shtml)
+- 2026-06-29 12:37 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/60266594039.shtml)
+- 2026-06-29 12:43 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/10475242972.shtml)
+- 2026-06-29 12:51 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/88750933.shtml)

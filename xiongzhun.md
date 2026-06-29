@@ -1,59 +1,61 @@
-# Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段
+# 鹿明、橡鹿梦幻联动，“鹿小鸣”机器人金融街现炒“小龙虾”
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，新浪财经作为特约媒体合作方，特别呈现了主题为“股币联动 合规共生：Web3时代下的香港经验”主题分论坛。 分论坛由新浪财经香港站站长赵岚主持，邀请三位不同领域嘉宾，来自德勤中国香港数字资产主管合伙人、Web3.0 发展专责小组成员吕志宏，港股上市公司新火集团（1611.HK）执行董事
+专题：2026金融街智绘春光嘉年华 4月25日，在2026金融街智绘春光嘉年华上，Lumos鹿明机器人旗下“鹿小明”机器人与橡鹿机器人展开梦幻联动，“鹿小明”现场启动橡鹿机器人餐饮专用服务机器人，在6分钟内炒制了一盘香辣味儿“小龙虾”，引发现场观众一致好评。 据现场工作人员介绍，鹿小明是鹿明机器人研发的AI迷你双足人形机器人，该机器人身高89厘米，体重20千克，配备21个关节模
 
 ## 正文
 
-专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，新浪财经作为特约媒体合作方，特别呈现了主题为“股币联动 合规共生：Web3时代下的香港经验”主题分论坛。
+专题：2026金融街智绘春光嘉年华 4月25日，在2026金融街智绘春光嘉年华上，Lumos鹿明机器人旗下“鹿小明”机器人与橡鹿机器人展开梦幻联动，“鹿小明”现场启动橡鹿机器人餐饮专用服务机器人，在6分钟内炒制了一盘香辣味儿“小龙虾”，引发现场观众一致好评。
 
-分论坛由新浪财经香港站站长赵岚主持，邀请三位不同领域嘉宾，来自德勤中国香港数字资产主管合伙人、Web3.0 发展专责小组成员吕志宏，港股上市公司新火集团（1611.HK）执行董事兼CEO翁晓奇，华夏基金（香港）数字资产主管吳雋瑜，从专业咨询机构、数字资产概念上市公司与传统资管机构三方经验，共同解读监管政策与行业导向。
+据现场工作人员介绍，鹿小明是鹿明机器人研发的AI迷你双足人形机器人，该机器人身高89厘米，体重20千克，配备21个关节模组，可完成行走、快跑等动作，同时支持自然语音对话及语音动作联动，可应用于生活陪伴和商业服务等领域。
 
-以下为圆桌实录。
+橡鹿机器人专注智能烹饪机器人研发落地，产品搭载自研智能菜谱系统，自研公开菜谱涵盖八大菜系共2000余种菜品，覆盖大众主流家常菜、特色风味菜。
 
-一、股票市场和数字货币市场的情绪与资金传导效应 赵岚：数字资产圈有个说法，“数字货币的K线和概念股K线，就是复制粘贴”，我想这就是我们今天的核心议题——股币联动。
+除此之外，品牌对接海量合作商户，拥有约100万种非公开合作专属菜谱。
 
-当然传统资本市场的产品很丰富，有股票、有ETF，为什么传统股票市场和数字货币市场会绑在一起同涨同跌，还会互相传导情绪和资金？
+此次联动，上演了通用人形机器人操作专用机器人的机器人协作可能。
 
-吕志宏：关于股币联动这个话题，我有几点观察和思考想和大家分享。
+活动期间，观众到橡鹿机器人展台打卡互动，即可现场领取到机器人炒制的美味“小龙虾”。
 
-第一，在2021、2022年的时候，一家从事数字货币相关业务的公司，想要实现上市其实是非常困难的，但现在大家可以看到，有很多加密货币相关企业，已经成功在香港、美国等资本市场实现上市。
+（文猛）新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-这种变化的背后是监管态度的转变——监管机构开始接纳这类企业，它们须符合监管要求，可以在资本市场公开募资，这类上市公司在股票市场中的数量增多，自然会吸引更多投资者去关注数字货币领域，这就为两个市场的联动打下了基础。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:20 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:37 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:34 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:18 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:44 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:31 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:26 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:35 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:42 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:21 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:32 - [摩根士丹利下调黄金前景预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:44 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:40 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 12:40 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 12:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 12:49 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 12:24 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 12:42 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 12:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 12:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 12:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 12:45 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 12:35 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 12:22 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 12:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 12:23 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 12:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.share.minike.top/Article/details/865061.shtml)
-- 2026-06-29 12:21 - [工信部：开展人工智能中小企业创业支持计划](http://www.blog.kurohicncr.top/Article/details/46035.shtml)
-- 2026-06-29 12:46 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](http://www.share.minike.top/Article/details/1037450824.shtml)
-- 2026-06-29 12:20 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](http://www.blog.kurohicncr.top/Article/details/3005624830.shtml)
-- 2026-06-29 12:31 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](http://www.blog.kurohicncr.top/Article/details/6225872075.shtml)
-- 2026-06-29 12:39 - [福建武夷山：春茶开山 仪式感满满](http://www.share.minike.top/Article/details/075541.shtml)
-- 2026-06-29 12:19 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.blog.kurohicncr.top/Article/details/0759500452.shtml)
-- 2026-06-29 12:19 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.blog.kurohicncr.top/Article/details/2755202.shtml)
-- 2026-06-29 12:35 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.share.kurohicncr.top/Article/details/890591282.shtml)
-- 2026-06-29 12:43 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](http://www.blog.kurohicncr.top/Article/details/251743729356.shtml)
-- 2026-06-29 12:32 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [苍山洱海间的健康慢生活](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/924929.shtml)
+- 2026-06-29 12:30 - [美加墨世界杯首支16强诞生](http://www.share.kurohicncr.top/Article/details/17381422.shtml)
+- 2026-06-29 12:39 - [媒体：湖人把薪资空间玩明白了](https://www.share.kurohicncr.top/Article/details/429525.shtml)
+- 2026-06-29 12:45 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/05066263486.shtml)
+- 2026-06-29 12:44 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/718855003.shtml)
+- 2026-06-29 12:32 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/991168.shtml)
+- 2026-06-29 12:37 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/534574425.shtml)
+- 2026-06-29 12:37 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/68520749943.shtml)
+- 2026-06-29 12:27 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/201054666197.shtml)
+- 2026-06-29 12:42 - [张杰下沉市场](https://www.blog.minike.top/Article/details/85404531.shtml)
+- 2026-06-29 12:46 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/73492.shtml)
+- 2026-06-29 12:36 - [A股](https://www.blog.kurohicncr.top/Article/details/2195685754.shtml)
+- 2026-06-29 12:28 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/49923329.shtml)
+- 2026-06-29 12:33 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/45188466.shtml)
+- 2026-06-29 12:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/62810622.shtml)

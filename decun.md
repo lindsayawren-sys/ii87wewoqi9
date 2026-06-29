@@ -1,56 +1,57 @@
-# 特朗普在美国中期选举前已囤积5.5亿美元竞选资金
+# AI热潮盖过中东紧张局势影响，油价上涨而亚洲市场走势分化
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普的超级政治行动委员会在3月筹集了3560万美元，使他的竞选资金总额增加到5.5亿美元。特朗普正试图在日益艰难的中期选举环境中保住国会共和党多数席位。 根据“MAGA Inc．”向美国联邦选举委员会提交的披露文件，亿万富翁Diane Hendricks贡献了其中的大部分资金，捐赠额高达2，500万美元。 这笔资金的大量涌入，正值民调显示特朗普在2024年大选
+油价上涨，亚洲股市走势分化。目前投资者正在权衡人工智能（AI）热潮带来的乐观情绪，以及霍尔木兹海峡相关紧张局势升温的影响。全球五分之一的石油通常经由这条关键水道运输。 洲际交易所（ICE）数据显示，周一亚洲交易时段，近月西得克萨斯州中质油期货上涨2.0%，至每桶96.30美元；近月布伦特原油期货上涨2.1%，至每桶107.58美元。 与此同时，在电子和芯片股的推动下，日本、韩国
 
 ## 正文
 
-美国总统唐纳德·特朗普的超级政治行动委员会在3月筹集了3560万美元，使他的竞选资金总额增加到5.5亿美元。
+油价上涨，亚洲股市走势分化。
 
-特朗普正试图在日益艰难的中期选举环境中保住国会共和党多数席位。
+目前投资者正在权衡人工智能（AI）热潮带来的乐观情绪，以及霍尔木兹海峡相关紧张局势升温的影响。
 
-根据“MAGA Inc．”向美国联邦选举委员会提交的披露文件，亿万富翁Diane Hendricks贡献了其中的大部分资金，捐赠额高达2，500万美元。
+全球五分之一的石油通常经由这条关键水道运输。
 
-这笔资金的大量涌入，正值民调显示特朗普在2024年大选中所依赖的联盟出现松动之际。
+洲际交易所（ICE）数据显示，周一亚洲交易时段，近月西得克萨斯州中质油期货上涨2.0%，至每桶96.30美元；近月布伦特原油期货上涨2.1%，至每桶107.58美元。
 
-尽管历史上华盛顿的在野党往往会在中期选举中赢得更多众议院席位，但民主党人如今也越来越看好夺回参议院控制权的前景。
+与此同时，在电子和芯片股的推动下，日本、韩国市场创下历史新高。
 
-责任编辑：于健 SF069
+盛宝（Saxo）首席投资策略师查鲁·查纳纳（Charu Chanana）表示：“亚洲市场走势并非铁板一块。
+
+” 查纳纳说：“日本、韩国正因其在AI和硬件方面的优势而受到青睐，这推动了盈利势头和强劲的全球投资者资金流入。
+
+“她补充说，与此同时，中国内地和香港仍面临着围绕国内需求、信心和后续政策落实的老问题。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [此行间·读书正当时！听总书记分享读书心得](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:20 - [凯莱英获Norges Bank增持8.53万股 每股作价约98.94港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:32 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:29 - [一周展望：美股迎地缘与财报检验，沃什出席美联储主席提名听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:23 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:41 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:19 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:18 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:26 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:18 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:32 - [第十三批在韩中国人民志愿军烈士遗骸启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:30 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:43 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:26 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:22 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 12:35 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 12:23 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 12:38 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 12:38 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 12:38 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 12:42 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 12:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 12:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 12:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 12:36 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [牧原股份一季度净亏损12.15亿元，同比转亏](http://www.blog.kurohicncr.top/Article/details/82710.shtml)
-- 2026-06-29 12:39 - [每一帧都很治愈，你读书的样子真好看！](http://www.share.minike.top/Article/details/57799834.shtml)
-- 2026-06-29 12:36 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](http://www.share.kurohicncr.top/Article/details/803812642168.shtml)
-- 2026-06-29 12:31 - [GTC泽汇:北欧黄金并购加速布局](http://www.share.kurohicncr.top/Article/details/9233167033.shtml)
-- 2026-06-29 12:47 - [智能时代，我们还需要深度阅读吗？](http://www.share.kurohicncr.top/Article/details/12889.shtml)
-- 2026-06-29 12:43 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.share.minike.top/Article/details/9040605864.shtml)
-- 2026-06-29 12:42 - [湖南永顺：山间云雾 人间烟火](http://www.share.minike.top/Article/details/229528112.shtml)
-- 2026-06-29 12:25 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.share.kurohicncr.top/Article/details/6237257.shtml)
-- 2026-06-29 12:30 - [邵艺辉：建议年轻人多阅读多写作](http://www.blog.kurohicncr.top/Article/details/397403674781.shtml)
-- 2026-06-29 12:23 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.share.minike.top/Article/details/16369504.shtml)
-- 2026-06-29 12:28 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.kurohicncr.top/Article/details/535524063594.shtml)
-- 2026-06-29 12:24 - [金针菇概念股，净利润大增超7000%](http://www.share.minike.top/Article/details/56224997489.shtml)
-- 2026-06-29 12:33 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.blog.minike.top/Article/details/95938.shtml)
-- 2026-06-29 12:43 - [多型舰艇齐聚上海并对民众开放](http://www.blog.minike.top/Article/details/78890.shtml)
-- 2026-06-29 12:25 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](http://www.share.minike.top/Article/details/69750471.shtml)
+- 2026-06-29 12:49 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/90296.shtml)
+- 2026-06-29 12:40 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/37200.shtml)
+- 2026-06-29 12:46 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/12165819.shtml)
+- 2026-06-29 12:29 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/57648532424.shtml)
+- 2026-06-29 12:31 - [神23乘组太空出差满月](https://www.share.minike.top/Article/details/268435353.shtml)
+- 2026-06-29 12:40 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/3018073844.shtml)
+- 2026-06-29 12:48 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/275097287834.shtml)
+- 2026-06-29 12:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/24991743.shtml)
+- 2026-06-29 12:25 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/093648869564.shtml)
+- 2026-06-29 12:36 - [媒体：湖人把薪资空间玩明白了](http://www.blog.minike.top/Article/details/2608614.shtml)
+- 2026-06-29 12:28 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/962105.shtml)
+- 2026-06-29 12:45 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/017398495269.shtml)
+- 2026-06-29 12:33 - [2岁幼童高铁突发惊厥呼吸骤停](https://www.share.kurohicncr.top/Article/details/895675.shtml)
+- 2026-06-29 12:26 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/4219516.shtml)
+- 2026-06-29 12:24 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.kurohicncr.top/Article/details/49942.shtml)

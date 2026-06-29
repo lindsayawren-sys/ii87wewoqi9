@@ -1,50 +1,61 @@
-# 暴雨蓝色预警：7省区部分地区有大到暴雨
+# 韩国宣布与Google DeepMind建立合作
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台4月22日06时发布暴雨蓝色预警： 预计，4月22日08时至23日08时，云南西北部、广西西部和东北部、广东北部、湖南南部、江西中南部和东北部、浙江南部、福建西部和北部等地部分地区有大到暴雨，其中，湖南南部、广东北部等地局地有大暴雨(100～130毫米)。上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹
+韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。 韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。 Google DeepMind以其开发的AI程序AlphaGo而闻名。2016年，AlphaGo在首尔以五局击
 
 ## 正文
 
-中国天气网讯 中央气象台4月22日06时发布暴雨蓝色预警： 预计，4月22日08时至23日08时，云南西北部、广西西部和东北部、广东北部、湖南南部、江西中南部和东北部、浙江南部、福建西部和北部等地部分地区有大到暴雨，其中，湖南南部、广东北部等地局地有大暴雨(100～130毫米)。
+韩国政府周一表示，已与谷歌旗下人工智能研究实验室Google DeepMind建立合作，共同推进以人工智能为主导的科技创新项目。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
+韩国科学技术信息通信部称，该部当天在首尔与Google DeepMind首席执行官兼联合创始人德米斯·哈萨比斯签署了谅解备忘录（MOU）。
 
-防御指南： 1、政府及相关部门按照职责做好防暴雨准备工作； 2、学校、幼儿园采取适当措施，保证学生和幼儿安全； 3、驾驶人员应当注意道路积水和交通阻塞，确保安全； 4、检查城市、农田、鱼塘排水系统，做好排涝准备。
+Google DeepMind以其开发的AI程序AlphaGo而闻名。
+
+2016年，AlphaGo在首尔以五局击败了围棋世界冠军李世石。
+
+哈萨比斯还因在基于AI的蛋白质结构预测研究方面的贡献，于2024年获得诺贝尔化学奖。
+
+根据备忘录，双方将在科学技术与AI领域的联合研究、AI人才培养以及负责任的AI使用等方面开展合作。
+
+双方特别同意，在韩国政府以AI为核心的“K-Moonshot”项目框架下，探索与Google DeepMind在技术、基础设施和研究人员交流等方面具体的合作方式。
+
+双方计划在生命科学、气象、气候及AI等多个科学技术领域开展合作，同时推动以将于下月投入运营的国家科学AI研究中心为中心的联合研究和研究人员交流。
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:26 - [一周展望：美股迎地缘与财报检验，沃什出席美联储主席提名听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:19 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:30 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:26 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:27 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:20 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:31 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:42 - [第十三批在韩中国人民志愿军烈士遗骸启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:31 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:29 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:21 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:38 - [美联航财报前瞻：原油暴涨、高端客群发力、并购传闻均成焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:39 - [库克宣布将卸任苹果CEO，特朗普、巴菲特、奥特曼等人这样说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:34 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 12:40 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 12:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 12:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 12:22 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 12:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 12:24 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 12:22 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 12:43 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 12:30 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 12:45 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 12:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 12:36 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 12:43 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 12:49 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:22 - [GTC泽汇:北欧黄金并购加速布局](http://www.share.minike.top/Article/details/5910734.shtml)
-- 2026-06-29 12:34 - [智能时代，我们还需要深度阅读吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.share.kurohicncr.top/Article/details/45193.shtml)
-- 2026-06-29 12:22 - [湖南永顺：山间云雾 人间烟火](http://www.share.kurohicncr.top/Article/details/814461.shtml)
-- 2026-06-29 12:21 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [邵艺辉：建议年轻人多阅读多写作](http://www.blog.kurohicncr.top/Article/details/1806475.shtml)
-- 2026-06-29 12:23 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.blog.kurohicncr.top/Article/details/5804842056.shtml)
-- 2026-06-29 12:37 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.minike.top/Article/details/0175283.shtml)
-- 2026-06-29 12:28 - [金针菇概念股，净利润大增超7000%](http://www.share.kurohicncr.top/Article/details/68670335.shtml)
-- 2026-06-29 12:26 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.blog.kurohicncr.top/Article/details/56329039.shtml)
-- 2026-06-29 12:18 - [多型舰艇齐聚上海并对民众开放](http://www.blog.minike.top/Article/details/29162195156.shtml)
-- 2026-06-29 12:44 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](http://www.share.minike.top/Article/details/1953626080.shtml)
-- 2026-06-29 12:31 - [正确政绩观｜世昌里社区的“三问三答”](http://www.share.minike.top/Article/details/05713349396.shtml)
-- 2026-06-29 12:23 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](http://www.share.kurohicncr.top/Article/details/030178562.shtml)
+- 2026-06-29 12:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/4731891236.shtml)
+- 2026-06-29 12:35 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/473094.shtml)
+- 2026-06-29 12:34 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/31978148985.shtml)
+- 2026-06-29 12:27 - [乌拉圭出局之路](http://www.blog.kurohicncr.top/Article/details/496507795797.shtml)
+- 2026-06-29 12:26 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/527421200131.shtml)
+- 2026-06-29 12:50 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/834808258071.shtml)
+- 2026-06-29 12:33 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/5874441905.shtml)
+- 2026-06-29 12:48 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/317320.shtml)
+- 2026-06-29 12:35 - [去美国加油？部分加拿大球迷陷入纠结](http://www.blog.minike.top/Article/details/784466299.shtml)
+- 2026-06-29 12:45 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/917798157850.shtml)
+- 2026-06-29 12:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/61609.shtml)
+- 2026-06-29 12:32 - [这位天才台湾人第一次来大陆，开智了](http://www.share.minike.top/Article/details/618708.shtml)
+- 2026-06-29 12:27 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/97636842932.shtml)
+- 2026-06-29 12:31 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/216841758.shtml)
+- 2026-06-29 12:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/35988025.shtml)

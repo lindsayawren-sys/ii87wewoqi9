@@ -1,57 +1,58 @@
-# 特朗普：我会记住不寻求退还关税的公司
+# 印度尼西亚河北商会揭牌成立
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间21日表示，他将感激地“记住”那些没有寻求退还关税的美国公司。 报道称，美国海关和边境保护局20日已启动根据美国《国际紧急经济权力法》所收关税的第一阶段退款工作，进口商可以申请退还关税。 报道称，包括苹果以及亚马逊等公司尚未申请退还已缴纳的关税，可能是因为他们担心“冒犯”特朗普。 特朗普在接受
+中新网雅加达4月26日电 (记者 李志全)印度尼西亚河北商会4月25日在雅加达举行揭牌仪式，宣布正式成立。 来自印尼政府机构、中印尼工商界、各省兄弟商会、会员企业及河北籍各界人士等200余人出席活动。 印尼河北商会会长康兆辉表示，商会将致力于打造务实高效的交流平台，帮助新来企业降低试错成本、少走弯路。未来，商会工作将围绕信息共享、资源对接、服务保障等方面展开，秉持“实干兴商”理
 
 ## 正文
 
-中新网4月22日电 据美国消费者新闻与商业频道(CNBC)报道，美国总统特朗普当地时间21日表示，他将感激地“记住”那些没有寻求退还关税的美国公司。
+中新网雅加达4月26日电 (记者 李志全)印度尼西亚河北商会4月25日在雅加达举行揭牌仪式，宣布正式成立。
 
-报道称，美国海关和边境保护局20日已启动根据美国《国际紧急经济权力法》所收关税的第一阶段退款工作，进口商可以申请退还关税。
+来自印尼政府机构、中印尼工商界、各省兄弟商会、会员企业及河北籍各界人士等200余人出席活动。
 
-报道称，包括苹果以及亚马逊等公司尚未申请退还已缴纳的关税，可能是因为他们担心“冒犯”特朗普。
+印尼河北商会会长康兆辉表示，商会将致力于打造务实高效的交流平台，帮助新来企业降低试错成本、少走弯路。
 
-特朗普在接受采访时表示：“如果他们不寻求退还关税，那就太好了。
+未来，商会工作将围绕信息共享、资源对接、服务保障等方面展开，秉持“实干兴商”理念，不辜负家乡重托与会员信任。
 
-如果他们不这样做，我会记住他们的。
+印尼中国商会总会秘书长黄瑞金、印尼中华总商会秘书长周维樑分别致辞，对河北商会成立表示祝贺。
 
-”他还提到，“如果他们不这么做，说明他们非常了解我。
+他们表示，河北历史文化底蕴深厚，民风淳朴，素以重信守义、务实进取著称；印尼市场充满活力与潜力，值得长期深耕。
 
-”特朗普再次抱怨最高法院以6比3的投票结果“废除了”这些关税：“说实话，我对最高法院并不满意。
+双方期待与河北商会保持良好互动，加强沟通协作和信息交流，为在印尼发展的企业营造更加顺畅的合作环境，助力两国经贸合作不断深化。
 
-” 据此前报道，随着美国最高法院判定特朗普政府依据《国际紧急经济权力法》加征的关税违法，美方将不得不退还高达1660亿美元的巨额关税。
+河北是中国重要的经济大省，工业基础雄厚，资源禀赋良好，民营经济活跃。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:39 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:18 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:26 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:26 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:34 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:24 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:46 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:41 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:32 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:26 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:50 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 12:26 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 12:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 12:39 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:25 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 12:49 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 12:29 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 12:39 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 12:26 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 12:41 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 12:36 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 12:33 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [一季度消费市场平稳增长 升级态势持续显现](http://www.blog.minike.top/Article/details/28999752.shtml)
-- 2026-06-29 12:35 - [日本气象厅解除对所有地区的海啸预警](http://www.blog.kurohicncr.top/Article/details/5616714150.shtml)
-- 2026-06-29 12:44 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/8322160.shtml)
-- 2026-06-29 12:18 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/512621906716.shtml)
-- 2026-06-29 12:42 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.minike.top/Article/details/4931819.shtml)
-- 2026-06-29 12:24 - [南华期货：第一季度净利润同比增长138.82%](http://www.share.kurohicncr.top/Article/details/58774003407.shtml)
-- 2026-06-29 12:20 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/6997568.shtml)
-- 2026-06-29 12:28 - [特朗普称预计停火到期后将继续轰炸伊朗](http://www.blog.minike.top/Article/details/76286184135.shtml)
-- 2026-06-29 12:45 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.blog.kurohicncr.top/Article/details/938010.shtml)
-- 2026-06-29 12:43 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](http://www.share.kurohicncr.top/Article/details/7565855.shtml)
-- 2026-06-29 12:44 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.kurohicncr.top/Article/details/812409554.shtml)
-- 2026-06-29 12:31 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.kurohicncr.top/Article/details/2509980.shtml)
+- 2026-06-29 12:39 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/81739157.shtml)
+- 2026-06-29 12:35 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/8393628.shtml)
+- 2026-06-29 12:41 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/465174098.shtml)
+- 2026-06-29 12:31 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/86758778.shtml)
+- 2026-06-29 12:40 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/703647.shtml)
+- 2026-06-29 12:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/8592691.shtml)
+- 2026-06-29 12:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/4381234705.shtml)
+- 2026-06-29 12:47 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/1239982.shtml)
+- 2026-06-29 12:48 - [AG 钟意](https://www.share.minike.top/Article/details/859611.shtml)
+- 2026-06-29 12:43 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.kurohicncr.top/Article/details/33862.shtml)
+- 2026-06-29 12:32 - [105年初心滚烫](https://www.share.minike.top/Article/details/32423.shtml)
+- 2026-06-29 12:23 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/15877664142.shtml)
+- 2026-06-29 12:23 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/554540162.shtml)
+- 2026-06-29 12:42 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.minike.top/Article/details/48798.shtml)
+- 2026-06-29 12:49 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/891291087.shtml)

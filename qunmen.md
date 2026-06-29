@@ -1,61 +1,55 @@
-# 福建武夷山：春茶开山 仪式感满满
+# A股新“股王”源杰科技净利大涨1153%，近一年股价飙升超10倍
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 11:11 来源：中国新闻网 以“红韵当头”为主题的第4届武夷星大红袍文化节·2026春茶开山仪式4月20日在福建武夷山举行。来自全国各地的爱茶人士齐聚武夷山，共同见证这一承载千年茶俗的盛会。 活动现场，众人齐聚御茶园，点香燃烛，宣读祭文，沿袭千年古老民俗，心怀敬畏感恩武夷山水的馈赠。众人齐声高呼“开山咯！采茶咯！”，呐喊声此起彼伏。主办方表示
+4月27日盘后，源杰科技（688498．SH）最新公告，2026年第一季度实现营业收入3.55亿元，同比增长320.94%；归属于上市公司股东的净利润为1.79亿元，同比增长1153.07%。扣非净利润为1.78亿元，同比增长1173.64%，总金额超过去年全年（2025年全年，源杰科技扣非净利润1.672亿元）。 公告称，业绩变动主要系受益于客户需求的增长，数据中心领域CW光
 
 ## 正文
 
-发布时间：2026年04月21日 11:11 来源：中国新闻网 以“红韵当头”为主题的第4届武夷星大红袍文化节·2026春茶开山仪式4月20日在福建武夷山举行。
+4月27日盘后，源杰科技（688498．SH）最新公告，2026年第一季度实现营业收入3.55亿元，同比增长320.94%；归属于上市公司股东的净利润为1.79亿元，同比增长1153.07%。
 
-来自全国各地的爱茶人士齐聚武夷山，共同见证这一承载千年茶俗的盛会。
+扣非净利润为1.78亿元，同比增长1173.64%，总金额超过去年全年（2025年全年，源杰科技扣非净利润1.672亿元）。
 
-活动现场，众人齐聚御茶园，点香燃烛，宣读祭文，沿袭千年古老民俗，心怀敬畏感恩武夷山水的馈赠。
+公告称，业绩变动主要系受益于客户需求的增长，数据中心领域CW光源产品销售额实现增长，公司整体产品结构的进一步优化，加之数据中心产品毛利率较高，因而，公司的净利润水平同比增加。
 
-众人齐声高呼“开山咯！
+此前据该公司2025年财报显示，过去一年里，该公司实现营业收入6.01亿元，同比增长138.50%；归属于上市公司股东的净利润达到1.91亿元，较上一年度的亏损613万元实现大幅反转。
 
-采茶咯！
+值得一提的是，一年多前，该公司还曾陷入股价腰斩、业绩变脸的质疑中。
 
-”，呐喊声此起彼伏。
+AI算力浪潮带来光芯片需求爆发，成为源杰科技扭亏为盈的关键助推力。
 
-主办方表示，希望通过丰富多彩的茶文化体验，让古老的“喊山”习俗代代传承，以此展现中国茶文化的独特魅力。
-
-(吴晟炜 江佳道) 责任编辑：【李季】
+源杰科技股价近期保持趋势性上涨，截至4月27日收盘报1418元/股，已超越贵州茅台，成为A股“新股王”，近一年股价涨超10倍。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:44 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:25 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:18 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:44 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:18 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:27 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:41 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:45 - [国台办：坚决反对美国一些人搞“以台遏华”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:42 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:45 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:30 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:35 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:47 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:36 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 12:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:22 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 12:35 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 12:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 12:51 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 12:48 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 12:33 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 12:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 12:48 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 12:49 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.share.minike.top/Article/details/590005739.shtml)
-- 2026-06-29 12:20 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.kurohicncr.top/Article/details/32629.shtml)
-- 2026-06-29 12:40 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.share.kurohicncr.top/Article/details/38345.shtml)
-- 2026-06-29 12:46 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.minike.top/Article/details/4229967818.shtml)
-- 2026-06-29 12:39 - [致敬！在繁花盛放的春天接英雄回家](http://www.share.kurohicncr.top/Article/details/577278.shtml)
-- 2026-06-29 12:34 - [万亿中原银行，变天了](http://www.blog.kurohicncr.top/Article/details/58164059171.shtml)
-- 2026-06-29 12:34 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.share.minike.top/Article/details/17864262.shtml)
-- 2026-06-29 12:22 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.kurohicncr.top/Article/details/5977112.shtml)
-- 2026-06-29 12:32 - [外资转向加仓中国资产](http://www.blog.kurohicncr.top/Article/details/82668266497.shtml)
-- 2026-06-29 12:20 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.share.kurohicncr.top/Article/details/2046520919.shtml)
-- 2026-06-29 12:23 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.kurohicncr.top/Article/details/7327919.shtml)
-- 2026-06-29 12:41 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.blog.kurohicncr.top/Article/details/306969564.shtml)
-- 2026-06-29 12:39 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.minike.top/Article/details/57130178.shtml)
-- 2026-06-29 12:43 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/24021.shtml)
-- 2026-06-29 12:30 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](http://www.blog.minike.top/Article/details/68919999.shtml)
+- 2026-06-29 12:23 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/390029.shtml)
+- 2026-06-29 12:38 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/92471996.shtml)
+- 2026-06-29 12:48 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/477785176585.shtml)
+- 2026-06-29 12:33 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/83028332849.shtml)
+- 2026-06-29 12:26 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/80624665686.shtml)
+- 2026-06-29 12:28 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/37434477980.shtml)
+- 2026-06-29 12:27 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/3039503603.shtml)
+- 2026-06-29 12:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/32432774273.shtml)
+- 2026-06-29 12:26 - [爱很美味](https://www.share.kurohicncr.top/Article/details/9706428.shtml)
+- 2026-06-29 12:24 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/9607767800.shtml)
+- 2026-06-29 12:24 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/5640325.shtml)
+- 2026-06-29 12:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/442145.shtml)
+- 2026-06-29 12:44 - [委内瑞拉强震致中国公民8遇难1失联](https://www.blog.kurohicncr.top/Article/details/07715267407.shtml)
+- 2026-06-29 12:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/719584425.shtml)
+- 2026-06-29 12:27 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/093072558696.shtml)

@@ -1,57 +1,57 @@
-# 成都诞生一波千万富豪
+# 施行近17年的企业国有资产法迎来首次修订
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！产业潮水，人生机遇。 作者/冯雨晨 这一幕着实难得： 从100亿到500亿，新易盛用了快十年； 而从500亿到6000亿，不过一年时间。 诞生于成都，这家光模块企业去年4月至今股价翻近10倍，成为成都市值最高的公司。高光之际，一批员工顶峰相见了——在股价还未有起色的2024年，新易盛实施一项员工股权激励计划
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。 草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-产业潮水，人生机遇。
+企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
 
-作者/冯雨晨 这一幕着实难得： 从100亿到500亿，新易盛用了快十年； 而从500亿到6000亿，不过一年时间。
+企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。
 
-诞生于成都，这家光模块企业去年4月至今股价翻近10倍，成为成都市值最高的公司。
+草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持分类管理原则、健全国有资本收益管理制度等。
 
-高光之际，一批员工顶峰相见了——在股价还未有起色的2024年，新易盛实施一项员工股权激励计划，146名员工参与，总共560万股股份，行权价格为16.168元/股。
+企业国有资产法规定了我国企业国有资产管理监督的基础制度，自2009年5月1日施行以来，为国资国企改革发展提供了有力法治保障。
 
-今非昔比，以当前625元/股高点计算，这项员工持股计划对应市值高达35亿元，平均下来每人持有2000多万元。
+“十五五”时期我国发展环境面临深刻复杂变化，修改完善企业国有资产法，以立法引领和保障国资国企改革发展，加强国有资产管理监督法治建设，对于保障国有经济持续健康发展意义重大。
 
-再次感受到，AI造富威力之大。
-
-一年涨10倍，员工赚翻了 缘起于两年前。
+记者：王希 海报制作：王希 新华社国内部出品责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:28 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:21 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:40 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:25 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:21 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:30 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:18 - [奋进“十五五” 实干挑大梁——“中国经济圆桌会”共话经济大省担当与作为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:44 - [关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:40 - [特朗普在美国中期选举前已囤积5.5亿美元竞选资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:31 - [中国空军接迎志愿军烈士遗骸回国：运-20B首次飞出国门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 12:22 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 12:47 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 12:49 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 12:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 12:34 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 12:50 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 12:23 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 12:29 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 12:29 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 12:42 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 12:30 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 12:42 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](http://www.blog.kurohicncr.top/Article/details/7006389100.shtml)
-- 2026-06-29 12:29 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](http://www.share.kurohicncr.top/Article/details/16622313040.shtml)
-- 2026-06-29 12:35 - [智达藏语大模型及系列应用产品成果发布](http://www.share.kurohicncr.top/Article/details/5456967595.shtml)
-- 2026-06-29 12:41 - [法国官方宣布财政节支措施以应对中东局势](http://www.share.kurohicncr.top/Article/details/17473945.shtml)
-- 2026-06-29 12:18 - [美国财长贝森特：财政部将继续对伊朗施压](http://www.blog.minike.top/Article/details/47274164.shtml)
-- 2026-06-29 12:18 - [特朗普称将“记住”不申请关税退款的公司](http://www.share.kurohicncr.top/Article/details/11231161236.shtml)
-- 2026-06-29 12:27 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.kurohicncr.top/Article/details/950434699.shtml)
-- 2026-06-29 12:38 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.blog.minike.top/Article/details/1878043.shtml)
-- 2026-06-29 12:29 - [摩根士丹利下调黄金前景预期](http://www.share.minike.top/Article/details/8225561913.shtml)
-- 2026-06-29 12:41 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.share.kurohicncr.top/Article/details/6674613.shtml)
-- 2026-06-29 12:41 - [瞄准、击发 直击官兵轻武器实弹射击训练](http://www.share.kurohicncr.top/Article/details/823874898332.shtml)
-- 2026-06-29 12:37 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](http://www.share.minike.top/Article/details/7899169.shtml)
-- 2026-06-29 12:20 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8193473622.shtml)
+- 2026-06-29 12:43 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/53460.shtml)
+- 2026-06-29 12:31 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/08910356.shtml)
+- 2026-06-29 12:47 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.kurohicncr.top/Article/details/9634009368.shtml)
+- 2026-06-29 12:50 - [韩红携4000万物资抵呼和浩特](https://www.share.kurohicncr.top/Article/details/923278040571.shtml)
+- 2026-06-29 12:40 - [媒体：湖人把薪资空间玩明白了](https://www.blog.minike.top/Article/details/162536.shtml)
+- 2026-06-29 12:42 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/25314261904.shtml)
+- 2026-06-29 12:40 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/84039488493.shtml)
+- 2026-06-29 12:31 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/26376563114.shtml)
+- 2026-06-29 12:30 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/51984.shtml)
+- 2026-06-29 12:37 - [细节之中抓作风](http://www.blog.minike.top/Article/details/73295559.shtml)
+- 2026-06-29 12:31 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/033146.shtml)
+- 2026-06-29 12:27 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/718392754.shtml)
+- 2026-06-29 12:35 - [恋与深空需直面玩家6大疑问](https://www.share.minike.top/Article/details/021872.shtml)
+- 2026-06-29 12:21 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/9284759456.shtml)

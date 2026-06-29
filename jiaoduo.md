@@ -1,46 +1,59 @@
-# 福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%
+# 知识产权聚活力 创新发展添动力
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-4月21日，福耀玻璃(600660.SH)发布公告显示，2026年第一季度公司实现营业收入104.13亿元，较上年同期增长5.08%；归属于上市公司股东的净利润为17.12亿元，同比下降15.68%。（央广财经）（文章来源：央广财经）
+今年4月26日是第二十六个世界知识产权日。我国已累计受理数据知识产权登记申请超10万件、颁发登记证书近5万张，布局建设82家国家级知识产权保护中心和50家快速维权中心，为新兴领域创新主体提供“一站式”服务……完善知识产权保护制度，是促进新兴领域发展、培育新质生产力的重要方面。党的十八大以来，以习近平同志为核心的党中央把知识产权保护工作摆在更加突出的位置，引领我国知识产权事业不断
 
 ## 正文
 
-4月21日，福耀玻璃(600660.SH)发布公告显示，2026年第一季度公司实现营业收入104.13亿元，较上年同期增长5.08%；归属于上市公司股东的净利润为17.12亿元，同比下降15.68%。
+今年4月26日是第二十六个世界知识产权日。
 
-（央广财经）（文章来源：央广财经）
+我国已累计受理数据知识产权登记申请超10万件、颁发登记证书近5万张，布局建设82家国家级知识产权保护中心和50家快速维权中心，为新兴领域创新主体提供“一站式”服务……完善知识产权保护制度，是促进新兴领域发展、培育新质生产力的重要方面。
+
+党的十八大以来，以习近平同志为核心的党中央把知识产权保护工作摆在更加突出的位置，引领我国知识产权事业不断发展，走出了一条中国特色知识产权发展之路。
+
+“当前，我国正在从知识产权引进大国向知识产权创造大国转变，知识产权工作正在从追求数量向提高质量转变。
+
+” “创新是引领发展的第一动力，保护知识产权就是保护创新。
+
+” “完善新兴领域知识产权保护制度，加快科技成果转化。
+
+” ………… 习近平总书记关于知识产权保护工作的重要讲话和重要指示，为我国知识产权事业发展提供根本遵循，指明前进方向。
+
+谆谆嘱托，化作以知识产权保护激发创新动力的生动实践。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:39 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:29 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:46 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:24 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:25 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:25 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:33 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:28 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:32 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:31 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:22 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:35 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 12:28 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 12:38 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 12:22 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 12:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 12:24 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 12:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 12:29 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 12:34 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 12:32 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 12:38 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 12:27 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 12:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/72401405.shtml)
-- 2026-06-29 12:46 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](http://www.blog.kurohicncr.top/Article/details/811456.shtml)
-- 2026-06-29 12:40 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.share.minike.top/Article/details/18490133.shtml)
-- 2026-06-29 12:26 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](http://www.blog.kurohicncr.top/Article/details/815978.shtml)
-- 2026-06-29 12:21 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](http://www.share.minike.top/Article/details/61336033.shtml)
-- 2026-06-29 12:23 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.minike.top/Article/details/751368899.shtml)
-- 2026-06-29 12:44 - [上海着力打造首个“次元友好街区”](http://www.share.minike.top/Article/details/99163.shtml)
-- 2026-06-29 12:35 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.kurohicncr.top/Article/details/6378821461.shtml)
-- 2026-06-29 12:20 - [陪审团裁定优步负有责任](http://www.blog.minike.top/Article/details/58568292.shtml)
-- 2026-06-29 12:45 - [Tractor Supply第一财季盈利不及预期](http://www.blog.minike.top/Article/details/463329738809.shtml)
-- 2026-06-29 12:24 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.share.minike.top/Article/details/272430157.shtml)
-- 2026-06-29 12:22 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.minike.top/Article/details/54008274.shtml)
-- 2026-06-29 12:34 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.blog.minike.top/Article/details/4456284127.shtml)
+- 2026-06-29 12:27 - [凯恩何时能拿到国际大赛冠军](https://www.blog.minike.top/Article/details/014586651.shtml)
+- 2026-06-29 12:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/47560137.shtml)
+- 2026-06-29 12:32 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/7825957.shtml)
+- 2026-06-29 12:51 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/2236247063.shtml)
+- 2026-06-29 12:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/194275956.shtml)
+- 2026-06-29 12:49 - [虞书欣灿如繁星明天定档](http://www.blog.kurohicncr.top/Article/details/72579.shtml)
+- 2026-06-29 12:24 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/206322920100.shtml)
+- 2026-06-29 12:37 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.kurohicncr.top/Article/details/7524810.shtml)
+- 2026-06-29 12:40 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/74310.shtml)
+- 2026-06-29 12:38 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/8571225.shtml)
+- 2026-06-29 12:43 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/2222911553.shtml)
+- 2026-06-29 12:28 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/56970899.shtml)
+- 2026-06-29 12:38 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/6385796.shtml)
+- 2026-06-29 12:22 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/358589621719.shtml)
+- 2026-06-29 12:25 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/142102266.shtml)

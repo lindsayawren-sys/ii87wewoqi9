@@ -1,61 +1,60 @@
-# 午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！
+# 在常州，看“小IP”撬动“大时代”
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-CPO概念股，延续强势！ 4月22日盘中，A股CPO概念股集体拉升，长光华芯、新易盛、沃格光电、长盈通、东山精密、仕佳光子、光库科技、长飞光纤、特发信息（维权）等纷纷创出历史新高。 午后，CPO概念股涨幅进一步扩大，板块指数涨幅超过3.70%。其中，新易盛涨幅超过7%，总市值突破6000亿元。年初至今，新易盛涨幅超过40%。而自去年4月21日至今，该公司累计涨超1000%。 从
+【开局之年看中国·遇见不一样的江苏】在常州，看“小IP”撬动“大时代” 2026年的春夏之交，江苏再次因“苏超”而沸腾。赛场上，球员们点燃着城市的激情；赛场边，一块块广告牌成为“苏超”的注脚。去年此时，一家外来夫妻店，缘于对第二故乡常州的朴素热爱而赞助球队，将一块“街边烧烤”的朴素广告牌，立在了一众知名品牌之间。 这就是常州，既有“无中生有”、历时二十五年长成的“恐龙”，也有定
 
 ## 正文
 
-CPO概念股，延续强势！
+【开局之年看中国·遇见不一样的江苏】在常州，看“小IP”撬动“大时代” 2026年的春夏之交，江苏再次因“苏超”而沸腾。
 
-4月22日盘中，A股CPO概念股集体拉升，长光华芯、新易盛、沃格光电、长盈通、东山精密、仕佳光子、光库科技、长飞光纤、特发信息（维权）等纷纷创出历史新高。
+赛场上，球员们点燃着城市的激情；赛场边，一块块广告牌成为“苏超”的注脚。
 
-午后，CPO概念股涨幅进一步扩大，板块指数涨幅超过3.70%。
+去年此时，一家外来夫妻店，缘于对第二故乡常州的朴素热爱而赞助球队，将一块“街边烧烤”的朴素广告牌，立在了一众知名品牌之间。
 
-其中，新易盛涨幅超过7%，总市值突破6000亿元。
+这就是常州，既有“无中生有”、历时二十五年长成的“恐龙”，也有定义产业高度的“智造”，更有无数市井烟火中破土而出的“微光”。
 
-年初至今，新易盛涨幅超过40%。
+从“无”到“有”：“恐龙”与一座城的相互成就 二十多年前，常州争取到中国地质博物馆分馆项目，在一片“无恐龙化石资源”的质疑声中，决心“无中生有”。
 
-而自去年4月21日至今，该公司累计涨超1000%。
+以一座中华恐龙馆为起点，恐龙园集团用“创意+科技”的魔法，让远古巨兽“活”了起来。
 
-从消息面来看，CPO板块近期迎来多则利好：一是，全球AI专用光收发模块市场进入高速成长阶段；二是，芯片巨头相继押注CPO赛道。
+从运用VR、MR、AI技术打造沉浸式体验，到构建“形象-内容-体验-衍生”的完整IP产业链；从一部部动漫作品、一场场光影大秀，到恐龙主题融入地铁、单车、公交等城市的每个角落，“恐龙”从一个文化概念，成长为渗透城市肌理的文化符号。
 
-有消息称，AMD将与格方罗德合作开发CPO解决方案。
+这不仅是一个主题乐园的成功，更是一场“IP驱动城市发展”的深刻实践。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:33 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:34 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:25 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:47 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:39 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:22 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:18 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:42 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:45 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:35 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:33 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:42 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:37 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:26 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 12:49 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 12:33 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 12:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 12:37 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 12:34 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 12:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 12:24 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:35 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 12:26 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 12:46 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 12:31 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 12:44 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.share.minike.top/Article/details/600454942.shtml)
-- 2026-06-29 12:45 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.blog.minike.top/Article/details/710713.shtml)
-- 2026-06-29 12:48 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.share.kurohicncr.top/Article/details/81753544175.shtml)
-- 2026-06-29 12:47 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.kurohicncr.top/Article/details/4644279317.shtml)
-- 2026-06-29 12:45 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.minike.top/Article/details/7491569524.shtml)
-- 2026-06-29 12:18 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.share.minike.top/Article/details/985806.shtml)
-- 2026-06-29 12:24 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](http://www.share.minike.top/Article/details/909173.shtml)
-- 2026-06-29 12:44 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.blog.kurohicncr.top/Article/details/14929409760.shtml)
-- 2026-06-29 12:32 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.share.minike.top/Article/details/167770777.shtml)
-- 2026-06-29 12:39 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.share.kurohicncr.top/Article/details/7961853383.shtml)
-- 2026-06-29 12:32 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.blog.minike.top/Article/details/46268.shtml)
-- 2026-06-29 12:36 - [广西仫佬山乡：多彩民俗展风情](http://www.share.minike.top/Article/details/18150.shtml)
-- 2026-06-29 12:27 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.minike.top/Article/details/41123.shtml)
+- 2026-06-29 12:39 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/59395679.shtml)
+- 2026-06-29 12:35 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/5401220.shtml)
+- 2026-06-29 12:31 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/8454787075.shtml)
+- 2026-06-29 12:23 - [伊朗球员致歉](https://www.blog.kurohicncr.top/Article/details/87798.shtml)
+- 2026-06-29 12:28 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/017396347220.shtml)
+- 2026-06-29 12:49 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/3831587510.shtml)
+- 2026-06-29 12:38 - [小娘惹](https://www.blog.minike.top/Article/details/833470865379.shtml)
+- 2026-06-29 12:28 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/627081336212.shtml)
+- 2026-06-29 12:45 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/09220960380.shtml)
+- 2026-06-29 12:46 - [千与千寻](https://www.blog.minike.top/Article/details/92895.shtml)
+- 2026-06-29 12:47 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/64929336921.shtml)
+- 2026-06-29 12:35 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/834028392.shtml)
+- 2026-06-29 12:27 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.minike.top/Article/details/45209.shtml)
+- 2026-06-29 12:47 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/352453429302.shtml)
+- 2026-06-29 12:38 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/4785782.shtml)

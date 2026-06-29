@@ -1,60 +1,61 @@
-# 华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！
+# 10岁“小孩哥”驰骋亚沙会：“我想要成为世界冠军！”
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 上周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.99%，中证500涨3.07%，中证1000涨3.87%，创业板50涨7.51%，科创50涨4.31%。交易面，A股市场日均成交额在2.3万亿左右，市场投资热情高涨。年报季市场对企业基本面业绩关注度提升，中期产业趋势确定性较高、成分股占据龙头优势且基本面业绩优异的创业板50指数（涵盖高权重的光
+中新网三亚4月25日电 (记者 王晓斌)在第六届亚洲沙滩运动会(简称亚沙会)三亚湾海虹广场前方的海面上，海风正劲，千帆竞发。在OP帆船男子组的参赛队伍中，一位身形略显瘦小、眼神却异常坚定的小选手格外引人注目。他就是来自阿联酋的哈马德·阿尔姆海里(ALMHEIRI Hamad)，本届亚沙会年纪最小的运动员。 就在几天前，哈马德·阿尔姆海里刚刚度过了自己10岁的生日。对于大多数同龄
 
 ## 正文
 
-行情回顾及主要观点： 上周A股市场整体呈现上涨趋势，主要指数普遍上涨：沪深300涨1.99%，中证500涨3.07%，中证1000涨3.87%，创业板50涨7.51%，科创50涨4.31%。
+中新网三亚4月25日电 (记者 王晓斌)在第六届亚洲沙滩运动会(简称亚沙会)三亚湾海虹广场前方的海面上，海风正劲，千帆竞发。
 
-交易面，A股市场日均成交额在2.3万亿左右，市场投资热情高涨。
+在OP帆船男子组的参赛队伍中，一位身形略显瘦小、眼神却异常坚定的小选手格外引人注目。
 
-年报季市场对企业基本面业绩关注度提升，中期产业趋势确定性较高、成分股占据龙头优势且基本面业绩优异的创业板50指数（涵盖高权重的光模块、新能源等领域龙头）突破2015年历史高位。
+他就是来自阿联酋的哈马德·阿尔姆海里(ALMHEIRI Hamad)，本届亚沙会年纪最小的运动员。
 
-创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
+就在几天前，哈马德·阿尔姆海里刚刚度过了自己10岁的生日。
 
-权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
+对于大多数同龄孩子来说，生日或许意味着蛋糕、玩具和派对，但对于这位已经在海上“闯荡”了两年的“老水手”而言，在亚沙会的赛场上劈波斩浪，就是他送给自己最好的生日礼物。
 
-图：创业板50指数四大赛道 数据来源：Wind，华安基金，截至2026-4-17 创业板50指数：追“光”识“新”更掘“金”。
+8岁启航的“老水手” 虽然年仅10岁，但哈马德·阿尔姆海里在帆船领域已经不算“新手”。
 
-横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
+据他介绍，自己从8岁起就开始接触帆船，这项运动的启蒙老师正是他的爷爷。
 
-创业板50ETF华安（159949）：汇聚创业板优势领域白马，聚焦高科技成长属性的龙头企业。
+“我的家人都非常喜欢帆船运动，是爷爷教会了我如何驾驶帆船。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:44 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:28 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:45 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:25 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:36 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:32 - [贵州梵净山：夕阳映照落日如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:36 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:40 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:26 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:36 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:35 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:33 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:20 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:31 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 12:36 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 12:49 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 12:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 12:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 12:28 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 12:42 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 12:39 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 12:41 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:31 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 12:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 12:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 12:36 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 12:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 12:44 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.kurohicncr.top/Article/details/336490477.shtml)
-- 2026-06-29 12:27 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.kurohicncr.top/Article/details/4996997293.shtml)
-- 2026-06-29 12:28 - [甘肃一季度对东盟进出口货值同比增长逾四成](http://www.share.minike.top/Article/details/869751788086.shtml)
-- 2026-06-29 12:42 - [第三届国际核技术应用产业发展大会开幕](http://www.blog.kurohicncr.top/Article/details/8152423.shtml)
-- 2026-06-29 12:35 - [中信建投期货：4月22日工业品早报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/09984.shtml)
-- 2026-06-29 12:35 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.share.minike.top/Article/details/715752.shtml)
-- 2026-06-29 12:24 - [马克龙访问波兰 聚焦法波防务及核能合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.minike.top/Article/details/6659211.shtml)
-- 2026-06-29 12:31 - [关键词读懂一季度工业和信息化亮眼“成绩单”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.kurohicncr.top/Article/details/985214313.shtml)
-- 2026-06-29 12:39 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.blog.kurohicncr.top/Article/details/088630702.shtml)
-- 2026-06-29 12:24 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [机械车位闲置，如何盘活改造？](http://www.blog.kurohicncr.top/Article/details/48174518065.shtml)
+- 2026-06-29 12:43 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/16225.shtml)
+- 2026-06-29 12:34 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/174186393755.shtml)
+- 2026-06-29 12:45 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/2748535.shtml)
+- 2026-06-29 12:26 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/8942752661.shtml)
+- 2026-06-29 12:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/752300500.shtml)
+- 2026-06-29 12:23 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/37604262177.shtml)
+- 2026-06-29 12:45 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/2605009318.shtml)
+- 2026-06-29 12:48 - [美加墨世界杯首支16强诞生](http://www.blog.minike.top/Article/details/0737530150.shtml)
+- 2026-06-29 12:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/097790420072.shtml)
+- 2026-06-29 12:29 - [美加墨世界杯首支16强诞生](http://www.blog.minike.top/Article/details/53327.shtml)
+- 2026-06-29 12:26 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/744297070.shtml)
+- 2026-06-29 12:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/63477526892.shtml)
+- 2026-06-29 12:37 - [天津打雷](https://www.share.kurohicncr.top/Article/details/94491578656.shtml)
+- 2026-06-29 12:24 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/3488233024.shtml)
+- 2026-06-29 12:35 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/994110.shtml)

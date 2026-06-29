@@ -1,60 +1,57 @@
-# 报告显示银龄群体成工作日休闲时间“看书学习”第一主力
+# 酒价内参4月27日价格发布：精品茅台上涨5元
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。 报告对“工作日的休闲时间您通常做什么”进行了
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨三跌一平，赢家明显占优。上涨方面，古井贡古20涨幅居前，上涨6元/瓶
 
 ## 正文
 
-中新社南昌4月21日电 (记者 李韵涵)第五届全民阅读大会·银龄阅读论坛21日在南昌召开，论坛上发布的《银龄阅读趋势报告(2026)》(以下简称“报告”)显示，60岁以上银龄群体是工作日休闲时间“看书学习”第一主力。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。
 
-该报告对9.7万余名受访者开展线下入户问卷调查，同步对近2.4万名受访者进行线上问卷调查，样本覆盖中国各省份城乡地区。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。
 
-报告对“工作日的休闲时间您通常做什么”进行了调查，在14个选项中，有32.23%的受访者选择了“看书学习”，超三成的中国人在休闲时间与书香为伴。
+市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。
 
-其中，60岁以上银龄群体是全年龄段中“看书学习”占比最高的群体，且银龄群体连续三年保持了全年龄段领先优势。
+今日白酒市场11大单品七涨三跌一平，赢家明显占优。
 
-报告指出，银龄群体对学习的热情，正转化为强劲的消费力。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，收获三连涨迭创一个月来新高；精品茅台上涨5元/瓶；价盘一向稳重的水晶剑南春显著上涨3元/瓶；五粮液普五八代、洋河梦之蓝M6+及习酒君品均上涨2元/瓶；国窖1573小幅上涨1元/瓶。
 
-数据显示，2026年有23.12%的银发族计划为“学习培训等教育支出”增加消费，占比超过传统刚需“医疗服务”1.79个百分点。
+下跌方面，青花汾20跌幅居前，下跌4元/瓶；飞天茅台下跌3元/瓶；青花郎小幅回落2元/瓶。
 
-报告调查发现，从城乡维度看，无论是城市还是农村，经常“看书学习”的银龄群体占比都不输于其他年龄段。
+五粮液1618的价格环比保持不变。
 
-具体来看，城市银龄群体中经常看书学习的人数占比为34.31%，农村为32.79%，1.52个百分点的差距，打破了“农村老人不读书”的刻板印象。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:44 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:30 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:27 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:35 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:43 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:24 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:29 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:18 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:27 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:36 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:29 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:40 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:39 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:47 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 12:39 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 12:45 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 12:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 12:39 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:44 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 12:22 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 12:43 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 12:43 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 12:34 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 12:22 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.share.minike.top/Article/details/8312214419.shtml)
-- 2026-06-29 12:47 - [特朗普：如未能达成协议“几无可能”再延长停火](http://www.blog.minike.top/Article/details/979726773845.shtml)
-- 2026-06-29 12:22 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.kurohicncr.top/Article/details/51158619632.shtml)
-- 2026-06-29 12:34 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.minike.top/Article/details/485240940284.shtml)
-- 2026-06-29 12:39 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.blog.kurohicncr.top/Article/details/3757403169.shtml)
-- 2026-06-29 12:28 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.share.kurohicncr.top/Article/details/3129979.shtml)
-- 2026-06-29 12:32 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](http://www.share.kurohicncr.top/Article/details/5949888.shtml)
-- 2026-06-29 12:25 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.blog.minike.top/Article/details/2412099883.shtml)
-- 2026-06-29 12:28 - [广西仫佬山乡：多彩民俗展风情](http://www.share.kurohicncr.top/Article/details/599798845028.shtml)
-- 2026-06-29 12:18 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.share.kurohicncr.top/Article/details/54331935512.shtml)
-- 2026-06-29 12:30 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.kurohicncr.top/Article/details/771063.shtml)
+- 2026-06-29 12:38 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/2900869.shtml)
+- 2026-06-29 12:43 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/913049012340.shtml)
+- 2026-06-29 12:26 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/9981391311.shtml)
+- 2026-06-29 12:39 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/7348805.shtml)
+- 2026-06-29 12:35 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/92904718.shtml)
+- 2026-06-29 12:37 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/95193.shtml)
+- 2026-06-29 12:21 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/497396116.shtml)
+- 2026-06-29 12:34 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/98880.shtml)
+- 2026-06-29 12:39 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/04574255.shtml)
+- 2026-06-29 12:49 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/1536887123.shtml)
+- 2026-06-29 12:49 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/2351253179.shtml)
+- 2026-06-29 12:22 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/4007638163.shtml)
+- 2026-06-29 12:41 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/5587107.shtml)
+- 2026-06-29 12:44 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/10905911.shtml)
+- 2026-06-29 12:29 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/00962.shtml)

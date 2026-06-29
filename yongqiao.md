@@ -1,56 +1,58 @@
-# 东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……
+# 美股芯片股冰火两重天，英特尔涨近5%创新高，ARM重挫10%，美国能源飙涨超60%
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-2026年4月21日，星期二。资讯三分钟，速读食业大事你不需要很厉害才能开始，但你需要开始才能很厉害。永辉超市大规模闭店已经结束近日，永辉超市董事长张轩松称，公司大规模的闭店已经结束，目前调改店已经实现收入增长。他表示，现在公司门店调改已进入第二阶段，由之前的“快速整改”向“精细化管理”与“专业技能夯实”过渡。截至一季度末，永辉超市全国累计调改门店达327家。王老吉与葡萄牙王氏
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨张嘉钰 编辑丨曾静娇 4月27日，美股三大指数集体走低，截至22：00，道指跌0.03%，纳指跌0.32%，标普500指数跌0.02%。 大型科技股跌多涨少，特斯拉跌近3%，亚马逊、苹果跌超1%，上涨方面，英伟达涨0.21%，谷歌涨0.19%。 美股芯片股走势分化，半导体板块整体表现疲软，费城半导体指
 
 ## 正文
 
-2026年4月21日，星期二。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-资讯三分钟，速读食业大事你不需要很厉害才能开始，但你需要开始才能很厉害。
+记者丨张嘉钰 编辑丨曾静娇 4月27日，美股三大指数集体走低，截至22：00，道指跌0.03%，纳指跌0.32%，标普500指数跌0.02%。
 
-永辉超市大规模闭店已经结束近日，永辉超市董事长张轩松称，公司大规模的闭店已经结束，目前调改店已经实现收入增长。
+大型科技股跌多涨少，特斯拉跌近3%，亚马逊、苹果跌超1%，上涨方面，英伟达涨0.21%，谷歌涨0.19%。
 
-他表示，现在公司门店调改已进入第二阶段，由之前的“快速整改”向“精细化管理”与“专业技能夯实”过渡。
+美股芯片股走势分化，半导体板块整体表现疲软，费城半导体指数走低，现跌0.9%。
 
-截至一季度末，永辉超市全国累计调改门店达327家。
+板块内多数个股下行，ARM跌超10%，迈威尔科技跌超5%，AMD跌超3%。
 
-王老吉与葡萄牙王氏食品签定合作协议4月19日至20日，广药集团董事长李小军、王老吉大健康公司董事长方达锋一行赴葡萄牙里斯本开展市场调研与商务洽谈，并在澳门特区政府主办的“澳门—葡萄牙经贸合作推介会”上，与葡萄牙王氏食品国际进出口公司正式签约。
+芯片龙头高通一度涨超8%，随后涨幅直线跳水，截至发稿涨0.85%。
 
-方达锋介绍下一阶段市场策略，提出将依托王氏食品渠道资源，加快推进王老吉产品进入葡萄牙本土主流零售终端，重点推广WALOVI国际品牌。
+据财联社消息，公司正与OpenAI 合作研发智能手机处理器。
 
-甘源食品第一季度营收6.18亿元4月21日，甘源食品发布公告，2026年第一季度实现营业收入6.18亿元，同比增长22.51%；归属于上市公司股东的净利润6633.01万元，同比增加25.73%。
+英特尔逆势走强股价涨4.43%，报86.2美元/股，再创历史新高，总市值报4291亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [西贝正在“换号重生”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:41 - [长城基金：新兴科技是主线，价值也有春天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:43 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:33 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:23 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:43 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:21 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:35 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:33 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:28 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 12:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 12:42 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 12:40 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 12:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 12:32 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 12:27 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 12:35 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 12:38 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 12:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 12:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 12:26 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/86214.shtml)
-- 2026-06-29 12:20 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.blog.kurohicncr.top/Article/details/63433881153.shtml)
-- 2026-06-29 12:29 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](http://www.share.kurohicncr.top/Article/details/60084869928.shtml)
-- 2026-06-29 12:40 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.blog.kurohicncr.top/Article/details/84879109891.shtml)
-- 2026-06-29 12:43 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](http://www.blog.minike.top/Article/details/96809.shtml)
-- 2026-06-29 12:30 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](http://www.share.kurohicncr.top/Article/details/91061.shtml)
-- 2026-06-29 12:40 - [全民阅读活动周 各地举办多场活动](http://www.blog.minike.top/Article/details/879938.shtml)
-- 2026-06-29 12:36 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.minike.top/Article/details/2467546123.shtml)
-- 2026-06-29 12:19 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](http://www.blog.minike.top/Article/details/364743.shtml)
-- 2026-06-29 12:41 - [特朗普：我会记住不寻求退还关税的公司](http://www.share.kurohicncr.top/Article/details/85067580.shtml)
-- 2026-06-29 12:20 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.kurohicncr.top/Article/details/094146984.shtml)
-- 2026-06-29 12:36 - [中外科研团队发现约5.35亿年前环节动物祖先](http://www.share.minike.top/Article/details/7300184.shtml)
-- 2026-06-29 12:43 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/416930800598.shtml)
+- 2026-06-29 12:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/66016538.shtml)
+- 2026-06-29 12:45 - [日本媒体：板仓滉已回归日本队合练](https://www.share.minike.top/Article/details/367739034.shtml)
+- 2026-06-29 12:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/1428610.shtml)
+- 2026-06-29 12:37 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/82072646078.shtml)
+- 2026-06-29 12:23 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/45636.shtml)
+- 2026-06-29 12:27 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/37131.shtml)
+- 2026-06-29 12:42 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/87532395.shtml)
+- 2026-06-29 12:25 - [中国战机大片上新](http://www.blog.minike.top/Article/details/290887431.shtml)
+- 2026-06-29 12:46 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/90175.shtml)
+- 2026-06-29 12:34 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/1224997514.shtml)
+- 2026-06-29 12:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/619061124.shtml)
+- 2026-06-29 12:40 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/148999.shtml)
+- 2026-06-29 12:28 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/98991.shtml)
+- 2026-06-29 12:32 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/902061084.shtml)

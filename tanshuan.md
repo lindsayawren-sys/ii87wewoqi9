@@ -1,58 +1,55 @@
-# 特朗普称将“记住”不申请关税退款的公司
+# Momenta曹旭东：海外车企应跟中国模式学习，做反向合资反哺当地
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-美国总统特朗普周二表示，他会心存感激地“记住”那些不为其单方面征收的关税寻求退款的公司。这些关税已被最高法院裁定为非法。 特朗普在节目中发表上述言论的前一天，美国海关和边境保护局刚刚开放了一个门户网站，允许进口商就所谓的《国际紧急经济权力法》关税申请潜在退款，总额可能超过1600亿美元。 特朗普表示：“我会记住那些不提出申请的公司。它们明白发生了什么。它们明白我是在试图保护这个
+新浪科技讯 4月25日晚间消息，日前2026北京车展开幕，Momenta期间举办“Momenta R7，物理AI序章”主题分享会。会后，Momenta CEO 曹旭东与新浪科技等媒体进行对话。 谈及“越来越多海外车企看重了中国科技巨头的趋势”，曹旭东表示，中国的技术现在正在从中国走向世界，整个发展速度还是非常快的，进入海外市场能给当地用户带来更领先的产品价值，但是也会带来一些冲
 
 ## 正文
 
-美国总统特朗普周二表示，他会心存感激地“记住”那些不为其单方面征收的关税寻求退款的公司。
+新浪科技讯 4月25日晚间消息，日前2026北京车展开幕，Momenta期间举办“Momenta R7，物理AI序章”主题分享会。
 
-这些关税已被最高法院裁定为非法。
+会后，Momenta CEO 曹旭东与新浪科技等媒体进行对话。
 
-特朗普在节目中发表上述言论的前一天，美国海关和边境保护局刚刚开放了一个门户网站，允许进口商就所谓的《国际紧急经济权力法》关税申请潜在退款，总额可能超过1600亿美元。
+谈及“越来越多海外车企看重了中国科技巨头的趋势”，曹旭东表示，中国的技术现在正在从中国走向世界，整个发展速度还是非常快的，进入海外市场能给当地用户带来更领先的产品价值，但是也会带来一些冲击。
 
-特朗普表示：“我会记住那些不提出申请的公司。
+他表示：“比较好的解决方案就是借鉴中国之前的模式，跟中国学习，来做反向合资，这样既让当地享受到了中国的技术和良好的产品体验，也能用中国的技术赋能当地企业带来更多发展，是一个共赢的模式。
 
-它们明白发生了什么。
-
-它们明白我是在试图保护这个国家。
-
-”他补充说，自己“非常欣赏”那些不寻求退款的公司，暗示这些企业的忠诚度可能会在未来得到回报。
-
-最高法院在上个月的裁决中指出，特朗普政府援引《国际紧急经济权力法》对从中国进口的商品额外征收关税超出了法定权限，因为该法并未授权总统以贸易逆差为由征收关税。
+”责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:22 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:22 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:33 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:40 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:22 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:28 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:47 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:44 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:25 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:34 - [湖南永顺：山间云雾 人间烟火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:21 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:41 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 12:45 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 12:24 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:45 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 12:23 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 12:41 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 12:48 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 12:26 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 12:31 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 12:41 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 12:34 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 12:29 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 12:23 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 12:34 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.kurohicncr.top/Article/details/955460.shtml)
-- 2026-06-29 12:25 - [冷暖骤变 陕西多地迎四月春雪](http://www.blog.minike.top/Article/details/83746704196.shtml)
-- 2026-06-29 12:26 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.share.minike.top/Article/details/38652.shtml)
-- 2026-06-29 12:25 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.share.kurohicncr.top/Article/details/4535326314.shtml)
-- 2026-06-29 12:30 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [厦门举办连横逝世九十周年纪念座谈会](http://www.blog.minike.top/Article/details/33313.shtml)
-- 2026-06-29 12:45 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.share.kurohicncr.top/Article/details/83646632074.shtml)
-- 2026-06-29 12:28 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.blog.minike.top/Article/details/29398458.shtml)
-- 2026-06-29 12:28 - [西贝正在“换号重生”](http://www.share.minike.top/Article/details/69559.shtml)
-- 2026-06-29 12:20 - [长城基金：新兴科技是主线，价值也有春天](http://www.blog.kurohicncr.top/Article/details/0192321.shtml)
-- 2026-06-29 12:24 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [第十三批在韩中国人民志愿军烈士遗骸即将回国](http://www.share.minike.top/Article/details/07112378.shtml)
-- 2026-06-29 12:46 - [年轻人如何理财？国泰基金联合发布《第四期全国大学生财富素养调查蓝皮书》](http://www.blog.kurohicncr.top/Article/details/769718596.shtml)
-- 2026-06-29 12:22 - [午后，集体拉升！太疯狂，一年暴涨超1000%！两则利好，突袭！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/64401.shtml)
+- 2026-06-29 12:40 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/244505.shtml)
+- 2026-06-29 12:33 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/1737720282.shtml)
+- 2026-06-29 12:46 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/6549434.shtml)
+- 2026-06-29 12:33 - [王楚钦美国大满贯晋级32强](https://www.share.minike.top/Article/details/09782.shtml)
+- 2026-06-29 12:30 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/55732.shtml)
+- 2026-06-29 12:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/535922991.shtml)
+- 2026-06-29 12:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/17958134248.shtml)
+- 2026-06-29 12:28 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/652255292.shtml)
+- 2026-06-29 12:32 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/923367.shtml)
+- 2026-06-29 12:51 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/1996070.shtml)
+- 2026-06-29 12:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/53076676.shtml)
+- 2026-06-29 12:43 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/513496.shtml)
+- 2026-06-29 12:33 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/49065944.shtml)
+- 2026-06-29 12:26 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/56504.shtml)

@@ -1,61 +1,60 @@
-# FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废
+# 利欧股份业绩“暴雷”，股价大跌引发索赔潮
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-美国联邦航空管理局已下令对蓝色起源公司周日的新格伦火箭发射事故展开调查。此次任务中，火箭上面级未能将搭载的AST SpaceMobile公司“蓝鸟7号”通信卫星送入预定轨道，导致卫星被迫离轨销毁。 发射任务概况 当地时间4月19日早晨，新格伦火箭从佛罗里达州卡纳维拉尔角太空军基地升空，这是该火箭的第三次飞行任务，也是其首次使用复用助推器。助推器成功实现海上回收，标志着蓝色起源在
+登录新浪财经APP 搜索【信披】查看更多考评等级 A股市场再次上演业绩“变脸”惊魂。曾经的“大牛股”利欧股份（维权）（002131）在2026年4月底投下了一枚重磅炸弹：公司一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。这一远超市场预期的利空直接导致股价重挫，也正式拉开了投资者索赔的序幕。 目前于‌2026年1月31日‌
 
 ## 正文
 
-美国联邦航空管理局已下令对蓝色起源公司周日的新格伦火箭发射事故展开调查。
+登录新浪财经APP 搜索【信披】查看更多考评等级 A股市场再次上演业绩“变脸”惊魂。
 
-此次任务中，火箭上面级未能将搭载的AST SpaceMobile公司“蓝鸟7号”通信卫星送入预定轨道，导致卫星被迫离轨销毁。
+曾经的“大牛股”利欧股份（维权）（002131）在2026年4月底投下了一枚重磅炸弹：公司一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。
 
-发射任务概况 当地时间4月19日早晨，新格伦火箭从佛罗里达州卡纳维拉尔角太空军基地升空，这是该火箭的第三次飞行任务，也是其首次使用复用助推器。
+这一远超市场预期的利空直接导致股价重挫，也正式拉开了投资者索赔的序幕。
 
-助推器成功实现海上回收，标志着蓝色起源在火箭复用领域取得突破。
+目前于‌2026年1月31日‌-2026年4月23日‌期间买入，并在2026年4月24日之后卖出或仍持有而亏损的即可登记索赔。
 
-然而，火箭第二级在飞行中出现异常。
+（利欧股份维权入口） 2026年4月23日晚，利欧股份发布了《2025年度业绩预告修正公告》，根据公告，公司此前在2026年1月31日预测全年归母净利润为1.90亿元至2.50亿元。
 
-蓝色起源证实，卫星被送入“非标称轨道”。
+但是修正公告中显示该数据被修正为仅3000万元至4500万元。
 
-AST SpaceMobile随后确认，卫星轨道高度“过低，无法维持正常运行”，这颗价值不菲的卫星将再入大气层烧毁，损失预计由保险覆盖。
+对于业绩巨幅下修的原因，公司在公告中将其归结为“对参股公司的长期股权投资计提大额减值准备”。
 
-FAA介入调查 FAA在声明中表示，已将该事件定性为“事故”，并要求蓝色起源完成全面调查，查明根本原因并制定纠正措施。
+不过二级市场并不买单。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:23 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:19 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:47 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:26 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:39 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:46 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:43 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:28 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:30 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:34 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:32 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:25 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:37 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:41 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 12:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 12:46 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 12:43 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 12:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 12:27 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 12:46 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 12:49 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 12:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 12:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 12:29 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 12:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 12:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 12:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/35182944.shtml)
-- 2026-06-29 12:29 - [4月22日央行开展60亿元7天期逆回购操作](http://www.share.kurohicncr.top/Article/details/3666158.shtml)
-- 2026-06-29 12:20 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/321149255.shtml)
-- 2026-06-29 12:46 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.kurohicncr.top/Article/details/462398.shtml)
-- 2026-06-29 12:25 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.minike.top/Article/details/48318.shtml)
-- 2026-06-29 12:46 - [中芯国际获南向资金连续3天净买入](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [一场展览，看香港工程的过去与未来](http://www.share.kurohicncr.top/Article/details/41262167.shtml)
-- 2026-06-29 12:26 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.blog.minike.top/Article/details/921396737282.shtml)
-- 2026-06-29 12:37 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.minike.top/Article/details/6150631.shtml)
-- 2026-06-29 12:20 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/482558.shtml)
-- 2026-06-29 12:19 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.share.kurohicncr.top/Article/details/08354799325.shtml)
-- 2026-06-29 12:41 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.share.minike.top/Article/details/62879133917.shtml)
+- 2026-06-29 12:45 - [某高校学生被辅导员等人扭送至公安](https://www.share.minike.top/Article/details/927542938.shtml)
+- 2026-06-29 12:25 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/794714410.shtml)
+- 2026-06-29 12:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/0769396.shtml)
+- 2026-06-29 12:38 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/744447058.shtml)
+- 2026-06-29 12:31 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/25409.shtml)
+- 2026-06-29 12:28 - [恋与深空女玩家不该被冒犯](https://www.share.minike.top/Article/details/24941839529.shtml)
+- 2026-06-29 12:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/5528931.shtml)
+- 2026-06-29 12:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/6052624806.shtml)
+- 2026-06-29 12:50 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/93498.shtml)
+- 2026-06-29 12:29 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/928337316.shtml)
+- 2026-06-29 12:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/963284842.shtml)
+- 2026-06-29 12:31 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/56627817.shtml)
+- 2026-06-29 12:50 - [国乒男单资格赛全员出局](https://www.blog.minike.top/Article/details/0225538.shtml)
+- 2026-06-29 12:41 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/248205377248.shtml)
+- 2026-06-29 12:42 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/97902347462.shtml)

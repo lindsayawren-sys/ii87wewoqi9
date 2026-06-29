@@ -1,59 +1,59 @@
-# 广西交易团“智”造出海出圈 广交会斩获颇丰
+# 诈骗分子或瞄准霍尔木兹海峡滞留船只，索要加密货币“通行费”
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。 在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、
+滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。 希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。 据新华社2
 
 ## 正文
 
-中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。
+滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。
 
-在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、非洲等地采购商现场签订谅解备忘录，覆盖右舵新能源乘用车、露营车、商用车等品类。
+希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。
 
-广西汽车集团携旗下五菱工业、五菱新能源亮相展会，集中展示了集团在新能源整车、非道路车、定制客车等领域的创新成果，现场吸引了多国客商洽谈。
+该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。
 
-在工程机械领域，广西玉柴装备科技有限公司全球首发Y90-2PB工程机械设备，斩获东欧、南美、非洲批量订单，首批意向订单超300台。
+该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。
 
-广西徐沃工程机械设备有限公司首展新型碎木机及全自动伐木机，精准对接巴西、葡萄牙、英国、爱尔兰等专业采购商，已敲定多位高意向客户工厂考察行程。
+据新华社24日报道援引伊朗法尔斯通讯社报道，伊朗中央银行证实，对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。
 
-在加工机械设备领域，广西瑞杰炉渣装备制造有限公司首次参展，展示炉渣资源化处理成套装备，吸引18个国家和地区采购商超120批次，11家明确合作意向，意向订单金额预计超680万元。
+此前，一些媒体曾声称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。
 
-展会期间，广西交易团举办多场供应商采购商对接活动。
+Marisks发现，诈骗事件发生在一个短暂的窗口期内。
 
-东风柳州汽车有限公司在第139届广交会粤港澳大湾区产供链对接会(中国香港专场)上成功与采购商达成新能源计程车意向合作订单。
+4月18日，伊朗方面声称允许接受检查的船只通过。
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:32 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:33 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:22 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:18 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:43 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:20 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:45 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:33 - [一季度消费市场平稳增长 升级态势持续显现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:26 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:46 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:33 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:24 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 12:39 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 12:26 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 12:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:42 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 12:42 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 12:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:51 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 12:51 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 12:36 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 12:38 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 12:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:32 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.share.minike.top/Article/details/138766403901.shtml)
-- 2026-06-29 12:41 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](http://www.blog.kurohicncr.top/Article/details/49215183.shtml)
-- 2026-06-29 12:43 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.blog.minike.top/Article/details/13159.shtml)
-- 2026-06-29 12:25 - [习近平同莫桑比克总统查波会谈](http://www.share.kurohicncr.top/Article/details/39661.shtml)
-- 2026-06-29 12:40 - [下班后仅占用“几分钟”处理工作 算加班吗？](http://www.blog.kurohicncr.top/Article/details/405360515.shtml)
-- 2026-06-29 12:27 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.share.minike.top/Article/details/10983605170.shtml)
-- 2026-06-29 12:40 - [东西问丨吴强：亚沙会，为什么选择三亚？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [停火截止日期逼近，特朗普再次威胁伊朗，美国筹备和平谈判](http://www.blog.kurohicncr.top/Article/details/1385643.shtml)
-- 2026-06-29 12:46 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](http://www.share.minike.top/Article/details/2840705316.shtml)
-- 2026-06-29 12:31 - [瑞银：智谱首予“买入”评级 目标价1,160港元](http://www.share.minike.top/Article/details/665922743914.shtml)
-- 2026-06-29 12:18 - [西贝部分门店换牌“天边”加速自救](http://www.share.minike.top/Article/details/911608204373.shtml)
-- 2026-06-29 12:40 - [一季度我国邮政行业寄递业务量同比增长4.5%](http://www.share.minike.top/Article/details/277784.shtml)
-- 2026-06-29 12:31 - [美国国家安全局被曝使用Anthropic受限模型](http://www.share.kurohicncr.top/Article/details/484749632.shtml)
-- 2026-06-29 12:20 - [华泰期货：市场情绪波动，双焦震荡运行](http://www.blog.minike.top/Article/details/279527730410.shtml)
+- 2026-06-29 12:30 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/49050361.shtml)
+- 2026-06-29 12:41 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/172329843155.shtml)
+- 2026-06-29 12:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1524782.shtml)
+- 2026-06-29 12:47 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/85363190861.shtml)
+- 2026-06-29 12:48 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/88591.shtml)
+- 2026-06-29 12:26 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/908504838.shtml)
+- 2026-06-29 12:44 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/40565.shtml)
+- 2026-06-29 12:35 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/55535.shtml)
+- 2026-06-29 12:31 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/0751197.shtml)
+- 2026-06-29 12:48 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/6019697469.shtml)
+- 2026-06-29 12:50 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/05808630.shtml)
+- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/742210.shtml)
+- 2026-06-29 12:51 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/73380001.shtml)
+- 2026-06-29 12:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/51301609.shtml)
+- 2026-06-29 12:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/36804453561.shtml)

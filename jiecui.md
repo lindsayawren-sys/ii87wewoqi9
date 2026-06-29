@@ -1,59 +1,60 @@
-# 新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成
+# 杨某某每天90元扮演流浪女 “深山救助”视频摆拍细节公开
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-新火科技（01611）昨日大涨17%，今日早盘再涨超11%，本月内股价累计涨幅逾四成。截至发稿，股价上涨9.75%，现报3.04港元，成交额1470.78万港元。 知名经济学家付鹏已加盟新火集团，出任首席经济学家。加入新火集团后，付鹏将为新火集团的宏观研究与机构级投资策略体系建设提供其经验支持。分析人士指出，付鹏此次从传统券商卖方跨界至数字资产平台，背后或也折射出传统金融与数字
+今年3月底，多条“云南深山救助流浪女”的短视频在网络热传，博主发布的所谓“救助场景”牵动人心，很多网友看完要捐钱捐物，还有的甚至要和博主一起前往救助。然而很快就有网友发现了这些“暖心”视频的破绽，一场虚假摆拍的骗局由此浮出水面。 视频拍摄者自称在丽江深山偶遇“流浪女子”，完整记录发现与救助全过程。 画面里，“流浪女”头发杂乱、衣衫褴褛，蜷缩在木屋角落浑身发抖、眼神躲闪；拍摄者俯
 
 ## 正文
 
-新火科技（01611）昨日大涨17%，今日早盘再涨超11%，本月内股价累计涨幅逾四成。
+今年3月底，多条“云南深山救助流浪女”的短视频在网络热传，博主发布的所谓“救助场景”牵动人心，很多网友看完要捐钱捐物，还有的甚至要和博主一起前往救助。
 
-截至发稿，股价上涨9.75%，现报3.04港元，成交额1470.78万港元。
+然而很快就有网友发现了这些“暖心”视频的破绽，一场虚假摆拍的骗局由此浮出水面。
 
-知名经济学家付鹏已加盟新火集团，出任首席经济学家。
+视频拍摄者自称在丽江深山偶遇“流浪女子”，完整记录发现与救助全过程。
 
-加入新火集团后，付鹏将为新火集团的宏观研究与机构级投资策略体系建设提供其经验支持。
+画面里，“流浪女”头发杂乱、衣衫褴褛，蜷缩在木屋角落浑身发抖、眼神躲闪；拍摄者俯身关切询问伤情来历，承诺更换被褥、提供食物，言语间满是“善意”。
 
-分析人士指出，付鹏此次从传统券商卖方跨界至数字资产平台，背后或也折射出传统金融与数字资产领域加速融合的趋势。
+这些视频精准击中网友的同情心，迅速引发大量关注，同时也引起了丽江警方的注意。
 
-公司官网显示，新火集团是亚洲领先的合规数字金融服务集团，旗下公司持有香港证监会颁发的第1类（证券交易）、第4类（就证券提供意见）、第9类（资产管理）牌照及TCSP信托牌照，是香港地区首个提供虚拟资产全权委托账户管理服务的持牌机构。
+民警核查发现，3天内拍摄者通过2个账号共发布了10余条相关视频，总播放量近8万次。
 
-责任编辑：卢昱君
+云南省丽江市公安局古城分局网安大队大队长 和晓明：视频传播开以后，我们网民的爱心被彻底点燃，从担忧转到怎么去救助、救治，甚至是部分网友就提出要捐钱，只要你有地址、住址，网民表示马上会寄过来。
+
+还有些网民提出来，要马上赶过来，跟所谓的博主一同去救助这个“流浪女子”。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:46 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:24 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:23 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:20 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:39 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:43 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:42 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:25 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:39 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:21 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:46 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:22 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:37 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:26 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:26 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 12:25 - [某高校学生被辅导员等人扭送至公安](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 12:31 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 12:40 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 12:29 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 12:24 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 12:49 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 12:24 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 12:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 12:41 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 12:22 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:46 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 12:46 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:22 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:21 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.share.kurohicncr.top/Article/details/50288694112.shtml)
-- 2026-06-29 12:40 - [广西仫佬山乡：多彩民俗展风情](http://www.blog.minike.top/Article/details/0933866567.shtml)
-- 2026-06-29 12:33 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.kurohicncr.top/Article/details/179232.shtml)
-- 2026-06-29 12:36 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.kurohicncr.top/Article/details/587879534169.shtml)
-- 2026-06-29 12:36 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/63768889118.shtml)
-- 2026-06-29 12:42 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.share.minike.top/Article/details/31129.shtml)
-- 2026-06-29 12:36 - [售价29999元，华为星钻手镯表5月15日开售](http://www.share.minike.top/Article/details/2587007.shtml)
-- 2026-06-29 12:22 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](http://www.blog.kurohicncr.top/Article/details/0082696965.shtml)
-- 2026-06-29 12:27 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](http://www.share.kurohicncr.top/Article/details/538216.shtml)
-- 2026-06-29 12:23 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.blog.kurohicncr.top/Article/details/18889634.shtml)
-- 2026-06-29 12:22 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.blog.minike.top/Article/details/001164452.shtml)
-- 2026-06-29 12:46 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/22422329502.shtml)
-- 2026-06-29 12:47 - [贵州梵净山：夕阳映照落日如画](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/277474045267.shtml)
+- 2026-06-29 12:46 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/90212253356.shtml)
+- 2026-06-29 12:30 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/5543291.shtml)
+- 2026-06-29 12:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/3145880971.shtml)
+- 2026-06-29 12:33 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/206770.shtml)
+- 2026-06-29 12:39 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/7093544364.shtml)
+- 2026-06-29 12:27 - [起风了](http://www.share.minike.top/Article/details/0232580.shtml)
+- 2026-06-29 12:33 - [香港航天员黎家盈带招牌笑容工作](https://www.share.kurohicncr.top/Article/details/525600118511.shtml)
+- 2026-06-29 12:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/24357.shtml)
+- 2026-06-29 12:24 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/496783961365.shtml)
+- 2026-06-29 12:49 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/3993639.shtml)
+- 2026-06-29 12:43 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/812690572.shtml)
+- 2026-06-29 12:22 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/702558.shtml)
+- 2026-06-29 12:30 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/4617856728.shtml)
+- 2026-06-29 12:34 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/08360060956.shtml)
+- 2026-06-29 12:39 - [天道](http://www.share.kurohicncr.top/Article/details/43318.shtml)

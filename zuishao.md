@@ -1,61 +1,60 @@
-# “六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？
+# 上海银行党委书记、董事长顾建忠：未来五年公司将增加员工5000人至1.8万人，重点增加营销人员
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-记者|彭斐 编辑|魏文艺 经历了漫长的“六连涨”后，国内成品油市场终于迎来2026年的首次价格下调。 国家发展改革委官网显示，根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油（标准品）价格每吨分别下调555元、530元。 《每日经济新闻》记者（以下简称“每经记者”）注意到，此次国内汽、柴油（标准品）零售价格开启下调窗口，终结了年内的“六连涨”格局。对于广大车主而言，
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠透露，未来五年的规划中，上海银行决定增加人员，计划净增加约5000人，从大约1.3万人增加到1.8万人。他坦言：“为这件事，我也不瞒大家，我思考了三天，也很纠结。因为整个大趋势是人员在进行优化，AI在广泛应用。但我们反复权衡，认为我们的人数确实偏低了。” 他表示，员
 
 ## 正文
 
-记者|彭斐 编辑|魏文艺 经历了漫长的“六连涨”后，国内成品油市场终于迎来2026年的首次价格下调。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠透露，未来五年的规划中，上海银行决定增加人员，计划净增加约5000人，从大约1.3万人增加到1.8万人。
 
-国家发展改革委官网显示，根据国际市场油价变化情况，自4月21日24时起，国内汽、柴油（标准品）价格每吨分别下调555元、530元。
+他坦言：“为这件事，我也不瞒大家，我思考了三天，也很纠结。
 
-《每日经济新闻》记者（以下简称“每经记者”）注意到，此次国内汽、柴油（标准品）零售价格开启下调窗口，终结了年内的“六连涨”格局。
+因为整个大趋势是人员在进行优化，AI在广泛应用。
 
-对于广大车主而言，这无疑是“五一”假期前的一波实质性出行利好。
+但我们反复权衡，认为我们的人数确实偏低了。
 
-按油箱容量为50升的小型车计算，加满一箱油将少花22元。
+” 他表示，员工增加计划的大头（约70%）是营销人员。
 
-然而，在这波零售端降价红利兑现的背后，国际原油市场正上演着惊心动魄的宽幅震荡行情。
+在最后一公里的服务与营销中，人的作用是不可替代的，而且我们营销人员的占比也偏少。
 
-受霍尔木兹海峡航运受阻等因素影响，国际原油价格在调价前夕一度暴涨超6%。
+所以未来营销人员占比也会分散到50%以上，触达客户、服务客户的战斗力一定会提升。
 
-值得注意的是，本轮调价幅度不及周期初期的预期，而机构对5月8日下一轮调价的预测也呈现出分化——“二连跌”的疲弱现实基本面与随时可能爆发的“报复性反弹”的强预期，正在资本与现货市场中激烈碰撞。
+此外，他表示，对资源配置和绩效考核体系也做了改革，突出长期性，聚焦战略业务的培育，对早小硬、对小微金融、对科创金融，这一块要进行周期性考核，不能只看当下，也不能光看今年，可能要看3年、看5年。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:37 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:34 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:20 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:38 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:35 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:21 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:39 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:24 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:21 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:19 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:35 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:30 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:45 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:41 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 12:23 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 12:34 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 12:41 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 12:47 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 12:30 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 12:27 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 12:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 12:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 12:32 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 12:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 12:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 12:43 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.blog.minike.top/Article/details/888111.shtml)
-- 2026-06-29 12:41 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.kurohicncr.top/Article/details/43067221.shtml)
-- 2026-06-29 12:48 - [上海着力打造首个“次元友好街区”](http://www.blog.minike.top/Article/details/5848236.shtml)
-- 2026-06-29 12:47 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.minike.top/Article/details/208377099.shtml)
-- 2026-06-29 12:41 - [陪审团裁定优步负有责任](http://www.share.minike.top/Article/details/449110.shtml)
-- 2026-06-29 12:29 - [Tractor Supply第一财季盈利不及预期](http://www.share.kurohicncr.top/Article/details/898295759.shtml)
-- 2026-06-29 12:38 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.blog.minike.top/Article/details/225231981.shtml)
-- 2026-06-29 12:33 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.kurohicncr.top/Article/details/20289623881.shtml)
-- 2026-06-29 12:27 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/562493398250.shtml)
-- 2026-06-29 12:35 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.minike.top/Article/details/090173642334.shtml)
-- 2026-06-29 12:34 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.kurohicncr.top/Article/details/447571.shtml)
-- 2026-06-29 12:47 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.blog.minike.top/Article/details/21534153.shtml)
-- 2026-06-29 12:32 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.kurohicncr.top/Article/details/15708702531.shtml)
-- 2026-06-29 12:37 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.kurohicncr.top/Article/details/359716635713.shtml)
-- 2026-06-29 12:41 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.kurohicncr.top/Article/details/244328073.shtml)
+- 2026-06-29 12:25 - [英国高温已致多人死亡](https://www.blog.minike.top/Article/details/555446317214.shtml)
+- 2026-06-29 12:45 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/29671171.shtml)
+- 2026-06-29 12:42 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/310780260953.shtml)
+- 2026-06-29 12:41 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/56721428.shtml)
+- 2026-06-29 12:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/61868.shtml)
+- 2026-06-29 12:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/427866.shtml)
+- 2026-06-29 12:22 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/6810730.shtml)
+- 2026-06-29 12:49 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/9606453.shtml)
+- 2026-06-29 12:44 - [游戏数据竟被用于军事目的](http://www.blog.kurohicncr.top/Article/details/216721803601.shtml)
+- 2026-06-29 12:26 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/2112635293.shtml)
+- 2026-06-29 12:48 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/0048612409.shtml)
+- 2026-06-29 12:22 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/025510084.shtml)
+- 2026-06-29 12:26 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/21176538446.shtml)
+- 2026-06-29 12:40 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/9970570.shtml)
+- 2026-06-29 12:23 - [我们注定是一撮县城葱姜蒜](http://www.blog.kurohicncr.top/Article/details/4830116004.shtml)

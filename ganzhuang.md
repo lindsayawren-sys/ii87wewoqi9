@@ -1,43 +1,61 @@
-# 此行间·读书正当时！听总书记分享读书心得
+# 推动落地见效 贯彻落实生态环境法典学术会议在北京召开
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 14:51 来源：人民日报客户端 责任编辑：【杨彦宇】
+中新网北京4月27日电 (记者 阮煜琳)贯彻落实生态环境法典学术会议日前在北京召开。会议旨在汇聚立法、司法、行政、学界、企业等各方力量，共同推动生态环境法典实施落地见效。 生态环境法典是我国第二部以“法典”命名的基本法律，也是世界首部以“生态环境”命名的法典，标志着我国生态环境保护开启“法典化”时代。编纂生态环境法典，是中国特色社会主义生态环境法律体系的重要成果，是推动全球生态
 
 ## 正文
 
-发布时间：2026年04月22日 14:51 来源：人民日报客户端 责任编辑：【杨彦宇】
+中新网北京4月27日电 (记者 阮煜琳)贯彻落实生态环境法典学术会议日前在北京召开。
+
+会议旨在汇聚立法、司法、行政、学界、企业等各方力量，共同推动生态环境法典实施落地见效。
+
+生态环境法典是我国第二部以“法典”命名的基本法律，也是世界首部以“生态环境”命名的法典，标志着我国生态环境保护开启“法典化”时代。
+
+编纂生态环境法典，是中国特色社会主义生态环境法律体系的重要成果，是推动全球生态环境治理的中国方案和中国贡献，具有重大的历史意义、实践意义、世界意义。
+
+与会专家立足立法编纂、法理阐释、司法适用、执法实践、企业合规等维度，系统解读法典立法逻辑、制度创新与实施重点，围绕配套法规清理和立法完善、生态环境司法保障、执法规范化、企业守法责任等关键问题深入研讨、集思广益，形成一系列针对性强、务实可操作的对策建议。
+
+与会专家表示，法律的生命力在于实施，“十五五”是美丽中国建设承上启下、生态环境根本好转的关键时期，必须提高政治站位、坚持系统观念、做到学以致用，推动执法、司法、守法协同发力，切实把法典制度规范转化为治理效能，不断提升生态环境治理体系和治理能力现代化水平。
+
+会议由生态环境部环境与经济政策研究中心、西南政法大学、中国石油集团安全环保技术研究院主办，生态环境政策联合研究高端智库团队、西南政法大学经济法学院、中国环境科学学会环境管理分会承办。
+
+本次会议以“贯彻落实生态环境法典，全面推进美丽中国建设”为主题，设置法典配套制度完善、法典与生态环境司法、法典背景下生态环境执法与企业守法等议题开展深度研讨。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:40 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:34 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:41 - [第十三批在韩中国人民志愿军烈士遗骸启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:20 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:46 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:23 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:46 - [美联航财报前瞻：原油暴涨、高端客群发力、并购传闻均成焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:20 - [库克宣布将卸任苹果CEO，特朗普、巴菲特、奥特曼等人这样说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:40 - [北京查处多起违规拼豆玩具案 严打无证产品筑牢儿童安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:31 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:27 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 12:50 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 12:32 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 12:32 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 12:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 12:39 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 12:36 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 12:29 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 12:35 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 12:50 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 12:49 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 12:37 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 12:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 12:36 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 12:31 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.blog.kurohicncr.top/Article/details/31468.shtml)
-- 2026-06-29 12:33 - [邵艺辉：建议年轻人多阅读多写作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.blog.minike.top/Article/details/829524645503.shtml)
-- 2026-06-29 12:31 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.kurohicncr.top/Article/details/635045772.shtml)
-- 2026-06-29 12:34 - [金针菇概念股，净利润大增超7000%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.blog.minike.top/Article/details/99797372.shtml)
-- 2026-06-29 12:38 - [多型舰艇齐聚上海并对民众开放](http://www.blog.kurohicncr.top/Article/details/295110300409.shtml)
-- 2026-06-29 12:26 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](http://www.blog.minike.top/Article/details/66404.shtml)
-- 2026-06-29 12:31 - [正确政绩观｜世昌里社区的“三问三答”](http://www.share.kurohicncr.top/Article/details/9921672.shtml)
-- 2026-06-29 12:34 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](http://www.blog.minike.top/Article/details/16994.shtml)
-- 2026-06-29 12:31 - [王毅出席全球共享发展行动论坛第三届高级别会议](http://www.share.minike.top/Article/details/0374291076.shtml)
-- 2026-06-29 12:46 - [伊朗武装部队称已做好充分战斗准备](http://www.blog.kurohicncr.top/Article/details/38148.shtml)
-- 2026-06-29 12:47 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](http://www.share.minike.top/Article/details/721618204558.shtml)
-- 2026-06-29 12:43 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.blog.kurohicncr.top/Article/details/3439643.shtml)
-- 2026-06-29 12:38 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.share.minike.top/Article/details/79587800.shtml)
+- 2026-06-29 12:32 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/810836856083.shtml)
+- 2026-06-29 12:47 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/195780.shtml)
+- 2026-06-29 12:38 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/35867728855.shtml)
+- 2026-06-29 12:27 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/10989.shtml)
+- 2026-06-29 12:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/891721152.shtml)
+- 2026-06-29 12:25 - [这位猫咪，请你自重！](http://www.blog.kurohicncr.top/Article/details/4423163.shtml)
+- 2026-06-29 12:25 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/8885416.shtml)
+- 2026-06-29 12:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/34258384328.shtml)
+- 2026-06-29 12:28 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/24326968.shtml)
+- 2026-06-29 12:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/88895.shtml)
+- 2026-06-29 12:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/440535095.shtml)
+- 2026-06-29 12:33 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/83930063072.shtml)
+- 2026-06-29 12:47 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/5132056.shtml)
+- 2026-06-29 12:30 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/4663180489.shtml)
+- 2026-06-29 12:50 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/7192129514.shtml)

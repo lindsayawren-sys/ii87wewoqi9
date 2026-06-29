@@ -1,58 +1,59 @@
-# 铁路部门开行14趟“书香列车” 丰富全民阅读体验
+# 莫言呼吁关爱“星星的孩子”：行慈善者必受慈善之惠
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。 21日上午，登上由南昌西站开往成都
+中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。 此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。 该展览由莫言与“两块砖公益基金
 
 ## 正文
 
-中新网南昌4月21日电 (刘力鑫 陈临燕 王梦婧子)G2319次“书香列车”车窗贴着阅读主题窗花，座椅头枕巾上印着电子阅读二维码；高铁站“书香驿站”内摆放着各类优质图书......4月20日至22日，第五届全民阅读大会在江西南昌举办。
+中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。
 
-为深入服务本届全民阅读大会，铁路部门开行了14趟“书香列车”，并在南昌西、萍乡北等车站精心打造了“书香驿站”。
+”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。
 
-21日上午，登上由南昌西站开往成都东站的G2319次列车，只见车体、车窗、车门等处均张贴有全民阅读主题相关的宣传标语，座椅头枕巾和小桌板则印有“书香铁路”电子阅读二维码，旅客扫码即可免费畅读海量电子书；餐吧台专设“读书角”，提供实体书籍免费借阅服务。
+此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。
 
-“我们列车依托铁路‘悦’读好书榜、江西出版精品书目及旅客阅读偏好，定期更新补充图书资源。
+该展览由莫言与“两块砖公益基金”共同发起，“两块砖公益基金”策展，人民文学出版社、河南日报社协办。
 
-线上阅读平台也已汇聚超万册电子图书。
+展品涵盖莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及苏童《妻妾成群》、刘慈欣《三体》等创作原稿摘录。
 
-通过线上线下二者结合，打造‘纸质阅读+数字阅读’双载体场景，全面满足不同年龄段旅客的多样化阅读需求，真正实现‘一书一世界，一程一风景’的沉浸式阅读体验。
+该展览完成全国巡展后，所有手稿将进行拍卖，所得款项将全部用于孤独症照护者技能培训等公益项目。
 
-”G2319次列车长燕珍珍说。
+谈及为何选择拍卖作家创作手稿这一方式发起慈善，莫言表示，这些手稿表现了中国作家对社会弱势群体的关注、对慈善事业的热忱。
 
-在开行“书香列车”的同时，铁路部门还在南昌西、萍乡北等车站，精心打造第五届全民阅读大会“书香驿站”，在候车区设置读书角和自助借书柜，投放各类优秀图书，让旅客在候车间隙轻松邂逅书香。
+近年来，莫言积极投身于各类慈善活动。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:40 - [日经指数上涨0.9% 受电子和科技股带动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:33 - [别再问“周末过得怎么样？” 公共演讲专家建议这样做：“不必刻意深刻”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:22 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:32 - [酒价内参4月22日价格发布：国窖1573上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:40 - [刘海星会见孟加拉国民族主义党高级干部考察团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:33 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:36 - [*ST太和（605081）立案调查+监管！符合条件股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:24 - [奋进“十五五” 实干挑大梁——“中国经济圆桌会”共话经济大省担当与作为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:31 - [关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:29 - [特朗普在美国中期选举前已囤积5.5亿美元竞选资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:38 - [中国空军接迎志愿军烈士遗骸回国：运-20B首次飞出国门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:23 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:47 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 12:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 12:49 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 12:22 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 12:41 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:48 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 12:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 12:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 12:26 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 12:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 12:49 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 12:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](http://www.share.minike.top/Article/details/6671307603.shtml)
-- 2026-06-29 12:29 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](http://www.share.kurohicncr.top/Article/details/7797426599.shtml)
-- 2026-06-29 12:40 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](http://www.blog.kurohicncr.top/Article/details/790340099.shtml)
-- 2026-06-29 12:41 - [智达藏语大模型及系列应用产品成果发布](http://www.share.minike.top/Article/details/7380097.shtml)
-- 2026-06-29 12:30 - [法国官方宣布财政节支措施以应对中东局势](http://www.blog.kurohicncr.top/Article/details/5775229048.shtml)
-- 2026-06-29 12:43 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [特朗普称将“记住”不申请关税退款的公司](http://www.blog.minike.top/Article/details/63632.shtml)
-- 2026-06-29 12:32 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](http://www.share.kurohicncr.top/Article/details/948484494763.shtml)
-- 2026-06-29 12:28 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [摩根士丹利下调黄金前景预期](http://www.blog.minike.top/Article/details/67004352.shtml)
-- 2026-06-29 12:26 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](http://www.blog.minike.top/Article/details/4752806.shtml)
-- 2026-06-29 12:35 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](http://www.share.minike.top/Article/details/854413928.shtml)
-- 2026-06-29 12:38 - [瞄准、击发 直击官兵轻武器实弹射击训练](http://www.blog.kurohicncr.top/Article/details/8683054.shtml)
-- 2026-06-29 12:21 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](http://www.share.kurohicncr.top/Article/details/7844365088.shtml)
-- 2026-06-29 12:39 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/221386825879.shtml)
+- 2026-06-29 12:43 - [国乒全主力参加美国大满贯](http://www.blog.kurohicncr.top/Article/details/61862926659.shtml)
+- 2026-06-29 12:44 - [岭南电影为何迎来“南方热”](http://www.share.minike.top/Article/details/803690549394.shtml)
+- 2026-06-29 12:39 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/86305914351.shtml)
+- 2026-06-29 12:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/80493918429.shtml)
+- 2026-06-29 12:24 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/86270.shtml)
+- 2026-06-29 12:25 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/53138898.shtml)
+- 2026-06-29 12:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/2376879883.shtml)
+- 2026-06-29 12:40 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/73165565332.shtml)
+- 2026-06-29 12:25 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/98344511000.shtml)
+- 2026-06-29 12:48 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.minike.top/Article/details/407599.shtml)
+- 2026-06-29 12:35 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/604725429.shtml)
+- 2026-06-29 12:36 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/057227015.shtml)
+- 2026-06-29 12:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/5303831.shtml)
+- 2026-06-29 12:44 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/02435532648.shtml)

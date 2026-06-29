@@ -1,60 +1,60 @@
-# 正确政绩观｜世昌里社区的“三问三答”
+# 作家小昌获首届广西青年文学奖
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-津云新闻讯：在天津市和平区，有一个叫世昌里的老社区。过去，这里汽车塞满路，杂物堆满角，地锁像野草一样，清了又长。2025年底，社区“两委”换届，来了新班子。居民们管他们叫“那帮年轻人”，一开始谁也没当回事。可正是这群“不被看好”的年轻人，用半年多的时间回答了一个根本问题：什么是正确的政绩观？ 他们的答案，可以概括为“三问三答”。一问：社区治理为了谁？ 新班子做的第一件事，不是定
+中新网南宁4月27日电 (俞靖)以“在文学的田野上播种”为主题的第一届广西青年文学奖颁奖典礼27日在广西南宁举办，作家小昌以长篇小说《海雾弥漫》获奖。 广西出版传媒集团党委委员、副总经理、总编辑卢培钊在致辞中表示，文学创作与文学出版，是内容生产传播密不可分的整体。近年来，广西出版传媒集团通过扶持文学作品出版，举办文学奖项赛事，振兴漓江出版品牌等举措，培育文学创作出版新生态，现已
 
 ## 正文
 
-津云新闻讯：在天津市和平区，有一个叫世昌里的老社区。
+中新网南宁4月27日电 (俞靖)以“在文学的田野上播种”为主题的第一届广西青年文学奖颁奖典礼27日在广西南宁举办，作家小昌以长篇小说《海雾弥漫》获奖。
 
-过去，这里汽车塞满路，杂物堆满角，地锁像野草一样，清了又长。
+广西出版传媒集团党委委员、副总经理、总编辑卢培钊在致辞中表示，文学创作与文学出版，是内容生产传播密不可分的整体。
 
-2025年底，社区“两委”换届，来了新班子。
+近年来，广西出版传媒集团通过扶持文学作品出版，举办文学奖项赛事，振兴漓江出版品牌等举措，培育文学创作出版新生态，现已构建起涵盖严肃文学、网络文学、儿童文学的全方位奖项矩阵，前述广西青年文学奖便是其中重要一环。
 
-居民们管他们叫“那帮年轻人”，一开始谁也没当回事。
+此次颁奖典礼邀请著名作家、茅盾文学奖获得者苏童，《人民文学》杂志社主编、茅盾文学奖获得者徐则臣，广西文联主席、广西作协主席、茅盾文学奖获得者东西出席，为获奖者颁奖，进一步激励文学青年。
 
-可正是这群“不被看好”的年轻人，用半年多的时间回答了一个根本问题：什么是正确的政绩观？
+本届广西青年文学奖自2025年3月启动以来，得到青年作家广泛参与，收到一批反映时代精神，体现艺术创新的原创长篇作品，涌现出一批有温度、有地域特色的佳作。
 
-他们的答案，可以概括为“三问三答”。
+经严格评审，本届青年文学奖最终评选出10部入围终评作品。
 
-一问：社区治理为了谁？
+其中，作家小昌凭借作品的深刻内涵与精湛笔法，以长篇小说《海雾弥漫》获第一届广西青年文学奖。
 
-新班子做的第一件事，不是定规划，而是听骂声。
+他在获奖发言时表示，其从老家山东到广西北海生活已有21年，这段经历影响其创作，未来希望与更多青年作家共同成长。
 
 ## 相关推荐
 
-- 2026-06-29 12:19 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:38 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:47 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:18 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:24 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:25 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:20 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:46 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:36 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:38 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:42 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:34 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:37 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:43 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:36 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 12:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 12:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 12:49 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 12:42 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 12:31 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 12:46 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 12:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 12:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 12:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 12:28 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 12:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.share.minike.top/Article/details/2744184363.shtml)
-- 2026-06-29 12:35 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [上海着力打造首个“次元友好街区”](http://www.blog.minike.top/Article/details/290602347.shtml)
-- 2026-06-29 12:22 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.minike.top/Article/details/609558.shtml)
-- 2026-06-29 12:20 - [陪审团裁定优步负有责任](http://www.share.kurohicncr.top/Article/details/13747658233.shtml)
-- 2026-06-29 12:46 - [Tractor Supply第一财季盈利不及预期](http://www.share.minike.top/Article/details/56334476.shtml)
-- 2026-06-29 12:27 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.blog.kurohicncr.top/Article/details/19246745465.shtml)
-- 2026-06-29 12:35 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.share.kurohicncr.top/Article/details/410839.shtml)
-- 2026-06-29 12:39 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/36189316.shtml)
-- 2026-06-29 12:20 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.share.minike.top/Article/details/902196590.shtml)
-- 2026-06-29 12:39 - [截至3月底全国5G基站总数已达495.8万个](http://www.share.minike.top/Article/details/29053396638.shtml)
-- 2026-06-29 12:23 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](http://www.blog.kurohicncr.top/Article/details/868533851192.shtml)
+- 2026-06-29 12:42 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/0096630021.shtml)
+- 2026-06-29 12:45 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/32934.shtml)
+- 2026-06-29 12:47 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/752587750.shtml)
+- 2026-06-29 12:40 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/26205996025.shtml)
+- 2026-06-29 12:44 - [跑步机上“爬坡”减肥公式爆火](http://www.blog.minike.top/Article/details/85973.shtml)
+- 2026-06-29 12:37 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/15854.shtml)
+- 2026-06-29 12:25 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/529719.shtml)
+- 2026-06-29 12:51 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/32678.shtml)
+- 2026-06-29 12:39 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/020465.shtml)
+- 2026-06-29 12:45 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/73630.shtml)
+- 2026-06-29 12:34 - [游戏数据竟被用于军事目的](http://www.blog.kurohicncr.top/Article/details/334611296434.shtml)
+- 2026-06-29 12:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/44616.shtml)
+- 2026-06-29 12:37 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/9684107.shtml)
+- 2026-06-29 12:38 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/541435.shtml)
+- 2026-06-29 12:42 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/566302.shtml)

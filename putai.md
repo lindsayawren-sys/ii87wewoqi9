@@ -1,55 +1,57 @@
-# 智达藏语大模型及系列应用产品成果发布
+# 中国多地专家携手制定《标准》聚焦阿尔法核素医学应用
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社西宁4月22日电 (记者 孙睿)青海师范大学22日对外发布智达藏语大模型及系列应用产品成果。该成果由藏语智能全国重点实验室研发，是青海省首个完成备案的生成式人工智能大模型。 青海师范大学党委书记毛学荣介绍，长期以来，藏语在智能化发展中面临“数据少、算力弱、人才缺”的短板，严重制约涉藏地区数字化、智能化进程。 据介绍，智达藏语大模型具备强大的藏语语义理解与生成能力，同时支持
+中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。 作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模
 
 ## 正文
 
-中新社西宁4月22日电 (记者 孙睿)青海师范大学22日对外发布智达藏语大模型及系列应用产品成果。
+中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。
 
-该成果由藏语智能全国重点实验室研发，是青海省首个完成备案的生成式人工智能大模型。
+作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模式由“单点技术突破”向“基础规范建设”延伸。
 
-青海师范大学党委书记毛学荣介绍，长期以来，藏语在智能化发展中面临“数据少、算力弱、人才缺”的短板，严重制约涉藏地区数字化、智能化进程。
+该《标准》由余飞教授团队和中国科学院杭州医学研究所黄钢教授团队共同发起，联合国内众多科研院所和临床机构的权威专家历时15个月编纂、讨论、修订完成。
 
-据介绍，智达藏语大模型具备强大的藏语语义理解与生成能力，同时支持中、英等多语言交互，能够实现藏语与其他语言的实时翻译、语音转写、智能问答等功能，为涉藏地区政务、教育、医疗、文化等领域的智能化发展提供强大技术支撑。
+作为《标准》的主要制定者，余飞教授指出，阿尔法核素药物具备“更强能量、更短射程、更耐乏氧、更易防护”四大临床应用独特优势，让核素治疗肿瘤成为“未来蓝海”。
 
-中国工程院院士、藏语智能全国重点实验室主任、西藏大学教授尼玛扎西表示，该系列产品能实现无障碍语言交流，提升政务服务的便捷性与普惠性，能为学生提供精准的国家通用语言和民族语言学习辅导平台，能对浩若烟海的藏文古籍文献进行智能化整理和活化利用，能实现多语言远程医疗咨询问诊，提升基层医疗服务水平。
+目前，全球医学界对医用阿尔法核素的应用研究还处在起步阶段，术语使用不统一、概念界定不明晰，导致多元异构的基础研究与应用场景表述呈现交叉错配现象，这仍是需要解决的问题。
 
-(完)
+这种“各说各话”的语义现象，不仅影响科学研究结果的可比性，更增加了未来临床转化与规范管理的难度。
+
+据悉，围绕医用阿尔法核素的标准化工作，已有国际组织将其纳入行动计划，比如国际计量局(BIPM)推动的AlphaMet项目，尝试围绕阿尔法核素计量与应用规范开展系统研究，助力推动阿尔法核素药物从实验室走向临床、惠及患者，这标志着医用阿尔法核素开始进入“标准驱动”的新发展阶段。
+
+《标准》围绕阿尔法核素医学应用的关键科学问题与应用场景，系统梳理并规范了涉及阿尔法核素特性、放射性核素药物、辐射生物效应、微剂量学等多个技术维度的核心术语，并针对长期存在的“概念有交叉、定义不统一、使用不规范”等问题，进行了标准界定与聚类整合。
 
 ## 相关推荐
 
-- 2026-06-29 12:34 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:33 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:24 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:25 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:32 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:26 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:25 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:40 - [牧原股份一季度净亏损12.15亿元，同比转亏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:45 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:19 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:34 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:32 - [智能时代，我们还需要深度阅读吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:28 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 12:27 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 12:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 12:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 12:31 - [神23乘组太空出差满月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 12:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 12:27 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 12:50 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 12:35 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 12:32 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 12:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.blog.minike.top/Article/details/11884601.shtml)
-- 2026-06-29 12:41 - [香港应科院将于港深创科园成立联合研发实验室](http://www.share.kurohicncr.top/Article/details/912121835.shtml)
-- 2026-06-29 12:18 - [苍山洱海间的健康慢生活](http://www.share.kurohicncr.top/Article/details/32833511674.shtml)
-- 2026-06-29 12:38 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.minike.top/Article/details/466288491.shtml)
-- 2026-06-29 12:43 - [冷暖骤变 陕西多地迎四月春雪](http://www.share.minike.top/Article/details/970466460.shtml)
-- 2026-06-29 12:32 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](http://www.blog.kurohicncr.top/Article/details/407419946549.shtml)
-- 2026-06-29 12:46 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.blog.kurohicncr.top/Article/details/118967745113.shtml)
-- 2026-06-29 12:27 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.kurohicncr.top/Article/details/63537387.shtml)
-- 2026-06-29 12:19 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/098657085.shtml)
-- 2026-06-29 12:43 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.minike.top/Article/details/0737103054.shtml)
-- 2026-06-29 12:37 - [国台办：坚决反对美国一些人搞“以台遏华”](http://www.blog.kurohicncr.top/Article/details/87143523152.shtml)
-- 2026-06-29 12:47 - [日本大分县陆上自卫队一训练场弹药爆炸 多人受波及](http://www.share.kurohicncr.top/Article/details/95381.shtml)
-- 2026-06-29 12:23 - [西贝正在“换号重生”](http://www.blog.kurohicncr.top/Article/details/2058837.shtml)
-- 2026-06-29 12:29 - [长城基金：新兴科技是主线，价值也有春天](http://www.share.kurohicncr.top/Article/details/8015555.shtml)
-- 2026-06-29 12:39 - [长江有色：22日氧化铝期价涨0.28% 下游接货谨慎](http://www.blog.kurohicncr.top/Article/details/836713.shtml)
+- 2026-06-29 12:30 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/0785930935.shtml)
+- 2026-06-29 12:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/20767916.shtml)
+- 2026-06-29 12:36 - [大罗力挺内马尔](http://www.share.kurohicncr.top/Article/details/74373.shtml)
+- 2026-06-29 12:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/3497172.shtml)
+- 2026-06-29 12:36 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/9405841908.shtml)
+- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/7883337611.shtml)
+- 2026-06-29 12:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/599548139118.shtml)
+- 2026-06-29 12:38 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/937850.shtml)
+- 2026-06-29 12:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/855980706331.shtml)
+- 2026-06-29 12:21 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/6398888708.shtml)
+- 2026-06-29 12:27 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/2429779460.shtml)
+- 2026-06-29 12:37 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/6207870367.shtml)
+- 2026-06-29 12:32 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/748756.shtml)
+- 2026-06-29 12:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/72597.shtml)
+- 2026-06-29 12:31 - [英国高温已致多人死亡](https://www.share.kurohicncr.top/Article/details/2263453776.shtml)

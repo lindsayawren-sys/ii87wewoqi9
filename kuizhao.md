@@ -1,51 +1,58 @@
-# 中国新闻社参评第36届中国新闻奖国际传播初评作品公示
+# 山西中部五市赴山东济宁举办文旅推介 促两地资源对接合作
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-根据《关于开展第36届中国新闻奖国际传播作品专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐6件新闻作品参加中国新闻奖国际传播作品的初评，现予以公示。公示期为2026年4月21日至4月27日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。联系电话：010-68316636 邮箱：zbs@chinanews.com.cn
+中新网太原4月27日电 (刘小红)近日，山西太原、忻州、阳泉、吕梁、晋中五市携特色文旅资源赴山东济宁，举办“晋韵津鲁情 五市共相邀”文旅宣传推介活动，通过展示两地文化底蕴、对接文旅资源，推动晋鲁两地客源互换、市场共建，深化区域文旅合作。此次活动由山西省文化和旅游厅、山西省人民政府驻天津办事处、山西会务集团指导，太原市文化和旅游局承办，忻州市、阳泉市、吕梁市、晋中市文化和旅游局协
 
 ## 正文
 
-根据《关于开展第36届中国新闻奖国际传播作品专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐6件新闻作品参加中国新闻奖国际传播作品的初评，现予以公示。
+中新网太原4月27日电 (刘小红)近日，山西太原、忻州、阳泉、吕梁、晋中五市携特色文旅资源赴山东济宁，举办“晋韵津鲁情 五市共相邀”文旅宣传推介活动，通过展示两地文化底蕴、对接文旅资源，推动晋鲁两地客源互换、市场共建，深化区域文旅合作。
 
-公示期为2026年4月21日至4月27日，共5个工作日。
+此次活动由山西省文化和旅游厅、山西省人民政府驻天津办事处、山西会务集团指导，太原市文化和旅游局承办，忻州市、阳泉市、吕梁市、晋中市文化和旅游局协办。
 
-如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。
+山东与山西地缘相近、文脉相通。
 
-联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 国际传播初评报送作品目录 1、通讯 《(抗战胜利80周年)从北京到台北，一首传唱两岸八十载》 作者(主创人员)：杨程晨、朱贺、张杨彬 编辑：集体(路梅、谈笑、贾靖峰、魏群、陈小愿、董子畅、苏碧滢) 2、通讯 《“故宫博物院建院一百周年”专题报道》 作者(主创人员)：集体(孔任远、聂芝芯、曾静宁、招嘉虹、李嘉薇、王莹、刘远、李若晗) 编辑：张量、邓敏、甄雪原 3、深度报道 《西藏新生(系列报道)》 作者(主创人员)：杜国东、王妍、徐明、吴瑾 编辑：郑忠海、李佳、张丹 4、专题 《新格局·新动能(New Paradigm,New Momentum)》系列专题片 作者(主创人员)：集体(俞岚、吴庆才、周锐、王庆凯、李雨昕、陈庆洋、林芳晴、林勐男) 编辑：集体(程春雨、黄蕾、
+山西中部城市群承载晋商文化、黄河文化，济宁作为孔孟儒家文化发源地，承载儒家文化、运河文化，两地自古以来便有着千丝万缕的文化交融与商贸往来。
+
+此次活动搭建两地文旅资源展示平台，推动双方深化合作，实现客源互换、市场共建、利益共享，构建资源互补、游客互送、线路互联的文旅发展新格局。
+
+活动现场，山西中部五市依次展示文旅特色。
+
+太原从“读历史、品文化、尝美食、避酷暑、享清凉、谋发展”六个维度推介，展示晋祠天龙山的千年古建与石窟艺术、晋商博物院的晋商文脉、东湖醋园与紫林醋文化园的醋文化；忻州展示“自在忻州”多元资源；阳泉依托娘子关、藏山，展示红色底蕴与山水资源；吕梁以“英雄吕梁”为主题，展示碛口古镇的沧桑古韵与红色圣地的精神传承；晋中聚焦晋商文化，展示核心文旅资源。
+
+活动期间，多项非遗技艺与传统艺术亮相。
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:28 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:25 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:39 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:38 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:31 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:46 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:19 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:27 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:46 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:44 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:30 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:35 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:27 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 12:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 12:23 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 12:23 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 12:37 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 12:42 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:44 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 12:30 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 12:49 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 12:38 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 12:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 12:25 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.minike.top/Article/details/66387804.shtml)
-- 2026-06-29 12:43 - [陪审团裁定优步负有责任](http://www.blog.kurohicncr.top/Article/details/9612451935.shtml)
-- 2026-06-29 12:33 - [Tractor Supply第一财季盈利不及预期](http://www.share.minike.top/Article/details/88119949.shtml)
-- 2026-06-29 12:46 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.share.minike.top/Article/details/244898799877.shtml)
-- 2026-06-29 12:45 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.minike.top/Article/details/7625439.shtml)
-- 2026-06-29 12:34 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.kurohicncr.top/Article/details/316373272459.shtml)
-- 2026-06-29 12:32 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](http://www.blog.minike.top/Article/details/475817583813.shtml)
-- 2026-06-29 12:30 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.minike.top/Article/details/52050.shtml)
-- 2026-06-29 12:47 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:32 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.share.kurohicncr.top/Article/details/4284484.shtml)
-- 2026-06-29 12:27 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [万亿中原银行，变天了](http://www.blog.minike.top/Article/details/43237764.shtml)
-- 2026-06-29 12:31 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](http://www.blog.minike.top/Article/details/362714752870.shtml)
+- 2026-06-29 12:36 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/76557270271.shtml)
+- 2026-06-29 12:30 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/5446493643.shtml)
+- 2026-06-29 12:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/86642.shtml)
+- 2026-06-29 12:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/4503282046.shtml)
+- 2026-06-29 12:33 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/6380604567.shtml)
+- 2026-06-29 12:36 - [一生一世](https://www.blog.kurohicncr.top/Article/details/19341.shtml)
+- 2026-06-29 12:33 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/07283.shtml)
+- 2026-06-29 12:46 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/203633.shtml)
+- 2026-06-29 12:35 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/43093.shtml)
+- 2026-06-29 12:37 - [刘宇宁现偶我就不要了](https://www.blog.minike.top/Article/details/57964.shtml)
+- 2026-06-29 12:41 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.minike.top/Article/details/669621775.shtml)
+- 2026-06-29 12:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/605745139.shtml)
+- 2026-06-29 12:41 - [急先锋](https://www.blog.minike.top/Article/details/87018641049.shtml)
+- 2026-06-29 12:41 - [初心如磐 红色足迹](http://www.blog.kurohicncr.top/Article/details/06681.shtml)
+- 2026-06-29 12:42 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/9356916.shtml)

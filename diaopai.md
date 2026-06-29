@@ -1,59 +1,60 @@
-# 特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战
+# 药明康德首次在一季度营收百亿，称适当时机上调全年指引
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-4月22日，外交部发言人郭嘉昆主持例行记者会。法新社记者提问，美国总统特朗普周二将与伊朗的停火延期。中方对此有何回应？中国在推动此次停火延期中发挥了怎样的作用？ 郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。中方愿根据习近平主席“四点主张”精神，同
+“CXO一哥”药明康德一季报实现开门红，还透露在适当时机上调全年指引。 4月27日，无锡药明康德新药开发股份有限公司（药明康德，603259.SH；2359.HK）发布2026年一季报。报告期内，营业收入为124.4亿元，同比增长28.81%，首次在第一季度迈入百亿大关。其中，持续经营业务收入同比增长39.4%。利润方面，归母净利润为46.5亿元，同比增长26.68%；归母扣非
 
 ## 正文
 
-4月22日，外交部发言人郭嘉昆主持例行记者会。
+“CXO一哥”药明康德一季报实现开门红，还透露在适当时机上调全年指引。
 
-法新社记者提问，美国总统特朗普周二将与伊朗的停火延期。
+4月27日，无锡药明康德新药开发股份有限公司（药明康德，603259.SH；2359.HK）发布2026年一季报。
 
-中方对此有何回应？
+报告期内，营业收入为124.4亿元，同比增长28.81%，首次在第一季度迈入百亿大关。
 
-中国在推动此次停火延期中发挥了怎样的作用？
+其中，持续经营业务收入同比增长39.4%。
 
-郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。
+利润方面，归母净利润为46.5亿元，同比增长26.68%；归母扣非净利润为42.8亿元，同比增长83.56%；经调整non-IFRS归母净利润达到46亿元，同比增长71.7%。
 
-中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。
+药明康德第一季度业绩表现 此外，药明康德还介绍，公司第一季度毛利率攀升至50.4%，经调整利润率达37%，双双创下历史最高水平。
 
-中方愿根据习近平主席“四点主张”精神，同国际社会一道，为此发挥积极建设性作用。
+公司称，公司持续聚焦及加强CRDMO业务模式，营业收入持续增长，同时持续优化生产工艺和经营效率，以及临床后期和商业化项目增长带来的产能效率提升，提高了整体的盈利能力。
 
-澎湃新闻记者 聂舒翼 朱郑勇 责任编辑：刘万里 SF014
+具体业务板块来看，药明康德的化学业务、测试业务和生物学业务均实现双位数增长。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:33 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:35 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:34 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:27 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:42 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:25 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:32 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:24 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:24 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:22 - [一季度消费市场平稳增长 升级态势持续显现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:24 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:29 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:27 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 12:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 12:30 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 12:47 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 12:23 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 12:44 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 12:34 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 12:28 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 12:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 12:48 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 12:33 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 12:30 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 12:36 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 12:51 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [Revolut目标估值2000亿美元，IPO计划初具雏形](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/9391787278.shtml)
-- 2026-06-29 12:42 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](http://www.blog.kurohicncr.top/Article/details/3643221074.shtml)
-- 2026-06-29 12:38 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.blog.kurohicncr.top/Article/details/05249.shtml)
-- 2026-06-29 12:36 - [习近平同莫桑比克总统查波会谈](http://www.blog.kurohicncr.top/Article/details/87339357.shtml)
-- 2026-06-29 12:36 - [下班后仅占用“几分钟”处理工作 算加班吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.blog.minike.top/Article/details/43900943.shtml)
-- 2026-06-29 12:37 - [东西问丨吴强：亚沙会，为什么选择三亚？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [停火截止日期逼近，特朗普再次威胁伊朗，美国筹备和平谈判](http://www.blog.minike.top/Article/details/1002779.shtml)
-- 2026-06-29 12:45 - [“院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI](http://www.blog.kurohicncr.top/Article/details/371262826.shtml)
-- 2026-06-29 12:40 - [瑞银：智谱首予“买入”评级 目标价1,160港元](http://www.share.kurohicncr.top/Article/details/64451149241.shtml)
-- 2026-06-29 12:33 - [西贝部分门店换牌“天边”加速自救](http://www.blog.kurohicncr.top/Article/details/1033120542.shtml)
-- 2026-06-29 12:22 - [一季度我国邮政行业寄递业务量同比增长4.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/73814.shtml)
+- 2026-06-29 12:50 - [《贺子珍》](https://www.share.minike.top/Article/details/51464.shtml)
+- 2026-06-29 12:48 - [媒体：湖人把薪资空间玩明白了](http://www.share.minike.top/Article/details/557794.shtml)
+- 2026-06-29 12:27 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/019195515085.shtml)
+- 2026-06-29 12:50 - [美加墨世界杯首支16强诞生](http://www.share.kurohicncr.top/Article/details/79006882.shtml)
+- 2026-06-29 12:47 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/757621119.shtml)
+- 2026-06-29 12:41 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/69027721439.shtml)
+- 2026-06-29 12:50 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/8908203.shtml)
+- 2026-06-29 12:29 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/25346438258.shtml)
+- 2026-06-29 12:49 - [女子拍邻居家中裸照发业主群](https://www.blog.kurohicncr.top/Article/details/209832.shtml)
+- 2026-06-29 12:33 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/6210880172.shtml)
+- 2026-06-29 12:42 - [陈露发声引舆论反转](https://www.share.minike.top/Article/details/5606922.shtml)
+- 2026-06-29 12:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/96422015.shtml)
+- 2026-06-29 12:35 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/071273520787.shtml)
+- 2026-06-29 12:51 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/1850448858.shtml)

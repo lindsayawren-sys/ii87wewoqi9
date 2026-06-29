@@ -1,54 +1,58 @@
-# 上海期货交易所镍期货及期权正式引入境外交易者参与交易
+# 南华早报出版人谭卫儿：应营造良好舆论环境，为各领域合作创造有利条件
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 08:25 来源：中国新闻网 4月21日21时起，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。同时上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。 镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种。镍不仅是不锈钢的重要原料，更是新能源汽车电池
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。 针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康
 
 ## 正文
 
-发布时间：2026年04月22日 08:25 来源：中国新闻网 4月21日21时起，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-同时上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
+南华早报出版人 / 社长谭卫儿强调，媒体应秉持客观公正的原则，传递中美双方合作的积极信号。
 
-镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种。
+同时，她表示，中美两国的媒体应加强交流与合作，搭建沟通的桥梁，让双方民众更好地了解彼此的发展，增进相互理解和信任。
 
-镍不仅是不锈钢的重要原料，更是新能源汽车电池、航空航天等高端制造的关键材料。
+针对论坛核心议题，谭卫儿表示，科技、贸易、气候、健康等领域的合作，是中美关系中的“亮色”，也是双方共同利益的体现，媒体应加大对这些领域合作成果的报道，引导公众看到中美合作的可能性和必要性。
 
-中国是全球最大的镍消费国和进口国，同时全球镍市场当前在矿产资源、生产及消费等方面正加速演进，因此国内外企业对价格波动的风险管理需求都很强烈。
+她呼吁，中美双方应重视媒体的作用，营造良好的舆论环境，为各领域合作创造有利条件。
 
-高志苗 徐银 康玉湛上海报道 责任编辑：【田博群】
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:39 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:43 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:23 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:30 - [广西交易团“智”造出海出圈 广交会斩获颇丰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:44 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:42 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:18 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:24 - [一场展览，看香港工程的过去与未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:32 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:37 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:46 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:49 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 12:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 12:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 12:39 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 12:49 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 12:25 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 12:44 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 12:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 12:45 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 12:31 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:37 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 12:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 12:45 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 12:34 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.share.minike.top/Article/details/81660.shtml)
-- 2026-06-29 12:37 - [马克龙访问波兰 聚焦法波防务及核能合作](http://www.blog.minike.top/Article/details/198238263.shtml)
-- 2026-06-29 12:32 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.minike.top/Article/details/265829.shtml)
-- 2026-06-29 12:33 - [关键词读懂一季度工业和信息化亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/2079083.shtml)
-- 2026-06-29 12:32 - [Van Oord完成波兰首座海上风电场单桩基础安装](http://www.share.kurohicncr.top/Article/details/27848.shtml)
-- 2026-06-29 12:39 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.kurohicncr.top/Article/details/326665.shtml)
-- 2026-06-29 12:22 - [机械车位闲置，如何盘活改造？](http://www.share.minike.top/Article/details/168181.shtml)
-- 2026-06-29 12:24 - [波兰想卖黄金换军费？财长怒批：这方案根本不切实际！](http://www.blog.minike.top/Article/details/8762231.shtml)
-- 2026-06-29 12:36 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](http://www.blog.minike.top/Article/details/36997881118.shtml)
-- 2026-06-29 12:18 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.blog.minike.top/Article/details/161169737203.shtml)
-- 2026-06-29 12:31 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/42831.shtml)
-- 2026-06-29 12:29 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](http://www.blog.kurohicncr.top/Article/details/182063.shtml)
-- 2026-06-29 12:47 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.blog.minike.top/Article/details/2018031.shtml)
-- 2026-06-29 12:23 - [习近平同莫桑比克总统查波会谈](http://www.share.kurohicncr.top/Article/details/96301.shtml)
+- 2026-06-29 12:30 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/98192243473.shtml)
+- 2026-06-29 12:43 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.kurohicncr.top/Article/details/756465312551.shtml)
+- 2026-06-29 12:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/6069077.shtml)
+- 2026-06-29 12:33 - [腾讯回应做独立支付APP](https://www.blog.minike.top/Article/details/4151305.shtml)
+- 2026-06-29 12:27 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/481308.shtml)
+- 2026-06-29 12:27 - [中国战机大片上新](http://www.share.minike.top/Article/details/14232059.shtml)
+- 2026-06-29 12:29 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/52576.shtml)
+- 2026-06-29 12:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/48672.shtml)
+- 2026-06-29 12:31 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/56088.shtml)
+- 2026-06-29 12:32 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/115135677092.shtml)
+- 2026-06-29 12:25 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/29971339.shtml)
+- 2026-06-29 12:24 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.share.kurohicncr.top/Article/details/800985660818.shtml)
+- 2026-06-29 12:44 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/558164.shtml)
+- 2026-06-29 12:51 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/5537237.shtml)
+- 2026-06-29 12:36 - [A股](http://www.blog.minike.top/Article/details/57199.shtml)

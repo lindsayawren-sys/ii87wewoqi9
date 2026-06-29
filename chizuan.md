@@ -1,56 +1,56 @@
-# 湖南茶叶产量超30万吨 综合产值突破1250亿元
+# 今年超长期特别国债迎来发行，债券需求或进一步回暖
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。 21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。 2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月2
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。本周四资金面维持宽松态势，主要资金价格低
 
 ## 正文
 
-中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。
 
-21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。
+本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。
 
-2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月28日至5月20日举办，以“弘扬茶祖文化 促进茶旅融合”为主题，立足沅陵碣滩茶千年贡茶底蕴与生态优势，推动茶文化、茶产业、茶科技深度融合，联动生态旅游、乡村振兴全面发展，全力打响碣滩茶区域公用品牌，为湖南加快建设茶业强省注入强劲动力。
+本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。
 
-沅陵县副县长钟群英介绍，目前沅陵茶园面积18.3万亩，茶叶加工企业130余家，2025年产量1.53万吨，综合产值23亿元，辐射带动12万涉茶人口、5000余户脱贫户持续增收，人均年增收超800元，实现“一片叶子富一方百姓”。
+本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。
 
-本届茶祖节精心策划了开幕式、碣滩茶非遗展示展销暨全民品鉴活动、茶旅融合沉浸式体验暨采风活动等七大主题活动，兼顾文化性、专业性、体验性、传播性，为各界呈现一场特色鲜明、务实高效、影响广泛的茶文旅盛宴。
+本周四资金面维持宽松态势，主要资金价格低位持稳，当日央行净投放为零。
 
-近年来，湖南茶产业呈现规模稳步扩大、质量持续提升、品牌更加响亮、融合不断深化的良好态势，茶产业已成为湖南特色优势产业、乡村振兴支柱产业、富民增收民生产业。
+本周四（4月23日）相较于上周五，DR001收平于1.22%，DR007收平于1.32%。
 
-湖南省农业农村厅总农艺师张志刚表示，今年湖南将紧扣“强链、补链、延链”发展目标，重点实施推进品牌体系建设行动、推进龙头企业集聚行动、推进“湘茶出湘”拓展市场行动等六大行动，推动湖南茶产业在高质量发展上再创新佳绩。
+海外方面，欧元区4月制造业PMI初值52.2，预期50.9，3月终值51.6；服务业PMI初值47.4，预期49.8，3月终值50.2；综合PMI初值48.6，预期50.1，3月终值50.7。
 
-据了解，茶祖节是经文化和旅游部审批保留、湖南省重点打造的茶文化节庆品牌，自2009年创办以来已连续举办17届，成为全国极具影响力的茶事活动平台。
+美国财政部长贝森特当地时间21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [“GNV·北极星”号豪华客滚船完成升级改造启航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:21 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:39 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:44 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:35 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:38 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:21 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:42 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:34 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:45 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:22 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 12:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 12:39 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 12:51 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 12:33 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 12:37 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:43 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 12:28 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 12:45 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 12:21 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [商汤-W授出合共2.38亿份受限制股份单位](http://www.share.kurohicncr.top/Article/details/121789722.shtml)
-- 2026-06-29 12:27 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](http://www.share.kurohicncr.top/Article/details/16187775.shtml)
-- 2026-06-29 12:19 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.share.kurohicncr.top/Article/details/3982215350.shtml)
-- 2026-06-29 12:29 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/70603.shtml)
-- 2026-06-29 12:24 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](http://www.share.kurohicncr.top/Article/details/27493394.shtml)
-- 2026-06-29 12:35 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.share.minike.top/Article/details/2940149607.shtml)
-- 2026-06-29 12:33 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.blog.kurohicncr.top/Article/details/4340512.shtml)
-- 2026-06-29 12:18 - [上海着力打造首个“次元友好街区”](http://www.share.minike.top/Article/details/7230504.shtml)
-- 2026-06-29 12:41 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.share.kurohicncr.top/Article/details/6209884141.shtml)
+- 2026-06-29 12:44 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/4832535031.shtml)
+- 2026-06-29 12:34 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/493589.shtml)
+- 2026-06-29 12:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/3310446.shtml)
+- 2026-06-29 12:32 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/04587773.shtml)
+- 2026-06-29 12:31 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/029061859.shtml)
+- 2026-06-29 12:27 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/6235575.shtml)
+- 2026-06-29 12:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/3120095.shtml)
+- 2026-06-29 12:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/8485473.shtml)
+- 2026-06-29 12:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/527452341.shtml)
+- 2026-06-29 12:33 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/5765700107.shtml)
+- 2026-06-29 12:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/58764365.shtml)
+- 2026-06-29 12:45 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/11658921.shtml)
+- 2026-06-29 12:42 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/12157.shtml)
+- 2026-06-29 12:46 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/10437483581.shtml)
+- 2026-06-29 12:43 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/67527492.shtml)

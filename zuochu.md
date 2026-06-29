@@ -1,58 +1,59 @@
-# 多型舰艇齐聚上海并对民众开放
+# 纪念哈尔滨解放80周年大众诗会走进工业一线
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社上海4月21日电 (倪致远 邓兆岚 许婧)以“上海·海上”为主题的舰艇开放活动21日在上海港国际客运中心码头启幕。海军阜阳舰、海军千岛湖舰悬挂满旗，迎接各界民众登舰参观。 在海军官兵的引导下，参观者依次登上舰艇，近距离观摩舰载装备、了解舰艇性能，聆听官兵讲解人民海军建设发展与执行任务的故事。甲板上、舰舷边，不少市民驻足拍照，孩子们兴奋地触摸装备，老人们认真倾听讲解，大家在
+中新网哈尔滨4月25日电 “与人民同行——纪念哈尔滨解放80周年大众诗会”24日走进工业一线，在哈尔滨电气动力装备有限公司厂区启幕。活动气韵绵长、文脉涌动，充分彰显哈尔滨“诗歌之城”的浪漫风骨，以诗意笔墨深情礼赞英雄城市。 从烽火连天的英雄赞歌，到砥砺奋进的时代宣言，一首首经典诗作、一篇篇赤诚篇章，经由知名诗人、朗诵艺术家与哈电产业工人倾情演绎。“一曼街、靖宇街、兆麟公园、尚志
 
 ## 正文
 
-中新社上海4月21日电 (倪致远 邓兆岚 许婧)以“上海·海上”为主题的舰艇开放活动21日在上海港国际客运中心码头启幕。
+中新网哈尔滨4月25日电 “与人民同行——纪念哈尔滨解放80周年大众诗会”24日走进工业一线，在哈尔滨电气动力装备有限公司厂区启幕。
 
-海军阜阳舰、海军千岛湖舰悬挂满旗，迎接各界民众登舰参观。
+活动气韵绵长、文脉涌动，充分彰显哈尔滨“诗歌之城”的浪漫风骨，以诗意笔墨深情礼赞英雄城市。
 
-在海军官兵的引导下，参观者依次登上舰艇，近距离观摩舰载装备、了解舰艇性能，聆听官兵讲解人民海军建设发展与执行任务的故事。
+从烽火连天的英雄赞歌，到砥砺奋进的时代宣言，一首首经典诗作、一篇篇赤诚篇章，经由知名诗人、朗诵艺术家与哈电产业工人倾情演绎。
 
-甲板上、舰舷边，不少市民驻足拍照，孩子们兴奋地触摸装备，老人们认真倾听讲解，大家在沉浸式体验中感受国防强大、厚植爱国情怀。
+“一曼街、靖宇街、兆麟公园、尚志大街，他们是这个城市最悲壮的记忆……”哈电动装产业工人身着深蓝色工装，齐声合诵李琦经典诗作《他们的名字》，工人们将对革命先烈的深切缅怀、对城市英雄的由衷感念，尽数融入行行诗段。
 
-除舰艇参观外，活动现场还设置了国防科普展区、海军文化展示区，通过图文展板、快闪、互动体验等形式，帮助公众了解海军、热爱海军，加强全民国防教育。
+曹汉俊《中国，站在高高的脚手架上》抒写磅礴家国豪情，李南《那么好》礼赞烟火生活与劳动之美，娜夜《幸福》诉说人间烟火里的温暖诗意。
 
-据了解，本次开放的舰艇均为人民海军现役主力装备，海军阜阳舰、海军千岛湖舰21日至23日在上海港国际客运中心码头开放；海军宿州舰、海军沂蒙山舰将于23日至25日在吴淞口国际邮轮码头开放。
+同时，闻一多《祈祷》、切斯瓦夫·米沃什《礼物》、埃米莉·狄金森《没有任何快艇像一本书》等中外经典诗篇次第诵读，层层铺展从烽火岁月走向盛世今朝的沧桑巨变。
 
-四型战舰齐聚申城，生动展现人民海军77年砥砺奋进、逐梦深蓝的强军风采，搭建起军民携手、共筑国防的桥梁。
+“平日我们天天与图纸、数据、实验设备为伴，投入到精密严谨的技术工作中”，哈尔滨电气动力装备有限公司设计部设计员洪长艳全程参与活动，感触颇深，大众诗会走进厂区让一线作业者近距离感受诗歌魅力。
 
-海军阜阳舰，是中国自行研制建造的054A型导弹护卫舰，该型舰具有先进的区域防空导弹和远程反舰导弹，担负着反潜、防空、警戒等任务。
+为纪念哈尔滨解放80周年打造的原创诗歌《星火点亮的黎明》压轴登场，“八十年前那个春日的拂晓，将军的热血消融了寒冬”“音符落在面包石上，溅醒白桦树和紫丁香，孩子们清澈的童声，铺叙出盛世锦绣的图景”，诗句娓娓道来，旋律直抵人心。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:40 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:35 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:23 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:28 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:43 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:23 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:28 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:39 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:22 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:19 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:36 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:46 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 12:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 12:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 12:39 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 12:44 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 12:49 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 12:35 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 12:43 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 12:27 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 12:44 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 12:33 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 12:45 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 12:24 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](http://www.blog.kurohicncr.top/Article/details/589097469.shtml)
-- 2026-06-29 12:27 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:33 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](http://www.share.kurohicncr.top/Article/details/97457.shtml)
-- 2026-06-29 12:32 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.blog.kurohicncr.top/Article/details/259036540.shtml)
-- 2026-06-29 12:22 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [上海着力打造首个“次元友好街区”](http://www.blog.minike.top/Article/details/21003663.shtml)
-- 2026-06-29 12:25 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [陪审团裁定优步负有责任](http://www.blog.minike.top/Article/details/6837653.shtml)
-- 2026-06-29 12:38 - [Tractor Supply第一财季盈利不及预期](http://www.blog.minike.top/Article/details/41430044659.shtml)
-- 2026-06-29 12:18 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](http://www.share.kurohicncr.top/Article/details/3923440.shtml)
-- 2026-06-29 12:21 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](http://www.blog.kurohicncr.top/Article/details/2162076.shtml)
-- 2026-06-29 12:43 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.kurohicncr.top/Article/details/0636911.shtml)
-- 2026-06-29 12:45 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/22349650.shtml)
-- 2026-06-29 12:27 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.blog.minike.top/Article/details/767770.shtml)
-- 2026-06-29 12:25 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.minike.top/Article/details/2189431.shtml)
+- 2026-06-29 12:25 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/5900045856.shtml)
+- 2026-06-29 12:31 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/52516519352.shtml)
+- 2026-06-29 12:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/81287448.shtml)
+- 2026-06-29 12:35 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/39612565.shtml)
+- 2026-06-29 12:26 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/887272.shtml)
+- 2026-06-29 12:35 - [高超感谢女友王佳欣](http://www.blog.minike.top/Article/details/8782912014.shtml)
+- 2026-06-29 12:47 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/14161.shtml)
+- 2026-06-29 12:22 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/871296762.shtml)
+- 2026-06-29 12:28 - [初心如磐 红色足迹](https://www.share.minike.top/Article/details/8048417842.shtml)
+- 2026-06-29 12:38 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/487981826954.shtml)
+- 2026-06-29 12:44 - [中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/68509299.shtml)
+- 2026-06-29 12:34 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/29209979118.shtml)
+- 2026-06-29 12:29 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.kurohicncr.top/Article/details/1654810.shtml)
+- 2026-06-29 12:27 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/07157050.shtml)

@@ -1,57 +1,57 @@
-# 沸腾！刚刚，突破2015年高点！更有一年暴涨10倍
+# 英诺赛科午后涨逾5% 针对英飞凌的两件氮化镓核心专利行政诉讼全面胜诉
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】创业板综指创历史新高了，新易盛一年涨10倍！ 中国基金报记者 泰勒 你们，相信光吗？ 今天，在光模块概念板块的带动下，创业板综指（注意，不是创业板指数），突破了2015年的高位，创下了历史新高！ 一起看看今天市场的亮点。 创业板综指创历史新高 4月22日，A股全天低开高走，沪指重返
+英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。 4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。 值得注意的是，谷歌近期正
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。
 
-来源：中国基金报 【导读】创业板综指创历史新高了，新易盛一年涨10倍！
+4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。
 
-中国基金报记者 泰勒 你们，相信光吗？
+法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。
 
-今天，在光模块概念板块的带动下，创业板综指（注意，不是创业板指数），突破了2015年的高位，创下了历史新高！
+值得注意的是，谷歌近期正式发布其第八代TPU处理器的两款全新产品，分别是专为AI模型训练设计的TPU 8t与专为推理优化的TPU 8i。
 
-一起看看今天市场的亮点。
+据了解，TPU是AI计算核心，GaN为TPU集群高效供电的关键功率器件，共同支撑高算力、低功耗的AI基础设施。
 
-创业板综指创历史新高 4月22日，A股全天低开高走，沪指重返4100点上方，创业板综指创历史新高。
-
-截至收盘，沪指涨0.52%，深成指涨1.3%，创业板指涨1.73%。
-
-市场2920只个股上涨，63只个股涨停，2433只个股下跌。
+英诺赛科2025年报显示，期内销售氮化镓模块所得收益4.462亿元，同比增加142.6%，责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:26 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:39 - [香港应科院将于港深创科园成立联合研发实验室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:28 - [苍山洱海间的健康慢生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:41 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:47 - [冷暖骤变 陕西多地迎四月春雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:46 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:31 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:20 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:27 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:26 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:22 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 12:36 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 12:35 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:32 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 12:25 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 12:41 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 12:37 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 12:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 12:31 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 12:50 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 12:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 12:26 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 12:39 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 12:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](http://www.share.minike.top/Article/details/9807023.shtml)
-- 2026-06-29 12:22 - [俄Tuapse炼油厂遭无人机袭击后全面停产](http://www.blog.kurohicncr.top/Article/details/4970821926.shtml)
-- 2026-06-29 12:29 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](http://www.share.minike.top/Article/details/31887633.shtml)
-- 2026-06-29 12:43 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [截至3月底全国5G基站总数已达495.8万个](http://www.blog.minike.top/Article/details/47134873877.shtml)
-- 2026-06-29 12:48 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](http://www.blog.kurohicncr.top/Article/details/6531705583.shtml)
-- 2026-06-29 12:19 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [万亿中原银行，变天了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/96202520089.shtml)
-- 2026-06-29 12:27 - [外资转向加仓中国资产](http://www.share.minike.top/Article/details/683484653441.shtml)
-- 2026-06-29 12:42 - [河北辛集：70米长臂灌溉机器人助力春灌](http://www.blog.minike.top/Article/details/5573802427.shtml)
-- 2026-06-29 12:23 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/186029992.shtml)
-- 2026-06-29 12:25 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](http://www.share.minike.top/Article/details/48554124.shtml)
+- 2026-06-29 12:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/766580.shtml)
+- 2026-06-29 12:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/599501699.shtml)
+- 2026-06-29 12:34 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/28255447486.shtml)
+- 2026-06-29 12:37 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/050851.shtml)
+- 2026-06-29 12:49 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/995907261646.shtml)
+- 2026-06-29 12:41 - [白鹿呵呵挽手比心](http://www.blog.kurohicncr.top/Article/details/050726195345.shtml)
+- 2026-06-29 12:39 - [青春环游记第三季](https://www.share.minike.top/Article/details/809024710.shtml)
+- 2026-06-29 12:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/30123.shtml)
+- 2026-06-29 12:43 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/9186905.shtml)
+- 2026-06-29 12:35 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/65108953880.shtml)
+- 2026-06-29 12:47 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/518507.shtml)
+- 2026-06-29 12:39 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/7816983057.shtml)
+- 2026-06-29 12:32 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/2614506.shtml)
+- 2026-06-29 12:25 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/511373681815.shtml)
+- 2026-06-29 12:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3479781.shtml)

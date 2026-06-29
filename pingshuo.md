@@ -1,57 +1,58 @@
-# 黄金后市走向何方？5044美元值得重点关注
+# 报道：美军在伊朗战争中军事资产和基地受损 仅修复费用就高达50亿美元
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周二（4月21日）欧盘时段，现货黄金报价约每盎司4787美元，跌幅0.68%，回吐了上周2%的涨幅。上周上涨主要得益于霍尔木兹海峡地区紧张局势暂时缓和，不仅缓解了市场对通胀走高的担忧，也重新点燃了投资者对美联储降息的预期。同时美元走弱为金价提供了额外支撑，美元指数当周下跌0.56%，进一步助推金价上行。 尽管盘面有所回暖，但当前金价仍较2月27
+据报道，伊朗对美国在海湾地区的军事资产和基地造成了数十亿美元的损失，这引发了对特朗普政府在潜在维修费用方面透明度的质疑。 六位熟悉损失情况的人士在接受采访时表示，伊朗军队袭击了跑道、高端雷达系统、数十架飞机、仓库、指挥总部、飞机机库和卫星通信基础设施。 这些破坏遍及中东多个国家，修复费用可能高达50亿美元。 据报道，这一预估费用还不包括因伊朗袭击而受损或无法修复的雷达系统、武器
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周二（4月21日）欧盘时段，现货黄金报价约每盎司4787美元，跌幅0.68%，回吐了上周2%的涨幅。
+据报道，伊朗对美国在海湾地区的军事资产和基地造成了数十亿美元的损失，这引发了对特朗普政府在潜在维修费用方面透明度的质疑。
 
-上周上涨主要得益于霍尔木兹海峡地区紧张局势暂时缓和，不仅缓解了市场对通胀走高的担忧，也重新点燃了投资者对美联储降息的预期。
+六位熟悉损失情况的人士在接受采访时表示，伊朗军队袭击了跑道、高端雷达系统、数十架飞机、仓库、指挥总部、飞机机库和卫星通信基础设施。
 
-同时美元走弱为金价提供了额外支撑，美元指数当周下跌0.56%，进一步助推金价上行。
+这些破坏遍及中东多个国家，修复费用可能高达50亿美元。
 
-尽管盘面有所回暖，但当前金价仍较2月27日冲突爆发前的水平低约9%，这与标普500指数形成鲜明对比——美股大盘已完全收复失地，且较彼时基准点位上涨3%，凸显出黄金在风险情绪修复过程中的相对弱势。
+据报道，这一预估费用还不包括因伊朗袭击而受损或无法修复的雷达系统、武器系统、飞机及其他设备的修复成本。
 
-不过市场多头动能指标已全面改善：黄金期货多头仓位显著反弹，交易所交易基金（ETF）资金流入提速，期权交易者也大幅增加看涨押注。
+最初的破坏发生在战争开始的头几天，由一架伊朗F-5战斗机对科威特的比林营地美军基地造成。
 
-黄金ETF已连续三周实现资金净流入，截至4月17日当周净流入量达21.7吨，使得今年以来累计净流入量升至117.4吨。
+这场战争始于2月28日美国-以色列的一系列打击。
 
-但三月资金外流的拖累依旧存在，本轮流入尚未能回补上月高达89.6吨的资金净流出规模。
+位于阿联酋的达夫拉空军基地和阿尔鲁韦斯军事基地的燃料储存设施、一个医疗诊所、机库和营房以及其他仓库和建筑均记录到损坏。
 
-央行购金需求：三月数据呈现阶段性失真 全球央行持续净买入黄金的结构性趋势并未改变，世界黄金协会2月数据显示，全球央行月度净购金量为27吨，与2025年月度平均水平基本持平。
+沙特阿拉伯的苏丹王子空军基地、约旦的穆瓦法克·萨尔蒂空军基地，以及科威特的阿里夫詹营地、比林营地和舒艾巴港也出现了美国资源的受损。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [美财长：将继续对伊朗“极限施压”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:33 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:19 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:33 - [吴凯院士谈新能源汽车电池：每种材料都有自身局限 要坚持多元化学体系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:42 - [大美边疆看我家丨内蒙古敖汉：山野杏花 如霞似雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:32 - [诺比侃与浪潮智慧城市签订《战略合作框架协议书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:43 - [龙蟠科技拟1485万澳元收购位于澳大利亚的锂矿勘探租约及相关资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:19 - [智达藏语大模型及系列应用产品成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:39 - [法国官方宣布财政节支措施以应对中东局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:41 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:26 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:39 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 12:49 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 12:28 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 12:34 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 12:21 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 12:35 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:27 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 12:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 12:25 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 12:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 12:36 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 12:47 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [伊朗武装部队称已做好充分战斗准备](http://www.share.kurohicncr.top/Article/details/12464163310.shtml)
-- 2026-06-29 12:43 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.blog.minike.top/Article/details/83817521763.shtml)
-- 2026-06-29 12:19 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [工信部：开展人工智能中小企业创业支持计划](http://www.share.minike.top/Article/details/656940644.shtml)
-- 2026-06-29 12:42 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](http://www.blog.kurohicncr.top/Article/details/85556.shtml)
-- 2026-06-29 12:41 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.blog.kurohicncr.top/Article/details/15157473.shtml)
-- 2026-06-29 12:35 - [降息潮下跳涨35个基点！有民营银行为吸储定存利率大幅“加息”，与大额存单利率倒挂](http://www.share.minike.top/Article/details/97648399976.shtml)
-- 2026-06-29 12:37 - [福建武夷山：春茶开山 仪式感满满](http://www.blog.minike.top/Article/details/02956542.shtml)
-- 2026-06-29 12:33 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.blog.minike.top/Article/details/835408374.shtml)
-- 2026-06-29 12:29 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.kurohicncr.top/Article/details/857944116207.shtml)
-- 2026-06-29 12:39 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.blog.kurohicncr.top/Article/details/136215681.shtml)
-- 2026-06-29 12:29 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.share.minike.top/Article/details/156256.shtml)
+- 2026-06-29 12:42 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/6895949195.shtml)
+- 2026-06-29 12:21 - [一生一世](http://www.blog.kurohicncr.top/Article/details/441878029597.shtml)
+- 2026-06-29 12:34 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/961091773.shtml)
+- 2026-06-29 12:49 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/050510000877.shtml)
+- 2026-06-29 12:50 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/87609363651.shtml)
+- 2026-06-29 12:45 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/46473.shtml)
+- 2026-06-29 12:28 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/1933194.shtml)
+- 2026-06-29 12:41 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.share.minike.top/Article/details/01668013197.shtml)
+- 2026-06-29 12:49 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.minike.top/Article/details/55240150.shtml)
+- 2026-06-29 12:50 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.minike.top/Article/details/4561728890.shtml)
+- 2026-06-29 12:22 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/09351.shtml)
+- 2026-06-29 12:25 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/368489339555.shtml)
+- 2026-06-29 12:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/5091354.shtml)
+- 2026-06-29 12:50 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.kurohicncr.top/Article/details/6656553502.shtml)
+- 2026-06-29 12:44 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/18192498.shtml)

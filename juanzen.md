@@ -1,56 +1,60 @@
-# 四川2025年高价值发明专利拥有量达7.79万件
+# 东西问｜“中国表姐”朱溪瑞：把“喝热水”变成全球热梗
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网成都4月21日电 (程兆)2025年四川省知识产权保护与发展状况新闻发布会21日在成都召开。会上披露，截至2025年底，四川高价值发明专利拥有量达7.79万件，同比增长17.21%。 四川省市场监管局副局长高晓宇介绍，2025年，四川立足知识产权是新质生产力发展的重要制度供给和技术供给，围绕高质量创造、全链条保护、产业化运用和公共服务供给等方面持续发力，知识产权支撑创新发
+中新网西安4月25日电 题：“中国表姐”朱溪瑞：把“喝热水”变成全球热梗 作者 杨英琦 党田野 23岁的华裔博主朱溪瑞(英文名Sherry)只是开玩笑说，“从明天开始，你要变成中国人了。”然后，几十万海外网友真的开始穿拖鞋、喝热水、预订飞往中国的机票。 一条普通的视频，没有精致的运镜，没有优美的配乐，只有一种“Z世代”特有的幽默。这条发布于2025年底的视频，播放量迅速破百万。
 
 ## 正文
 
-中新网成都4月21日电 (程兆)2025年四川省知识产权保护与发展状况新闻发布会21日在成都召开。
+中新网西安4月25日电 题：“中国表姐”朱溪瑞：把“喝热水”变成全球热梗 作者 杨英琦 党田野 23岁的华裔博主朱溪瑞(英文名Sherry)只是开玩笑说，“从明天开始，你要变成中国人了。
 
-会上披露，截至2025年底，四川高价值发明专利拥有量达7.79万件，同比增长17.21%。
+”然后，几十万海外网友真的开始穿拖鞋、喝热水、预订飞往中国的机票。
 
-四川省市场监管局副局长高晓宇介绍，2025年，四川立足知识产权是新质生产力发展的重要制度供给和技术供给，围绕高质量创造、全链条保护、产业化运用和公共服务供给等方面持续发力，知识产权支撑创新发展和产业升级的作用进一步增强。
+一条普通的视频，没有精致的运镜，没有优美的配乐，只有一种“Z世代”特有的幽默。
 
-数据显示，2025年四川新增商标注册17.44万件，有效注册商标量192.41万件，居西部第一；新增作品著作权登记超31万件，新增计算机软件著作权登记量位居全国第四；完成农产品地理标志转化117件，全省地理标志产品416个，保持全国第一。
+这条发布于2025年底的视频，播放量迅速破百万。
 
-高晓宇表示，四川还扎实推进高价值专利育成中心建设。
+随后三个月，她的粉丝暴涨74万。
 
-截至2025年底，全省已建成高价值专利育成中心51个，拥有高价值专利1.33万件，占全省高价值专利的17.08%。
+“Becoming Chinese”，成了海外社交平台上最滚烫的话题标签。
 
-2026年，四川将新支持建设6个高价值专利育成中心。
+在西安大唐芙蓉园的汉服店见到朱溪瑞时，现实中的她和视频中那个“下达通知”的博主判若两人。
 
-从“专利存量”到“产品增量”，四川正推动更多知识产权走向产业一线。
+她正对着一排排汉服犹豫不决，动作慢得像是在挑选心爱的饰品，和视频里那个火力全开的女孩像是两个人。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:18 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:29 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:21 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:24 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:41 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:47 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:27 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:24 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:27 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 12:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 12:26 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 12:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 12:38 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 12:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 12:44 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:32 - [农业谣言岂能如此“变态”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 12:32 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 12:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 12:46 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 12:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 12:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 12:39 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.share.minike.top/Article/details/347867359.shtml)
-- 2026-06-29 12:19 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.blog.kurohicncr.top/Article/details/90749343.shtml)
-- 2026-06-29 12:39 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.share.minike.top/Article/details/5021833459.shtml)
-- 2026-06-29 12:31 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.kurohicncr.top/Article/details/9668084.shtml)
-- 2026-06-29 12:19 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.blog.minike.top/Article/details/040736895.shtml)
-- 2026-06-29 12:30 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.share.minike.top/Article/details/79958768.shtml)
-- 2026-06-29 12:38 - [一季度消费市场平稳增长 升级态势持续显现](http://www.blog.kurohicncr.top/Article/details/7789120.shtml)
-- 2026-06-29 12:31 - [日本气象厅解除对所有地区的海啸预警](http://www.share.minike.top/Article/details/67261.shtml)
-- 2026-06-29 12:23 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.minike.top/Article/details/217819.shtml)
-- 2026-06-29 12:25 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.blog.kurohicncr.top/Article/details/84512298.shtml)
-- 2026-06-29 12:31 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.kurohicncr.top/Article/details/26903.shtml)
-- 2026-06-29 12:45 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.kurohicncr.top/Article/details/66663.shtml)
-- 2026-06-29 12:25 - [南华期货：第一季度净利润同比增长138.82%](http://www.blog.minike.top/Article/details/826140609.shtml)
+- 2026-06-29 12:28 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/58432.shtml)
+- 2026-06-29 12:29 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/643377393797.shtml)
+- 2026-06-29 12:49 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/739761.shtml)
+- 2026-06-29 12:32 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/47497129.shtml)
+- 2026-06-29 12:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/000398557518.shtml)
+- 2026-06-29 12:39 - [扬名立万](https://www.share.kurohicncr.top/Article/details/614018508542.shtml)
+- 2026-06-29 12:49 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/6707429760.shtml)
+- 2026-06-29 12:40 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/019319.shtml)
+- 2026-06-29 12:36 - [陈露发声引舆论反转](https://www.blog.kurohicncr.top/Article/details/35613990957.shtml)
+- 2026-06-29 12:22 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/1642436.shtml)
+- 2026-06-29 12:35 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/88831961192.shtml)
+- 2026-06-29 12:30 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/0988279956.shtml)
+- 2026-06-29 12:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/8461464.shtml)
+- 2026-06-29 12:35 - [为什么欧洲人不装空调](https://www.blog.kurohicncr.top/Article/details/64953387.shtml)
+- 2026-06-29 12:24 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/479662.shtml)

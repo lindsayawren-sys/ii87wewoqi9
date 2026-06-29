@@ -1,53 +1,61 @@
-# 致敬！在繁花盛放的春天接英雄回家
+# 聚焦科创共话发展 第三届“长三角地区台商看上海”活动在沪开幕
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-春天的神州大地，处处繁花，每一朵都是写给英烈的家书。“我会化作一捧土、化作云、化作青山一座，陪你一起守望我们的祖国……”由青年歌手周深，深情献唱的第十三批在韩中国人民志愿军烈士遗骸归国安葬主题纪念曲《漫长的问候》首发上线。山河已无恙，英魂请安息！以国之名，接迎英雄回家！
+中新网上海4月25日电 (缪璐 娄瀚锟)第三届“长三角地区台商看上海”活动24日启动。来自长三角地区的多位台商代表受邀“看上海”，共话发展新机遇。 此次活动由全国台联指导，全国台联台胞部以及上海市、江苏省、浙江省、安徽省台联共同主办，旨在认真践行中央近期出台的十项促进两岸交流合作政策措施，进一步增进长三角地区台商对上海及区域发展的认知，深化两岸经济文化交流合作与融合发展。 当天
 
 ## 正文
 
-春天的神州大地，处处繁花，每一朵都是写给英烈的家书。
+中新网上海4月25日电 (缪璐 娄瀚锟)第三届“长三角地区台商看上海”活动24日启动。
 
-“我会化作一捧土、化作云、化作青山一座，陪你一起守望我们的祖国……”由青年歌手周深，深情献唱的第十三批在韩中国人民志愿军烈士遗骸归国安葬主题纪念曲《漫长的问候》首发上线。
+来自长三角地区的多位台商代表受邀“看上海”，共话发展新机遇。
 
-山河已无恙，英魂请安息！
+此次活动由全国台联指导，全国台联台胞部以及上海市、江苏省、浙江省、安徽省台联共同主办，旨在认真践行中央近期出台的十项促进两岸交流合作政策措施，进一步增进长三角地区台商对上海及区域发展的认知，深化两岸经济文化交流合作与融合发展。
 
-以国之名，接迎英雄回家！
+当天举行的宣介会聚焦“科创上海”主题，解读上海惠台“55条”政策，介绍浦东作为社会主义现代化建设引领区的经济规模、开放优势与未来规划，展示临港新片区的特殊制度、产业集群优势及“五自由一便利”的创新环境。
+
+宣介会现场，长三角地区台商代表和民企代表围绕“企业转型升级的痛点与机遇”“长三角各省市营商环境的比较与优化”两大主题展开热议。
+
+代表们纷纷表示，长三角地区拥有完整的供应链体系和庞大的消费市场，是台商投资兴业的优选之地。
+
+上海及周边地区在科创研发和国际化布局上优势突出，台资企业应善用区域资源，积极融入“研发在上海、制造在周边”的协同布局。
+
+全国台联副会长蔡睿表示，台商台企的稳定发展与大陆区域经济和两岸关系融合发展息息相关。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:40 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:18 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:28 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:34 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:34 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:46 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:39 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:28 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:43 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:34 - [特朗普：我会记住不寻求退还关税的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:25 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:31 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:36 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:45 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 12:36 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 12:23 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 12:39 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 12:34 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 12:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 12:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 12:34 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 12:24 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 12:45 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 12:25 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 12:37 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 12:26 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 12:38 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 12:32 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/52707565595.shtml)
-- 2026-06-29 12:39 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.blog.kurohicncr.top/Article/details/35122824.shtml)
-- 2026-06-29 12:41 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/3138289975.shtml)
-- 2026-06-29 12:25 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.kurohicncr.top/Article/details/347038638424.shtml)
-- 2026-06-29 12:25 - [中芯国际获南向资金连续3天净买入](http://www.blog.kurohicncr.top/Article/details/0695551059.shtml)
-- 2026-06-29 12:33 - [一场展览，看香港工程的过去与未来](http://www.blog.minike.top/Article/details/80188.shtml)
-- 2026-06-29 12:44 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.blog.kurohicncr.top/Article/details/4989673.shtml)
-- 2026-06-29 12:45 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.kurohicncr.top/Article/details/524544039.shtml)
-- 2026-06-29 12:41 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.blog.minike.top/Article/details/317997.shtml)
-- 2026-06-29 12:44 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.blog.minike.top/Article/details/1334211.shtml)
+- 2026-06-29 12:24 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/06066067.shtml)
+- 2026-06-29 12:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/55655717.shtml)
+- 2026-06-29 12:23 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/02817216936.shtml)
+- 2026-06-29 12:21 - [俄政府批准巩固俄语地位行动计划](https://www.blog.minike.top/Article/details/9029427296.shtml)
+- 2026-06-29 12:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/3569225136.shtml)
+- 2026-06-29 12:31 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/9785836.shtml)
+- 2026-06-29 12:28 - [国乒全主力参加美国大满贯](https://www.share.kurohicncr.top/Article/details/0657533993.shtml)
+- 2026-06-29 12:39 - [俄政府批准巩固俄语地位行动计划](https://www.blog.kurohicncr.top/Article/details/05530096.shtml)
+- 2026-06-29 12:30 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/221409.shtml)
+- 2026-06-29 12:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/9699048.shtml)
+- 2026-06-29 12:43 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/2879204046.shtml)
+- 2026-06-29 12:35 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/705179328170.shtml)
+- 2026-06-29 12:31 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/4102157.shtml)
+- 2026-06-29 12:32 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/246059156.shtml)
+- 2026-06-29 12:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/1285414.shtml)

@@ -1,60 +1,57 @@
-# 另类师徒携手追凶 《黑夜告白》定档
+# 三书六礼 婚前准备那些事儿
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新网北京4月21日电 (记者 高凯)21日，由陈祉希任总监制，潘粤明任艺术总监，王之执导的悬案追凶剧《黑夜告白》官宣定档4月26日。 《黑夜告白》从一起“离奇失踪事件”拉开序幕，1997年，一对父女在元龙里小区神秘消失，将资深警察何远航(潘粤明 饰)与新晋警员冉方旭(王鹤棣 饰)卷入其中，两人从针锋相对到渐生默契，误以为查明失踪真相，却在后来的18年间陆续发现新的线索、遇到相
+“五一”假期将至，婚嫁喜事迎来高峰。自古婚嫁讲究“三书六礼”(“三书”即：聘书、礼书和迎书，“六礼”为：纳采、问名、纳吉、纳征、请期、亲迎)，这套流程在宋代趋于完备，既注重礼制又融入民间习俗，每一步都郑重其事。弱冠 笄礼“使上头” 结婚前的必要条件 在宋朝的清明节，女孩子年满十五岁，大都会在这一天束发插簪，以示成年，称之为“上头”。因此十四岁时就要开始蓄发，为束发插笄做准备。花
 
 ## 正文
 
-中新网北京4月21日电 (记者 高凯)21日，由陈祉希任总监制，潘粤明任艺术总监，王之执导的悬案追凶剧《黑夜告白》官宣定档4月26日。
+“五一”假期将至，婚嫁喜事迎来高峰。
 
-《黑夜告白》从一起“离奇失踪事件”拉开序幕，1997年，一对父女在元龙里小区神秘消失，将资深警察何远航(潘粤明 饰)与新晋警员冉方旭(王鹤棣 饰)卷入其中，两人从针锋相对到渐生默契，误以为查明失踪真相，却在后来的18年间陆续发现新的线索、遇到相关案件再次发生。
+自古婚嫁讲究“三书六礼”(“三书”即：聘书、礼书和迎书，“六礼”为：纳采、问名、纳吉、纳征、请期、亲迎)，这套流程在宋代趋于完备，既注重礼制又融入民间习俗，每一步都郑重其事。
 
-随着调查的深入，曾经查明的结论被完全推翻，三代刑警在漫长追索中拼尽全力，以坚韧和信念驱散层层阴影，一步步逼近真相的核心。
+弱冠 笄礼“使上头” 结婚前的必要条件 在宋朝的清明节，女孩子年满十五岁，大都会在这一天束发插簪，以示成年，称之为“上头”。
 
-《黑夜告白》中，潘粤明与王鹤棣搭档出演师徒颇为引人关注，二人从针锋相对、互不相让到彼此信任，形成具张力的人物关系。
+因此十四岁时就要开始蓄发，为束发插笄做准备。
 
-同时，集结了任敏、姜珮瑶、赵虎、江奇霖等演员，意在群像铺展。
+花蕊夫人《宫词》有“年初十五最风流，新赐云鬟使上头”之句。
 
-据了解，该剧以悬疑为引，融入轻喜、都市猎奇等多重元素。
+笄，就是古代盘头发或别住帽子用的簪子，笄礼之前头发就不能披头散发了，一定要盘起头。
 
-围绕元龙里大楼展开的“都市怪谈”，离奇失踪的复杂案件，呈现出值得探寻的诡秘意味，与此同时，充满烟火气的师徒探案日常，营造出紧张与松弛交替的叙事节奏。
+“上头”还指男子束发加冠，冠礼最早可追溯到周代，男子在结发加冠之后才可以娶妻。
 
-该剧定档当天首发的“要来楼”版预告，在一首让人毛骨悚然的童谣中展开，离奇失踪的父女让元龙里十八楼的怪谈更显神秘，而在谜题丛生的案件推进中亦插入轻巧逗趣梗点，强化了剧集惊险与轻喜交织的独特气质。
+宋朝建立初期，由于国家尚处于草创阶段未能施行，这一传统便一直拖延到政和年间才重新恢复并完善仪制。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [巴西糖厂面临全球冲突带来的利润挤压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:32 - [IPO前因《蓝皮书》疑遭行业协会批评，背后护家科技一年花10亿做推广](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:21 - [欧洲和美国3月份公司违约率上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:20 - [碎片化刷短视频 正在悄悄伤害你的大脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:25 - [此行间·读书正当时！听总书记分享读书心得](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:43 - [凯莱英获Norges Bank增持8.53万股 每股作价约98.94港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:27 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:35 - [一周展望：美股迎地缘与财报检验，沃什出席美联储主席提名听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:46 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:35 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:33 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:35 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:28 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:25 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:51 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 12:28 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 12:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 12:23 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 12:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 12:32 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 12:37 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 12:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 12:36 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 12:41 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 12:24 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](http://www.blog.kurohicncr.top/Article/details/8039134447.shtml)
-- 2026-06-29 12:35 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](http://www.share.kurohicncr.top/Article/details/796367.shtml)
-- 2026-06-29 12:39 - [美伊停火最后24小时口水战升级，和平仍存一线希望](http://www.blog.kurohicncr.top/Article/details/424374.shtml)
-- 2026-06-29 12:38 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.blog.minike.top/Article/details/90054.shtml)
-- 2026-06-29 12:32 - [牧原股份一季度净亏损12.15亿元，同比转亏](http://www.share.kurohicncr.top/Article/details/87537.shtml)
-- 2026-06-29 12:19 - [每一帧都很治愈，你读书的样子真好看！](http://www.share.kurohicncr.top/Article/details/7480909.shtml)
-- 2026-06-29 12:30 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](http://www.share.kurohicncr.top/Article/details/04586192.shtml)
-- 2026-06-29 12:22 - [GTC泽汇:北欧黄金并购加速布局](http://www.share.kurohicncr.top/Article/details/84740994156.shtml)
-- 2026-06-29 12:44 - [智能时代，我们还需要深度阅读吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.blog.kurohicncr.top/Article/details/3773485298.shtml)
-- 2026-06-29 12:20 - [湖南永顺：山间云雾 人间烟火](http://www.blog.kurohicncr.top/Article/details/05210691957.shtml)
-- 2026-06-29 12:40 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.share.kurohicncr.top/Article/details/8514978455.shtml)
-- 2026-06-29 12:34 - [邵艺辉：建议年轻人多阅读多写作](http://www.blog.minike.top/Article/details/272593.shtml)
-- 2026-06-29 12:35 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.share.kurohicncr.top/Article/details/5311880398.shtml)
-- 2026-06-29 12:23 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.share.kurohicncr.top/Article/details/2156613.shtml)
+- 2026-06-29 12:23 - [起风了](https://www.blog.minike.top/Article/details/59504290.shtml)
+- 2026-06-29 12:28 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/55720636.shtml)
+- 2026-06-29 12:36 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/465497450.shtml)
+- 2026-06-29 12:45 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/4463048365.shtml)
+- 2026-06-29 12:30 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/02394976227.shtml)
+- 2026-06-29 12:24 - [天津打雷](http://www.share.kurohicncr.top/Article/details/707036353865.shtml)
+- 2026-06-29 12:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/973089046.shtml)
+- 2026-06-29 12:24 - [神23乘组太空出差满月](http://www.share.kurohicncr.top/Article/details/7995962771.shtml)
+- 2026-06-29 12:26 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/1568657380.shtml)
+- 2026-06-29 12:51 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/483828699812.shtml)
+- 2026-06-29 12:22 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/97693076.shtml)
+- 2026-06-29 12:32 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/7827263623.shtml)
+- 2026-06-29 12:34 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/3616811.shtml)
+- 2026-06-29 12:44 - [刘宇宁现偶我就不要了](https://www.blog.minike.top/Article/details/034494834487.shtml)
+- 2026-06-29 12:27 - [哈尔滨“全城追菠萝蜜”](http://www.blog.kurohicncr.top/Article/details/172003.shtml)

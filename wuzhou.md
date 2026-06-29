@@ -1,45 +1,58 @@
-# 全民阅读活动周 各地举办多场活动
+# 壹视界·知行记｜逐梦苍穹不止步
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 16:43 来源：央视新闻客户端 责任编辑：【杨彦宇】
+今年4月24日，我们将迎来第十一个“中国航天日”，恰逢中国航天事业创建70周年。 56年前，中国自主研制的第一颗人造地球卫星“东方红一号”成功发射，中国成为世界上第五个自行研制和发射人造卫星的国家，也由此迈出了探索浩瀚太空的第一步。 “探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。”新时代以来，习近平总书记高度重视航天强国建设，引领我国航天事业不断创造新的历
 
 ## 正文
 
-发布时间：2026年04月21日 16:43 来源：央视新闻客户端 责任编辑：【杨彦宇】
+今年4月24日，我们将迎来第十一个“中国航天日”，恰逢中国航天事业创建70周年。
+
+56年前，中国自主研制的第一颗人造地球卫星“东方红一号”成功发射，中国成为世界上第五个自行研制和发射人造卫星的国家，也由此迈出了探索浩瀚太空的第一步。
+
+“探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。
+
+”新时代以来，习近平总书记高度重视航天强国建设，引领我国航天事业不断创造新的历史。
+
+“北斗”组网、“嫦娥”揽月、“天宫”遨游、“祝融”探火、“羲和”逐日……中国航天在浩瀚苍穹中不断书写飞天传奇，更淬炼出一脉相承、生生不息的航天精神。
+
+星辰大海，探索不止。
+
+“十五五”新程上，中国人探索太空的脚步必将更加自信从容。
 
 ## 相关推荐
 
-- 2026-06-29 12:18 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:30 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:28 - [人民币兑美元中间价报6.8635，下调41点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:18 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:47 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:28 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:32 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:47 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:23 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:24 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:41 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:40 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:34 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:42 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 12:29 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 12:27 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 12:44 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 12:35 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 12:34 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 12:47 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 12:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 12:48 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 12:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:41 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 12:37 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 12:24 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 12:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](http://www.blog.minike.top/Article/details/671501736965.shtml)
-- 2026-06-29 12:34 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](http://www.share.kurohicncr.top/Article/details/969830827295.shtml)
-- 2026-06-29 12:32 - [纷美包装发布2025年度业绩 股东应占溢利5274.8万元同比下降80.5%](http://www.blog.minike.top/Article/details/280114721.shtml)
-- 2026-06-29 12:31 - [4月21日“农产品批发价格200指数”比昨天上升0.10个点](http://www.share.kurohicncr.top/Article/details/95884904500.shtml)
-- 2026-06-29 12:40 - [50余位海内外台胞台商齐聚海南 共探自贸港新机遇](http://www.share.minike.top/Article/details/4919619947.shtml)
-- 2026-06-29 12:29 - [一季度消费市场平稳增长 升级态势持续显现](http://www.share.minike.top/Article/details/6939545187.shtml)
-- 2026-06-29 12:46 - [日本气象厅解除对所有地区的海啸预警](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [中方回应高市早苗向靖国神社献祭品：已提出严正交涉，强烈抗议！](http://www.blog.kurohicncr.top/Article/details/824149926066.shtml)
-- 2026-06-29 12:20 - [华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨](http://www.share.kurohicncr.top/Article/details/2661789765.shtml)
-- 2026-06-29 12:23 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/92808.shtml)
-- 2026-06-29 12:45 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.blog.minike.top/Article/details/90115.shtml)
-- 2026-06-29 12:23 - [南华期货：第一季度净利润同比增长138.82%](http://www.blog.minike.top/Article/details/3789025509.shtml)
-- 2026-06-29 12:24 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](http://www.blog.kurohicncr.top/Article/details/6804441661.shtml)
-- 2026-06-29 12:42 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:30 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/74821.shtml)
+- 2026-06-29 12:41 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/15698.shtml)
+- 2026-06-29 12:24 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/74545104855.shtml)
+- 2026-06-29 12:28 - [T1对战KC](http://www.share.minike.top/Article/details/23435715.shtml)
+- 2026-06-29 12:32 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/973172.shtml)
+- 2026-06-29 12:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2717313434.shtml)
+- 2026-06-29 12:44 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/58338569606.shtml)
+- 2026-06-29 12:27 - [伊朗球员致歉](http://www.share.minike.top/Article/details/82738974.shtml)
+- 2026-06-29 12:35 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/865755368625.shtml)
+- 2026-06-29 12:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/025208.shtml)
+- 2026-06-29 12:48 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/31909608.shtml)
+- 2026-06-29 12:47 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/2071360319.shtml)
+- 2026-06-29 12:43 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/301905.shtml)
+- 2026-06-29 12:44 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/47027.shtml)
+- 2026-06-29 12:30 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/091925.shtml)
+- 2026-06-29 12:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/4355680559.shtml)

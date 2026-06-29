@@ -1,56 +1,59 @@
-# 广州中医药大学与阿联酋、泰国高校开展护理交换生项目
+# 300965，筹划重大资产重组！明起停牌
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-中新社广州4月21日电 (记者 许青青)“南粤杏林·丝路同行”广州中医药大学与阿联酋、泰国高校2026年护理交换生项目21日在该校启动，来自阿联酋哈伊马角医药与健康科技大学、泰国孔敬大学的12名同学将在广州开展3周至1个月的交换学习生活。据介绍，此次交换生项目以中医护理为核心，开设中医基础理论、中医饮食调护、经络腧穴等理论课程，提供耳穴贴压、艾灸、刮痧、针灸、八段锦等中医特色实
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！恒宇信通（300965）最新公告。 4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相
 
 ## 正文
 
-中新社广州4月21日电 (记者 许青青)“南粤杏林·丝路同行”广州中医药大学与阿联酋、泰国高校2026年护理交换生项目21日在该校启动，来自阿联酋哈伊马角医药与健康科技大学、泰国孔敬大学的12名同学将在广州开展3周至1个月的交换学习生活。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据介绍，此次交换生项目以中医护理为核心，开设中医基础理论、中医饮食调护、经络腧穴等理论课程，提供耳穴贴压、艾灸、刮痧、针灸、八段锦等中医特色实操体验。
+恒宇信通（300965）最新公告。
 
-除了理论和实操体验，项目还将安排交换生赴粤港澳大湾区多家三甲中医院开展临床见习，并融合中医药文化研学、非遗手作体验与志愿服务。
+4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。
 
-广州中医药大学副校长郭鸿介绍，广州中医药大学长期致力于推动中医药走向世界，国际合作网络成熟，目前已为全球110多个国家和地区培养两万余名中医药高端人才。
+因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相关规定，经公司申请，公司证券（证券品种：A股股票，证券简称：恒宇信通，证券代码：300965）自2026年4月27日（星期一）开市起开始停牌，预计停牌时间不超过10个交易日。
 
-学校将以此交换生项目为纽带，深化人才联合培养、课程资源共享、师资双向交流，推动中医护理服务共建“一带一路”国家民众健康福祉。
+根据公告，神导科技成立于2004年，注册资本3806.25万元，公司经营范围包括技术服务、技术开发、技术咨询、技术交流、技术转让、技术推广；软件开发；计算机系统服务；数据处理服务；计算机及办公设备维修；电子产品销售；机械设备销售；通讯设备销售；计算机软硬件及辅助设备零售；货物进出口；技术进出口；进出口代理；导航终端制造；导航、测绘、气象及海洋专用仪器制造等。
 
-(完)
+公开资料显示，恒宇信通致力于信息可视化产业的感知、融合与显示方向，构建了图形图像处理及显示、综合视景及可视化导航、任务规划及模拟训练、高可靠性专用电子模块四大产品体系，广泛用于机载、舰载、车载等专业领域。
+
+2025年，恒宇信通实现营业收入2.01亿元，同比增长11.38%；实现归母净利润3606.65万元，同比增长34.87%；实现扣非后净利润2085.79万元，同比增长40.54%。
+
+综合自：公司公告 责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:43 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:34 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:43 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:22 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:44 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:26 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:33 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:25 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:25 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:20 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:40 - [合并助力建筑公司CannonDesign实现全球布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:39 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:18 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:48 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 12:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 12:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 12:50 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 12:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 12:49 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 12:28 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 12:21 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 12:31 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:40 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 12:38 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 12:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/59330708.shtml)
-- 2026-06-29 12:45 - [贵州梵净山：夕阳映照落日如画](http://www.blog.minike.top/Article/details/736410132706.shtml)
-- 2026-06-29 12:34 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/189940135759.shtml)
-- 2026-06-29 12:37 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.share.kurohicncr.top/Article/details/2225500.shtml)
-- 2026-06-29 12:37 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.share.minike.top/Article/details/37345765.shtml)
-- 2026-06-29 12:31 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.share.minike.top/Article/details/284243366.shtml)
-- 2026-06-29 12:21 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/204296023.shtml)
-- 2026-06-29 12:26 - [一场展览，看香港工程的过去与未来](http://www.share.minike.top/Article/details/6052263.shtml)
-- 2026-06-29 12:28 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/54629533083.shtml)
-- 2026-06-29 12:44 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](http://www.blog.kurohicncr.top/Article/details/93836.shtml)
-- 2026-06-29 12:25 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](http://www.share.kurohicncr.top/Article/details/754701314032.shtml)
+- 2026-06-29 12:31 - [日本媒体：板仓滉已回归日本队合练](http://www.blog.minike.top/Article/details/7771358.shtml)
+- 2026-06-29 12:39 - [F1奥地利大奖赛正赛集锦](http://www.share.kurohicncr.top/Article/details/136309694721.shtml)
+- 2026-06-29 12:29 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/00932.shtml)
+- 2026-06-29 12:37 - [刘仲华院士愿当贺永辉导师](https://www.blog.minike.top/Article/details/5677636.shtml)
+- 2026-06-29 12:28 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/214464778505.shtml)
+- 2026-06-29 12:21 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/531685733086.shtml)
+- 2026-06-29 12:27 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/633795572396.shtml)
+- 2026-06-29 12:37 - [6月我国降水为何偏多](https://www.blog.kurohicncr.top/Article/details/27508329.shtml)
+- 2026-06-29 12:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6238982645.shtml)
+- 2026-06-29 12:23 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/58342893.shtml)
+- 2026-06-29 12:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/7152324316.shtml)
+- 2026-06-29 12:49 - [某高校学生被辅导员等人扭送至公安](http://www.share.kurohicncr.top/Article/details/751565.shtml)
+- 2026-06-29 12:26 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/082166156.shtml)
+- 2026-06-29 12:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/04088357.shtml)
+- 2026-06-29 12:30 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/586154722.shtml)

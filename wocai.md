@@ -1,48 +1,56 @@
-# 人民币兑美元中间价报6.8635，下调41点
+# 第二期“石榴红幸福照相馆”公益项目启动
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-4月22日，人民币兑美元中间价报6.8635，下调41点。 美联储主席提名人称从未向特朗普许诺降息 美联储主席提名人凯文·沃什周二表示，他没有向美国总统特朗普做出任何关于降息的承诺，并试图向正在考虑是否确认他领导美联储的美国参议员们保证，他将在推行广泛改革的同时，独立于白宫行事。责任编辑：郭建
+中新网北京4月27日电 第二期“石榴红幸福照相馆”公益项目近日在中央民族大学启动。 该项目联动北京市海淀区紫竹院街道民族团结宣传月活动，推出“紫竹同心 幸福有我”主题活动，为居民提供免费全家福拍摄和民族团结宣教服务，丰富各族群众精神文化生活。 启动仪式上，参会嘉宾观看了项目汇报片，了解“石榴红幸福照相馆”公益项目发展历程与工作成效，项目负责人就第二期项目安排作了详细介绍。主办单
 
 ## 正文
 
-4月22日，人民币兑美元中间价报6.8635，下调41点。
+中新网北京4月27日电 第二期“石榴红幸福照相馆”公益项目近日在中央民族大学启动。
 
-美联储主席提名人称从未向特朗普许诺降息 美联储主席提名人凯文·沃什周二表示，他没有向美国总统特朗普做出任何关于降息的承诺，并试图向正在考虑是否确认他领导美联储的美国参议员们保证，他将在推行广泛改革的同时，独立于白宫行事。
+该项目联动北京市海淀区紫竹院街道民族团结宣传月活动，推出“紫竹同心 幸福有我”主题活动，为居民提供免费全家福拍摄和民族团结宣教服务，丰富各族群众精神文化生活。
 
-责任编辑：郭建
+启动仪式上，参会嘉宾观看了项目汇报片，了解“石榴红幸福照相馆”公益项目发展历程与工作成效，项目负责人就第二期项目安排作了详细介绍。
+
+主办单位负责人在致辞中表示，将持续发挥资源优势，凝聚各方力量，努力把项目打造成为传递温暖、促进各民族交往交流交融的优质公益品牌。
+
+项目主办方表示，下一步，公益团队将按期推动第二期项目落地实施，并建立健全长效服务机制，通过开展巡回拍摄、丰富影像服务内涵、拓展民族团结宣传教育形式等方式，不断扩大服务覆盖面。
+
+同时，将进一步强化校地合作与资源整合，凝聚更多爱心企业与志愿者力量，推动优质公益服务深入社区、走进群众。
+
+据悉，“石榴红幸福照相馆”是“石榴结籽润百村”系列公益活动的子项目，由中央民族大学教育基金会、中节能生态产品发展研究中心有限公司、北京市民族团结进步促进中心、北京市海淀区紫竹院街道办事处、北京怀柔石榴村社发展促进中心等单位联合主办。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:19 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:38 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:35 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:18 - [广西仫佬山乡：多彩民俗展风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:44 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:33 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:42 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:46 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:47 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:27 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:20 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:25 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:24 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 12:35 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:43 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 12:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 12:25 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 12:39 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 12:50 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 12:39 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 12:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [供奉祭品后，高市早苗又向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/5550670423.shtml)
-- 2026-06-29 12:18 - [库克亮相苹果员工大会 试图平息外界对卸任CEO原因的猜测](http://www.share.minike.top/Article/details/095329922866.shtml)
-- 2026-06-29 12:21 - [南华期货：第一季度净利润同比增长138.82%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [紫金黄金国际第一季度实现归母净利润约8.07亿美元 同比增长约385.48%](http://www.blog.kurohicncr.top/Article/details/43252.shtml)
-- 2026-06-29 12:34 - [太和水（605081）再被立案，股民索赔可期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.share.minike.top/Article/details/6100186.shtml)
-- 2026-06-29 12:28 - [特朗普称预计停火到期后将继续轰炸伊朗](http://www.share.kurohicncr.top/Article/details/812203.shtml)
-- 2026-06-29 12:31 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.blog.kurohicncr.top/Article/details/03188674993.shtml)
-- 2026-06-29 12:45 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](http://www.blog.kurohicncr.top/Article/details/51322703681.shtml)
-- 2026-06-29 12:38 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.minike.top/Article/details/2156392092.shtml)
-- 2026-06-29 12:26 - [吉林法院2025年审结各类知识产权案4342件](http://www.blog.kurohicncr.top/Article/details/2791997019.shtml)
-- 2026-06-29 12:32 - [甘肃一季度对东盟进出口货值同比增长逾四成](http://www.blog.minike.top/Article/details/567023.shtml)
-- 2026-06-29 12:20 - [第三届国际核技术应用产业发展大会开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [中信建投期货：4月22日工业品早报](http://www.blog.minike.top/Article/details/293027772.shtml)
-- 2026-06-29 12:37 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.blog.kurohicncr.top/Article/details/8788403.shtml)
+- 2026-06-29 12:51 - [白鹿呵呵挽手比心](http://www.share.minike.top/Article/details/1052198797.shtml)
+- 2026-06-29 12:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/8968464.shtml)
+- 2026-06-29 12:48 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/129249.shtml)
+- 2026-06-29 12:42 - [沙丘](https://www.blog.minike.top/Article/details/47195864.shtml)
+- 2026-06-29 12:24 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/67449331153.shtml)
+- 2026-06-29 12:34 - [香港航天员黎家盈带招牌笑容工作](https://www.blog.minike.top/Article/details/292846.shtml)
+- 2026-06-29 12:36 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/966555820.shtml)
+- 2026-06-29 12:33 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/354855259703.shtml)
+- 2026-06-29 12:38 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/603490.shtml)
+- 2026-06-29 12:46 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/350743.shtml)
+- 2026-06-29 12:25 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/1949963.shtml)
+- 2026-06-29 12:48 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/97750952181.shtml)
+- 2026-06-29 12:44 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/38306960624.shtml)
+- 2026-06-29 12:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/5538524083.shtml)
+- 2026-06-29 12:30 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/29067926226.shtml)

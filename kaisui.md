@@ -1,56 +1,57 @@
-# 消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输
+# 中俄界江黑龙江呼玛段“文开江” 比往年早5天
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-三位业内人士周二表示，俄罗斯将从5月1日起停止从哈萨克斯坦通过德鲁日巴输油管道向德国出口石油。 上述知情人士表示，调整后的石油出口时间表已发送给哈萨克斯坦和德国。 在柏林的支持下，俄罗斯与德国的政治和商业关系因乌克兰冲突而出现裂痕。 俄罗斯能源部没有立即回复置评请求。 德国于2022年托管了俄罗斯最大的石油生产商俄罗斯石油公司（Rosneft）在当地的分支机构，打破了柏林与俄罗
+中新网大兴安岭4月26日电(王婷 孙晓寒 张娜)近期气温持续回升，25日，中俄界江黑龙江呼玛段开江，比往年早5天。 为保障黑龙江呼玛段平稳开江，有效防范凌汛发生，大兴安岭呼玛县在4月1日至4月2日期间，对易发生冰塞重点江段开展4800米防凌汛爆破作业，为江面平稳开江奠定坚实基础。当前，呼玛段冰层逐步消融，江面流冰有序流动。 据呼玛县水文勘测队队长高志军介绍，“受气温影响，今年呼
 
 ## 正文
 
-三位业内人士周二表示，俄罗斯将从5月1日起停止从哈萨克斯坦通过德鲁日巴输油管道向德国出口石油。
+中新网大兴安岭4月26日电(王婷 孙晓寒 张娜)近期气温持续回升，25日，中俄界江黑龙江呼玛段开江，比往年早5天。
 
-上述知情人士表示，调整后的石油出口时间表已发送给哈萨克斯坦和德国。
+为保障黑龙江呼玛段平稳开江，有效防范凌汛发生，大兴安岭呼玛县在4月1日至4月2日期间，对易发生冰塞重点江段开展4800米防凌汛爆破作业，为江面平稳开江奠定坚实基础。
 
-在柏林的支持下，俄罗斯与德国的政治和商业关系因乌克兰冲突而出现裂痕。
+当前，呼玛段冰层逐步消融，江面流冰有序流动。
 
-俄罗斯能源部没有立即回复置评请求。
+据呼玛县水文勘测队队长高志军介绍，“受气温影响，今年呼玛段开江日期是4月25号，比往年提前5天，开江方式为‘文开江’，流冰期间，我们水务部门增设了4处观测哨，24小时监测冰情、水情，防止凌汛发生。
 
-德国于2022年托管了俄罗斯最大的石油生产商俄罗斯石油公司（Rosneft）在当地的分支机构，打破了柏林与俄罗斯长达数十年的能源关系。
+” 呼玛县界江跑冰排景观气势壮观，素有南有钱塘观潮，北有呼玛开江的说法，每年都会吸引大量游人前来观赏开江美景。
 
-2025年，哈萨克斯坦通过俄罗斯德鲁日巴输油管道向德国出口的石油总量为214.6万吨，约合每天4.3万桶，比2024年增加了44%。
+呼玛县边境管理大队副大队长高晓磊表示，“我们采取车巡、步巡、无人机巡查相结合模式，紧盯各江段沿江观景平台、江畔公园等关键点位，布设警示标识，劝离涉险靠近江岸人员，排查沿线安全隐患，不间断开展安全提醒，筑牢边境沿江安全防线。
 
-哈萨克斯坦通过穿越波兰的德鲁日巴北线向德国供应石油。
-
-由于乌克兰无人机袭击了俄罗斯境内的输油管道，供应曾多次中断。
+”(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:46 - [人形机器人租赁市场多个交易环节缺乏标准 新行业需要适配新规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:23 - [Web3嘉年华·新浪财经分论坛：香港以法治化推动数字金融发展 行业已进入常态化实际运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:19 - [美联航财报前瞻：原油暴涨、高端客群发力、并购传闻均成焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:29 - [库克宣布将卸任苹果CEO，特朗普、巴菲特、奥特曼等人这样说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:44 - [北京查处多起违规拼豆玩具案 严打无证产品筑牢儿童安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:45 - [亚马逊将推出GLP-1减肥药项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:22 - [美财长：将继续对伊朗“极限施压”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:35 - [国务院：到2030年 服务业总规模迈上100万亿元台阶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:43 - [光大期货：4月22日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 12:50 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 12:33 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 12:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 12:29 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 12:43 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 12:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 12:50 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 12:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 12:44 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 12:35 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 12:38 - [刘宇宁现偶我就不要了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [金针菇概念股，净利润大增超7000%](http://www.share.minike.top/Article/details/7710395642.shtml)
-- 2026-06-29 12:45 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.blog.kurohicncr.top/Article/details/71862264193.shtml)
-- 2026-06-29 12:30 - [多型舰艇齐聚上海并对民众开放](http://www.share.minike.top/Article/details/192456247517.shtml)
-- 2026-06-29 12:20 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [正确政绩观｜世昌里社区的“三问三答”](http://www.blog.minike.top/Article/details/54700.shtml)
-- 2026-06-29 12:47 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:24 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](http://www.blog.minike.top/Article/details/882731.shtml)
-- 2026-06-29 12:18 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](http://www.blog.minike.top/Article/details/29341.shtml)
-- 2026-06-29 12:35 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](http://www.blog.minike.top/Article/details/58290129068.shtml)
-- 2026-06-29 12:20 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](http://www.blog.minike.top/Article/details/8320743035.shtml)
-- 2026-06-29 12:41 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](http://www.share.minike.top/Article/details/011301.shtml)
+- 2026-06-29 12:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/471373.shtml)
+- 2026-06-29 12:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/830959226.shtml)
+- 2026-06-29 12:34 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/149849640.shtml)
+- 2026-06-29 12:37 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/88943644004.shtml)
+- 2026-06-29 12:38 - [三轮车被自家狗“推”进池塘](https://www.share.minike.top/Article/details/323931.shtml)
+- 2026-06-29 12:48 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/51878.shtml)
+- 2026-06-29 12:40 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/951741907601.shtml)
+- 2026-06-29 12:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/85099.shtml)
+- 2026-06-29 12:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/574086041.shtml)
+- 2026-06-29 12:29 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/208488748828.shtml)
+- 2026-06-29 12:27 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/514428628227.shtml)
+- 2026-06-29 12:43 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/754000.shtml)
+- 2026-06-29 12:30 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.share.kurohicncr.top/Article/details/890096164.shtml)
+- 2026-06-29 12:28 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/01621074.shtml)
+- 2026-06-29 12:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4838212.shtml)

@@ -1,43 +1,61 @@
-# 日本通过内阁决议正式允许出口杀伤性武器
+# 微博将于5月28日发布2026年第一季度财报
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
+专题：聚焦美股2026年第一季度财报 中国北京/2026年4月27日 — 专供人们创作、分享和发现内容的领先社交媒体平台微博公司 （Nasdaq GS： WB； HKEX： 9898） 定于美国东部时间2026年5月28日美国股市开盘前公布2026年第一季度未经审计的财务报告。随后，微博管理团队将于美国东部时间2026年5月28日早7点至早8点 （北京时间2026年5月28日晚
 
 ## 正文
 
-据日本方面消息，日本政府21日在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
+专题：聚焦美股2026年第一季度财报 中国北京/2026年4月27日 — 专供人们创作、分享和发现内容的领先社交媒体平台微博公司 （Nasdaq GS： WB； HKEX： 9898） 定于美国东部时间2026年5月28日美国股市开盘前公布2026年第一季度未经审计的财务报告。
+
+随后，微博管理团队将于美国东部时间2026年5月28日早7点至早8点 （北京时间2026年5月28日晚7点至晚8点） 召开电话会议，通报公司的财务和经营状况。
+
+参与者需通过以下提供的链接：https：//register-conf.media-server.com/register/BIb549b1f6935046d98b52a0fe61be918e进行注册。
+
+注册后，将通过电子邮件为参与者提供接入信息及说明指引。
+
+同时，本次电话会议的实况转播及实录可在公司网站（http://ir.weibo.com）进行收听。
+
+微博简介 微博是人们在线创作、分享和发现内容的领先社交媒体平台。
+
+微博将公开、实时的自我表达方式与平台强大的社交互动、内容整合与分发功能相结合。
+
+任何用户都可以创作并发布微博，并附加多媒体或长博文内容。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [乌力格尔：蒙古族说唱里的一部民族交融史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:43 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:20 - [日本放宽武器出口限制引发各界批评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:34 - [第十九届北京车展将开幕 中国车企如何突破超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:23 - [售价29999元，华为星钻手镯表5月15日开售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:43 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:41 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:43 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:39 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:44 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:32 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:34 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 12:40 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 12:33 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 12:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 12:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 12:51 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 12:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 12:25 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 12:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 12:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 12:35 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 12:31 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 12:27 - [天津打雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 12:21 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 12:45 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [太和水（605081）再被立案，股民索赔可期](http://www.share.kurohicncr.top/Article/details/326498413501.shtml)
-- 2026-06-29 12:26 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.minike.top/Article/details/32298.shtml)
-- 2026-06-29 12:47 - [特朗普称预计停火到期后将继续轰炸伊朗](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:31 - [中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁](http://www.share.kurohicncr.top/Article/details/2730487.shtml)
-- 2026-06-29 12:28 - [先锋集团逆势加仓美债：4.25%以上收益率即是“黄金坑”，押注美联储今年降息](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [研究显示，伊朗战争引发的燃油价格上涨使长途航班成本增加100美元](http://www.share.kurohicncr.top/Article/details/96388.shtml)
-- 2026-06-29 12:40 - [吉林法院2025年审结各类知识产权案4342件](http://www.share.minike.top/Article/details/3711330.shtml)
-- 2026-06-29 12:20 - [甘肃一季度对东盟进出口货值同比增长逾四成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:28 - [第三届国际核技术应用产业发展大会开幕](http://www.share.minike.top/Article/details/847997129427.shtml)
-- 2026-06-29 12:31 - [中信建投期货：4月22日工业品早报](http://www.share.minike.top/Article/details/401225862.shtml)
-- 2026-06-29 12:46 - [综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限](http://www.share.kurohicncr.top/Article/details/454854.shtml)
-- 2026-06-29 12:48 - [景顺长城赵思轩：权益板块轮动或加速，借助FOF实现多元资产配置](http://www.blog.kurohicncr.top/Article/details/945436906942.shtml)
-- 2026-06-29 12:38 - [中国驻新加坡使馆提醒五一假期来新游客注意旅行安全](http://www.blog.minike.top/Article/details/565826496.shtml)
-- 2026-06-29 12:40 - [马克龙访问波兰 聚焦法波防务及核能合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:27 - [【理响中国】文化建设要着眼于人、落脚于人](http://www.blog.minike.top/Article/details/849339.shtml)
+- 2026-06-29 12:31 - [大罗力挺内马尔](http://www.blog.minike.top/Article/details/634333338196.shtml)
+- 2026-06-29 12:37 - [时光音乐会](http://www.share.minike.top/Article/details/00665.shtml)
+- 2026-06-29 12:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/836752543915.shtml)
+- 2026-06-29 12:33 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/989519602000.shtml)
+- 2026-06-29 12:36 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/541747426.shtml)
+- 2026-06-29 12:32 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/90977118.shtml)
+- 2026-06-29 12:46 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/2894356934.shtml)
+- 2026-06-29 12:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/9244616.shtml)
+- 2026-06-29 12:38 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/58505046229.shtml)
+- 2026-06-29 12:38 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/92000633121.shtml)
+- 2026-06-29 12:25 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/94397541266.shtml)
+- 2026-06-29 12:48 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/09978221.shtml)
+- 2026-06-29 12:50 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/15274.shtml)
+- 2026-06-29 12:42 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/81690307.shtml)
+- 2026-06-29 12:38 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/3127200462.shtml)

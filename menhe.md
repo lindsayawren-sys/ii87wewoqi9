@@ -1,53 +1,56 @@
-# 金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia
+# 千亿民营炼化巨头子公司突遭美国制裁，公司澄清：无端指控、坚决反对
 
-> 更新时间：2026-06-29 12:48:05 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-金斯瑞生物科技（01548）盘中涨超8%，截至发稿，股价上涨5.24%，现报14.46港元，成交额1.70亿港元。 礼来正式宣布以32.5亿美元首付款、最高70亿美元的总对价，收购波士顿生物技术公司Kelonia。据悉，Kelonia的核心技术为iGPS，是一种基于改造过的慢病毒载体的in vivo（体内）CAR-T平台。国泰海通证券指出，in vivo CAR-T兼具制造简化
+据新华社，就美方日前以“与伊朗有联系”为由宣布制裁一家中国民营炼油企业，外交部发言人林剑4月27日在例行记者会上答问时表示，中方一贯反对缺乏国际法依据的非法单边制裁，敦促美方停止滥施制裁和“长臂管辖”的错误做法。中方将坚决维护本国企业的合法权益。 27日，国内民营炼化龙头恒力石化（600346.SH）开盘跌停，报21.10元，最新市值约1485亿元。当地时间4月24日，美国财政
 
 ## 正文
 
-金斯瑞生物科技（01548）盘中涨超8%，截至发稿，股价上涨5.24%，现报14.46港元，成交额1.70亿港元。
+据新华社，就美方日前以“与伊朗有联系”为由宣布制裁一家中国民营炼油企业，外交部发言人林剑4月27日在例行记者会上答问时表示，中方一贯反对缺乏国际法依据的非法单边制裁，敦促美方停止滥施制裁和“长臂管辖”的错误做法。
 
-礼来正式宣布以32.5亿美元首付款、最高70亿美元的总对价，收购波士顿生物技术公司Kelonia。
+中方将坚决维护本国企业的合法权益。
 
-据悉，Kelonia的核心技术为iGPS，是一种基于改造过的慢病毒载体的in vivo（体内）CAR-T平台。
+27日，国内民营炼化龙头恒力石化（600346.SH）开盘跌停，报21.10元，最新市值约1485亿元。
 
-国泰海通证券指出，in vivo CAR-T兼具制造简化、可及性提升与平台延展性强等优势，持续看好其成为下一代细胞治疗重要方向。
+当地时间4月24日，美国财政部海外资产控制办公室（OFAC）发布最新SDN制裁名单，将恒力石化旗下全资子公司恒力石化（大连）炼化有限公司纳入制裁范围。
 
-公开资料显示，传奇生物旗下in vivo CAR-T项目LVIVO-TaVec100（CD19/CD20双靶点体内CAR-T生成制剂）已于2025年5月启动I期IIT临床试验，靶点设计上的双特异性策略更具差异化优势，可降低肿瘤细胞因单抗原丢失导致的免疫逃逸风险。
+恒力石化4月26日晚公告，OFAC援引2020年1月10日第13902号行政命令（针对伊朗其他领域的制裁措施）通行许可证V授权终止涉及恒力石化（大连）炼化有限公司（下称恒力炼化）的交易，核心要点包括所有根据第 13902号行政命令禁止的交易——这些交易通常与涉及恒力炼化或其直接或间接持有50%及以上股权的任何实体的业务清算相关且属必要交易——均须于2026年5月24日东部夏令时凌晨12：01前完成授权；向被冻结账户付款必须转入位于美国的、具有利息收益的被冻结账户；除此类清算交易外，其他任何根据第13902号行政令被禁止的交易均不获授权。
 
-责任编辑：卢昱君
+面对美方制裁，恒力石化在公告中予以否认和澄清。
+
+恒力石化在公告中声明：“公司自成立以来，始终坚持合法合规经营，严格遵循公司经营业务所在地区各项法律、法规及相关监管规则，公司从未与伊朗发生任何贸易往来，原油供应商均承诺并保证所供原油原产地不属于美国制裁范围。
+
+”该公司同时披露，目前生产经营一切正常，各生产装置保持高负荷稳定运行，原油加工、化工品生产与销售均有序进行。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [第六届亚洲沙滩运动会迎来首个比赛日](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:18 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:36 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:21 - [一场展览，看香港工程的过去与未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:46 - [伊朗拒绝出席谈判 美国宣布延长停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:21 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:38 - [第十三批在韩志愿军烈士遗骸今天回国 烈士遗骸交接仪式在仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:33 - [克里夫兰-克利夫斯CEO：与浦项制铁的交易“不再急于求成”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:21 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:28 - [韩国与印度签署20项谅解备忘录，深化钢铁造船和能源等领域合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:33 - [一季度净利暴降98%！国盛证券开盘后跌停，4.6万手封单背后，竟是趣店惹的祸？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:24 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 12:30 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 12:41 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 12:44 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 12:39 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 12:45 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 12:49 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 12:49 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 12:26 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 12:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:19 - [第六届亚洲沙滩运动会男子沙滩手球开赛 泰国队2比0战胜约旦队](http://www.share.minike.top/Article/details/9161320.shtml)
-- 2026-06-29 12:40 - [酒价内参4月21日价格发布：五粮液1618小幅回落1元](http://www.share.kurohicncr.top/Article/details/97004017.shtml)
-- 2026-06-29 12:36 - [机械车位闲置，如何盘活改造？](http://www.blog.minike.top/Article/details/92484.shtml)
-- 2026-06-29 12:22 - [波兰想卖黄金换军费？财长怒批：这方案根本不切实际！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:23 - [国家医保局：价格立项助推脑机接口等创新技术走向临床](http://www.blog.minike.top/Article/details/60477.shtml)
-- 2026-06-29 12:22 - [Revolut目标估值2000亿美元，IPO计划初具雏形](http://www.share.kurohicncr.top/Article/details/875747989189.shtml)
-- 2026-06-29 12:40 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](http://www.blog.kurohicncr.top/Article/details/248669493.shtml)
-- 2026-06-29 12:24 - [从生活成本到社会焦虑，伊朗战事持续冲击特朗普支持率](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [多部门协同发力 陕西持续优化老年人优待服务](http://www.blog.kurohicncr.top/Article/details/75296800994.shtml)
-- 2026-06-29 12:31 - [习近平同莫桑比克总统查波会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:34 - [下班后仅占用“几分钟”处理工作 算加班吗？](http://www.share.kurohicncr.top/Article/details/31185.shtml)
-- 2026-06-29 12:27 - [投资者对参议院美联储主席候选人沃什听证会的反应汇总](http://www.share.kurohicncr.top/Article/details/4697702912.shtml)
-- 2026-06-29 12:18 - [东西问丨吴强：亚沙会，为什么选择三亚？](http://www.blog.minike.top/Article/details/310322958.shtml)
-- 2026-06-29 12:42 - [莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作](http://www.share.minike.top/Article/details/16930.shtml)
-- 2026-06-29 12:29 - [停火截止日期逼近，特朗普再次威胁伊朗，美国筹备和平谈判](http://www.blog.kurohicncr.top/Article/details/250056.shtml)
+- 2026-06-29 12:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/481781925899.shtml)
+- 2026-06-29 12:51 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/39012785838.shtml)
+- 2026-06-29 12:26 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/75142.shtml)
+- 2026-06-29 12:39 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/585884.shtml)
+- 2026-06-29 12:23 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/90195003931.shtml)
+- 2026-06-29 12:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/2232372.shtml)
+- 2026-06-29 12:27 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/8884926189.shtml)
+- 2026-06-29 12:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/27520526.shtml)
+- 2026-06-29 12:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/462284284.shtml)
+- 2026-06-29 12:45 - [双高胎](https://www.blog.minike.top/Article/details/53463390.shtml)
+- 2026-06-29 12:41 - [金刚川](https://www.share.kurohicncr.top/Article/details/64796038.shtml)
+- 2026-06-29 12:40 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/051927.shtml)
+- 2026-06-29 12:27 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/9353184225.shtml)
+- 2026-06-29 12:26 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/28124382724.shtml)
+- 2026-06-29 12:40 - [王佳佳江疏影13年前后同框对比](https://www.share.kurohicncr.top/Article/details/910488.shtml)

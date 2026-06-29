@@ -1,60 +1,61 @@
-# 斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC
+# 家门口的“国家医疗队”
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-斯科特·布莱克最近提交了2026年第一季度的13F文件，揭示了他在此期间的投资动向。斯科特·布莱克是Delphi Management， Inc．的总裁兼创始人。他的第一个创业项目是1978年重组William O’Neil公司，随后于1979年开始为Sunkist Growers管理股票，这也是Delphi Management的首个客户账户。在美林证券，他最初在经纪实体的市
+从乌鲁木齐到北京，坐火车最快也需要30个小时。 过去，对于许多新疆乃至西北地区的疑难重症患儿家庭而言，“去北京求医”是翻越地理与经济双重山脉的艰难跋涉。 这一局面，正在被改写。 2019年10月，新疆被纳入第一批国家区域医疗中心建设试点省区。2020年12月，北京儿童医院新疆医院暨新疆国家儿童区域医疗中心正式揭牌。 国家区域医疗中心建设，是构建优质高效医疗卫生服务体系的重要举措
 
 ## 正文
 
-斯科特·布莱克最近提交了2026年第一季度的13F文件，揭示了他在此期间的投资动向。
+从乌鲁木齐到北京，坐火车最快也需要30个小时。
 
-斯科特·布莱克是Delphi Management， Inc．的总裁兼创始人。
+过去，对于许多新疆乃至西北地区的疑难重症患儿家庭而言，“去北京求医”是翻越地理与经济双重山脉的艰难跋涉。
 
-他的第一个创业项目是1978年重组William O’Neil公司，随后于1979年开始为Sunkist Growers管理股票，这也是Delphi Management的首个客户账户。
+这一局面，正在被改写。
 
-在美林证券，他最初在经纪实体的市场规划部门工作，后来成为负责控股公司多元化活动的企业发展主管。
+2019年10月，新疆被纳入第一批国家区域医疗中心建设试点省区。
 
-布莱克的教育背景包括约翰霍普金斯大学应用数学与经济学学士学位。
+2020年12月，北京儿童医院新疆医院暨新疆国家儿童区域医疗中心正式揭牌。
 
-在完成加利福尼亚州奥德堡的陆军现役义务后，他于1971年获得哈佛商学院的金融MBA学位。
+国家区域医疗中心建设，是构建优质高效医疗卫生服务体系的重要举措，也是推动优质医疗资源扩容和区域均衡布局的现实路径。
 
-根据Delphi网站的介绍：“我们奉行经过验证的价值投资策略，强调对基础公司基本面的分析。
+被同行誉为中国小儿泌尿外科的“一把刀”的孙宁，从首都来到乌鲁木齐，担任该院首任院长。
 
-我们只投资于符合我们内部制定的严格量化标准且管理良好的公司。
+一位名医就是一块移动的“金字招牌”。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:18 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:25 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:26 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:21 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:23 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:22 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:37 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:28 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:24 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:38 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:32 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:29 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:33 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:27 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 12:43 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 12:44 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 12:45 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:25 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 12:43 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 12:33 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 12:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 12:41 - [三只羊线下课已下架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 12:38 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 12:47 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 12:41 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 12:22 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 12:37 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.blog.kurohicncr.top/Article/details/89146491957.shtml)
-- 2026-06-29 12:19 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:29 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](http://www.blog.minike.top/Article/details/774676086489.shtml)
-- 2026-06-29 12:43 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [贵州梵净山：夕阳映照落日如画](http://www.share.minike.top/Article/details/820510.shtml)
-- 2026-06-29 12:33 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.kurohicncr.top/Article/details/49415155.shtml)
-- 2026-06-29 12:43 - [4月22日央行开展60亿元7天期逆回购操作](http://www.blog.minike.top/Article/details/10107993817.shtml)
-- 2026-06-29 12:21 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/5732881793.shtml)
-- 2026-06-29 12:34 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](http://www.share.minike.top/Article/details/35082.shtml)
-- 2026-06-29 12:35 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.kurohicncr.top/Article/details/0980853.shtml)
-- 2026-06-29 12:29 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.blog.kurohicncr.top/Article/details/8858745319.shtml)
-- 2026-06-29 12:19 - [日本“再军事化”动作持续引发日本民众大规模抗议](http://www.blog.kurohicncr.top/Article/details/181772.shtml)
-- 2026-06-29 12:31 - [中芯国际获南向资金连续3天净买入](http://www.blog.minike.top/Article/details/2601558098.shtml)
-- 2026-06-29 12:22 - [一场展览，看香港工程的过去与未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/92844061949.shtml)
+- 2026-06-29 12:35 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.kurohicncr.top/Article/details/307187.shtml)
+- 2026-06-29 12:26 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/161531469364.shtml)
+- 2026-06-29 12:41 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](http://www.blog.kurohicncr.top/Article/details/85079882710.shtml)
+- 2026-06-29 12:23 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/891438.shtml)
+- 2026-06-29 12:36 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/749263.shtml)
+- 2026-06-29 12:25 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/1955544.shtml)
+- 2026-06-29 12:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/523986522.shtml)
+- 2026-06-29 12:37 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/8398233149.shtml)
+- 2026-06-29 12:45 - [起风了](http://www.share.kurohicncr.top/Article/details/58287.shtml)
+- 2026-06-29 12:42 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/78729.shtml)
+- 2026-06-29 12:34 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/80978761.shtml)
+- 2026-06-29 12:22 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/410117.shtml)
+- 2026-06-29 12:31 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/9199003.shtml)
+- 2026-06-29 12:29 - [美加墨世界杯首支16强诞生](http://www.blog.kurohicncr.top/Article/details/390388447233.shtml)

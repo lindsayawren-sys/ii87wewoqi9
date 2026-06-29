@@ -1,58 +1,57 @@
-# 光大期货：4月22日金融日报
+# 第48届世界技能大赛部分参赛项目广州邀请赛开幕
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-金融类 股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数窄幅震荡，Wind全A下跌0.04%，成交额2.43万亿元。中证1000指数下跌0.08%，中证500指数下跌0.24%，沪深300指数上涨0.22%，上证50指数下跌0.05%。中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，固定资产投资由负转正，
+中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。 据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届
 
 ## 正文
 
-金融类 股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数窄幅震荡，Wind全A下跌0.04%，成交额2.43万亿元。
+中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。
 
-中证1000指数下跌0.08%，中证500指数下跌0.24%，沪深300指数上涨0.22%，上证50指数下跌0.05%。
+赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。
 
-中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，固定资产投资由负转正，进出口增速创近五年最高。
+据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。
 
-一季度经济数据表现良好，全球经济复苏的大背景下海外需求回暖，带动国内出口增长，同时国内新质生产力投资端发力，基建增速加快。
+此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届世赛预热蓄力。
 
-海外方面，美伊谈判陷入停滞后市场不确定性重新升高，但主流观点倾向认为美伊后续谈判会相向而行。
+据悉，第48届世赛将于今年9月在上海举办。
 
-短期来看，资产价格高波动仍是常态，不宜过分押注地缘冲突的影响完全消散。
+广州市工贸技师学院(以下简称：广工贸)是第48届世赛CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理、网站技术6个项目中国集训基地。
 
-能源价格中枢上涨到来的通胀压力被广泛关注，市场预期年内美联储可能不降息，日本、欧洲等地可能进入加息周期，资本市场流动性仍需关注。
+在当天的邀请赛开幕式中，广工贸与韩国全球技能转移研究所签订“共建世界技能大赛国际联合集训基地框架合作协议”。
 
-在宏观不确定性的背景下，科技行业的确定性越发明显。
+这是双方自2024年首次签约合作后再度携手，将共建世赛国际联合集训基地，在共议集训体系、共商集训计划、共搭技能平台、共评选手水平、共组专家教练队伍等方面开展深度合作。
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [美国财长贝森特：财政部将继续对伊朗施压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:33 - [特朗普称将“记住”不申请关税退款的公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:24 - [操盘必读：影响股市利好或利空消息_2026年4月22日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:39 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:22 - [摩根士丹利下调黄金前景预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:37 - [花6000元打玻尿酸出现动脉栓塞，医美消费前这一步能救命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:35 - [一季度公募规模增长TOP30：景顺长城增542亿居首，永赢、国泰增超300亿，华商、安信环比增长超20%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:45 - [瞄准、击发 直击官兵轻武器实弹射击训练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:33 - [“双20”五机编队列阵长空 以最高礼仪告慰先烈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:36 - [视频丨演唱会门票、车票都能用！小小票根联动激活假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:29 - [美伊停火最后24小时口水战升级，和平仍存一线希望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:29 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:38 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 12:21 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 12:39 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 12:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 12:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 12:37 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 12:35 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 12:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 12:40 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 12:33 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:21 - [福建武夷山：春茶开山 仪式感满满](http://www.blog.kurohicncr.top/Article/details/778948209.shtml)
-- 2026-06-29 12:25 - [中国体育代表团旗手：希望向亚洲各国展现中国运动员的精神风貌](http://www.blog.minike.top/Article/details/8888129673.shtml)
-- 2026-06-29 12:28 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.minike.top/Article/details/6914696.shtml)
-- 2026-06-29 12:42 - [一年涨停33次，大牛股*ST华嵘涨停当晚拉响退市警报](http://www.blog.minike.top/Article/details/281820.shtml)
-- 2026-06-29 12:26 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [加拿大金融企业EQB计划发行2亿加元有限追索权资本票据](http://www.blog.minike.top/Article/details/69555916.shtml)
-- 2026-06-29 12:31 - [香港应科院将于港深创科园成立联合研发实验室](http://www.blog.kurohicncr.top/Article/details/597939806795.shtml)
-- 2026-06-29 12:37 - [苍山洱海间的健康慢生活](http://www.share.minike.top/Article/details/25118.shtml)
-- 2026-06-29 12:41 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.minike.top/Article/details/0348304348.shtml)
-- 2026-06-29 12:31 - [冷暖骤变 陕西多地迎四月春雪](http://www.blog.kurohicncr.top/Article/details/21135401552.shtml)
-- 2026-06-29 12:21 - [东鹏补水啦迎来巨星代言，永辉超市大规模闭店已经结束，金龙鱼2025年财报出炉……](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [英特尔、三星、苹果等头部玩家密集布局，玻璃基板概念再度活跃](http://www.share.minike.top/Article/details/999595154.shtml)
-- 2026-06-29 12:26 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:20 - [联合国官员：同中国开展气候早期预警合作是国际发展合作的典范](http://www.blog.kurohicncr.top/Article/details/19086205.shtml)
-- 2026-06-29 12:29 - [厦门举办连横逝世九十周年纪念座谈会](http://www.share.kurohicncr.top/Article/details/678189822464.shtml)
+- 2026-06-29 12:23 - [医护人员观影《四渡》传承长征精神](http://www.share.kurohicncr.top/Article/details/045882.shtml)
+- 2026-06-29 12:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/89193593721.shtml)
+- 2026-06-29 12:32 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/2348119164.shtml)
+- 2026-06-29 12:26 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/122117577.shtml)
+- 2026-06-29 12:39 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/052865127.shtml)
+- 2026-06-29 12:51 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/13995588381.shtml)
+- 2026-06-29 12:27 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/84774245.shtml)
+- 2026-06-29 12:46 - [这位猫咪，请你自重！](https://www.share.kurohicncr.top/Article/details/057399611997.shtml)
+- 2026-06-29 12:43 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/740702.shtml)
+- 2026-06-29 12:21 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/83551213318.shtml)
+- 2026-06-29 12:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/907635044947.shtml)
+- 2026-06-29 12:44 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/235991109642.shtml)
+- 2026-06-29 12:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/838180.shtml)
+- 2026-06-29 12:22 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/7383926.shtml)
+- 2026-06-29 12:50 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/899347929096.shtml)

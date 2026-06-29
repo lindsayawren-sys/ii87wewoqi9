@@ -1,60 +1,57 @@
-# 霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”
+# 多家廉价航司向特朗普政府提案，申请25亿美元救助计划
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-橡树资本的霍华德・马克斯：现在的市场并非打折促销 霍华德・马克斯提醒那些寻找低价股的投资者可能会失望，他表示，尽管市场出现过几轮波动，但当前仍远未到资产被恐慌性抛售的低迷水平。 这位曾精准预见互联网泡沫、橡树资本管理公司联合创始人兼联合董事长表示，当前市场环境多空力量仍在持续 “拉锯”，而自 2022 年末以来乐观情绪基本占据主导。这一格局使得资产价格居高不下，低价机会寥寥无几
+精神航空仍在与官方磋商，业内高管认为当下是争取财政援助与税收减免的窗口期 内容速览 边疆航空、阿维洛航空等一众廉价航空公司，正寻求 25 亿美元政府救助资金，并以股权认股权证作为对价。 据知情人士透露，以边疆航空、阿维洛航空为代表的美国廉价航空联盟，正向美国政府申请25 亿美元救助补贴，用以换取可转换为企业股权的认股权证。 部分知情人士表示，25 亿美元的救助金额，由各家航司测
 
 ## 正文
 
-橡树资本的霍华德・马克斯：现在的市场并非打折促销 霍华德・马克斯提醒那些寻找低价股的投资者可能会失望，他表示，尽管市场出现过几轮波动，但当前仍远未到资产被恐慌性抛售的低迷水平。
+精神航空仍在与官方磋商，业内高管认为当下是争取财政援助与税收减免的窗口期 内容速览 边疆航空、阿维洛航空等一众廉价航空公司，正寻求 25 亿美元政府救助资金，并以股权认股权证作为对价。
 
-这位曾精准预见互联网泡沫、橡树资本管理公司联合创始人兼联合董事长表示，当前市场环境多空力量仍在持续 “拉锯”，而自 2022 年末以来乐观情绪基本占据主导。
+据知情人士透露，以边疆航空、阿维洛航空为代表的美国廉价航空联盟，正向美国政府申请25 亿美元救助补贴，用以换取可转换为企业股权的认股权证。
 
-这一格局使得资产价格居高不下，低价机会寥寥无几。
+部分知情人士表示，25 亿美元的救助金额，由各家航司测算得出：即今年航空煤油实际支出，较年初预算的新增差额；测算前提为，今年剩余时间航空煤油均价将持续高于每加仑 4 美元。
 
-“整体来看，现在的市场并没有打折，” 马克斯周一在 CNBC《财经早报》节目中表示，“便宜货非常少。
+相关人士称，针对本次救助方案的磋商将于未来数日持续推进。
 
-只有当人们陷入恐慌、急于离场、愿意忍痛低价割肉时，好机会才会出现。
+特朗普总统周四在白宫椭圆办公室表态，乐见美国航空行业保持充分竞争、航司数量多元化，这也让廉价航司阵营备受鼓舞。
 
-现在显然不是这种情况。
+白宫发言人暂未对此置评。
 
-” 他发表此番言论之际，市场风险偏好在地缘政治冲击下依然保持坚挺。
+与此同时，美国政府正单独审议为精神航空提供兜底救助，避免其破产清算。
 
-上周，在以色列与黎巴嫩宣布停火、伊朗随即表示霍尔木兹海峡 “全面开放” 后，美国股市大幅上涨。
+《华尔街曰报》此前报道，精神航空正单独谈判，拟申请最高 5 亿美元政府贷款，作为交换，美国政府将获得该航司认股权证，有望持有其大量股份。
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:20 - [赛分科技：聘任顾楹瑶为公司证券事务代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:28 - [陪审团裁定优步负有责任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:41 - [Tractor Supply第一财季盈利不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:34 - [联合国报告：中东局势或致亚太损失数千亿美元 中国显示出强韧缓冲力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:47 - [斯科特·布莱克的战略动作：清仓Janus Henderson Group PLC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:27 - [4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:19 - [俄Tuapse炼油厂遭无人机袭击后全面停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:29 - [江河与共丨从杞麓湖到古生村，民盟中央守护长江生态防线出实招](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:24 - [广州中医药大学与阿联酋、泰国高校开展护理交换生项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:45 - [截至3月底全国5G基站总数已达495.8万个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:33 - [FAA下令调查蓝色起源发射事故，AST SpaceMobile卫星报废](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:41 - [无证、劣质、高危 北京公布多起违规拼豆玩具案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:38 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:46 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 12:35 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 12:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:41 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:27 - [恋与深空女玩家不该被冒犯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 12:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 12:50 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 12:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 12:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 12:51 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 12:45 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:25 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.kurohicncr.top/Article/details/7348154.shtml)
-- 2026-06-29 12:29 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/50280.shtml)
-- 2026-06-29 12:22 - [青海热贡唐卡亮相2026中国知识产权保护高层论坛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [华安基金：创业板50指数上周涨7.51%，突破2015年历史高位！](http://www.share.minike.top/Article/details/029582987532.shtml)
-- 2026-06-29 12:33 - [广西仫佬山乡：多彩民俗展风情](http://www.blog.kurohicncr.top/Article/details/00465.shtml)
-- 2026-06-29 12:45 - [乌力格尔：蒙古族说唱里的一部民族交融史](http://www.blog.minike.top/Article/details/00434.shtml)
-- 2026-06-29 12:21 - [健身不成反伤身！“新国标”来了，安全运动指南请收好](http://www.blog.kurohicncr.top/Article/details/18757454.shtml)
-- 2026-06-29 12:33 - [日本放宽武器出口限制引发各界批评](http://www.blog.minike.top/Article/details/769357798.shtml)
-- 2026-06-29 12:28 - [第十九届北京车展将开幕 中国车企如何突破超越](http://www.share.minike.top/Article/details/201856425734.shtml)
-- 2026-06-29 12:37 - [售价29999元，华为星钻手镯表5月15日开售](http://www.blog.minike.top/Article/details/436604752.shtml)
-- 2026-06-29 12:34 - [上海期货交易所镍期货及期权正式引入境外交易者参与交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [聚焦新兴领域与文化产业 陕西检察去年办理知识产权案件328件](http://www.share.minike.top/Article/details/89513939030.shtml)
-- 2026-06-29 12:32 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](http://www.blog.kurohicncr.top/Article/details/015929901844.shtml)
-- 2026-06-29 12:31 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.share.minike.top/Article/details/5203349638.shtml)
+- 2026-06-29 12:50 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/4127565.shtml)
+- 2026-06-29 12:29 - [去美国加油？部分加拿大球迷陷入纠结](https://www.blog.minike.top/Article/details/0825411342.shtml)
+- 2026-06-29 12:32 - [强⁶](http://www.blog.minike.top/Article/details/1542589.shtml)
+- 2026-06-29 12:32 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/29563944.shtml)
+- 2026-06-29 12:39 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/4347646501.shtml)
+- 2026-06-29 12:31 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/42441232081.shtml)
+- 2026-06-29 12:45 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/5874225420.shtml)
+- 2026-06-29 12:50 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/650712453422.shtml)
+- 2026-06-29 12:33 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.kurohicncr.top/Article/details/77558722.shtml)
+- 2026-06-29 12:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/560127.shtml)
+- 2026-06-29 12:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/952368832.shtml)
+- 2026-06-29 12:23 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/00721601.shtml)
+- 2026-06-29 12:31 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/97757.shtml)
+- 2026-06-29 12:43 - [DeepSeek联合北京大学发布论文](https://www.share.kurohicncr.top/Article/details/110944.shtml)
+- 2026-06-29 12:47 - [晋城暴雨车辆被淹冰箱在水中漂](https://www.share.kurohicncr.top/Article/details/289874644.shtml)

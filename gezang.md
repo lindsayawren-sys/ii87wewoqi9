@@ -1,59 +1,61 @@
-# 关键时期推进 R2 电动汽车上市之际，Rivian工厂遭龙卷风破坏
+# A股周线三连阳！芯片爆发，化工反攻，光模块急跌中惊现“逆行者”，后市主线花落谁家？
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-核心要点 美国消费者新闻与商业频道获悉，电动汽车制造商 Rivian 首席执行官 RJ・斯卡林格周日晚间向员工发送通知称，上周末一场龙卷风损毁了该公司位于伊利诺伊州中部的部分工厂设施。 斯卡林格称，龙卷风直接登陆厂区。受影响区域此前被用于 Rivian 即将上市的 R2 车型的零部件仓储及物流作业 ——R2 是公司至关重要的战略车型，计划于今年春季开售。 斯卡林格表示，受损区域
+4月24日，A股弱势整理，三大指数集体连阴，沪指微跌0.33%，创指跌1.41%，市场成交2.66万亿元环比缩量。港股午后发力，恒指成功收红，恒科指涨0.75%终结三连阴。 AH芯片链联袂爆发！海光信息盘中暴拉11%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）放量收涨2.31%。港股芯片攻势更猛，华虹半导体一度涨超19%，同类规模最大、流动性最强*的港股通信息技术
 
 ## 正文
 
-核心要点 美国消费者新闻与商业频道获悉，电动汽车制造商 Rivian 首席执行官 RJ・斯卡林格周日晚间向员工发送通知称，上周末一场龙卷风损毁了该公司位于伊利诺伊州中部的部分工厂设施。
+4月24日，A股弱势整理，三大指数集体连阴，沪指微跌0.33%，创指跌1.41%，市场成交2.66万亿元环比缩量。
 
-斯卡林格称，龙卷风直接登陆厂区。
+港股午后发力，恒指成功收红，恒科指涨0.75%终结三连阴。
 
-受影响区域此前被用于 Rivian 即将上市的 R2 车型的零部件仓储及物流作业 ——R2 是公司至关重要的战略车型，计划于今年春季开售。
+AH芯片链联袂爆发！
 
-斯卡林格表示，受损区域的生产运营预计在本周恢复，而工厂总装线等其他核心区域均按计划正常运行。
+海光信息盘中暴拉11%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）放量收涨2.31%。
 
-公司发言人透露，此次事件暂无人员受伤报告。
+港股芯片攻势更猛，华虹半导体一度涨超19%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）溢价收涨3.67%，登顶全市场ETF涨幅榜，成交5.92亿元创历史天量！
 
-“尽管 2 号厂房遭受损坏并在评估完成前暂时关闭，但我可以万分欣慰地告知大家，厂区内无人受伤。
+消息面利好密集！
 
-” 斯卡林格在致员工信中说道。
+AI推动芯片涨价潮持续扩散，芯片制造巨头英特尔一季报及第二季度营收指引均超市场预期，隔夜费城半导体指数“17连涨”创纪录。
 
-他还表示，公司 “将在掌握更多信息后及时通报，目前我们的首要任务是保障伊利诺伊州诺默尔工厂团队的安全并提供支持”。
+24日上午，DeepSeek-V4预览版正式上线，全面适配华为昇腾、寒武纪等国产算力卡，分析指出，AI算力需求爆发有望带动国产AI芯片景气度。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [碎片化刷短视频 正在悄悄伤害你的大脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:22 - [此行间·读书正当时！听总书记分享读书心得](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:36 - [凯莱英获Norges Bank增持8.53万股 每股作价约98.94港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:43 - [源达信息量化策略研究：重要股东增持单因子策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:29 - [一周展望：美股迎地缘与财报检验，沃什出席美联储主席提名听证会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:34 - [消息人士：俄罗斯将停止哈萨克斯坦经由德鲁日巴输往德国的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:36 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:21 - [美国启动关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:42 - [龙虎榜动向：7股获机构及北向资金集体净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:19 - [武汉出台城市更新条例 以法治护航城市品质提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:29 - [不止汽车！朱华荣：中国长安摩托车业务年销80万台，高端车型比汽车还贵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:28 - [第十三批在韩中国人民志愿军烈士遗骸启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:26 - [黄金后市走向何方？5044美元值得重点关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:42 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 12:27 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 12:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 12:45 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 12:37 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 12:41 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 12:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 12:34 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:43 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 12:30 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 12:51 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 12:27 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 12:46 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 12:51 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 12:37 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.kurohicncr.top/Article/details/51186055.shtml)
-- 2026-06-29 12:24 - [牧原股份一季度净亏损12.15亿元，同比转亏](http://www.blog.minike.top/Article/details/704358261.shtml)
-- 2026-06-29 12:36 - [每一帧都很治愈，你读书的样子真好看！](http://www.share.kurohicncr.top/Article/details/2633337998.shtml)
-- 2026-06-29 12:36 - [长江有色：22日铸造铝期价微涨0.15% 下游入市采购谨慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [GTC泽汇:北欧黄金并购加速布局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [智能时代，我们还需要深度阅读吗？](http://www.share.kurohicncr.top/Article/details/590907237.shtml)
-- 2026-06-29 12:23 - [湖南茶叶产量超30万吨 综合产值突破1250亿元](http://www.share.kurohicncr.top/Article/details/01167356706.shtml)
-- 2026-06-29 12:26 - [湖南永顺：山间云雾 人间烟火](http://www.blog.kurohicncr.top/Article/details/1554983810.shtml)
-- 2026-06-29 12:44 - [让科技成果“落地生金” 中国科大先研院何以激活科创“一池春水”？](http://www.share.minike.top/Article/details/08990.shtml)
-- 2026-06-29 12:21 - [邵艺辉：建议年轻人多阅读多写作](http://www.share.minike.top/Article/details/65316483009.shtml)
-- 2026-06-29 12:20 - [险资扎堆港股IPO！泰康、平安、大家、新华、阳光都在买什么？](http://www.blog.kurohicncr.top/Article/details/73046742871.shtml)
-- 2026-06-29 12:47 - [福耀玻璃一季度营收增5.08% 归母净利润同比下滑15.68%](http://www.blog.minike.top/Article/details/58206543251.shtml)
-- 2026-06-29 12:19 - [金针菇概念股，净利润大增超7000%](http://www.blog.kurohicncr.top/Article/details/33329.shtml)
-- 2026-06-29 12:43 - [“GNV·北极星”号豪华客滚船完成升级改造启航](http://www.blog.minike.top/Article/details/250372646541.shtml)
-- 2026-06-29 12:43 - [多型舰艇齐聚上海并对民众开放](http://www.blog.kurohicncr.top/Article/details/882159473.shtml)
+- 2026-06-29 12:32 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/9167160570.shtml)
+- 2026-06-29 12:30 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/74766549501.shtml)
+- 2026-06-29 12:27 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/401138.shtml)
+- 2026-06-29 12:38 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.blog.kurohicncr.top/Article/details/4717289.shtml)
+- 2026-06-29 12:47 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/21434010611.shtml)
+- 2026-06-29 12:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/380517.shtml)
+- 2026-06-29 12:47 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2278607.shtml)
+- 2026-06-29 12:24 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/77122758429.shtml)
+- 2026-06-29 12:30 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/3455225012.shtml)
+- 2026-06-29 12:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/3867408254.shtml)
+- 2026-06-29 12:49 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/041316.shtml)
+- 2026-06-29 12:42 - [第一炉香](https://www.share.kurohicncr.top/Article/details/95523091.shtml)
+- 2026-06-29 12:51 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/50649006063.shtml)
+- 2026-06-29 12:37 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/929278008432.shtml)
+- 2026-06-29 12:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/7178808.shtml)

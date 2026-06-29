@@ -1,58 +1,56 @@
-# 4月21日外盘头条：特朗普称停火期不太可能延长 苹果换帅！特努斯将接棒CEO 沃什提名听证会讲稿曝光
+# 两岸及海外台湾史青年学者在南京对话：冀还原真相、夯实认知
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称停火期不太可能延长 施压德黑兰达成和平协议 2、美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁 3、苹果换帅！特努斯将接棒 CEO，库克转任董事会主席 4、亚马逊将向Anthropic追加最高250亿美元投资，深化人工智能基础设施合作 5、花旗：如果霍尔木兹海峡中断再持续一个月 油价将达到
+中新社南京4月25日电 (李百加)第五届台湾史青年学者研讨会25日在南京举行。与会人士表示，冀以严谨史学研究还原历史真相，在学术对话中夯实两岸共同历史认知。 研讨会由孙中山基金会、中国社会科学院台湾史研究中心、南京大学历史学院主办，来自两岸及海外30余所院校的近70位学者围绕不同历史阶段台湾社会治理、文化教育、左翼思想发展、两岸关系变迁等议题展开研讨。 南京大学党委常委、宣传部
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称停火期不太可能延长 施压德黑兰达成和平协议 2、美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁 3、苹果换帅！
+中新社南京4月25日电 (李百加)第五届台湾史青年学者研讨会25日在南京举行。
 
-特努斯将接棒 CEO，库克转任董事会主席 4、亚马逊将向Anthropic追加最高250亿美元投资，深化人工智能基础设施合作 5、花旗：如果霍尔木兹海峡中断再持续一个月 油价将达到110美元 6、华尔街大行看好美国企业盈利前景 伊朗冲突下仍持乐观态度 特朗普称停火期不太可能延长 施压德黑兰达成和平协议 美国总统特朗普表示，他不太可能延长与伊朗的两周停火期，这加大了谈判人员尽快达成和平协议的紧迫性。
+与会人士表示，冀以严谨史学研究还原历史真相，在学术对话中夯实两岸共同历史认知。
 
-特朗普在周一的电话采访中表示，这项他于4月7日宣布的停火将于“华盛顿时间周三晚上”到期，如果在此之前未达成和平协议，他也“极不可能会延长”停火期。
+研讨会由孙中山基金会、中国社会科学院台湾史研究中心、南京大学历史学院主办，来自两岸及海外30余所院校的近70位学者围绕不同历史阶段台湾社会治理、文化教育、左翼思想发展、两岸关系变迁等议题展开研讨。
 
-他说：“我不会匆忙达成一项糟糕的协议。
+南京大学党委常委、宣传部部长闻羽指出，南大历史学院长期深耕台湾历史变迁、两岸关系演进等领域研究，取得了一系列重要成果。
 
-我们有的是时间。
+台湾史作为中国史的重要组成部分，关乎民族记忆、国家认同与文明传承。
 
-” 特朗普重申霍尔木兹海峡仍将被封锁，称“伊朗人非常希望它被开放。
+孙中山基金会副理事长、广东中山大学历史学系教授赵立彬表示，台湾史研究对揭示两岸同根同源的史实、批判“台独”史观具有重要意义。
 
-在协议签署之前，我不会解封的。
+青年学者是台湾史研究的未来，希望能深耕史料、扎实治学，推出更多高质量成果，促进两岸同胞心灵契合。
 
-” 美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁 美国国会当地时间周二将举行首场美联储主席提名人沃什的确认听证会，沃什将向国会议员承诺，在利率问题上保持严格独立性。
+他还提及，今年适逢孙中山先生诞辰160周年，举办本次研讨会亦是对孙中山爱国精神的纪念与弘扬。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [致敬！在繁花盛放的春天接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:32 - [万亿中原银行，变天了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:47 - [近一年“光”速飙涨200%，AI投资最锋利的矛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:45 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:38 - [外资转向加仓中国资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:28 - [河北辛集：70米长臂灌溉机器人助力春灌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:18 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:31 - [小学小卖部卖的三无彩妆冲上热榜，孩子用了怎么维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:36 - [换季式大回暖！多地将冲击30℃ 看看有你那里吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:34 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:33 - [美国加州一季度电车市占率降至五年最低，特斯拉销量暴跌逾24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:44 - [新一波展商剧透来袭！“2026金融街智绘春光嘉年华”好吃好逛好出片！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:45 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 12:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 12:32 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 12:22 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 12:30 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 12:41 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 12:43 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 12:48 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 12:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 12:27 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限](http://www.share.kurohicncr.top/Article/details/67478.shtml)
-- 2026-06-29 12:47 - [期权交易者转向看涨押注，预期财报季平均波动5.6%](http://www.blog.kurohicncr.top/Article/details/0813617.shtml)
-- 2026-06-29 12:24 - [警方通报南昌虐婴事件：施虐者为婴儿母亲，已被采取刑事强制措施](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [金斯瑞生物科技盘中涨超8% 礼来以70亿美元收购生物技术公司Kelonia](http://www.blog.minike.top/Article/details/9989502.shtml)
-- 2026-06-29 12:36 - [贵州梵净山：夕阳映照落日如画](http://www.share.kurohicncr.top/Article/details/784782489644.shtml)
-- 2026-06-29 12:46 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:21 - [4月22日央行开展60亿元7天期逆回购操作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:35 - [特朗普延长与伊朗停火，外交部：支持相关方实现全面持久停火止战](http://www.blog.kurohicncr.top/Article/details/50704207.shtml)
-- 2026-06-29 12:24 - [美国证券交易委员会主席称密切关注私募信贷领域“正在显现的压力”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [广西交易团“智”造出海出圈 广交会斩获颇丰](http://www.blog.minike.top/Article/details/0955949.shtml)
-- 2026-06-29 12:43 - [第六届亚洲沙滩运动会迎来首个比赛日](http://www.share.kurohicncr.top/Article/details/38946788150.shtml)
-- 2026-06-29 12:38 - [日本“再军事化”动作持续引发日本民众大规模抗议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [中芯国际获南向资金连续3天净买入](http://www.share.minike.top/Article/details/944284.shtml)
-- 2026-06-29 12:33 - [一场展览，看香港工程的过去与未来](http://www.blog.kurohicncr.top/Article/details/9580736686.shtml)
-- 2026-06-29 12:29 - [伊朗拒绝出席谈判 美国宣布延长停火](http://www.share.minike.top/Article/details/6360275.shtml)
+- 2026-06-29 12:46 - [沙丘](https://www.blog.kurohicncr.top/Article/details/07099905841.shtml)
+- 2026-06-29 12:50 - [普京称俄处于命运攸关之际](https://www.blog.kurohicncr.top/Article/details/992338012403.shtml)
+- 2026-06-29 12:47 - [高超感谢女友王佳欣](https://www.share.kurohicncr.top/Article/details/50569.shtml)
+- 2026-06-29 12:31 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/319135417.shtml)
+- 2026-06-29 12:44 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/172201909082.shtml)
+- 2026-06-29 12:42 - [细节之中抓作风](http://www.blog.minike.top/Article/details/588700471659.shtml)
+- 2026-06-29 12:23 - [凯恩何时能拿到国际大赛冠军](http://www.share.kurohicncr.top/Article/details/958381270.shtml)
+- 2026-06-29 12:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/059126.shtml)
+- 2026-06-29 12:21 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/9704750326.shtml)
+- 2026-06-29 12:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/8011975218.shtml)
+- 2026-06-29 12:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/4503811573.shtml)
+- 2026-06-29 12:42 - [张杰下沉市场](http://www.blog.kurohicncr.top/Article/details/14165732460.shtml)
+- 2026-06-29 12:45 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/7065419486.shtml)
+- 2026-06-29 12:31 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/405441591.shtml)
+- 2026-06-29 12:21 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/6885069.shtml)

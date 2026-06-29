@@ -1,45 +1,58 @@
-# 日本大分县陆上自卫队一训练场弹药爆炸 多人受波及
+# 受权发布|中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-当地时间21日上午，日本大分县陆上自卫队一处训练场在训练时发生弹药爆炸，多名自卫队员受波及，详细伤情正在确认中。 (总台记者 林博翰)
+新华社北京4月26日电 中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见 (2025年10月29日) 新就业群体是社会主义劳动者的重要组成部分，是经济社会发展不可或缺的重要力量。当前我国新兴领域迅速发展，尤其是以互联网平台为支撑的新业态大量涌现，聚集了规模庞大的新就业群体。为加强新就业群体服务管理，经党中央、国务院同意，现提出如下意见。一、总体要求 坚持以习近平新时
 
 ## 正文
 
-当地时间21日上午，日本大分县陆上自卫队一处训练场在训练时发生弹药爆炸，多名自卫队员受波及，详细伤情正在确认中。
+新华社北京4月26日电 中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见 (2025年10月29日) 新就业群体是社会主义劳动者的重要组成部分，是经济社会发展不可或缺的重要力量。
 
-(总台记者 林博翰)
+当前我国新兴领域迅速发展，尤其是以互联网平台为支撑的新业态大量涌现，聚集了规模庞大的新就业群体。
+
+为加强新就业群体服务管理，经党中央、国务院同意，现提出如下意见。
+
+一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，坚持和加强党的全面领导，坚持以人民为中心，坚持以改革创新为动力，健全工作机制，强化统筹协调，注重综合施策，加强思想政治引领，做好凝聚服务工作，依法维护合法权益，构建和谐劳动关系，提升新就业群体获得感幸福感安全感，引导新就业群体听党话、跟党走，不断巩固党长期执政的阶级基础、群众基础、社会基础。
+
+主要目标是：到2027年，上下联动、条块结合、有效协同的工作机制进一步完善，新就业群体党的组织和党的工作全面覆盖，劳动用工逐步规范，从业环境显著改善，合法权益有力保障。
+
+再过3至5年，新就业群体服务管理制度更加健全，思想政治引领更加有力，劳动关系更加和谐，从业环境更加友好，合法权益保障更加充分，职业认可度显著提升，新就业群体全面发展取得更为明显的实质性进展。
+
+二、加强思想政治引领 (一)加强新就业群体思想政治工作。
+
+坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，不断增进新就业群体对党的政治认同、思想认同、理论认同、情感认同。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [报告显示银龄群体成工作日休闲时间“看书学习”第一主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:21 - [商汤-W授出合共2.38亿份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:20 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:42 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:34 - [酒价内参4月21日价格发布：飞天茅台保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:38 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:29 - [广州纪念詹天佑诞辰165周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:23 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:36 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:46 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:27 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 12:48 - [女子拍邻居家中裸照发业主群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 12:30 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 12:46 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:42 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 12:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 12:34 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 12:50 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 12:43 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 12:47 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 12:42 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 12:42 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [全民阅读活动周 各地举办多场活动](http://www.blog.kurohicncr.top/Article/details/05945.shtml)
-- 2026-06-29 12:22 - [俄罗斯将恢复使用伊朗领空，并重启飞往阿联酋的机票销售](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [合并助力建筑公司CannonDesign实现全球布局](http://www.share.kurohicncr.top/Article/details/665910.shtml)
-- 2026-06-29 12:22 - [华媒侨领走进重庆秀山 感受文气、大气、秀气、灵气之城](http://www.share.kurohicncr.top/Article/details/0290409.shtml)
-- 2026-06-29 12:40 - [霍尔果斯口岸今年通行中欧中亚班列超3000列](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [特朗普：我会记住不寻求退还关税的公司](http://www.blog.minike.top/Article/details/9723948622.shtml)
-- 2026-06-29 12:21 - [【同在国旗下】风沙挡不住赤诚 兵团少年逆风护旗 这一幕令人动容](http://www.blog.minike.top/Article/details/788908297093.shtml)
-- 2026-06-29 12:26 - [中外科研团队发现约5.35亿年前环节动物祖先](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:19 - [特朗普：如未能达成协议“几无可能”再延长停火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [人民币兑美元中间价报6.8635，下调41点](http://www.share.minike.top/Article/details/38116.shtml)
-- 2026-06-29 12:33 - [递表半年上市告吹 “腾讯系”小鹅通面临四大生死挑战](http://www.share.kurohicncr.top/Article/details/044388143.shtml)
-- 2026-06-29 12:42 - [从海淀主场到国际赛场 群众性三人篮球品牌赛事5月至8月在北京举办](http://www.blog.kurohicncr.top/Article/details/431335180.shtml)
-- 2026-06-29 12:33 - [长江有色：22日铝价反弹上涨 高价货源成交受阻](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.kurohicncr.top/Article/details/873949935.shtml)
-- 2026-06-29 12:19 - [“我来说法”不止于说法：“新新相联”的“进阶攻略”](http://www.blog.minike.top/Article/details/86979553.shtml)
+- 2026-06-29 12:37 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/2534165056.shtml)
+- 2026-06-29 12:36 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/567502700.shtml)
+- 2026-06-29 12:30 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/5906735938.shtml)
+- 2026-06-29 12:23 - [美人鱼](http://www.share.minike.top/Article/details/921144.shtml)
+- 2026-06-29 12:49 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/1323778.shtml)
+- 2026-06-29 12:40 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/98336935.shtml)
+- 2026-06-29 12:48 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/99649.shtml)
+- 2026-06-29 12:45 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/118668.shtml)
+- 2026-06-29 12:41 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/930476.shtml)
+- 2026-06-29 12:43 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/537293221680.shtml)
+- 2026-06-29 12:33 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/517706245095.shtml)
+- 2026-06-29 12:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/541150.shtml)
+- 2026-06-29 12:35 - [三轮车被自家狗“推”进池塘](http://www.blog.minike.top/Article/details/165626.shtml)
+- 2026-06-29 12:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/8726188.shtml)
+- 2026-06-29 12:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/0612657227.shtml)

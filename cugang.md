@@ -1,47 +1,56 @@
-# 湖南永顺：山间云雾 人间烟火
+# 关注“体验经济”丨看风景到入剧情 大运河“体验经济”升温
 
-> 更新时间：2026-06-29 12:48:04 UTC+8
+> 更新时间：2026-06-29 12:51:34 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 10:41 来源：中国新闻网 4月20日，湖南永顺，清晨云雾缭绕间，藏着最温柔的人间烟火，也藏着不期而遇的诗意。(作者：曾召纯) 责任编辑：【魏聪聪】
+新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。 这是一个开在博物馆里的“密室
 
 ## 正文
 
-发布时间：2026年04月21日 10:41 来源：中国新闻网 4月20日，湖南永顺，清晨云雾缭绕间，藏着最温柔的人间烟火，也藏着不期而遇的诗意。
+新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。
 
-(作者：曾召纯) 责任编辑：【魏聪聪】
+不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。
+
+这是一个开在博物馆里的“密室逃脱”，孩子们需要根据墙上视频资料选择大运河正确路线，判断适合出行的船只，根据风向决定船帆朝向，用铅块在卷宗上拓印文字、清理淤泥、操作澳闸让船只通行等，每道关卡都藏着运河历史知识。
+
+“孩子玩了一个多小时，居然能跟我大致讲清古代漕运怎么运作。
+
+”陪儿子“闯关”成功的徐州游客陈初感叹道，通过边玩边学，不知不觉就让孩子记住了很多知识点。
+
+当剧情成为注意力的锚点，用参与激发情感连接，文化不再是被灌输的知识，而是被亲身经历的记忆。
+
+改编自茅盾文学奖作品的电视剧《北上》的热播，让运河文化体验从博物馆的展厅“流淌”到更广阔的运河两岸。
+
+荧幕里，运河边的船来船往、青石板上的童年记忆、老茶馆里的家长里短，勾勒出一幅充满烟火气的水乡生活画卷。
 
 ## 相关推荐
 
-- 2026-06-29 12:20 - [多型舰艇齐聚上海并对民众开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:25 - [长信化学IPO终止只是开始？核心技术人员王昭云等被天奈科技起诉，索赔总额达2.25亿元 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:24 - [正确政绩观｜世昌里社区的“三问三答”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:44 - [“六连涨”终结！国内油价今夜下调，加满一箱少花22元，下一轮调整是“二连跌”还是反弹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:47 - [王毅出席全球共享发展行动论坛第三届高级别会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:37 - [伊朗武装部队称已做好充分战斗准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:25 - [中国新闻社参评第36届中国新闻奖国际传播初评作品公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:22 - [上期所镍期货及期权引入境外交易者 20号胶期权、国际铜期权挂牌交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:47 - [乌鲁木齐河西煤层气探采项目进入勘探实施阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:44 - [工信部：开展人工智能中小企业创业支持计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:23 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:41 - [沸腾！刚刚，突破2015年高点！更有一年暴涨10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:33 - [日本央行称日本金融体系稳定，但警告中东和非银行风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:42 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 12:49 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 12:22 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 12:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 12:50 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 12:30 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 12:35 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 12:49 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 12:46 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 12:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时](http://www.share.kurohicncr.top/Article/details/208349454630.shtml)
-- 2026-06-29 12:24 - [首届粤港澳大湾区—东盟产学研研讨会圆满举办，共筑国际化新质人才培养高地](http://www.share.minike.top/Article/details/28816738073.shtml)
-- 2026-06-29 12:43 - [酒价内参4月21日价格发布：飞天茅台保持不变](http://www.share.kurohicncr.top/Article/details/548165709320.shtml)
-- 2026-06-29 12:25 - [浙江慈溪：老厂来了“新员工” 数字转型显成效](http://www.blog.kurohicncr.top/Article/details/4662455376.shtml)
-- 2026-06-29 12:39 - [广州纪念詹天佑诞辰165周年](http://www.blog.kurohicncr.top/Article/details/4211625.shtml)
-- 2026-06-29 12:42 - [霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”](http://www.blog.kurohicncr.top/Article/details/295964.shtml)
-- 2026-06-29 12:24 - [加拿大贸易谈判代表：并非所有美加贸易问题都能在7月1日前解决](http://www.share.minike.top/Article/details/603532.shtml)
-- 2026-06-29 12:47 - [中国长安朱华荣：长安“中国方案”和吉利“中国力量”正共同改写世界燃油车竞争格局](http://www.blog.kurohicncr.top/Article/details/127325787.shtml)
-- 2026-06-29 12:24 - [小摩：紫金黄金国际维持“增持”评级 目标价240港元](http://www.blog.kurohicncr.top/Article/details/16960702726.shtml)
-- 2026-06-29 12:36 - [新火科技早盘涨逾10% 本月内股价累计涨幅已逾四成](http://www.blog.minike.top/Article/details/17685.shtml)
-- 2026-06-29 12:44 - [广西出现今年首轮超警洪水 多地发布暴雨橙色预警](http://www.share.minike.top/Article/details/2153480.shtml)
-- 2026-06-29 12:44 - [美联储主席候选人沃什：承诺保持货币政策独立性，特朗普表达利率观点并不构成威胁](http://www.share.minike.top/Article/details/0620341913.shtml)
-- 2026-06-29 12:42 - [上海着力打造首个“次元友好街区”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:26 - [赛分科技：聘任顾楹瑶为公司证券事务代表](http://www.blog.minike.top/Article/details/949439.shtml)
-- 2026-06-29 12:28 - [陪审团裁定优步负有责任](http://www.blog.kurohicncr.top/Article/details/6641119.shtml)
+- 2026-06-29 12:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/717522068515.shtml)
+- 2026-06-29 12:27 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/841501629327.shtml)
+- 2026-06-29 12:43 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/24147698.shtml)
+- 2026-06-29 12:50 - [未来5年 充电供热供暖将有大变化](http://www.blog.minike.top/Article/details/363990487.shtml)
+- 2026-06-29 12:39 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/364865074.shtml)
+- 2026-06-29 12:37 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/098879948.shtml)
+- 2026-06-29 12:30 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/043565664.shtml)
+- 2026-06-29 12:26 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/661926345.shtml)
+- 2026-06-29 12:25 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/716511.shtml)
+- 2026-06-29 12:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/1451888.shtml)
+- 2026-06-29 12:50 - [双高胎](http://www.blog.kurohicncr.top/Article/details/4758050182.shtml)
+- 2026-06-29 12:35 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/23453447.shtml)
+- 2026-06-29 12:23 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/65094327.shtml)
+- 2026-06-29 12:42 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/14843379.shtml)
+- 2026-06-29 12:23 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/348456547128.shtml)
