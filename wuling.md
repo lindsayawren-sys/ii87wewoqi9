@@ -1,61 +1,58 @@
-# 内蒙古发布“十五五”能源、农业、生态、文旅施政思路
+# 2026越山向海人车接力中国赛张家口站将于6月12日开赛
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特4月21日电 (记者 李爱平)内蒙古自治区政府新闻办21日召开“开局起步‘十五五’”专题新闻发布会，会上发布了“十五五”期间，内蒙古在能源、农业、生态、文旅方面的施政思路。 内蒙古自治区党委常委、内蒙古自治区常务副主席黄志强介绍，内蒙古煤炭资源保有量超5000亿吨，占全国的1/3。“十五五”时期，将继续加强国家煤炭供应保障基地的建设，通过“挖潜一批、新建一批、储备
+中新网北京5月21日电 5月21日，2026正大食品越山向海人车接力中国赛张家口站启动仪式在北京举行。 越山向海人车接力中国赛，自2017年首次落地张家口，至今已走过十年。作为全球唯一的长距离路跑公开接力赛品牌，越山向海以“5人1车”团队接力赛制，将草原天路的壮美与团队协作的精神融为一体。在中国已举办16站，十年间累计直接影响跑步人群超过50万，成为中国跑圈“一生必跑”的经典赛
 
 ## 正文
 
-中新网呼和浩特4月21日电 (记者 李爱平)内蒙古自治区政府新闻办21日召开“开局起步‘十五五’”专题新闻发布会，会上发布了“十五五”期间，内蒙古在能源、农业、生态、文旅方面的施政思路。
+中新网北京5月21日电 5月21日，2026正大食品越山向海人车接力中国赛张家口站启动仪式在北京举行。
 
-内蒙古自治区党委常委、内蒙古自治区常务副主席黄志强介绍，内蒙古煤炭资源保有量超5000亿吨，占全国的1/3。
+越山向海人车接力中国赛，自2017年首次落地张家口，至今已走过十年。
 
-“十五五”时期，将继续加强国家煤炭供应保障基地的建设，通过“挖潜一批、新建一批、储备一批”，科学推进煤炭先进产能接续工作，把全区总产能稳定在13亿吨左右，坚决守牢国家能源安全底线。
+作为全球唯一的长距离路跑公开接力赛品牌，越山向海以“5人1车”团队接力赛制，将草原天路的壮美与团队协作的精神融为一体。
 
-“目前内蒙古电力总装机超3亿千瓦，约占全国1/12。
+在中国已举办16站，十年间累计直接影响跑步人群超过50万，成为中国跑圈“一生必跑”的经典赛事。
 
-”黄志强说，“十五五”时期，内蒙古将依托占全国1/4的风能、太阳能资源，加快建设9个沙戈荒大基地及其外送通道，每年外送电量超4000亿度，其中新能源电量超2000亿度，为各省市供应更多“绿色电、便宜电、可靠电”。
+2026越山向海张家口站将于6月12日晚间正式起跑，今年赛事规模再创历史新高——1200支队伍、6000名跑者、1200台参赛车辆将从张家口出发。
 
-内蒙古自治区副主席奇巴图表示，“十五五”时期，内蒙古将重点打造内蒙古牛羊肉、奶酪、蔬菜、杂粮等公用品牌，同时引导盟市做到“一地一品”，做强科尔沁牛肉、兴安盟大米、赤峰小米、河套雪花粉等区域品牌，进一步提高内蒙古的品牌影响力和竞争力。
+本届赛事赛道将延续经典路线，选手分批次从张北塞那都跑马场出发，途经16个接力点，穿越迷人的草原天路，终点抵达崇礼雪如意国家跳台滑雪中心，全程142.6公里。
 
-“内蒙古始终把保护草原和森林作为首要任务。
+赛事首批发枪时间为6月12日晚20时，比赛时间预计从6月12日持续至6月14日凌晨。
 
-”内蒙古自治区副主席代钦表示，“十五五”期间，内蒙古要完成防沙治沙2801万亩，可治理沙化土地治理率达到68.5%；到“十五五”末，内蒙古全区森林覆盖率将达到22.24%，草原综合植被盖度将稳定在45%以上。
+张家口市体育局党组书记、局长郭丽娜在致辞中表示，过去九年时间，越山向海万千团队在张家口上演了“无团队、不山海”的精彩故事，近4万跑友在百余公里的赛道上成就了彼此的人生山海。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 00:37 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 00:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 00:36 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 00:38 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 00:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 00:47 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 00:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 00:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 00:35 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 00:35 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 00:33 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 00:34 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 01:00 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 00:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 00:46 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 00:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 00:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 00:46 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 00:55 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 01:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 00:55 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 00:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 00:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 00:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/91248.shtml)
-- 2026-06-30 00:47 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/36142556.shtml)
-- 2026-06-30 00:58 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/773998.shtml)
-- 2026-06-30 00:52 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/1488322.shtml)
-- 2026-06-30 00:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/58084049.shtml)
-- 2026-06-30 00:35 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/788403.shtml)
-- 2026-06-30 00:36 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/48346515.shtml)
-- 2026-06-30 00:58 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/005581.shtml)
-- 2026-06-30 00:46 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/736556084012.shtml)
-- 2026-06-30 00:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/624541.shtml)
-- 2026-06-30 00:41 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/314998253.shtml)
-- 2026-06-30 00:33 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/46996551.shtml)
-- 2026-06-30 00:57 - [小娘惹](https://www.share.minike.top/Article/details/3881665.shtml)
-- 2026-06-30 00:56 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/2706628970.shtml)
-- 2026-06-30 00:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/655014.shtml)
+- 2026-06-30 00:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/307763.shtml)
+- 2026-06-30 01:00 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/766270621588.shtml)
+- 2026-06-30 00:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/8408735.shtml)
+- 2026-06-30 00:50 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/046496.shtml)
+- 2026-06-30 00:39 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/10177.shtml)
+- 2026-06-30 00:37 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/32086436585.shtml)
+- 2026-06-30 00:39 - [月亮](https://www.share.kurohicncr.top/Article/details/620012.shtml)
+- 2026-06-30 00:59 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/275944729064.shtml)
+- 2026-06-30 00:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/35879874818.shtml)
+- 2026-06-30 01:00 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/37919811.shtml)
+- 2026-06-30 00:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/26831935.shtml)
+- 2026-06-30 01:01 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/667335831835.shtml)
+- 2026-06-30 00:39 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/46442.shtml)
+- 2026-06-30 00:51 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/96304293.shtml)
+- 2026-06-30 01:00 - [一见倾心](http://www.share.minike.top/Article/details/89135449928.shtml)

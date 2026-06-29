@@ -1,53 +1,56 @@
-# 花旗：裕元集团给予“买入”评级 目标价21港元
+# 智慧医疗产品齐聚大理医博会 科技守护身心健康
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，裕元集团（00551）发盈警，预计今年首季股东应占溢利将同比大幅下跌50%至55%，而去年同期经调整利润为7，580万美元。该行认为盈警符合预期，因首季通常为行业淡季，同比变动的波动程度可能较大。管理层亦认同首季是毛利率表现最差的季度，并预期今年余下时间毛利率将按季逐步改善。该行认为，裕元目前估值仍具吸引力，市盈率（PE）逾8倍，市账率（PB）为0.7倍，料今年
+黄金，再跌也不能买了？日赚近4亿！中国最牛存储公司为什么在合肥“Token包”来了，以后用AI就像交话费？小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？倾听民企心声，国家发改委多维发力护航民营经济从“月季花环”看中国9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵
 
 ## 正文
 
-花旗发布研报称，裕元集团（00551）发盈警，预计今年首季股东应占溢利将同比大幅下跌50%至55%，而去年同期经调整利润为7，580万美元。
+黄金，再跌也不能买了？
 
-该行认为盈警符合预期，因首季通常为行业淡季，同比变动的波动程度可能较大。
+日赚近4亿！
 
-管理层亦认同首季是毛利率表现最差的季度，并预期今年余下时间毛利率将按季逐步改善。
+中国最牛存储公司为什么在合肥“Token包”来了，以后用AI就像交话费？
 
-该行认为，裕元目前估值仍具吸引力，市盈率（PE）逾8倍，市账率（PB）为0.7倍，料今年股息率约8%。
+小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？
 
-若股价因是次盈警而回落，将视之为良好的买入机会； 该行予裕元目标价21港元及“买入”评级。
+倾听民企心声，国家发改委多维发力护航民营经济从“月季花环”看中国9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？
 
-责任编辑：卢昱君
+黄金白银，为何集体大跌？
+
+主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局《给阿嬷的情书》总制片人感谢全网“自来水”湖南常德突降暴雨 多地水电通讯中断“水立方杯”中文歌曲大赛巴西赛区收官小满：晴光铺沃野 万物皆丰盈多方力量驰援湖南石门 爱心物资汇聚灾区多方救援力量驰援湖南石门“520”北京婚姻服务场景焕新江苏太仓：“0元租”婚纱小站传递幸福和新风北京天坛的奠基土来自山西后土祠？
+
+水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 00:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 00:49 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 00:40 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 00:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 00:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 00:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:40 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 00:54 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 00:39 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 00:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 00:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 00:51 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 00:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 01:05 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 00:54 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 00:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 00:47 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 01:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 00:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 00:39 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/062273281.shtml)
-- 2026-06-30 00:56 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/0681857439.shtml)
-- 2026-06-30 00:51 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/044618634.shtml)
-- 2026-06-30 00:38 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/5731025.shtml)
-- 2026-06-30 00:41 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/70918749548.shtml)
-- 2026-06-30 00:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/208043.shtml)
-- 2026-06-30 00:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/4232997218.shtml)
-- 2026-06-30 00:41 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/867526.shtml)
-- 2026-06-30 00:39 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/4276216572.shtml)
-- 2026-06-30 00:54 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/34123.shtml)
-- 2026-06-30 00:40 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/7938063520.shtml)
-- 2026-06-30 00:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/9154848948.shtml)
-- 2026-06-30 00:36 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/3605482455.shtml)
-- 2026-06-30 00:45 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/098064.shtml)
-- 2026-06-30 00:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/36597526.shtml)
+- 2026-06-30 01:00 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/221919107739.shtml)
+- 2026-06-30 01:05 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/197746879.shtml)
+- 2026-06-30 00:38 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/91519.shtml)
+- 2026-06-30 00:36 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/775866539552.shtml)
+- 2026-06-30 00:48 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/16925.shtml)
+- 2026-06-30 00:59 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/48964373.shtml)
+- 2026-06-30 00:53 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/5065034889.shtml)
+- 2026-06-30 00:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/961890.shtml)
+- 2026-06-30 00:40 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/422017.shtml)
+- 2026-06-30 00:57 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/1863594009.shtml)
+- 2026-06-30 01:02 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/96307459815.shtml)
+- 2026-06-30 00:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/2547121186.shtml)
+- 2026-06-30 00:38 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/152383.shtml)
+- 2026-06-30 00:54 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/41159319000.shtml)
+- 2026-06-30 00:51 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/4189387913.shtml)

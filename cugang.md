@@ -1,57 +1,58 @@
-# 洽洽交卷2025：从“瓜子大王”到“快乐帝国”，568亿品牌价值背后的增长逻辑
+# “以沟通促合作”：菲律宾学者吁菲政府与中国加强对话 | 世界观
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月21日，洽洽食品交出了2025年成绩单及2026年一季度“开门红”战报。财报显示，洽洽食品2025年实现营收65.74亿元，净利润为3.18亿元。2026年一季度，受益于年货节及新品拉动，公司营收与净利润实现“开门红”，营收、净利润分别增长41.46%和117.82%。 比数字更值得关注的是，洽洽在这一年完成了一场漂亮的“价值跃迁”：不仅“瓜子”卖得好，更通过“智造”与“快
+中新网5月21日电（记者 甘甜） 2026年是中国—东盟建立全面战略伙伴关系5周年。菲律宾国际安全研究学会主席班乐义近日在接受中新网记者采访时表示，中国—东盟经贸投资合作，不仅是中国和东盟经济增长的“引擎”，更将成为全球经济增长的驱动力，为世界经济整体韧性作出贡献。班乐义呼吁，作为2026年东盟轮值主席国，菲律宾应当与中国加强对话、稳定关系，增进双方的理解信任，在多领域展开合作
 
 ## 正文
 
-4月21日，洽洽食品交出了2025年成绩单及2026年一季度“开门红”战报。
+中新网5月21日电（记者 甘甜） 2026年是中国—东盟建立全面战略伙伴关系5周年。
 
-财报显示，洽洽食品2025年实现营收65.74亿元，净利润为3.18亿元。
+菲律宾国际安全研究学会主席班乐义近日在接受中新网记者采访时表示，中国—东盟经贸投资合作，不仅是中国和东盟经济增长的“引擎”，更将成为全球经济增长的驱动力，为世界经济整体韧性作出贡献。
 
-2026年一季度，受益于年货节及新品拉动，公司营收与净利润实现“开门红”，营收、净利润分别增长41.46%和117.82%。
+班乐义呼吁，作为2026年东盟轮值主席国，菲律宾应当与中国加强对话、稳定关系，增进双方的理解信任，在多领域展开合作，共同维护地区稳定与发展。
 
-比数字更值得关注的是，洽洽在这一年完成了一场漂亮的“价值跃迁”：不仅“瓜子”卖得好，更通过“智造”与“快乐”两大引擎，让品牌价值飙升至568.72亿元。
+“经贸合作互利共赢” 第48届东盟峰会近日在菲律宾宿务省落幕。
 
-东方证券在研报中指出，公司“短期承压不改长期逻辑”，当前正主动进行结构调整，“为后续增长修复创造空间”。
+峰会通过的声明强调，应加强能源安全与地区韧性，稳定农业供应链，提升区域金融韧性与宏观经济稳定等。
 
-随着2026年成本压力的逐步缓解，机构普遍看好公司的盈利修复。
+班乐义对此表示，面对当前复杂地缘局势，东盟成员国应进一步加强合作，完善各项机制，从而更好地应对能源安全、粮食安全和地区安全局势。
 
-不止于“瓜子和坚果”：跨界冰淇淋与魔芋，打造第三增长曲线 2025年，洽洽最令人瞩目的动作，莫过于其在新品类上的“破圈”能力。
+班乐义关注到，中国长期是东盟最大贸易伙伴，双方经贸联系持续深化。
 
-过去一年，洽洽打破了“只做瓜子和坚果”的刻板印象。
+他对此表示，东盟应当同中国进一步深化和拓展多领域合作，特别是卫生安全、绿色产业、数字经济、贸易投资领域，从而加强中国—东盟全面战略伙伴关系与合作。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 00:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 00:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 00:39 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 00:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 00:59 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 00:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:50 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 00:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 00:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 00:58 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 00:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 01:02 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 00:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 00:46 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 01:04 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 01:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 01:02 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 00:42 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 00:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 00:59 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [巴西vs日本](https://www.share.minike.top/Article/details/8164537298.shtml)
-- 2026-06-30 00:41 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/672699.shtml)
-- 2026-06-30 00:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/61640909614.shtml)
-- 2026-06-30 00:55 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/7903398020.shtml)
-- 2026-06-30 00:34 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/53150014234.shtml)
-- 2026-06-30 00:30 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/1261272922.shtml)
-- 2026-06-30 00:44 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/66847.shtml)
-- 2026-06-30 00:55 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/64596202.shtml)
-- 2026-06-30 00:58 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/028876361044.shtml)
-- 2026-06-30 00:43 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/18353.shtml)
-- 2026-06-30 00:46 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/131492254866.shtml)
-- 2026-06-30 00:34 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/4462519853.shtml)
-- 2026-06-30 00:37 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/2151712.shtml)
-- 2026-06-30 00:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/87512.shtml)
-- 2026-06-30 00:36 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/7891566840.shtml)
+- 2026-06-30 00:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/18897.shtml)
+- 2026-06-30 00:43 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/672739773558.shtml)
+- 2026-06-30 00:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/98393670786.shtml)
+- 2026-06-30 00:38 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/178900935.shtml)
+- 2026-06-30 00:38 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/5122969.shtml)
+- 2026-06-30 01:03 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/52257234.shtml)
+- 2026-06-30 00:49 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/116762150.shtml)
+- 2026-06-30 01:05 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/942692599856.shtml)
+- 2026-06-30 00:44 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/16040894578.shtml)
+- 2026-06-30 00:39 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/420509053526.shtml)
+- 2026-06-30 00:40 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/71797418.shtml)
+- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/10254354.shtml)
+- 2026-06-30 00:43 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/259291546.shtml)
+- 2026-06-30 01:04 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/45914.shtml)
+- 2026-06-30 00:45 - [TOP Prada](http://www.blog.minike.top/Article/details/009509879.shtml)

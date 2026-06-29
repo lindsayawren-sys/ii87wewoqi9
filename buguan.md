@@ -1,58 +1,60 @@
-# 再论“远方”与“当下” 北京人艺小剧场新戏《天边外》将演
+# 全国政协召开远程协商会 围绕“文旅融合促进各民族交往交流交融”协商议政 王沪宁主持
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电 (记者 高凯)北京人艺小剧场新排剧目《天边外》日前举办媒体见面会。北京人民艺术剧院院长、本剧艺术指导冯远征，导演张彤，主演张鑫名、王俊淇、胡昕怡、孙星、付瑶、李珀、曾泳醍及一众主创集体亮相。 《天边外》是尤金·奥尼尔的成名作，创作于1918年。1920年该剧在百老汇首演后，为奥尼尔赢得了他的第一个普利策戏剧奖。故事围绕上世纪美国乡村一对性格截然相反的兄弟
+本报讯(记者 吕巍)全国政协5月21日在京召开远程协商会，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，以习近平同志为核心的中共中央高度重视铸牢中华民族共同体意识、推进中华民族共同体建设，高度重视推进文化和旅游深度融合发展，作出一系列重要部署。要深入学习贯彻习近平总书记关于促进各民族交往交流交融、铸牢中华民族共同体意识的重要论述，落实“十五五”时期推进
 
 ## 正文
 
-中新网北京4月22日电 (记者 高凯)北京人艺小剧场新排剧目《天边外》日前举办媒体见面会。
+本报讯(记者 吕巍)全国政协5月21日在京召开远程协商会，中共中央政治局常委、全国政协主席王沪宁主持会议。
 
-北京人民艺术剧院院长、本剧艺术指导冯远征，导演张彤，主演张鑫名、王俊淇、胡昕怡、孙星、付瑶、李珀、曾泳醍及一众主创集体亮相。
+他表示，中共十八大以来，以习近平同志为核心的中共中央高度重视铸牢中华民族共同体意识、推进中华民族共同体建设，高度重视推进文化和旅游深度融合发展，作出一系列重要部署。
 
-《天边外》是尤金·奥尼尔的成名作，创作于1918年。
+要深入学习贯彻习近平总书记关于促进各民族交往交流交融、铸牢中华民族共同体意识的重要论述，落实“十五五”时期推进文化和旅游深度融合发展的部署要求，增强履职建言的针对性和可操作性。
 
-1920年该剧在百老汇首演后，为奥尼尔赢得了他的第一个普利策戏剧奖。
+王沪宁表示，人民政协要围绕坚持正确的中华民族历史观、加强对各民族交往交流交融历史文化和各民族携手推进中国式现代化的精神挖掘和价值阐释，围绕深化各民族交往交流交融创新完善文旅服务体系，围绕运用文旅融合讲述中华民族共同体故事、运用数智技术赋能文旅融合促进“三交”等，深入开展研究，通过视察考察调研、社情民意信息、提案等反映情况、提出建议。
 
-故事围绕上世纪美国乡村一对性格截然相反的兄弟展开：一次关于爱情的选择，让梦想远方的弟弟罗伯特被困农场，热爱土地的哥哥安德鲁却漂泊海上。
+文化、旅游、民族等领域的政协委员要立足本职岗位和专业优势，为推动文旅融合促进“三交”发挥更大作用。
 
-人生遭遇错位，梦想最终破灭，由此揭示出人生理想与客观现实之间的深刻矛盾。
+全国政协委员边巴扎西、赵德明、迪丽娜尔·阿布拉、戴斌、杨向群、田沁鑫、韩文林、杨安娣、陈雍、李骏虎和专家丁赛分别在全国政协机关主会场和吉林、贵州、云南、青海、新疆等地通过视频连线等方式发言。
 
-“从这部百余年前的作品中，我们依然能找到自己或他人的影子，这就是经典作品的划时代性——每个时代都能常演常新。
+大家建议，要聚焦铸牢中华民族共同体意识主线，深入挖掘、整理、开发各民族交往交流交融的历史事实、遗址遗迹、活态遗产等，推动各地依托自然景观、历史文化等文旅资源，深化对中华民族共同体基础问题和旅游叙事的研究阐释，以文旅铸同心、聚人心。
 
-”冯远征表示，“作为北京人艺2026年度首部小剧场新创剧目，我们希望通过对作品的深度解读，以扎实的舞台呈现，让当代观众与经典作品之间产生新的链接。
+要支持民族地区加强文化创意等人才培养，补齐旅游配套设施短板，丰富产品供给，提升服务水平。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 00:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 00:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 00:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 00:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 00:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 00:35 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 00:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 00:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 00:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 00:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 00:55 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 01:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 00:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 00:38 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 01:04 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 00:56 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 00:51 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 01:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 01:00 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 00:53 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 00:42 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 01:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 00:44 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 00:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 00:39 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/599325.shtml)
-- 2026-06-30 00:50 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/077374.shtml)
-- 2026-06-30 00:32 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5846165777.shtml)
-- 2026-06-30 00:54 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/35382.shtml)
-- 2026-06-30 00:42 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/185113744.shtml)
-- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/03744641922.shtml)
-- 2026-06-30 00:39 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/37445.shtml)
-- 2026-06-30 00:40 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/26014.shtml)
-- 2026-06-30 00:50 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/206034.shtml)
-- 2026-06-30 00:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/1768266.shtml)
-- 2026-06-30 00:56 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/7956132.shtml)
-- 2026-06-30 00:48 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/02419509.shtml)
-- 2026-06-30 00:46 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/404016.shtml)
-- 2026-06-30 00:41 - [世界杯](http://www.share.kurohicncr.top/Article/details/83340238596.shtml)
-- 2026-06-30 00:50 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/74340.shtml)
+- 2026-06-30 01:02 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/843531636.shtml)
+- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/734050.shtml)
+- 2026-06-30 00:59 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/388106176458.shtml)
+- 2026-06-30 00:39 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/6051932580.shtml)
+- 2026-06-30 01:04 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/187627303.shtml)
+- 2026-06-30 00:44 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/8389281.shtml)
+- 2026-06-30 00:43 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/5806329.shtml)
+- 2026-06-30 00:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/005945.shtml)
+- 2026-06-30 00:50 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/8887707653.shtml)
+- 2026-06-30 00:45 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/3816179556.shtml)
+- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/17509828.shtml)
+- 2026-06-30 00:50 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/95045625.shtml)
+- 2026-06-30 00:44 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/01893.shtml)
+- 2026-06-30 00:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/0680578.shtml)
+- 2026-06-30 00:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/352645211.shtml)

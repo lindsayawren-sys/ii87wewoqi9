@@ -1,56 +1,46 @@
-# 海南离岛免税政策实施15周年 免税购物金额达2864亿元
+# 时政画说丨跨越山海的重逢
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-2011年4月20日，海南离岛免税政策正式落地实施。15年来，离岛免税政策进行了10次迭代升级：从每人每年5000元额度到10万元，从单一的“口岸提货”到“邮寄送达”“即购即提”“返岛提取”等多种提货方式并行，从35类商品到涵盖47大类。据海口海关统计，自2011年4月20日至2026年4月19日，15年来，海口海关累计监管海南离岛免税购物金额2864亿元，购物件数34788.
+视频：时政画说丨跨越山海的重逢来源：央视新闻客户端 5月20日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的俄罗斯总统普京举行欢迎仪式。 总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐
 
 ## 正文
 
-2011年4月20日，海南离岛免税政策正式落地实施。
+视频：时政画说丨跨越山海的重逢来源：央视新闻客户端 5月20日上午，国家主席习近平在北京人民大会堂东门外广场为来华进行国事访问的俄罗斯总统普京举行欢迎仪式。
 
-15年来，离岛免税政策进行了10次迭代升级：从每人每年5000元额度到10万元，从单一的“口岸提货”到“邮寄送达”“即购即提”“返岛提取”等多种提货方式并行，从35类商品到涵盖47大类。
-
-据海口海关统计，自2011年4月20日至2026年4月19日，15年来，海口海关累计监管海南离岛免税购物金额2864亿元，购物件数34788.43万件，购物人数5086.67万人次。
-
-目前，海南全岛已形成6家经营主体、12家离岛免税店的有序竞争格局。
-
-三亚国际免税城成为全国唯一一个被评为4A级景区的免税店，离岛免税政策正推动文旅、会展、演艺等产业齐头并进。
-
-在海南自贸港封关运作的新起点上，离岛免税政策正成为链接全球旅客的桥梁。
-
-2025年11月的新政明确允许“离岛且离境旅客”享受离岛免税购物政策，这意味着国际游客在海南离境时同样可以带走免税好物。
-
-政策覆盖范围的扩大，叠加日益便利的免签入境政策和即买即退的离境退税政策，配合“多语种标识”“跨境便捷支付”等软环境提升，让越来越多的外国游客将海南列为“购物清单”上的必到一站。
+总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 00:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 00:38 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 00:40 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 00:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 00:36 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 00:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 00:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 00:40 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 00:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 00:55 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 00:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 00:58 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 00:55 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 01:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 01:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 01:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 01:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 00:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 00:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 00:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/1265687251.shtml)
-- 2026-06-30 00:40 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/91689492450.shtml)
-- 2026-06-30 00:35 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/87200.shtml)
-- 2026-06-30 00:33 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/60024826441.shtml)
-- 2026-06-30 00:43 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/182626.shtml)
-- 2026-06-30 00:52 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/614798659.shtml)
-- 2026-06-30 00:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/444100032442.shtml)
-- 2026-06-30 00:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/140163199975.shtml)
-- 2026-06-30 00:42 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/31066.shtml)
-- 2026-06-30 00:42 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/65810797680.shtml)
-- 2026-06-30 00:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/916955.shtml)
-- 2026-06-30 00:42 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/8700947.shtml)
-- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/239550454.shtml)
-- 2026-06-30 00:53 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/67577874353.shtml)
-- 2026-06-30 00:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/89604849.shtml)
+- 2026-06-30 01:05 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/14431.shtml)
+- 2026-06-30 00:44 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/0972511724.shtml)
+- 2026-06-30 00:43 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/593366674382.shtml)
+- 2026-06-30 00:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/47372734581.shtml)
+- 2026-06-30 00:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/651590520.shtml)
+- 2026-06-30 00:55 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/43413169014.shtml)
+- 2026-06-30 00:44 - [时光音乐会](https://www.share.minike.top/Article/details/1600081.shtml)
+- 2026-06-30 00:54 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/11252.shtml)
+- 2026-06-30 00:50 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/4504643.shtml)
+- 2026-06-30 00:47 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/27239.shtml)
+- 2026-06-30 00:52 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/03581.shtml)
+- 2026-06-30 00:36 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/6746100.shtml)
+- 2026-06-30 00:50 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/9649644641.shtml)
+- 2026-06-30 01:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/003012.shtml)
+- 2026-06-30 00:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/49056170097.shtml)

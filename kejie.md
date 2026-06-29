@@ -1,60 +1,58 @@
-# 四大证券报头版头条内容精华摘要_2026年4月22日_财经新闻
+# 信用卡市场冰与火：大行“瘦身”关停分中心，地方农商行纷纷借省级农信品牌突围
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月22日（星期三），今日报刊头条主要内容精华如下： 上海证券报 锚定100万亿元目标 国务院发文推进服务业扩能提质 国务院日前印发的《关于推进服务业扩能提质的意见》（下称《意见》）提出，到2030年，服务业总规模迈上100万亿元台阶，质量更高、结构更优、品质更佳、活力更足的发展格局基
+蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。 在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。据不完全统计，仅2025年全年就有近65
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。
 
-4月22日（星期三），今日报刊头条主要内容精华如下： 上海证券报 锚定100万亿元目标 国务院发文推进服务业扩能提质 国务院日前印发的《关于推进服务业扩能提质的意见》（下称《意见》）提出，到2030年，服务业总规模迈上100万亿元台阶，质量更高、结构更优、品质更佳、活力更足的发展格局基本形成，培育更多“中国服务”品牌。
+根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。
 
-工业和信息化部多措并举提升工业经济运行质效 推动未来产业从“实验室”走向“大市场” 研究发布重点行业人工智能赋能应用指南，加快出台《关于推动工业互联网高质量发展的实施意见》，针对未来产业各细分赛道出台专项支持政策……工业和信息化部相关负责人4月21日在国新办新闻发布会上介绍了提升工业经济运行质效的具体政策。
+其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。
 
-“上海价格”国际化迈出关键一步 上期所镍期货及期权正式引入境外交易者 20号胶期权、国际铜期权同日挂牌交易 4月22日（自4月21日晚连续交易时段起），上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者（QFI）开放。
+在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。
 
-同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
+据不完全统计，仅2025年全年就有近65家信用卡分中心获准终止营业，仅2025年一年退出的数量，已超过2020—2024年五年总和。
 
-国际能源署：光伏发电“领跑”去年全球能源供应增长 国际能源署20日发布的报告显示，去年全球太阳能光伏发电量新增600太瓦时，在全球能源供应增量中占比超过25%，这是有记录以来现代可再生能源首次引领全球能源供应增长。
+国内国有大行、股份制银行的信用卡业务，彻底告别了过去跑马圈地、盲目发卡的粗放扩张模式。
 
-证券时报 服务业扩能提质“路线图”出炉：2030年规模迈上100万亿元台阶 在上海，“蝴蝶食坊”社区食堂中午11点刚过就排起长队，周边老人消费十几元就能吃上一顿热乎饭；在杭州，不少婴幼儿成长驿站，让宝妈们解放精力轻松重返职场；在苏州，企业足不出户就能搞定计量、标准、检测、认证“一站式”服务，检测报告在多个国家和地区通用……这些鲜活的场景，是我国服务业从“有”到“优”的真实缩影。
+不过如今有个现象是，今年以来有不少地方农信旗下的农商行信用卡业务陆续获批。
 
-一季度我国规上工业增加值增长6.1% 算电协同与6G加速推进 4月21日，国务院新闻办公室举行新闻发布会，介绍2026年一季度工业和信息化发展情况。
+5月7日，国家金融监督管理总局佛山监管分局批复信息显示，佛山农商银行获批使用广东农信“悦农”统一信用卡品牌开办信用卡发卡业务；4月10日，广东阳山农村商业银行获批使用“悦农”品牌开办信用卡发卡业务；2月24日，广东翁源农村商业银行获批使用“悦农”品牌开办信用卡发卡业务。
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 00:43 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 00:40 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 00:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 01:00 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 00:45 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 00:49 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:33 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 00:52 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 00:54 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 00:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 00:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 00:51 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 01:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 01:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:01 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 00:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 00:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 00:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 00:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 00:47 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/219994653.shtml)
-- 2026-06-30 00:49 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/39134.shtml)
-- 2026-06-30 00:52 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/65009566.shtml)
-- 2026-06-30 00:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/119642209.shtml)
-- 2026-06-30 00:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/660387.shtml)
-- 2026-06-30 00:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/58319727.shtml)
-- 2026-06-30 00:35 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/58736668.shtml)
-- 2026-06-30 00:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/239781.shtml)
-- 2026-06-30 00:52 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/082268698.shtml)
-- 2026-06-30 00:44 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3039180185.shtml)
-- 2026-06-30 00:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/818576671.shtml)
-- 2026-06-30 00:57 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/642960.shtml)
-- 2026-06-30 00:58 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0221349.shtml)
-- 2026-06-30 00:49 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/8222711649.shtml)
-- 2026-06-30 00:58 - [小娘惹](http://www.share.kurohicncr.top/Article/details/706737.shtml)
+- 2026-06-30 00:53 - [斗破苍穹](https://www.blog.minike.top/Article/details/67155.shtml)
+- 2026-06-30 00:46 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/51878818.shtml)
+- 2026-06-30 00:54 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/67001033.shtml)
+- 2026-06-30 01:05 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/6618275977.shtml)
+- 2026-06-30 00:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/83642.shtml)
+- 2026-06-30 00:51 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/60160755.shtml)
+- 2026-06-30 00:40 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/980681.shtml)
+- 2026-06-30 00:39 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/0554930.shtml)
+- 2026-06-30 00:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/36408.shtml)
+- 2026-06-30 00:37 - [东方风云榜](https://www.blog.minike.top/Article/details/186455833.shtml)
+- 2026-06-30 01:03 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/6517106.shtml)
+- 2026-06-30 01:03 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/0075473501.shtml)
+- 2026-06-30 00:43 - [扬名立万](https://www.share.minike.top/Article/details/0603381.shtml)
+- 2026-06-30 01:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/97825427.shtml)
+- 2026-06-30 00:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/333807.shtml)

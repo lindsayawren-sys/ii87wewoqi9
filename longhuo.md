@@ -1,56 +1,54 @@
-# 上海期货交易所镍期货及期权正式引入境外交易者参与交易
+# 法国泰雷兹集团与谷歌云合作在德推出“主权云”服务
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 08:25 来源：中国新闻网 4月21日21时起，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。同时上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。 镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种。镍不仅是不锈钢的重要原料，更是新能源汽车电池
+当地时间5月20日，法国国防与安全电子巨头泰雷兹集团（Thales）与谷歌云（Google Cloud）联合宣布签署合作协议，将在德国推出一项在运营和法律上完全独立于谷歌的全新欧洲云服务。此举旨在回应欧盟降低对外部科技巨头依赖、提升本土数字主权的政策诉求。 根据协议，泰雷兹集团将全资控股并控制该专用云基础设施，并在德国设立一家全新的独立实体负责其具体运营与管理，该实体的员工和管
 
 ## 正文
 
-发布时间：2026年04月22日 08:25 来源：中国新闻网 4月21日21时起，上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者开放。
+当地时间5月20日，法国国防与安全电子巨头泰雷兹集团（Thales）与谷歌云（Google Cloud）联合宣布签署合作协议，将在德国推出一项在运营和法律上完全独立于谷歌的全新欧洲云服务。
 
-同时上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
+此举旨在回应欧盟降低对外部科技巨头依赖、提升本土数字主权的政策诉求。
 
-镍期货及期权是上期所挂牌的首个对外开放的期货及期权品种。
+根据协议，泰雷兹集团将全资控股并控制该专用云基础设施，并在德国设立一家全新的独立实体负责其具体运营与管理，该实体的员工和管理层将完全本土化。
 
-镍不仅是不锈钢的重要原料，更是新能源汽车电池、航空航天等高端制造的关键材料。
+该云服务方案专门针对德国公共部门机构的数字主权及监管合规需求而设计，其技术和运营模式将与泰雷兹在法国运营的云服务“S3NS”保持高度一致。
 
-中国是全球最大的镍消费国和进口国，同时全球镍市场当前在矿产资源、生产及消费等方面正加速演进，因此国内外企业对价格波动的风险管理需求都很强烈。
+分析人士指出，当前欧盟正大力推动发展本土技术解决方案，以减少关键信息基础设施在云计算等领域对美国大型科技企业的过度依赖。
 
-高志苗 徐银 康玉湛上海报道 责任编辑：【田博群】
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 00:43 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 00:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 00:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 00:54 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 00:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 00:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 00:34 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 00:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 00:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 00:46 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 00:39 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 00:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 00:59 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 00:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 00:59 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 00:38 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 00:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:02 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 00:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 00:53 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 00:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 00:44 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 01:06 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/296609285243.shtml)
-- 2026-06-30 00:40 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/82274.shtml)
-- 2026-06-30 00:49 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/30598457.shtml)
-- 2026-06-30 00:46 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/3168826.shtml)
-- 2026-06-30 00:46 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/33733854109.shtml)
-- 2026-06-30 00:53 - [时光音乐会](http://www.blog.minike.top/Article/details/02819827044.shtml)
-- 2026-06-30 00:32 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/39607178.shtml)
-- 2026-06-30 00:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/84946585097.shtml)
-- 2026-06-30 00:35 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/6626538.shtml)
-- 2026-06-30 00:49 - [一生一世](http://www.blog.minike.top/Article/details/065058753975.shtml)
-- 2026-06-30 00:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/49376.shtml)
-- 2026-06-30 00:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/07065.shtml)
-- 2026-06-30 00:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/985689142910.shtml)
-- 2026-06-30 00:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/940340327.shtml)
-- 2026-06-30 00:58 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/3342730462.shtml)
+- 2026-06-30 00:58 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/34099647029.shtml)
+- 2026-06-30 00:59 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/90709.shtml)
+- 2026-06-30 00:46 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/265032585.shtml)
+- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/55562811.shtml)
+- 2026-06-30 00:54 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/57877787.shtml)
+- 2026-06-30 00:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/28700087058.shtml)
+- 2026-06-30 00:40 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/22852195.shtml)
+- 2026-06-30 00:49 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/7418172576.shtml)
+- 2026-06-30 00:47 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/912611461007.shtml)
+- 2026-06-30 00:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/61124649.shtml)
+- 2026-06-30 01:02 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/062370297.shtml)
+- 2026-06-30 00:53 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/555917870.shtml)
+- 2026-06-30 01:00 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/26035103931.shtml)
+- 2026-06-30 01:02 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/890715.shtml)
+- 2026-06-30 00:45 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/30693921.shtml)

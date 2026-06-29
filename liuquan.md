@@ -1,56 +1,60 @@
-# 大众汽车宣布今年下半年起在中国市场车型搭载语音人工智能
+# 菜鸟副总裁毕江华：攀爬机器人已公开销售，今年签约金额可观
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-核心要点 德国汽车巨头大众汽车宣布，将为中国市场车型搭载语音人工智能控制系统。 大众周二表示，自今年下半年起，基于大众中国车载系统打造的所有车型，均将配备智能语音 AI 助手，用户可通过语音指令操控车辆各项功能。 “汽车应当像一位伙伴。” 大众中国首席技术官托马斯・乌尔布里希接受 CNBC 记者尹恩熙采访时表示。 他称，大众车载 AI 助手将整合腾讯、阿里巴巴、百度等企业的技术
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年4月，菜鸟在美国亚特兰大物流展上发布首款攀爬机器人ZeeBot，并公布首个攀爬机器人仓库已在东莞跨境仓投入使用。据介绍，ZeeBot打破了传统自动化仓库中地面搬运与立库垂直搬运相互割裂的作业模式，同一台机器人既能在地面高速移动，又能直接攀爬货架进行存取。 5月20日，在一场媒体交流中，菜鸟副总裁、物流科
 
 ## 正文
 
-核心要点 德国汽车巨头大众汽车宣布，将为中国市场车型搭载语音人工智能控制系统。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大众周二表示，自今年下半年起，基于大众中国车载系统打造的所有车型，均将配备智能语音 AI 助手，用户可通过语音指令操控车辆各项功能。
+今年4月，菜鸟在美国亚特兰大物流展上发布首款攀爬机器人ZeeBot，并公布首个攀爬机器人仓库已在东莞跨境仓投入使用。
 
-“汽车应当像一位伙伴。
+据介绍，ZeeBot打破了传统自动化仓库中地面搬运与立库垂直搬运相互割裂的作业模式，同一台机器人既能在地面高速移动，又能直接攀爬货架进行存取。
 
-” 大众中国首席技术官托马斯・乌尔布里希接受 CNBC 记者尹恩熙采访时表示。
+5月20日，在一场媒体交流中，菜鸟副总裁、物流科技事业部总经理毕江华表示，下一代攀爬机器人将向性能更稳、能力更强、技能更多的方向迭代。
 
-他称，大众车载 AI 助手将整合腾讯、阿里巴巴、百度等企业的技术，打造出具备 “个性”、能够预判驾驶员需求的智能工具。
+运动能力方面，机器人从地面到货架再到在货架上自由行走；拣货能力方面，机器人将添加手臂自助完成货品拣选；自助救援方面，机器人出现故障后由另一部机器人进行救援。
 
-该人工智能采用本地化训练的大语言模型，所有运算均在车机端完成，无需依赖云端。
+未来菜鸟还会推出拣货机器人，货品的上架、拣选均由机器人操作，以实现仓库24小时无休运行。
 
-大众周二在北京亮相四款车型，其中包括 ID.UNYX 09，该车型由大众与新能源车企小鹏汽车耗时两年联合开发。
+根据菜鸟公布的数据，相较于其他自动化仓库，目前攀爬机器人仓库已展现出显著优势：机器人移动速度更快，平面上达到每秒4米；向上攀爬时，10秒钟可至5层楼高的货架；仓库存储密度更高，存储空间利用率提升40%；模块化设计、部署效率提升，让仓库具备更强的拓展弹性。
 
-在中国市场快速从燃油车向电动车转型的背景下，此举是大众挽回流失市场份额战略的一部分。
+新浪科技了解到，菜鸟攀爬机器人的核心零部件均为自主研发制造，部分零部件委托外部供应商加工，但最终整机组装由菜鸟自有工厂承担。
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 00:56 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 00:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 00:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 00:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 00:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 00:37 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 00:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 00:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 00:36 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 00:55 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 00:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 00:42 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 00:57 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 00:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 01:02 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 00:49 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:05 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 01:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 01:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 00:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 00:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 00:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 00:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/463940320049.shtml)
-- 2026-06-30 00:59 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/088308985.shtml)
-- 2026-06-30 00:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/36501541.shtml)
-- 2026-06-30 00:39 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/49129.shtml)
-- 2026-06-30 00:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/8037967585.shtml)
-- 2026-06-30 00:40 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/13265.shtml)
-- 2026-06-30 00:43 - [毒液2](https://www.blog.kurohicncr.top/Article/details/766321231.shtml)
-- 2026-06-30 00:37 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6884825.shtml)
-- 2026-06-30 00:31 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/66796835139.shtml)
-- 2026-06-30 00:40 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/03449817565.shtml)
-- 2026-06-30 00:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/83331051.shtml)
-- 2026-06-30 00:31 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/425906.shtml)
-- 2026-06-30 00:33 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/48102281.shtml)
-- 2026-06-30 00:33 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/0933149725.shtml)
-- 2026-06-30 00:30 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/262116.shtml)
+- 2026-06-30 00:56 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/852381611208.shtml)
+- 2026-06-30 00:56 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/35425132899.shtml)
+- 2026-06-30 00:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/2038318.shtml)
+- 2026-06-30 00:47 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/737492.shtml)
+- 2026-06-30 00:53 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/624169186341.shtml)
+- 2026-06-30 00:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/3929500.shtml)
+- 2026-06-30 01:01 - [小娘惹](https://www.share.minike.top/Article/details/7882699160.shtml)
+- 2026-06-30 00:54 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/055169.shtml)
+- 2026-06-30 01:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/636854.shtml)
+- 2026-06-30 00:37 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/846155222.shtml)
+- 2026-06-30 00:55 - [天道](http://www.share.minike.top/Article/details/317452636850.shtml)
+- 2026-06-30 00:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/6740283.shtml)
+- 2026-06-30 00:43 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/18549.shtml)
+- 2026-06-30 01:05 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/67772436.shtml)
+- 2026-06-30 00:50 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/11990718899.shtml)

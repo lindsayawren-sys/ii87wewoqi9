@@ -1,58 +1,61 @@
-# 全球央行，抢购中国国债
+# 杰夫·贝索斯：收入最低的一半人群应该免除所得税
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新经纬4月22日电 (罗琨)在全球债市遭遇剧烈抛售、美债收益率一度飙升到4.48%的背景下，中国国债正成为国际资本争相涌入的“避风港”。 4月22日，中国财政部在香港特别行政区发行2026年第二期155亿元人民币国债，认购倍数4.6倍。这意味着，每发行100元国债，就有460元资金想买入，想买的钱是实际发行额度的近5倍。认购倍数越高，说明越受投资者欢迎。 中国国债为何成了国际
+亚马逊执行主席杰夫·贝索斯周三呼吁，对收入处于最低一半的人群实行零联邦所得税。 贝索斯表示，收入最高的1%纳税人缴纳了全部税收收入的40%，而收入最低的一半人群仅缴纳了3%。 “我认为这3%是不应该存在的，”贝索斯说，“我认为应该是零。” 根据税务基金会援引国税局最新统计数据，2023年收入处于后50%的纳税人，其调整后总收入约为5.4万美元。相比之下，当年收入处于前1%的家庭
 
 ## 正文
 
-中新经纬4月22日电 (罗琨)在全球债市遭遇剧烈抛售、美债收益率一度飙升到4.48%的背景下，中国国债正成为国际资本争相涌入的“避风港”。
+亚马逊执行主席杰夫·贝索斯周三呼吁，对收入处于最低一半的人群实行零联邦所得税。
 
-4月22日，中国财政部在香港特别行政区发行2026年第二期155亿元人民币国债，认购倍数4.6倍。
+贝索斯表示，收入最高的1%纳税人缴纳了全部税收收入的40%，而收入最低的一半人群仅缴纳了3%。
 
-这意味着，每发行100元国债，就有460元资金想买入，想买的钱是实际发行额度的近5倍。
+“我认为这3%是不应该存在的，”贝索斯说，“我认为应该是零。
 
-认购倍数越高，说明越受投资者欢迎。
+” 根据税务基金会援引国税局最新统计数据，2023年收入处于后50%的纳税人，其调整后总收入约为5.4万美元。
 
-中国国债为何成了国际资本的“香饽饽”？
+相比之下，当年收入处于前1%的家庭，其收入至少达到了67.6万美元。
 
-认购持续火爆3月以来，美伊冲突骤然升级，全球能源价格飙升，通胀预期急剧升温。
+贝索斯表示，低收入者缴纳的所得税“对政府来说只是一笔小钱”，并举了一个年薪7.5万美元的医护人员的假设例子。
 
-全球主要国债遭遇集中抛售，收益率全线走高。
+“我们不应该要求这位在皇后区工作的护士给华盛顿寄钱，”他说，“她们应该收到一封道歉信。
 
-英国《金融时报》4月1日刊文指出，自美以联合挑起对伊朗的战事以来，中国十年期国债收益率微降至1.81%，而同期美债收益率飙升38个基点至4.34%、英国国债收益率大涨70个基点。
+这真的毫无道理。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 00:55 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 00:36 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 00:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 00:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 00:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 00:39 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 00:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 00:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 00:46 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 00:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 00:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 00:45 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 01:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 00:44 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 00:49 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 00:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 00:45 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 00:37 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 00:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 00:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 00:52 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 00:41 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 00:37 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/125671530.shtml)
-- 2026-06-30 00:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/31707426338.shtml)
-- 2026-06-30 00:33 - [流金岁月](https://www.share.minike.top/Article/details/9146870240.shtml)
-- 2026-06-30 00:57 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/4380579.shtml)
-- 2026-06-30 00:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/295314999750.shtml)
-- 2026-06-30 00:48 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/134251406.shtml)
-- 2026-06-30 00:35 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/3666655.shtml)
-- 2026-06-30 00:42 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/80397343616.shtml)
-- 2026-06-30 00:51 - [千香](http://www.blog.minike.top/Article/details/28671233119.shtml)
-- 2026-06-30 00:52 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/428630140829.shtml)
-- 2026-06-30 00:47 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/191286411316.shtml)
-- 2026-06-30 00:43 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/32855024.shtml)
-- 2026-06-30 00:38 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3419386.shtml)
-- 2026-06-30 00:48 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/9412622288.shtml)
-- 2026-06-30 00:49 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/5908872018.shtml)
+- 2026-06-30 00:42 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/282490390.shtml)
+- 2026-06-30 01:05 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/2069083.shtml)
+- 2026-06-30 00:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/8357794.shtml)
+- 2026-06-30 01:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/447784533.shtml)
+- 2026-06-30 00:47 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/221308104936.shtml)
+- 2026-06-30 00:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/87599128574.shtml)
+- 2026-06-30 00:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/919111.shtml)
+- 2026-06-30 01:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/815527.shtml)
+- 2026-06-30 00:53 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/854496349.shtml)
+- 2026-06-30 00:57 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/931981365.shtml)
+- 2026-06-30 00:37 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/72422.shtml)
+- 2026-06-30 01:00 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/263948.shtml)
+- 2026-06-30 01:04 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/7654086.shtml)
+- 2026-06-30 00:41 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/3853274.shtml)
+- 2026-06-30 00:40 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/86248105.shtml)

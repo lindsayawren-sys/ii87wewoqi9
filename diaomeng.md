@@ -1,54 +1,56 @@
-# 空中客车将收购法国网络安全公司Quarkslab
+# 摩根大通戴蒙称利率恐大幅攀升 通胀或将高到人们不愿持有长天期证券
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-空中客车（Airbus）表示，已同意收购法国网络安全公司Quarkslab，以继续增强其安全资质。 这家法国公司表示，这项计划中的投资是其在法国发展主权网络安全能力、并提升其在更广泛欧洲网络安全行业地位的战略的一部分。该公司已于2024年收购了德国的Infodas，并计划收购英国的Ultra Cyber。 空中客车表示，该交易预计将在2026年期间完成。 Quarkslab成立
+杰米‧戴蒙指出，利率可能从目前的水平大幅攀升；在收益率触及多年高点之际，这对债券投资者来说是一警讯。 这位摩根大通董事长兼首席执行官在接受采访时表示，利率可能会比如今高出许多。我们或许已经从储蓄过剩的时代，转向储蓄不足的局面。 戴蒙发表此番言论之际，随着人们担心油价上涨可能迫使各国央行提高利率，长期债券面临下行压力。此外，投资人也担心日本、英国和美国的政府支出，以及AI蓬勃发展
 
 ## 正文
 
-空中客车（Airbus）表示，已同意收购法国网络安全公司Quarkslab，以继续增强其安全资质。
+杰米‧戴蒙指出，利率可能从目前的水平大幅攀升；在收益率触及多年高点之际，这对债券投资者来说是一警讯。
 
-这家法国公司表示，这项计划中的投资是其在法国发展主权网络安全能力、并提升其在更广泛欧洲网络安全行业地位的战略的一部分。
+这位摩根大通董事长兼首席执行官在接受采访时表示，利率可能会比如今高出许多。
 
-该公司已于2024年收购了德国的Infodas，并计划收购英国的Ultra Cyber。
+我们或许已经从储蓄过剩的时代，转向储蓄不足的局面。
 
-空中客车表示，该交易预计将在2026年期间完成。
+戴蒙发表此番言论之际，随着人们担心油价上涨可能迫使各国央行提高利率，长期债券面临下行压力。
 
-Quarkslab成立于2011年，拥有约100名员工。
+此外，投资人也担心日本、英国和美国的政府支出，以及AI蓬勃发展将推动全球最大经济体的增长，投资人要求更高的回报才愿意持有长天期债券。
 
-该公司开发的解决方案可帮助保护关键资产、数据和用户免受网络攻击。
+他说，不知道世界何时会开始害怕这件事，当通胀高到让人们不愿意持有长天期证券时，冲击终将到来。
 
-责任编辑：刘明亮
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 00:54 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 00:48 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 00:40 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 00:52 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:43 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 00:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 00:49 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 00:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 00:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 00:49 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 00:44 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 00:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 01:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 01:00 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 00:40 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 00:40 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 00:55 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:40 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 00:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 01:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/293449.shtml)
-- 2026-06-30 00:32 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/1818127.shtml)
-- 2026-06-30 00:53 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/0810122182.shtml)
-- 2026-06-30 00:32 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/651780990709.shtml)
-- 2026-06-30 00:55 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/65872763873.shtml)
-- 2026-06-30 00:36 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/583608.shtml)
-- 2026-06-30 00:58 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/842216307832.shtml)
-- 2026-06-30 00:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/082819684.shtml)
-- 2026-06-30 00:55 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/982196292302.shtml)
-- 2026-06-30 00:32 - [一见倾心](https://www.share.minike.top/Article/details/32185.shtml)
-- 2026-06-30 00:31 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/243114317032.shtml)
-- 2026-06-30 00:36 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/507589.shtml)
-- 2026-06-30 00:42 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/9814101.shtml)
-- 2026-06-30 00:34 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/8873844555.shtml)
-- 2026-06-30 00:39 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/5495643.shtml)
+- 2026-06-30 00:47 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/30743.shtml)
+- 2026-06-30 00:44 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/91504687645.shtml)
+- 2026-06-30 01:04 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/7387730728.shtml)
+- 2026-06-30 00:55 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/4378605676.shtml)
+- 2026-06-30 00:56 - [美股](https://www.share.minike.top/Article/details/100037804772.shtml)
+- 2026-06-30 00:53 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3594972316.shtml)
+- 2026-06-30 01:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/387639.shtml)
+- 2026-06-30 00:56 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/486046.shtml)
+- 2026-06-30 00:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5103074.shtml)
+- 2026-06-30 00:42 - [小娘惹](https://www.blog.minike.top/Article/details/800574.shtml)
+- 2026-06-30 00:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/8867014.shtml)
+- 2026-06-30 00:44 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/5411915709.shtml)
+- 2026-06-30 01:03 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/715330052282.shtml)
+- 2026-06-30 01:01 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/99063915.shtml)
+- 2026-06-30 00:41 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8157912485.shtml)

@@ -1,44 +1,60 @@
-# 热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家
+# 受伊朗和平协议前景不明及原油库存下降影响，油价迎来反弹
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 14:58 来源：中国新闻网 责任编辑：【韦俊龙】
+周四油价小幅上涨，收复此前部分失地。投资者密切关注美伊和平谈判进展，同时供应紧张格局与美国原油库存下降也为油价提供了支撑。 格林尼治标准时间03：41，布伦特原油期货上涨78美分，涨幅0.74%，报每桶105.80美元；美国西德克萨斯轻质原油期货上涨84美分，涨幅0.85%，报每桶99.10美元。 周三，两大基准原油价格均暴跌超5.6%，创下逾一周新低。此前美国总统特朗普表示，
 
 ## 正文
 
-发布时间：2026年04月22日 14:58 来源：中国新闻网 责任编辑：【韦俊龙】
+周四油价小幅上涨，收复此前部分失地。
+
+投资者密切关注美伊和平谈判进展，同时供应紧张格局与美国原油库存下降也为油价提供了支撑。
+
+格林尼治标准时间03：41，布伦特原油期货上涨78美分，涨幅0.74%，报每桶105.80美元；美国西德克萨斯轻质原油期货上涨84美分，涨幅0.85%，报每桶99.10美元。
+
+周三，两大基准原油价格均暴跌超5.6%，创下逾一周新低。
+
+此前美国总统特朗普表示，与伊朗的谈判已进入最后阶段，但同时威胁称，若德黑兰方面不签署和平协议，将发动进一步打击。
+
+荷兰国际集团分析师周四在报告中指出：“原油市场对伊朗相关消息依旧极度敏感，市场参与者仍对美伊谈判取得进展的报道寄予厚望。
+
+” 他们补充称：“这种情况此前已多次出现，最终都以失望告终。
+
+”该行预测，本季度布伦特原油均价将达到每桶104美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 00:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 00:33 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 00:44 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 00:58 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 00:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 00:42 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 00:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 00:59 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 00:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 00:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 00:47 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 00:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 00:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 01:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 00:47 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:44 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 01:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 00:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 00:55 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 00:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 00:50 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 00:56 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 00:57 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 00:53 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:36 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/71998249948.shtml)
-- 2026-06-30 00:39 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/69346080.shtml)
-- 2026-06-30 00:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/719720234.shtml)
-- 2026-06-30 00:35 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3747491034.shtml)
-- 2026-06-30 00:40 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/4047831.shtml)
-- 2026-06-30 00:59 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/77099.shtml)
-- 2026-06-30 00:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/0643766.shtml)
-- 2026-06-30 00:34 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/148705.shtml)
-- 2026-06-30 00:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/729477384780.shtml)
-- 2026-06-30 00:38 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/854159.shtml)
-- 2026-06-30 00:34 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/14745901.shtml)
-- 2026-06-30 00:37 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/173337710629.shtml)
-- 2026-06-30 00:34 - [千与千寻](http://www.share.kurohicncr.top/Article/details/18130844741.shtml)
-- 2026-06-30 00:51 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/499709.shtml)
-- 2026-06-30 01:00 - [急先锋](http://www.blog.minike.top/Article/details/62649776.shtml)
+- 2026-06-30 00:56 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/80917.shtml)
+- 2026-06-30 00:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/28030.shtml)
+- 2026-06-30 00:41 - [啊啊啊](http://www.share.minike.top/Article/details/547998510889.shtml)
+- 2026-06-30 00:56 - [小娘惹](https://www.share.minike.top/Article/details/1170322841.shtml)
+- 2026-06-30 00:53 - [绘画区你赢了](https://www.blog.minike.top/Article/details/3196755.shtml)
+- 2026-06-30 00:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/88408682133.shtml)
+- 2026-06-30 00:57 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/82993.shtml)
+- 2026-06-30 00:49 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/107937477.shtml)
+- 2026-06-30 00:36 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/1502746.shtml)
+- 2026-06-30 01:01 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/2358460988.shtml)
+- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/93503472317.shtml)
+- 2026-06-30 00:51 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/509460.shtml)
+- 2026-06-30 00:48 - [一生一世](http://www.blog.kurohicncr.top/Article/details/66572859981.shtml)
+- 2026-06-30 00:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/788329215711.shtml)
+- 2026-06-30 00:54 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/770649.shtml)

@@ -1,53 +1,49 @@
-# 外交部回应美方宣布延长停火期限：当务之急仍是全力避免战端重启
+# 伊朗国家电视台：伊朗总统称不会在谈判中退让
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月22日，外交部发言人郭嘉昆主持例行记者会。 就美方宣布延长美伊停火期限，郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。 中方愿根据习近平主席四点主张精神，同国际社会一道为此发挥积极建设性作用。 （总台央视记者 申杨） 责任编辑：刘万里 SF01
+“我们可以有尊严地进行对话，我们永远不会退让，”伊朗总统在国家电视台播出的一次活动中表示。 他重申，他们“有能力凭借实力和人民的支持来捍卫国家权利”。 他表示，这个国家无法被导弹、炸弹或战斗机征服。责任编辑：何云
 
 ## 正文
 
-4月22日，外交部发言人郭嘉昆主持例行记者会。
+“我们可以有尊严地进行对话，我们永远不会退让，”伊朗总统在国家电视台播出的一次活动中表示。
 
-就美方宣布延长美伊停火期限，郭嘉昆表示，当前地区局势处于战和转换的关键阶段，当务之急仍是全力避免战端重启。
+他重申，他们“有能力凭借实力和人民的支持来捍卫国家权利”。
 
-中方支持相关方继续坚持通过政治外交途径化解争端，实现全面持久停火止战，维护好中东和海湾地区和平稳定。
+他表示，这个国家无法被导弹、炸弹或战斗机征服。
 
-中方愿根据习近平主席四点主张精神，同国际社会一道为此发挥积极建设性作用。
-
-（总台央视记者 申杨） 责任编辑：刘万里 SF014
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 00:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 00:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 00:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 00:46 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 00:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 00:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 00:50 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 00:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 00:47 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 00:53 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 00:43 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 00:54 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 00:57 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 00:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 01:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 01:03 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 00:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 00:52 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 01:05 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 00:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 01:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 00:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/30739.shtml)
-- 2026-06-30 00:50 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/696167.shtml)
-- 2026-06-30 00:37 - [扬名立万](http://www.share.kurohicncr.top/Article/details/62112871587.shtml)
-- 2026-06-30 00:32 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/28903.shtml)
-- 2026-06-30 00:32 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/7436020108.shtml)
-- 2026-06-30 00:49 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/72267027.shtml)
-- 2026-06-30 00:39 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/72540874922.shtml)
-- 2026-06-30 00:50 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/727227340488.shtml)
-- 2026-06-30 00:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/143583257.shtml)
-- 2026-06-30 00:52 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/3664129.shtml)
-- 2026-06-30 00:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/5597195085.shtml)
-- 2026-06-30 00:46 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/842303.shtml)
-- 2026-06-30 00:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/66979581.shtml)
-- 2026-06-30 00:46 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/23716348362.shtml)
-- 2026-06-30 00:45 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/31898222.shtml)
+- 2026-06-30 00:52 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/7136814848.shtml)
+- 2026-06-30 00:39 - [千香](https://www.share.kurohicncr.top/Article/details/71969940.shtml)
+- 2026-06-30 01:03 - [起风了](https://www.share.kurohicncr.top/Article/details/44715368025.shtml)
+- 2026-06-30 00:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/31064738.shtml)
+- 2026-06-30 00:38 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/508754768.shtml)
+- 2026-06-30 00:50 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/58950885.shtml)
+- 2026-06-30 01:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/43194707.shtml)
+- 2026-06-30 01:03 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/1909000612.shtml)
+- 2026-06-30 01:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/186855234341.shtml)
+- 2026-06-30 00:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/1489121328.shtml)
+- 2026-06-30 00:36 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/11766304921.shtml)
+- 2026-06-30 00:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/36108438966.shtml)
+- 2026-06-30 00:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/889794.shtml)
+- 2026-06-30 01:05 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/273197.shtml)
+- 2026-06-30 00:44 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/976705861.shtml)

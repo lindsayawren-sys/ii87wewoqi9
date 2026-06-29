@@ -1,56 +1,57 @@
-# 摸到现役步枪 抗美援朝老战士：“我们的枪更强更硬！”
+# 中国发现三叠纪最大肺鱼化石 距今约2.42亿年全长约1.62米
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-新一批中国人民志愿军烈士遗骸即将归国并安葬在沈阳抗美援朝烈士陵园。4月19日，鸣枪方队在陵园进行安葬仪式鸣枪环节演练。抗美援朝老战士何临弟、曹振希也来到了现场。看到本次鸣枪演练使用的现役步枪，两位老战士感慨道：“如果这样的武器在朝鲜战场上，那该有多好啊！”强军护卫和平，向最可爱的人致敬！(总台记者 林姗蓉 曹志宇 齐莉莉）
+中新网北京5月21日电 (记者 孙自法)记者5月21日从中国科学院古脊椎动物与古人类研究所徐光辉研究员团队获悉，其联合山西自然博物馆最近在山西省晋中市太谷区三叠纪地层中，研究发现一件约2.42亿年前的大型角齿鱼目肺鱼化石。 经研究复原，该肺鱼全长约1.62米，代表了东亚地区已知最古老的、保持自然连接状态的角齿鱼目化石，填补了中三叠世亚洲肺鱼化石的空白，也是目前发现的三叠纪体型最
 
 ## 正文
 
-新一批中国人民志愿军烈士遗骸即将归国并安葬在沈阳抗美援朝烈士陵园。
+中新网北京5月21日电 (记者 孙自法)记者5月21日从中国科学院古脊椎动物与古人类研究所徐光辉研究员团队获悉，其联合山西自然博物馆最近在山西省晋中市太谷区三叠纪地层中，研究发现一件约2.42亿年前的大型角齿鱼目肺鱼化石。
 
-4月19日，鸣枪方队在陵园进行安葬仪式鸣枪环节演练。
+经研究复原，该肺鱼全长约1.62米，代表了东亚地区已知最古老的、保持自然连接状态的角齿鱼目化石，填补了中三叠世亚洲肺鱼化石的空白，也是目前发现的三叠纪体型最大的肺鱼化石。
 
-抗美援朝老战士何临弟、曹振希也来到了现场。
+相关研究成果论文，近日在专业学术期刊《古脊椎动物学报》发表。
 
-看到本次鸣枪演练使用的现役步枪，两位老战士感慨道：“如果这样的武器在朝鲜战场上，那该有多好啊！
+研究团队介绍说，肺鱼是一种古老的肉鳍鱼类，因具有类似肺的鳔、能直接呼吸空气而得名。
 
-”强军护卫和平，向最可爱的人致敬！
+现生肺鱼仅分布于非洲、南美洲和大洋洲的淡水中，每个大陆只有一个属，均归属于角齿鱼目。
 
-(总台记者 林姗蓉 曹志宇 齐莉莉）
+此次中国新发现的角齿鱼目化石保存有20块尾椎骨及关联的“上神经骨”、间椎骨、背腹辐鳍骨和一系列背鳍条。
+
+因岩石节理断裂，该肺鱼的头、胸部缺失，但尾部脊椎骨保存较好。
+
+与完整角齿鱼目肺鱼对比，推断其全长约1.62米。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 00:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 00:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 00:37 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 00:48 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 00:32 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 00:41 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 00:50 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 00:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 00:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 00:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 00:43 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 00:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 00:56 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 00:37 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 00:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 00:57 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 00:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 00:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 00:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 01:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 00:58 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 00:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 01:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [沙丘](https://www.blog.kurohicncr.top/Article/details/22554872.shtml)
-- 2026-06-30 00:50 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2178410.shtml)
-- 2026-06-30 00:38 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/2287782169.shtml)
-- 2026-06-30 00:31 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/057582.shtml)
-- 2026-06-30 00:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/7306908557.shtml)
-- 2026-06-30 00:36 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/00280606.shtml)
-- 2026-06-30 00:46 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/03858055.shtml)
-- 2026-06-30 00:41 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4437788857.shtml)
-- 2026-06-30 00:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/4517024377.shtml)
-- 2026-06-30 00:30 - [金刚川](https://www.share.minike.top/Article/details/93746.shtml)
-- 2026-06-30 00:37 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/7652513775.shtml)
-- 2026-06-30 00:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/5081983.shtml)
-- 2026-06-30 00:31 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/18408.shtml)
-- 2026-06-30 00:43 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/7843320487.shtml)
-- 2026-06-30 00:41 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/438866.shtml)
+- 2026-06-30 00:46 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/5008023.shtml)
+- 2026-06-30 00:44 - [金牌调解](http://www.blog.minike.top/Article/details/53262752527.shtml)
+- 2026-06-30 00:50 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/1839292678.shtml)
+- 2026-06-30 01:02 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/9758762.shtml)
+- 2026-06-30 00:49 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/005225663.shtml)
+- 2026-06-30 01:02 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/303156706.shtml)
+- 2026-06-30 00:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/191869.shtml)
+- 2026-06-30 00:49 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/7656530.shtml)
+- 2026-06-30 00:51 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/6447378976.shtml)
+- 2026-06-30 00:40 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/75346775.shtml)
+- 2026-06-30 00:59 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/5845693912.shtml)
+- 2026-06-30 00:42 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/853390040702.shtml)
+- 2026-06-30 00:55 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/31503403500.shtml)
+- 2026-06-30 00:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/18761.shtml)
+- 2026-06-30 00:41 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/693063910.shtml)

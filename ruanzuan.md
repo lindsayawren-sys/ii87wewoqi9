@@ -1,59 +1,59 @@
-# “院士讲课本里的百科·一讲就懂的人工智能”系列丛书为孩子启蒙AI
+# 酒价内参5月22日价格发布：五粮液1618小幅上涨1元
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网北京4月21日电 (记者 应妮)人工智能是什么？为什么AI能认出我的脸，还能跟我聊天？自动驾驶汽车是怎么“看”路的？AI为什么能画画、写故事？……由中国工程院院士、中国计算机学会理事长孙凝晖主编、一线科学家团队主笔的“院士讲课本里的百科·一讲就懂的人工智能”系列丛书日前正式上市，精准回应青少年AI启蒙需求，为小学中高年级及初中生打开AI世界的大门。 作为丛书主编，孙凝晖院
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，重
 
 ## 正文
 
-中新网北京4月21日电 (记者 应妮)人工智能是什么？
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。
 
-为什么AI能认出我的脸，还能跟我聊天？
+如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。
 
-自动驾驶汽车是怎么“看”路的？
+市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。
 
-AI为什么能画画、写故事？
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-……由中国工程院院士、中国计算机学会理事长孙凝晖主编、一线科学家团队主笔的“院士讲课本里的百科·一讲就懂的人工智能”系列丛书日前正式上市，精准回应青少年AI启蒙需求，为小学中高年级及初中生打开AI世界的大门。
+上涨方面，青花郎涨幅居前，上涨5元/瓶，重返710元关口，平月内最高价纪录；五粮液普五八代上涨2元/瓶；五粮液1618小幅上涨1元/瓶。
 
-作为丛书主编，孙凝晖院士在前言中分享了编撰初衷。
+下跌方面，洋河梦之蓝M6+跌幅居前，下跌6元/瓶，回吐前一日全部涨幅；国窖1573下跌4元/瓶，连续四日回落，价格进一步远离900元关口，回调至月内低位；飞天茅台、精品茅台、古井贡古20与水晶剑南春均下跌2元/瓶；古20遭遇四连阴，价格下探至月内新低；水晶剑南春平近一个月最低价纪录；习酒君品小幅下跌1元/瓶，价格再度回落至月内次低位。
 
-他谈到，人工智能技术正处于高速发展阶段，人工智能必将影响我们工作、学习和生活的方方面面。
+青花汾20的价格环比保持不变，平月内最低价纪录。
 
-这套丛书定位为学校信息课的优质课外读物，核心就是聚焦科学原理而非转瞬即逝的技术，力求让科普内容像短视频一样生动有趣，打破青少年对前沿科技的距离感。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 00:32 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 00:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 00:34 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 00:30 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 00:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 00:55 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 00:57 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 00:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 00:34 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 00:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 00:34 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 00:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 00:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 00:36 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 00:56 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 01:02 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:40 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 01:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 00:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 01:03 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 01:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 00:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 00:49 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 01:05 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/886015.shtml)
-- 2026-06-30 00:55 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/4495815684.shtml)
-- 2026-06-30 00:49 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/1651697597.shtml)
-- 2026-06-30 00:47 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/62136.shtml)
-- 2026-06-30 00:47 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/70246274.shtml)
-- 2026-06-30 00:44 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/355191015144.shtml)
-- 2026-06-30 00:48 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/966996.shtml)
-- 2026-06-30 00:38 - [巴西vs日本](https://www.blog.minike.top/Article/details/0747848.shtml)
-- 2026-06-30 00:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/95120.shtml)
-- 2026-06-30 00:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/14208538.shtml)
-- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/06245243385.shtml)
-- 2026-06-30 00:37 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/802218.shtml)
-- 2026-06-30 00:37 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/31183.shtml)
-- 2026-06-30 00:42 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/3690015.shtml)
-- 2026-06-30 00:48 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/20837257.shtml)
+- 2026-06-30 01:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/56817907.shtml)
+- 2026-06-30 00:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/049995957.shtml)
+- 2026-06-30 01:04 - [极限挑战第一季](https://www.blog.minike.top/Article/details/129449.shtml)
+- 2026-06-30 00:45 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/26854106.shtml)
+- 2026-06-30 00:41 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/5026226635.shtml)
+- 2026-06-30 00:47 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/9082154901.shtml)
+- 2026-06-30 01:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/85212.shtml)
+- 2026-06-30 00:59 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/9612053423.shtml)
+- 2026-06-30 00:57 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/55064119163.shtml)
+- 2026-06-30 00:39 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/5717814216.shtml)
+- 2026-06-30 00:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/643626646.shtml)
+- 2026-06-30 00:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/457974037.shtml)
+- 2026-06-30 00:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/602980429.shtml)
+- 2026-06-30 00:52 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/91926379943.shtml)
+- 2026-06-30 00:49 - [月亮](http://www.share.kurohicncr.top/Article/details/4584659.shtml)

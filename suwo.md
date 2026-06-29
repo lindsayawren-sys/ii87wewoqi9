@@ -1,52 +1,44 @@
-# 百胜中国：4月20日起，肯德基糖醋酱、甜辣酱改为收费产品
+# 视频|李大霄：全球IPO市场活跃值得关注
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网4月22日电(记者 吴家驹)近日，有网友反映称，购买肯德基鸡块被告知多要酱要收费，此事引起广泛讨论。 4月21日，肯德基中国的母公司百胜中国向中新网表示，2026年4月20日起，肯德基全国餐厅糖醋酱、甜辣酱改为收费产品。除了正常搭配(一份薯条两包番茄酱、一份黄金鸡块一盒糖醋酱)外，不再免费提供糖醋酱和甜辣酱。若顾客仅有少量额外需求，仍可根据实际情况酌情提供，但如需求较多，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
 
 ## 正文
 
-中新网4月22日电(记者 吴家驹)近日，有网友反映称，购买肯德基鸡块被告知多要酱要收费，此事引起广泛讨论。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月21日，肯德基中国的母公司百胜中国向中新网表示，2026年4月20日起，肯德基全国餐厅糖醋酱、甜辣酱改为收费产品。
-
-除了正常搭配(一份薯条两包番茄酱、一份黄金鸡块一盒糖醋酱)外，不再免费提供糖醋酱和甜辣酱。
-
-若顾客仅有少量额外需求，仍可根据实际情况酌情提供，但如需求较多，则建议按照公司标准另行购买。
-
-(完)
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 00:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 00:35 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 00:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 00:33 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 00:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 00:51 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 00:50 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 00:59 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 00:32 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 00:39 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 00:59 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 00:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 01:02 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 00:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 00:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 00:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 00:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 00:48 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 00:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 01:02 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 00:47 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:53 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/2947159.shtml)
-- 2026-06-30 00:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/47027880.shtml)
-- 2026-06-30 00:43 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/028179257.shtml)
-- 2026-06-30 00:50 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/399079931.shtml)
-- 2026-06-30 00:46 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/15181099179.shtml)
-- 2026-06-30 00:59 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/190983910.shtml)
-- 2026-06-30 00:59 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/835770102400.shtml)
-- 2026-06-30 00:50 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/6462819866.shtml)
-- 2026-06-30 00:36 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/2646462118.shtml)
-- 2026-06-30 00:47 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/71004087455.shtml)
-- 2026-06-30 00:39 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/474484.shtml)
-- 2026-06-30 00:52 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/9438837032.shtml)
-- 2026-06-30 00:33 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/81259383.shtml)
-- 2026-06-30 00:46 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/73868.shtml)
-- 2026-06-30 00:37 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/990215.shtml)
+- 2026-06-30 00:56 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/03311.shtml)
+- 2026-06-30 00:41 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/4903524629.shtml)
+- 2026-06-30 00:43 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/7117353338.shtml)
+- 2026-06-30 00:40 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/3024133096.shtml)
+- 2026-06-30 00:37 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/805090468176.shtml)
+- 2026-06-30 00:53 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/47577905.shtml)
+- 2026-06-30 00:48 - [我和我的家乡](http://www.share.minike.top/Article/details/859800184624.shtml)
+- 2026-06-30 00:46 - [美股](http://www.share.kurohicncr.top/Article/details/90303054720.shtml)
+- 2026-06-30 00:43 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/085023.shtml)
+- 2026-06-30 00:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/67488185701.shtml)
+- 2026-06-30 00:39 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0193915987.shtml)
+- 2026-06-30 00:53 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/30452731976.shtml)
+- 2026-06-30 01:01 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/2586474.shtml)
+- 2026-06-30 00:47 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/29008.shtml)
+- 2026-06-30 00:45 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/87617615.shtml)

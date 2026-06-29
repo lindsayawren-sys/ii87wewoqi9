@@ -1,57 +1,60 @@
-# 关键时刻！特朗普，重磅发声！美军警告：随时重启作战行动
+# 特朗普再威胁伊朗交出浓缩铀 称到手后或销毁
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-特朗普释放重磅信号。 目前市场正高度关注美伊谈判的相关进展。据新华社消息，美国总统特朗普21日接受美国媒体采访时称，“我不想延长（美伊）停火协议”。他还表示，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”。 另外，美军参谋长联席会议主席凯恩警告称：“我们已做好准备，随时可以重启针对伊朗的大规模作战行动。”据伊朗媒体报道，伊朗已为战事可能重新爆发做好充
+美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。 特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。我们不需要，也不想要。我们拿到后很可能会将其销毁，我们不会让他们拥有。”他还说，美伊正在进行谈判，结果如何尚待观察。 特朗普此前多次威胁伊朗交出浓缩铀。据美国方面10日消息，特朗普称，美国一直在对掩埋在废墟下的伊朗浓缩铀进行监控
 
 ## 正文
 
-特朗普释放重磅信号。
+美国总统特朗普21日在白宫对媒体说，伊朗必须交出其拥有的高丰度浓缩铀，美国拿到后很可能会将其销毁。
 
-目前市场正高度关注美伊谈判的相关进展。
+特朗普回答记者提问时说：“我们会拿到那些高浓缩铀的。
 
-据新华社消息，美国总统特朗普21日接受美国媒体采访时称，“我不想延长（美伊）停火协议”。
+我们不需要，也不想要。
 
-他还表示，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”。
+我们拿到后很可能会将其销毁，我们不会让他们拥有。
 
-另外，美军参谋长联席会议主席凯恩警告称：“我们已做好准备，随时可以重启针对伊朗的大规模作战行动。
+”他还说，美伊正在进行谈判，结果如何尚待观察。
 
-”据伊朗媒体报道，伊朗已为战事可能重新爆发做好充分准备。
+特朗普此前多次威胁伊朗交出浓缩铀。
 
-市场方面，美股三大指数期货小幅跳水，涨幅收窄，截至北京时间20：50，纳斯达克100指数期货涨0.29%，标普500指数期货涨0.24%，道指期货涨0.48%。
+据美国方面10日消息，特朗普称，美国一直在对掩埋在废墟下的伊朗浓缩铀进行监控，美国太空军负责此事。
 
-贵金属市场亦全线下挫，现货白银跌超1%，现货黄金跌0.86%。
+当天早些时候，伊朗消息人士表示，伊朗最高领袖穆杰塔巴·哈梅内伊已下达指令，要求该国浓缩铀库存不得运往国外。
 
 ## 相关推荐
 
-- 2026-06-30 00:41 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 00:53 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 00:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 00:51 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 00:38 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 00:48 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 00:55 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 00:42 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 00:55 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 00:30 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 01:02 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 00:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 00:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 00:51 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 00:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 00:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 00:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 00:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 00:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 01:00 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 00:59 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 00:43 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 01:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:36 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/03363328.shtml)
-- 2026-06-30 00:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/645396243076.shtml)
-- 2026-06-30 00:50 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/022949.shtml)
-- 2026-06-30 00:43 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/92357.shtml)
-- 2026-06-30 00:49 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/82769697.shtml)
-- 2026-06-30 00:47 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/96120924.shtml)
-- 2026-06-30 00:31 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/567712299.shtml)
-- 2026-06-30 00:38 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/903204890.shtml)
-- 2026-06-30 00:37 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/766464867490.shtml)
-- 2026-06-30 00:57 - [周生如故](https://www.share.minike.top/Article/details/09287497.shtml)
-- 2026-06-30 00:46 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/276844864.shtml)
-- 2026-06-30 00:30 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/721641.shtml)
-- 2026-06-30 00:58 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/64874895988.shtml)
-- 2026-06-30 00:56 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/1262360801.shtml)
-- 2026-06-30 00:55 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/3031319863.shtml)
+- 2026-06-30 00:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/736885.shtml)
+- 2026-06-30 01:04 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/388861025802.shtml)
+- 2026-06-30 00:40 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/7433551.shtml)
+- 2026-06-30 00:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/66654102449.shtml)
+- 2026-06-30 01:05 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/872334.shtml)
+- 2026-06-30 00:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/96050627798.shtml)
+- 2026-06-30 00:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/2084374.shtml)
+- 2026-06-30 01:02 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/9124140378.shtml)
+- 2026-06-30 01:01 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/0315248374.shtml)
+- 2026-06-30 00:59 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/04936201706.shtml)
+- 2026-06-30 00:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/0801967192.shtml)
+- 2026-06-30 00:51 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/921562722.shtml)
+- 2026-06-30 00:53 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/4827947.shtml)
+- 2026-06-30 01:05 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/69949713.shtml)
+- 2026-06-30 00:56 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/262843500.shtml)

@@ -1,58 +1,58 @@
-# 外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知
+# 想投诉企业不知道去哪里？这些渠道你一定要知道
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？ 郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。中
+日常生活中，我们难免会遇到各种消费纠纷 【下载黑猫投诉客户端】：快递丢了、外卖吃出异物、网购商品货不对板、会员自动续费没提醒……很多人第一反应是“算了，太麻烦”，但事实上，现在投诉企业的渠道比以往任何时候都更加多元和便捷。了解这些渠道，关键时刻能帮上大忙。 最权威的渠道当属12315平台。作为国家市场监督管理总局设立的官方投诉举报渠道，12315覆盖了几乎所有消费领域。你可以通
 
 ## 正文
 
-中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
+日常生活中，我们难免会遇到各种消费纠纷 【下载黑猫投诉客户端】：快递丢了、外卖吃出异物、网购商品货不对板、会员自动续费没提醒……很多人第一反应是“算了，太麻烦”，但事实上，现在投诉企业的渠道比以往任何时候都更加多元和便捷。
 
-有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？
+了解这些渠道，关键时刻能帮上大忙。
 
-郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。
+最权威的渠道当属12315平台。
 
-中方对上述恶行十分愤慨，严厉谴责。
+作为国家市场监督管理总局设立的官方投诉举报渠道，12315覆盖了几乎所有消费领域。
 
-二战期间日本军国主义犯下罄竹难书的滔天罪行，给中国等亚洲国家和世界带来深重灾难。
+你可以通过拨打12315热线、使用“全国12315平台”微信小程序或APP提交投诉。
 
-靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”，供奉有对侵略战争负有直接罪责的二战甲级战犯，包括战争狂人、头号战犯东条英机，侵华贼首土肥原贤二，南京大屠杀元凶松井石根、偷袭珍珠港的下令者永野修身、杀害无数朝鲜半岛抗日民众的罪魁小矶国昭等。
+它的优势在于背后有行政执法权支撑，对于商家的威慑力较强。
 
-这些人均是对亚洲乃至世界人民犯下滔天罪行的重要战争责任者。
+特别是涉及食品安全、虚假宣传等违法违规行为时，12315是最直接有效的选择。
 
-靖国神社问题的实质是日本能否正确认识和深刻反省军国主义侵略历史，能否汲取历史教训，避免重蹈历史覆辙。
+不同行业还有一些针对性的投诉渠道。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 00:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 00:31 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 00:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 00:57 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 00:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 00:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 00:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 00:46 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 00:39 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 00:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 00:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 00:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 00:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 00:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 00:59 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 00:56 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 01:03 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 00:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 00:41 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 01:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 01:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 00:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 00:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [金刚川](http://www.share.kurohicncr.top/Article/details/738244508.shtml)
-- 2026-06-30 00:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/82660561.shtml)
-- 2026-06-30 00:56 - [绘画区你赢了](https://www.share.minike.top/Article/details/704240.shtml)
-- 2026-06-30 00:37 - [TOP Prada](https://www.share.minike.top/Article/details/580638.shtml)
-- 2026-06-30 00:34 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/6814944.shtml)
-- 2026-06-30 00:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/752215138.shtml)
-- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/515863.shtml)
-- 2026-06-30 00:34 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1889246265.shtml)
-- 2026-06-30 00:50 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/08429949.shtml)
-- 2026-06-30 00:44 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/34668634384.shtml)
-- 2026-06-30 00:45 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8731680.shtml)
-- 2026-06-30 00:33 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/98024457.shtml)
-- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/44690066.shtml)
-- 2026-06-30 00:55 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/00434035903.shtml)
-- 2026-06-30 00:55 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/67491.shtml)
+- 2026-06-30 00:59 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/70428251.shtml)
+- 2026-06-30 00:36 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/004535269.shtml)
+- 2026-06-30 00:54 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/339150170229.shtml)
+- 2026-06-30 00:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/93500290.shtml)
+- 2026-06-30 00:52 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/045422801.shtml)
+- 2026-06-30 00:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/82622850.shtml)
+- 2026-06-30 01:01 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/45933.shtml)
+- 2026-06-30 00:47 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/075211236686.shtml)
+- 2026-06-30 00:59 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/4043965.shtml)
+- 2026-06-30 00:55 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/20868794136.shtml)
+- 2026-06-30 00:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/66433476010.shtml)
+- 2026-06-30 00:37 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/92820597.shtml)
+- 2026-06-30 00:39 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/58746654424.shtml)
+- 2026-06-30 00:51 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/60768.shtml)
+- 2026-06-30 00:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/78660533135.shtml)

@@ -1,56 +1,49 @@
-# 年报分红潮起！红利低波ETF华泰柏瑞（512890）半日成交近6亿领跑同类！机构：高质量现金流重估进行时
+# 郑州银行获弘康人寿保险减持375万股 每股作价约1.04港元
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月21日消息，指数震荡走强，三大股指尾盘再度翻红。在此带动下，红利低波ETF华泰柏瑞（512890）涨0.59%，现价1.197元，换手率1.95%，成交额5.99亿元，居同类标的ETF首位。 规模方面，截止4月20日，红利低波ETF华泰柏瑞（512890）最新份额为256.04亿份，最新规模为304.71亿元。该基金今年以来份额增加12.40%，规模增加13.89%。流动性
+香港联交所最新资料显示，5月14日，弘康人寿保险减持郑州银行（06196）375万股，每股作价1.0437港元，总金额约为391.39万港元。减持后最新持股数目约为3.63亿股，最新持股比例为17.96%。责任编辑：卢昱君
 
 ## 正文
 
-4月21日消息，指数震荡走强，三大股指尾盘再度翻红。
+香港联交所最新资料显示，5月14日，弘康人寿保险减持郑州银行（06196）375万股，每股作价1.0437港元，总金额约为391.39万港元。
 
-在此带动下，红利低波ETF华泰柏瑞（512890）涨0.59%，现价1.197元，换手率1.95%，成交额5.99亿元，居同类标的ETF首位。
+减持后最新持股数目约为3.63亿股，最新持股比例为17.96%。
 
-规模方面，截止4月20日，红利低波ETF华泰柏瑞（512890）最新份额为256.04亿份，最新规模为304.71亿元。
-
-该基金今年以来份额增加12.40%，规模增加13.89%。
-
-流动性方面，截止4月21日，红利低波ETF华泰柏瑞（512890）近20个交易日累计成交金额145.51亿元，日均成交金额7.28亿元。
-
-消息面上，A股年报披露进入加速期。
-
-数据显示，截至4月20日晚，A股共有2285家上市公司披露2025年年报，1745家公司计划进行2025年度现金分红，占比约为76.37%。
-
-行业头部公司频现大额分红，向市场传递出业绩扎实、盈利能力稳定与稳健的现金流信息。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 00:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 00:44 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 00:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 00:45 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 00:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 00:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 00:42 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 00:42 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 00:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 00:47 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 00:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 00:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 00:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 00:48 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 00:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 01:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 00:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 00:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 00:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 00:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 01:04 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/5919673.shtml)
-- 2026-06-30 00:50 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/50218123.shtml)
-- 2026-06-30 00:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/313677.shtml)
-- 2026-06-30 00:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/626237.shtml)
-- 2026-06-30 00:45 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/53008541.shtml)
-- 2026-06-30 00:37 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/0512191041.shtml)
-- 2026-06-30 00:45 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/865645227.shtml)
-- 2026-06-30 00:39 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/993391825888.shtml)
-- 2026-06-30 00:57 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/2237191117.shtml)
-- 2026-06-30 00:50 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/245989816.shtml)
-- 2026-06-30 00:55 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/5552738169.shtml)
-- 2026-06-30 00:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/15186158.shtml)
-- 2026-06-30 00:37 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/8204178739.shtml)
-- 2026-06-30 00:56 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/358162529.shtml)
-- 2026-06-30 00:38 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/878783047342.shtml)
+- 2026-06-30 00:44 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/795930470298.shtml)
+- 2026-06-30 01:03 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/5446415274.shtml)
+- 2026-06-30 00:59 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/85039552.shtml)
+- 2026-06-30 00:59 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/4594764.shtml)
+- 2026-06-30 00:43 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/95810735.shtml)
+- 2026-06-30 00:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/878843823.shtml)
+- 2026-06-30 00:56 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/9603898785.shtml)
+- 2026-06-30 00:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/309664359579.shtml)
+- 2026-06-30 00:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/6866920.shtml)
+- 2026-06-30 01:05 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/3956395154.shtml)
+- 2026-06-30 00:36 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/9228018366.shtml)
+- 2026-06-30 01:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/32806.shtml)
+- 2026-06-30 00:55 - [东方风云榜直播](http://www.blog.minike.top/Article/details/7979601889.shtml)
+- 2026-06-30 00:42 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/44435496821.shtml)
+- 2026-06-30 00:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/96282.shtml)

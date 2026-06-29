@@ -1,57 +1,59 @@
-# 245亿！央企新能源巨头冲刺A股
+# 万物生灵润泽绿美广东 生物多样性“家底”日益丰厚
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-一年前，华润新能源控股有限公司（以下简称“华润新能源”）主板IPO申请获正式受理。历经一年，这家“巨无霸”IPO迎来重大进展!历经两轮问询，迎来A股“终极大考”4月21日晚间，深圳证券交易所一则公告引爆资本市场：上市审核委员会定于2026年4月28日召开第18次审议会议，正式审核华润新能源首发上市事项。招股书（上会稿）显示，华润新能源本次拟在深交所主板上市，公司拟募集资金245
+中新网广州5月21日电 题：万物生灵润泽绿美广东 生物多样性“家底”日益丰厚 作者 程景伟 林荫 作为全国生物多样性最丰富的省份之一，广东目前记录陆生脊椎野生动物1052种、野生高等植物6658种，是全球生物多样性保护的关键热点区域之一。 近年来，广东以绿美广东生态建设为总牵引，在生态系统保护、珍稀物种拯救、植物迁地保护、自然教育普及等领域创新突破，生物多样性保护水平稳步提升。
 
 ## 正文
 
-一年前，华润新能源控股有限公司（以下简称“华润新能源”）主板IPO申请获正式受理。
+中新网广州5月21日电 题：万物生灵润泽绿美广东 生物多样性“家底”日益丰厚 作者 程景伟 林荫 作为全国生物多样性最丰富的省份之一，广东目前记录陆生脊椎野生动物1052种、野生高等植物6658种，是全球生物多样性保护的关键热点区域之一。
 
-历经一年，这家“巨无霸”IPO迎来重大进展!
+近年来，广东以绿美广东生态建设为总牵引，在生态系统保护、珍稀物种拯救、植物迁地保护、自然教育普及等领域创新突破，生物多样性保护水平稳步提升。
 
-历经两轮问询，迎来A股“终极大考”4月21日晚间，深圳证券交易所一则公告引爆资本市场：上市审核委员会定于2026年4月28日召开第18次审议会议，正式审核华润新能源首发上市事项。
+法治筑基 织密全域保护网络 广东持续推动生物多样性保护法治化、制度化发展，先后修订或出台《广东省野生动物保护管理条例》《广东省湿地保护条例》《广东省自然保护地规划(2021—2035年)》《广东省陆生野生动植物保护行动计划(2023—2030年)》《广东省植物迁地保护体系建设规划(2024—2035年)》等法规规章与政策文件，搭建起覆盖全面、衔接紧密、特色鲜明的野生动植物保护制度体系。
 
-招股书（上会稿）显示，华润新能源本次拟在深交所主板上市，公司拟募集资金245亿元，用于新能源基地项目、多能互补一体化项目、绿色生态发展综合利用项目、融合发展型新能源项目。
+在生态空间布局方面，广东加快构建以国家公园为主体、自然保护区为基础、各类自然公园为补充的自然保护地体系，推动保护范围基本覆盖全省重要野生动植物生境和典型生态系统。
 
-这家背靠华润集团、拟募资245亿元的新能源巨头，不仅有望刷新近年来深市IPO募资纪录，更成为电力央企新能源资产证券化浪潮的核心标杆，牵动绿电行业与资本市场神经。
+值得关注的是，广东在全国率先提出并落地“国家—区域—乡土”三级植物迁地保护体系，以华南国家植物园为核心引领，区域植物园为骨干支撑，乡土植物园为特色补充，形成层级清晰、功能互补、全域覆盖的植物保护网络。
 
-作为华润集团唯一新能源业务平台，华润新能源的上市之路堪称“三年磨一剑”。
+截至目前，全省纳入植物迁地保护体系的机构42家，分布于18个地市，植物迁地保护体系进一步完善。
 
-2023年，华润电力（0836.HK）披露筹划分拆新能源业务A股上市，既是响应国资改革号召，也是为新能源业务开辟独立融资渠道，同年6月该计划获香港联交所同意，“奔A”征程正式启动。
+从南岭深山到珠江口海域，从内陆湿地到滨海滩涂，一道道生态安全屏障牢牢筑起，为各类物种营造安稳的繁衍栖息环境，实现重要生态系统的系统性、完整性保护。
 
-历经近一年筹备，2025年3月14日，华润新能源IPO申请获深交所受理，成为当年深市首单IPO，其红筹企业身份格外引人注目。
+物种焕新 珍稀濒危种群稳步复苏 广东将珍稀濒危物种保护列为生物多样性保护重点工作，通过科学监测、迁地保护、野外回归、就地保护等精准保护举措，推动野生动植物种群持续恢复，新种、新记录种不断出现，生态向好态势凸显。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 00:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 00:45 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 00:31 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 00:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 00:44 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 00:40 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 00:54 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 00:49 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 00:52 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 00:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:59 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 00:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 00:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 00:58 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 01:04 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 00:49 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 00:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 00:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 00:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 00:49 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 01:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 00:36 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 00:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/083687.shtml)
-- 2026-06-30 00:35 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/879569847801.shtml)
-- 2026-06-30 00:47 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/120196468.shtml)
-- 2026-06-30 00:42 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/652177550025.shtml)
-- 2026-06-30 00:43 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/19518397861.shtml)
-- 2026-06-30 00:30 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/68676594.shtml)
-- 2026-06-30 00:54 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/69184671380.shtml)
-- 2026-06-30 00:50 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/815315828.shtml)
-- 2026-06-30 00:47 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/99899635.shtml)
-- 2026-06-30 00:51 - [青春环游记第三季](https://www.share.minike.top/Article/details/815457.shtml)
-- 2026-06-30 00:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/3931891000.shtml)
-- 2026-06-30 00:42 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/0120656458.shtml)
-- 2026-06-30 00:41 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/15943.shtml)
-- 2026-06-30 00:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/496390975435.shtml)
-- 2026-06-30 00:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/87024930486.shtml)
+- 2026-06-30 00:39 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/26397878.shtml)
+- 2026-06-30 00:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/300324734.shtml)
+- 2026-06-30 00:36 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/098373565.shtml)
+- 2026-06-30 01:02 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/916406221.shtml)
+- 2026-06-30 01:02 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/093027.shtml)
+- 2026-06-30 00:38 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/5604569.shtml)
+- 2026-06-30 00:57 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/3095384602.shtml)
+- 2026-06-30 00:46 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/18853902.shtml)
+- 2026-06-30 00:44 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/1011224.shtml)
+- 2026-06-30 01:01 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/75047.shtml)
+- 2026-06-30 00:51 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/84947795365.shtml)
+- 2026-06-30 00:52 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/834248524.shtml)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/76642.shtml)
+- 2026-06-30 00:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/54984385430.shtml)
+- 2026-06-30 00:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0907694689.shtml)

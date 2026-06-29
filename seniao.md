@@ -1,55 +1,56 @@
-# 台安全部门称大陆对台新举措可能是“介选”行为 国台办回应
+# 李显龙访沪 实地探访上海人形机器人产业生态
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月22日，国务院台办举行例行新闻发布会。有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。请问对此有何评论？ 发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流
+中新社上海5月21日电 (记者 许婧 康玉湛)新加坡国务资政李显龙21日实地参访上海市人形机器人创新孵化器，近距离观摩前沿人形机器人技术成果并体验各类产品。 “入驻企业是你们主动挑选引进的吗？”“企业入驻免租金，你们还会提供哪些补助扶持？”李显龙边看边问，围绕孵化器运营与企业培育抛出一系列问题。他还品尝了机器人制作的香草冰淇淋，并当场点赞称“不错啊”。 上海市人形机器人创新孵化
 
 ## 正文
 
-4月22日，国务院台办举行例行新闻发布会。
+中新社上海5月21日电 (记者 许婧 康玉湛)新加坡国务资政李显龙21日实地参访上海市人形机器人创新孵化器，近距离观摩前沿人形机器人技术成果并体验各类产品。
 
-有记者问，对于中国国民党主席郑丽文率团来大陆访问，台安全部门负责人称，两岸交流应该由台湾当局主导，不应该由党对党决定；大陆推出对台新举措可能是“介选”行为，希望影响岛内选举。
+“入驻企业是你们主动挑选引进的吗？
 
-请问对此有何评论？
+”“企业入驻免租金，你们还会提供哪些补助扶持？
 
-发言人张晗答问表示，民进党当局顽固坚持“台独”分裂立场，导致两岸对话协商停摆，还刻意抹黑攻击打压岛内其他政党、团体和社会各界与大陆的正常交往交流。
+”李显龙边看边问，围绕孵化器运营与企业培育抛出一系列问题。
 
-我们推出10项促进两岸交流合作的政策措施，岛内社会各界、广大台湾同胞都叫好都支持，都想早谋其利，只有民进党当局跳出来攻击、污蔑、反对。
+他还品尝了机器人制作的香草冰淇淋，并当场点赞称“不错啊”。
 
-这再次充分暴露了民进党当局图谋“台独”的真实面目，以及破坏两岸交流合作、损害民众福祉、与民众对着干的邪恶本性。
+上海市人形机器人创新孵化器创始人汪兵逐一答疑回应。
 
-(记者赵博、尚昊)
+汪兵介绍，孵化器入驻企业自主研发的清洁机器人，已落地新加坡樟宜机场，常态化承担场地清洁、设施养护等工作，多款自主研发的机器人产品已具备跨境出口与市场化合作条件。
+
+上海社会科学院应用经济研究所助理研究员赵晓涛表示，李显龙此次访沪聚焦高端科创领域，释放出中新双边合作升级的明确信号。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 00:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 00:48 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 00:33 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 00:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 00:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 00:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 00:51 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 00:34 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 00:57 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 01:04 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 00:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 00:50 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:57 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 00:41 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 00:42 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 00:54 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 00:37 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 00:47 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 00:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/333873456.shtml)
-- 2026-06-30 00:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/9235009.shtml)
-- 2026-06-30 00:43 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/5056493986.shtml)
-- 2026-06-30 00:45 - [千香](http://www.blog.minike.top/Article/details/37955172349.shtml)
-- 2026-06-30 00:58 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/96480907945.shtml)
-- 2026-06-30 00:41 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/0188328701.shtml)
-- 2026-06-30 00:40 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/938680091.shtml)
-- 2026-06-30 00:59 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/594803306.shtml)
-- 2026-06-30 00:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/70402798617.shtml)
-- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/56042093849.shtml)
-- 2026-06-30 00:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/071073.shtml)
-- 2026-06-30 00:43 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/886287119698.shtml)
-- 2026-06-30 00:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/20564337432.shtml)
-- 2026-06-30 00:52 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/1773919.shtml)
-- 2026-06-30 00:41 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/971533598.shtml)
+- 2026-06-30 00:50 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/67532507491.shtml)
+- 2026-06-30 00:43 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/1524953.shtml)
+- 2026-06-30 01:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/89989.shtml)
+- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/387014661.shtml)
+- 2026-06-30 00:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/6107708.shtml)
+- 2026-06-30 00:51 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/173842985011.shtml)
+- 2026-06-30 00:51 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/9564091164.shtml)
+- 2026-06-30 00:43 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/27723739100.shtml)
+- 2026-06-30 01:03 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/361856145211.shtml)
+- 2026-06-30 01:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/8025689.shtml)
+- 2026-06-30 00:40 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/3081058.shtml)
+- 2026-06-30 00:58 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/200274372.shtml)
+- 2026-06-30 01:04 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/347333667.shtml)
+- 2026-06-30 01:02 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/9816300.shtml)
+- 2026-06-30 01:03 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/000725650657.shtml)

@@ -1,56 +1,59 @@
-# 《藏在故宫里的法律印迹》主题阅读推广活动举办
+# 微策略董事长：资产代币化将助力投资者灵活挑选收益产品
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电 (记者 高凯)首个“全民阅读活动周”期间，由法律出版社联合北京发行集团、北京文艺广播，在圆明园绮春园创新举办了“探究中华治理智慧中法韵文脉的千年传承——《藏在故宫里的法律印迹》主题阅读推广活动”。活动串联历史与当下的脉络，通过名家深度对谈与图书推广有机融合，为现场近百名读者、法律工作者及文化爱好者，献上一场兼具知识性、趣味性与沉浸式体验的法治文化阅读体验
+核心要点 微策略创始人兼董事长周四在消费者新闻与商业频道《财经早间》节目中表示，代币化的核心价值，是为资产持有者打造信贷生成与收益获取的自由市场。 塞勒此番观点，跳出了代币化常见优势范畴，不再仅聚焦结算提速、全天候交易、个人投资者参与门槛降低等常规亮点。 比特币支持者迈克尔・塞勒认为，金融资产即将迎来代币化浪潮，这将重塑全社会信贷与收益定价模式，直接冲击传统银行及券商业务。 “
 
 ## 正文
 
-中新网北京4月22日电 (记者 高凯)首个“全民阅读活动周”期间，由法律出版社联合北京发行集团、北京文艺广播，在圆明园绮春园创新举办了“探究中华治理智慧中法韵文脉的千年传承——《藏在故宫里的法律印迹》主题阅读推广活动”。
+核心要点 微策略创始人兼董事长周四在消费者新闻与商业频道《财经早间》节目中表示，代币化的核心价值，是为资产持有者打造信贷生成与收益获取的自由市场。
 
-活动串联历史与当下的脉络，通过名家深度对谈与图书推广有机融合，为现场近百名读者、法律工作者及文化爱好者，献上一场兼具知识性、趣味性与沉浸式体验的法治文化阅读体验。
+塞勒此番观点，跳出了代币化常见优势范畴，不再仅聚焦结算提速、全天候交易、个人投资者参与门槛降低等常规亮点。
 
-“探究中华治理智慧中法韵文脉的千年传承”名家对谈是本次主题活动的亮点。
+比特币支持者迈克尔・塞勒认为，金融资产即将迎来代币化浪潮，这将重塑全社会信贷与收益定价模式，直接冲击传统银行及券商业务。
 
-对谈活动由北京广播电视台文艺广播主持人靳桥主持，邀请《藏在故宫里的法律印迹》作者、故宫博物院研究馆员张剑虹，圆明园管理处研究院研究员、中国圆明园学会学术委员会委员刘阳，以“古今对话、实景联动”的方式，解锁中华治理智慧中的法韵文脉，共同探究中华优秀传统法律文化对当代法治文明建设的重要意义。
+“代币化真正的强大之处，在于为资产所有者构建信贷生成与收益交易的自由市场。
 
-对谈结束后，嘉宾与现场读者一同走进圆明园博物馆，在实景与展陈交织中，开启一场跨越百年的法韵文脉沉浸式体验。
+” 他表示，“一旦各类证券实现代币化，投资者就能择优选择信贷条款与最高收益标的。
 
-馆内“传承·守望——圆明园文物保护成果展”“百年梦圆——圆明园马首铜像回归展”等系列陈列，将清代皇家治理、司法制度、文物律法与民族文化保护的法治脉络层层铺展，让读者在触摸历史遗存中读懂北京法韵文脉的深厚底蕴。
+” 他补充称，在传统金融体系中，融资条件基本由银行单方面敲定。
 
-(完)
+“在二十世纪的传统金融模式里，银行可以直接判定个人无法获得信贷、无法赚取收益，普通投资者毫无议价空间。
+
+” 塞勒说道，“而代币化开启了资本自由市场，会提升资本资产的流通速度，同时也加剧价格波动。
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 00:53 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 00:49 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 00:30 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 00:37 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 00:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 00:46 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 00:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 00:49 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 00:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 00:54 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 00:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 00:38 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 00:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 00:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 00:58 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 00:46 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 00:44 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 00:36 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 00:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 00:58 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 00:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 01:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 01:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [张凌赫 客串](http://www.blog.minike.top/Article/details/73046.shtml)
-- 2026-06-30 00:41 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/702493.shtml)
-- 2026-06-30 00:52 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/2889818029.shtml)
-- 2026-06-30 00:36 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/159811133.shtml)
-- 2026-06-30 00:40 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/157309394243.shtml)
-- 2026-06-30 00:47 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/2040612449.shtml)
-- 2026-06-30 00:47 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/864267539062.shtml)
-- 2026-06-30 00:44 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/7173729.shtml)
-- 2026-06-30 00:42 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/80821.shtml)
-- 2026-06-30 00:59 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/807317.shtml)
-- 2026-06-30 00:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/631713393.shtml)
-- 2026-06-30 00:37 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/382113352122.shtml)
-- 2026-06-30 00:32 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/959981.shtml)
-- 2026-06-30 00:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/23754189741.shtml)
-- 2026-06-30 00:44 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/7406189568.shtml)
+- 2026-06-30 00:43 - [一见倾心](http://www.share.kurohicncr.top/Article/details/708027389513.shtml)
+- 2026-06-30 00:37 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/6634222.shtml)
+- 2026-06-30 01:02 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/07775589360.shtml)
+- 2026-06-30 00:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/39240638.shtml)
+- 2026-06-30 00:48 - [流金岁月](http://www.blog.minike.top/Article/details/894183.shtml)
+- 2026-06-30 00:47 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/144149.shtml)
+- 2026-06-30 00:37 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/1828871.shtml)
+- 2026-06-30 00:56 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/81782892.shtml)
+- 2026-06-30 00:47 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/512716885872.shtml)
+- 2026-06-30 00:51 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/122602368058.shtml)
+- 2026-06-30 00:59 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/308889.shtml)
+- 2026-06-30 00:39 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/149057029.shtml)
+- 2026-06-30 00:45 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/9749857.shtml)
+- 2026-06-30 00:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/6847458363.shtml)
+- 2026-06-30 00:44 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/3434172151.shtml)

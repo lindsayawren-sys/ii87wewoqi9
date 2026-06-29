@@ -1,57 +1,59 @@
-# 细节满满！运-20B、歼-20用特殊呼号迎英雄回家
+# 法治赋能绘就湖南城步苗乡乡村振兴新图景
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月21日电(记者 李京统)21日，记者从第十三批在韩中国人民志愿军烈士遗骸归国安葬活动记者通气会上了解到，今年，空军派运-20B赴韩国执行接迎第十三批志愿军烈士遗骸回国的神圣任务，此次任务是运-20B首次飞出国门。按照中韩双方达成的共识，韩方将于今天向中方移交第十三批、12位在韩志愿军烈士遗骸及相关遗物。 19日，由退役军人事务部等部门组成的在韩中国人民志愿军烈士遗
+中新网邵阳5月20日电 (吕伟铭 汪灿)走进湖南邵阳市城步苗族自治县金紫乡三江村，一条全长780米的法治文化宣传大道格外醒目。法治墙绘、宣传展板、普法道旗错落分布在道路两旁，从土地承包到邻里纠纷，宣传内容“以案释法”，让法律知识从晦涩条文转化为民众易懂易用的生活常识。 这条法治大道，正是三江村法治建设深入人心的一扇窗口。近年来，三江村坚持以法治建设为引领，将法治思维融入基层治理
 
 ## 正文
 
-中新网沈阳4月21日电(记者 李京统)21日，记者从第十三批在韩中国人民志愿军烈士遗骸归国安葬活动记者通气会上了解到，今年，空军派运-20B赴韩国执行接迎第十三批志愿军烈士遗骸回国的神圣任务，此次任务是运-20B首次飞出国门。
+中新网邵阳5月20日电 (吕伟铭 汪灿)走进湖南邵阳市城步苗族自治县金紫乡三江村，一条全长780米的法治文化宣传大道格外醒目。
 
-按照中韩双方达成的共识，韩方将于今天向中方移交第十三批、12位在韩志愿军烈士遗骸及相关遗物。
+法治墙绘、宣传展板、普法道旗错落分布在道路两旁，从土地承包到邻里纠纷，宣传内容“以案释法”，让法律知识从晦涩条文转化为民众易懂易用的生活常识。
 
-19日，由退役军人事务部等部门组成的在韩中国人民志愿军烈士遗骸交接工作代表团组已经前往韩国。
+这条法治大道，正是三江村法治建设深入人心的一扇窗口。
 
-22日，运-20B进入我国领空后，空军部队4架歼-20将迎接护航，运-20B与歼-20空中通话，“双20”5机编队列阵长空，以人民空军特有的最高礼仪，告慰革命先烈，表达深切缅怀。
+近年来，三江村坚持以法治建设为引领，将法治思维融入基层治理和产业发展全过程，探索出一条“法治安村、民主治村、产业富村”的乡村振兴之路，昔日乡村焕发出善治新气象。
 
-此次任务中，还对飞机呼号作了精心设计。
+想让大伙儿信法，干部自己得先把法学明白。
 
-运-20B呼号“荣归50”，表达1950年出征的英雄们，今天光荣回家了；歼-20呼号“红鹰”，今年是东北老航校建校80周年，抗美援朝战争中，成立刚满一年的人民空军，很多飞行员从航校直接飞向战场，发扬“空中拼刺刀”精神，以极限近战弥补技术差距，先后创下340米、240米、145米、120米的近距空战纪录，在2年8个月的时间里，志愿军空军共击落敌机330架、击伤95架，创造了世界空战史上的奇迹。
+三江村“两委”把学法纳入日常工作，2023年至今累计开展法治理论专题学习会议16次，加上“三会一课”里的法律课，前前后后办了30多场。
 
-“红鹰”代表传承与力量，表达新时代空军官兵对红色血脉的赓续传承和对英雄先辈的永恒守护，不论时代发展、装备更新，“空中拼刺刀”精神的传承始终没有变。
+村党支部将党内法规和国家法律学习纳入“三会一课”，通过30余场形式多样的法治学习活动，让法治意识在民众心中生根发芽。
 
-1950年，志愿军先辈跨江前行，用生命守护祖国人民；2026年，祖国以“荣归50”为名接他们回家，歼-20以“红鹰”为号长空相伴。
+学法不是一阵风，三江村把法律送到了家门口。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 00:40 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 00:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 00:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:30 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:55 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 00:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 00:44 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 00:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 00:45 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 00:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 00:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 00:58 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 00:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:02 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 00:52 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 00:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 00:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 01:03 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 00:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 00:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 00:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 01:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/4700627057.shtml)
-- 2026-06-30 00:32 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/5336421.shtml)
-- 2026-06-30 00:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/8438746640.shtml)
-- 2026-06-30 00:57 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/19474.shtml)
-- 2026-06-30 00:53 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/599705.shtml)
-- 2026-06-30 00:56 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/62069741333.shtml)
-- 2026-06-30 00:44 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/36290858.shtml)
-- 2026-06-30 00:58 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/410496250.shtml)
-- 2026-06-30 00:41 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/12533652.shtml)
-- 2026-06-30 00:41 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/59184.shtml)
-- 2026-06-30 00:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/4351966796.shtml)
-- 2026-06-30 00:50 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/464786961.shtml)
-- 2026-06-30 00:38 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/20114351.shtml)
-- 2026-06-30 00:48 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/478868752.shtml)
-- 2026-06-30 00:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/564835336.shtml)
+- 2026-06-30 00:55 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/66866776716.shtml)
+- 2026-06-30 00:54 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/99094.shtml)
+- 2026-06-30 00:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/66218.shtml)
+- 2026-06-30 00:42 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/07629491.shtml)
+- 2026-06-30 00:45 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/54601711430.shtml)
+- 2026-06-30 00:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3968983.shtml)
+- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/437787264315.shtml)
+- 2026-06-30 00:51 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/587141814349.shtml)
+- 2026-06-30 01:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/758481355.shtml)
+- 2026-06-30 00:50 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/89502592.shtml)
+- 2026-06-30 00:53 - [恋与深空 巧合](https://www.share.minike.top/Article/details/36413776.shtml)
+- 2026-06-30 00:48 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/0621278655.shtml)
+- 2026-06-30 00:36 - [沉睡花园](https://www.blog.minike.top/Article/details/670709977.shtml)
+- 2026-06-30 00:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/7526108595.shtml)
+- 2026-06-30 00:40 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/040169519.shtml)

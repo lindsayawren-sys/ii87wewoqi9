@@ -1,57 +1,58 @@
-# 曹德旺：绝不做赔本买卖！大不了就把美国工厂关掉
+# 浙江金融“五篇大文章”贷款余额齐增 服务提质升级
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！图片来源：视觉中国 4月21日，已经卸任董事长的曹德旺现身福耀玻璃（600660.SH）2025年年度股东会现场。 据《每日经济新闻》报道，在股东会现场，曹德旺妙语连珠，不仅对儿子曹晖给予了“比我强”的评价，更在谈及海外地缘政治与关税风险时表示：“你要征多少税是你的事”，“我如果不赚钱绝对不做”。 当天，曹
+中新网杭州5月20日电(蓝伊旎)5月20日，做好金融“五篇大文章”支持浙江经济高质量发展新闻发布会在杭州举办。据悉，截至今年3月末，浙江科技、绿色、普惠、养老产业、数字经济产业贷款余额分别较上年同期增长10.6%、15.3%、9.2%、34.6%和14.3%。 近年来，浙江聚焦金融“五篇大文章”重点领域分类施策，服务质效持续提升。2025年以来，五大领域累计向金融机构推送重点项
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网杭州5月20日电(蓝伊旎)5月20日，做好金融“五篇大文章”支持浙江经济高质量发展新闻发布会在杭州举办。
 
-图片来源：视觉中国 4月21日，已经卸任董事长的曹德旺现身福耀玻璃（600660.SH）2025年年度股东会现场。
+据悉，截至今年3月末，浙江科技、绿色、普惠、养老产业、数字经济产业贷款余额分别较上年同期增长10.6%、15.3%、9.2%、34.6%和14.3%。
 
-据《每日经济新闻》报道，在股东会现场，曹德旺妙语连珠，不仅对儿子曹晖给予了“比我强”的评价，更在谈及海外地缘政治与关税风险时表示：“你要征多少税是你的事”，“我如果不赚钱绝对不做”。
+近年来，浙江聚焦金融“五篇大文章”重点领域分类施策，服务质效持续提升。
 
-当天，曹德旺如此评价董事长的过往：“我这个董事长是不上班的，高兴了就去转一圈。
+2025年以来，五大领域累计向金融机构推送重点项目超4万个，撬动贷款投放超1万亿元。
 
-”是不上班的，高兴了就去转一圈。
+科技金融是“五篇大文章”中的重头戏。
 
-”曹德旺表示，董事长是管战略的，决定具体做什么、做到什么程度，而具体执行是让经营团队来落实。
+浙江省科技厅副厅长施冬材提到，浙江正在重点推进“创新积分制”的指标体系构建、数智底座打造、应用场景拓展等任务。
 
-在股东会现场，面对投资者关于国际地缘风险评估的提问，曹德旺直言：“我是个体户，你不让我赚钱我就不卖。
+“‘创新积分’，就是根据研发投入、拥有发明专利等多维度指标为企业创新能力算出积分，助力金融机构识别高技术、高价值、高成长型的科技企业。
 
-”其表示，绝不做赔本买卖。
+”他介绍，将支持金融机构推出“积分贷”“积分投”“积分保”等服务场景，发现和培育更多硬科技“好苗子”企业。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:49 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 00:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 00:39 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 00:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 00:55 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 00:45 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 00:34 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 00:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 00:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 00:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 00:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 00:51 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 00:54 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 01:03 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 00:58 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 00:51 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 00:36 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 00:42 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 01:05 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 00:48 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 00:40 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 00:45 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/32869714351.shtml)
-- 2026-06-30 00:46 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/276237160.shtml)
-- 2026-06-30 00:39 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/3723082540.shtml)
-- 2026-06-30 00:48 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/16511468893.shtml)
-- 2026-06-30 00:57 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/485952.shtml)
-- 2026-06-30 00:47 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/920546508.shtml)
-- 2026-06-30 00:36 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/2210111744.shtml)
-- 2026-06-30 00:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/02893962.shtml)
-- 2026-06-30 00:41 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/978225520.shtml)
-- 2026-06-30 00:49 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/19424393.shtml)
-- 2026-06-30 00:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/1461937289.shtml)
-- 2026-06-30 00:30 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/685000.shtml)
-- 2026-06-30 00:33 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/87099344.shtml)
-- 2026-06-30 00:31 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/8426397.shtml)
-- 2026-06-30 00:46 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/38101.shtml)
+- 2026-06-30 00:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/60257359.shtml)
+- 2026-06-30 00:39 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/8548616.shtml)
+- 2026-06-30 01:05 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/90956480.shtml)
+- 2026-06-30 00:50 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/7455397255.shtml)
+- 2026-06-30 00:41 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/800667784443.shtml)
+- 2026-06-30 00:58 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/27952687.shtml)
+- 2026-06-30 00:52 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/69271.shtml)
+- 2026-06-30 00:37 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/349977527.shtml)
+- 2026-06-30 01:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/70649492407.shtml)
+- 2026-06-30 00:54 - [恋与深空致歉](https://www.blog.minike.top/Article/details/4933273701.shtml)
+- 2026-06-30 00:37 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/9155959.shtml)
+- 2026-06-30 00:42 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/805964289063.shtml)
+- 2026-06-30 00:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/03443925210.shtml)
+- 2026-06-30 00:54 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/39197208.shtml)
+- 2026-06-30 00:44 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/27886613.shtml)

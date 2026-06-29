@@ -1,56 +1,60 @@
-# 礼来70亿美元大动作！港股医药再迎布局窗口？华宝基金港股通创新药ETF、港股通医疗ETF宽幅溢价！
+# “小快递”撬动“大产业”
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月21日早盘，港股医药资产全线调整，100%创新药研发标的——港股通创新药ETF华宝（520880）、港股医疗核心资产——港股通医疗ETF华宝（159137）双双跌逾1%，不过场内均呈现宽幅溢价，显示买盘资金活跃。 个股方面，港股通创新药权重龙头普遍飘绿，康方生物跌逾2%，信达生物、中国生物制药、翰森制药齐跌逾1%。港股医疗权重股亦普跌，药明康德、晶泰控股跌2%。 消息面，隔
+人民网北京5月20日电 (记者乔雪峰)在江西新余万商红新履小镇，制鞋车间机器轰鸣，电商直播间里主播热情推介，快递分拨中心内包裹流转如织，一辆辆满载成品鞋的货车正有序驶向全国各地。这里已成为江西省寄递规模最大的工业单品聚集地。2025年，新余万商红制鞋产业交出亮眼成绩单——鞋业企业及个体户增至2729家，年产鞋突破2亿双，年产值近100亿元，日均快递发货量约60万件，年寄递量突破
 
 ## 正文
 
-4月21日早盘，港股医药资产全线调整，100%创新药研发标的——港股通创新药ETF华宝（520880）、港股医疗核心资产——港股通医疗ETF华宝（159137）双双跌逾1%，不过场内均呈现宽幅溢价，显示买盘资金活跃。
+人民网北京5月20日电 (记者乔雪峰)在江西新余万商红新履小镇，制鞋车间机器轰鸣，电商直播间里主播热情推介，快递分拨中心内包裹流转如织，一辆辆满载成品鞋的货车正有序驶向全国各地。
 
-个股方面，港股通创新药权重龙头普遍飘绿，康方生物跌逾2%，信达生物、中国生物制药、翰森制药齐跌逾1%。
+这里已成为江西省寄递规模最大的工业单品聚集地。
 
-港股医疗权重股亦普跌，药明康德、晶泰控股跌2%。
+2025年，新余万商红制鞋产业交出亮眼成绩单——鞋业企业及个体户增至2729家，年产鞋突破2亿双，年产值近100亿元，日均快递发货量约60万件，年寄递量突破1.9亿件，带动新增就业约3万人。
 
-消息面，隔夜（4月20日），礼来宣布以最高70亿美元的总对价收购Kelonia Therapeutics，旨在获取其核心的体内（in vivo）CAR-T平台。
+“以前我们发货得自己找车、跑物流，费时又费力，现在快递直接到厂门口对接，成本降了不少，效率也提上去了。
 
-业内人士指出，此次收购在Kelonia仅有3例早期临床数据的情况下即给出高额对价，标志着MNC对in vivo CAR-T这一颠覆性技术平台价值的高度认可，而非单纯对单一管线的估值，从而极大地提升了整个赛道的估值中枢和确定性。
+”一位鞋厂老板笑着说。
 
-国内方面，日前国办正式印发《关于健全药品价格形成机制的若干意见》，分析指出，顶层设计文件从根本上扭转了医保单一支付方压制价格的悲观预期，通过允许非医保渠道价格脱钩和引入多元支付来重塑创新药的国内商业化估值模型，市场或正积极为具备真正创新能力的企业进行价值重估。
+国家邮政局近日发布的数据显示，今年4月，中国快递发展指数为444.4，同比提升0.3%； 快递发展规模指数为582.5，同比提升1.9%。
 
-浙商证券解读政策认为，国内创新药销售峰值预期将会得到提升，极大调动企业的积极性，整个行业由以往的出海驱动演变为国内、海外双轮驱动，行业的景气度和确定性进一步增强。
+从分项指标看，4月快递业务量预计同比增长1.7%左右，快递业务收入预计同比增长2%左右。
 
-一方面将使得内需型药品创新产业链各环节的盈利空间得到优化，另一方面将进一步提振国内创新药研发需求。
+指数背后，是快递业从“量的增长”向“质的提升”转型的体现，也是“小快递”撬动“大产业”、赋能“大民生”的写照。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 00:34 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 00:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 00:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 00:33 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 00:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 00:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 00:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 00:57 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 00:57 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:04 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 01:05 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 00:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 00:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 00:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 00:41 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 01:05 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 01:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 00:56 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 00:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 00:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 00:47 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 00:44 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 00:49 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/40618040.shtml)
-- 2026-06-30 00:37 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/10203947.shtml)
-- 2026-06-30 00:54 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/367825317242.shtml)
-- 2026-06-30 00:35 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/225335079.shtml)
-- 2026-06-30 00:56 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/995338.shtml)
-- 2026-06-30 00:55 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/90510813191.shtml)
-- 2026-06-30 00:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/6965202.shtml)
-- 2026-06-30 00:34 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/19416.shtml)
-- 2026-06-30 00:56 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/57001.shtml)
-- 2026-06-30 00:40 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/051900.shtml)
-- 2026-06-30 00:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/428947.shtml)
-- 2026-06-30 00:35 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/62348684.shtml)
-- 2026-06-30 00:46 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/3652038.shtml)
-- 2026-06-30 00:39 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/1715815459.shtml)
-- 2026-06-30 00:56 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/109029327631.shtml)
+- 2026-06-30 00:58 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/956157.shtml)
+- 2026-06-30 00:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/93822766.shtml)
+- 2026-06-30 00:50 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/95276510.shtml)
+- 2026-06-30 00:54 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/32116.shtml)
+- 2026-06-30 00:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/145658427.shtml)
+- 2026-06-30 00:53 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/139909501788.shtml)
+- 2026-06-30 00:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/81685246140.shtml)
+- 2026-06-30 00:57 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/8457823.shtml)
+- 2026-06-30 00:43 - [啊啊啊](https://www.share.minike.top/Article/details/72266.shtml)
+- 2026-06-30 01:04 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/7562719.shtml)
+- 2026-06-30 00:37 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/247399758.shtml)
+- 2026-06-30 00:47 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/184801.shtml)
+- 2026-06-30 00:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/6088077715.shtml)
+- 2026-06-30 00:55 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/336694231.shtml)
+- 2026-06-30 00:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/14625882.shtml)

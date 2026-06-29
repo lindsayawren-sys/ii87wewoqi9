@@ -1,57 +1,60 @@
-# 全球首座商用聚变电厂即将在美开建，CFS首席执行官确认计划
+# 2026年“国际茶日”中国主场活动在南宁举行
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-麻省理工学院衍生公司Commonwealth Fusion Systems的首席执行官鲍勃·蒙加德周二透露，公司将于2027年在美国正式启动全球首座商用核聚变发电厂的建设。 SPARC原型机稳步推进 蒙加德在接受采访时表示，位于马萨诸塞州的聚变验证机SPARC已完工超过75%，预计将在2027年正式启动。该装置旨在实现“净能量增益”，即聚变产生的能量超过启动反应所消耗的能量，这
+中新社南宁5月21日电 (俞靖 杨陈)2026年“国际茶日”中国主场活动21日在广西南宁举行。本次活动汇聚越南、老挝、缅甸、斯里兰卡等国家茶企代表、联合国粮食及农业组织(FAO)相关负责人及行业学者等300余名中外嘉宾，通过交流对话、实地考察等形式，共探茶产业国际务实合作新路径。本次活动以“丝路茶香 共智共享”为主题，重点展现广西人工智能赋能茶产业转型升级的发展面貌。活动开幕式
 
 ## 正文
 
-麻省理工学院衍生公司Commonwealth Fusion Systems的首席执行官鲍勃·蒙加德周二透露，公司将于2027年在美国正式启动全球首座商用核聚变发电厂的建设。
+中新社南宁5月21日电 (俞靖 杨陈)2026年“国际茶日”中国主场活动21日在广西南宁举行。
 
-SPARC原型机稳步推进 蒙加德在接受采访时表示，位于马萨诸塞州的聚变验证机SPARC已完工超过75%，预计将在2027年正式启动。
+本次活动汇聚越南、老挝、缅甸、斯里兰卡等国家茶企代表、联合国粮食及农业组织(FAO)相关负责人及行业学者等300余名中外嘉宾，通过交流对话、实地考察等形式，共探茶产业国际务实合作新路径。
 
-该装置旨在实现“净能量增益”，即聚变产生的能量超过启动反应所消耗的能量，这是验证聚变技术商业可行性的关键一步。
+本次活动以“丝路茶香 共智共享”为主题，重点展现广西人工智能赋能茶产业转型升级的发展面貌。
 
-SPARC的核心部件——18个“D”形超导磁体，计划于今年夏季全部安装完毕，这些磁体可产生高达20特斯拉的磁场。
+活动开幕式上，《广西古茶树及野生茶树资源普查报告》等多项产业成果正式发布。
 
-弗吉尼亚商用项目跟进 在SPARC成功的基础上，CFS将立即推进弗吉尼亚州首座名为ARC的商用聚变电站建设。
+广西壮族自治区副主席许显辉介绍，2025年经广西口岸进出口的茶叶总量达1.6万吨。
 
-该电厂预计装机容量为400兆瓦，可为约15万户家庭提供清洁电力。
+当地正以茶兴业，持续推动茶产业数字化转型和“桂茶出海”，实现人工智能技术广泛应用，建设好智慧茶园和智能茶仓，以茶为媒不断深化区域合作。
 
-目前，该项目已进入弗吉尼亚州切斯特菲尔德县的许可审批阶段。
+广西同期举办“人工智能+茶叶”国际研修班，通过实地观摩等方式，让海外茶企学员感受AI技术赋能茶产业的创新实践。
 
-技术与资本双轮驱动 为加速开发进程，CFS正与英伟达和西门子合作，利用人工智能和“数字孪生”技术进行模拟，以压缩实验时间。
+越南茶叶协会会长黄永隆表示，广西是越中经贸人文交往的重要窗口，两地茶产业合作基础深厚，越南长期从中国进口制茶设备，并向中国出口茶叶原料。
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 00:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 00:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 00:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 00:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 00:58 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 00:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 00:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 00:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 00:43 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 00:41 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 00:41 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 01:05 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 00:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 00:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 00:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 00:42 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 00:50 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 00:55 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 00:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:42 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 00:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 00:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 00:46 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/12785242865.shtml)
-- 2026-06-30 00:53 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/054374305.shtml)
-- 2026-06-30 00:40 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/42908240.shtml)
-- 2026-06-30 00:50 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/84607536866.shtml)
-- 2026-06-30 00:45 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/853878954.shtml)
-- 2026-06-30 00:55 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/056836593.shtml)
-- 2026-06-30 00:49 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/897186871434.shtml)
-- 2026-06-30 00:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/2830099637.shtml)
-- 2026-06-30 00:45 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/1504126.shtml)
-- 2026-06-30 00:47 - [田曦薇没招了](http://www.blog.minike.top/Article/details/2605961.shtml)
-- 2026-06-30 00:30 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/017175925.shtml)
-- 2026-06-30 00:41 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/309744091305.shtml)
-- 2026-06-30 00:39 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/133612987430.shtml)
-- 2026-06-30 00:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/788927430.shtml)
-- 2026-06-30 00:51 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/76471633849.shtml)
+- 2026-06-30 01:02 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/52413.shtml)
+- 2026-06-30 00:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/040170930054.shtml)
+- 2026-06-30 00:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/0769677.shtml)
+- 2026-06-30 01:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/636505225131.shtml)
+- 2026-06-30 00:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/12030.shtml)
+- 2026-06-30 00:37 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/65112.shtml)
+- 2026-06-30 00:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/77694707.shtml)
+- 2026-06-30 01:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/16110183581.shtml)
+- 2026-06-30 00:38 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/22028.shtml)
+- 2026-06-30 01:04 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/90823834035.shtml)
+- 2026-06-30 00:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/5941213.shtml)
+- 2026-06-30 00:51 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/889587408.shtml)
+- 2026-06-30 00:58 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/26652688796.shtml)
+- 2026-06-30 00:48 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/0859939.shtml)
+- 2026-06-30 00:36 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/8741215.shtml)

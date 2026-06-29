@@ -1,59 +1,53 @@
-# 甘肃和政：百年古树结“慢梨” 百变风味富人家
+# 澜起科技盘中涨近12% 公司将继续保持领先优势未来成长动能强劲
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。 在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡
+澜起科技（06809）今早一度涨近12%，截至发稿，股价上涨4.12%，现报465.20港元，成交额19.46亿港元。 东海证券指出，随着AI服务器渗透率提升与出货量增长，市场对高性能互连类芯片需求持续上升，澜起科技作为互连类芯片全球头部厂商，有望率先受益于产品子代迭代与需求增长。 财信证券也表示，公司有望充分受益于AI算力爆发驱动的数据中心基础设施升级与高速互连需求的结构性增
 
 ## 正文
 
-中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。
+澜起科技（06809）今早一度涨近12%，截至发稿，股价上涨4.12%，现报465.20港元，成交额19.46亿港元。
 
-”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。
+东海证券指出，随着AI服务器渗透率提升与出货量增长，市场对高性能互连类芯片需求持续上升，澜起科技作为互连类芯片全球头部厂商，有望率先受益于产品子代迭代与需求增长。
 
-在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡镇，仍保留着成片古树群，这种鲜食时酸涩刺喉的啤特果，曾让当地人一度皱起眉头。
+财信证券也表示，公司有望充分受益于AI算力爆发驱动的数据中心基础设施升级与高速互连需求的结构性增长。
 
-目前，全县已登记古树有159株，其中啤特果就占了80余株，最老树龄超过300年，至今仍在挂果。
+看好公司在“运力”芯片赛道的绝对技术卡位、与产业巨头的深度绑定以及持续拓展的产品边界，预计随着AI服务器需求放量、DDR5渗透深化及PCIe/CXL新品上量，公司将继续保持领先优势，未来成长动能强劲。
 
-从事啤特果研究已有30多年的杨永林介绍说，该果的食用方式颇为特别，不能像普通梨即摘即食，需经过自然后熟，果皮由青绿转为深褐甚至乌黑，果肉变得软糯，原本尖锐的酸涩才会沉淀为醇厚的复合果香，带着淡淡的焦糖回甘。
-
-正因为上述特性，啤特果耐存，没有磕碰的果子放在阴凉通风处，能一直吃到次年四月。
-
-杨永林说，20世纪90年代以前，啤特果只是农户房前屋后零星种植的果树，随着退耕还林工程实施，凭借极强生态适应性和稳定经济效益，啤特果作为主栽树种在和政推广，种植面积一度达16.8万亩，但后受多方影响，种植面积缩减到目前8万亩。
-
-要充分发挥啤特果的经济效益，离不开龙头企业带动。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 00:41 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 00:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 00:34 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 00:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 00:37 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 00:46 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 00:31 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 00:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 00:48 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 00:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 00:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 00:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 00:36 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 01:00 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 00:42 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 00:49 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 00:57 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 00:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 00:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 01:05 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 01:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 00:45 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/91558168.shtml)
-- 2026-06-30 00:46 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/80705347.shtml)
-- 2026-06-30 00:59 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/9962629125.shtml)
-- 2026-06-30 00:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/09328509793.shtml)
-- 2026-06-30 00:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/5134775.shtml)
-- 2026-06-30 00:56 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/7168220.shtml)
-- 2026-06-30 00:55 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/33389.shtml)
-- 2026-06-30 00:48 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/5795459462.shtml)
-- 2026-06-30 00:47 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/02841253177.shtml)
-- 2026-06-30 00:55 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/4652552.shtml)
-- 2026-06-30 00:40 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/176394049219.shtml)
-- 2026-06-30 00:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/029785762628.shtml)
-- 2026-06-30 00:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/7193779080.shtml)
-- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/7891547812.shtml)
-- 2026-06-30 00:50 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/365811963.shtml)
+- 2026-06-30 01:01 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/610967557.shtml)
+- 2026-06-30 00:48 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/67508677096.shtml)
+- 2026-06-30 00:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/29035332.shtml)
+- 2026-06-30 00:45 - [东方风云榜直播](https://www.blog.minike.top/Article/details/16565.shtml)
+- 2026-06-30 00:37 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/33395.shtml)
+- 2026-06-30 00:59 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/42349.shtml)
+- 2026-06-30 00:40 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/725193.shtml)
+- 2026-06-30 00:51 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/852814534.shtml)
+- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/35827.shtml)
+- 2026-06-30 00:58 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/89926.shtml)
+- 2026-06-30 01:03 - [刘念回应](http://www.blog.minike.top/Article/details/659950321.shtml)
+- 2026-06-30 00:43 - [金牌调解](https://www.share.kurohicncr.top/Article/details/391368444.shtml)
+- 2026-06-30 00:38 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/89229750640.shtml)
+- 2026-06-30 00:55 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/70982.shtml)
+- 2026-06-30 00:39 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/8920838058.shtml)

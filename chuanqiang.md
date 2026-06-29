@@ -1,56 +1,57 @@
-# 美国海军为驱逐舰配备爱国者导弹，陆基导弹首次被部署到海上作战平台
+# 陈元：深化金融改革开放 稳步推进人民币国际化
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-美国海军正加速推进舰载防空反导体系的升级，已授予军工巨头洛克希德·马丁公司一份关键合同，将美国陆军的“爱国者”-3 MSE拦截弹集成至海军的“宙斯盾”作战系统中。此举标志着这款陆基导弹首次被部署到海上作战平台。 强化舰艇末端拦截能力 将“爱国者”-3导弹上舰，主要是为了应对高超音速武器。这类武器飞行速度快、机动性强，对现有舰载防空系统构成了巨大威胁。与海军现役的“标准”系列舰空
+专题：首届金融街·金城坊论坛 5月21日金融一线消息，首届金融街·金城坊论坛近日在京举办，本次论坛主题为“‘十五五’——金融赋能新周期 科创驱动新未来”。第十二届全国政协副主席陈元出席论坛并发表致辞演讲。 陈元指出，面向“十五五”新周期，我们要牢牢把握金融工作的政治属性和人民性，坚持金融服务实体经济的根本导向。 一是强化金融支撑科技创新，完善科技金融体系，引导长期资金投向关键核
 
 ## 正文
 
-美国海军正加速推进舰载防空反导体系的升级，已授予军工巨头洛克希德·马丁公司一份关键合同，将美国陆军的“爱国者”-3 MSE拦截弹集成至海军的“宙斯盾”作战系统中。
+专题：首届金融街·金城坊论坛 5月21日金融一线消息，首届金融街·金城坊论坛近日在京举办，本次论坛主题为“‘十五五’——金融赋能新周期 科创驱动新未来”。
 
-此举标志着这款陆基导弹首次被部署到海上作战平台。
+第十二届全国政协副主席陈元出席论坛并发表致辞演讲。
 
-强化舰艇末端拦截能力 将“爱国者”-3导弹上舰，主要是为了应对高超音速武器。
+陈元指出，面向“十五五”新周期，我们要牢牢把握金融工作的政治属性和人民性，坚持金融服务实体经济的根本导向。
 
-这类武器飞行速度快、机动性强，对现有舰载防空系统构成了巨大威胁。
+一是强化金融支撑科技创新，完善科技金融体系，引导长期资金投向关键核心技术、硬科技、未来产业，推动科技产业金融良性循环，加快形成新质生产力。
 
-与海军现役的“标准”系列舰空导弹不同，“爱国者”-3采用“碰撞杀伤”技术，通过直接撞击来摧毁来袭的高速机动目标，在末端拦截方面展现出更高的毁伤效率和机动性。
+二是深化金融改革开放，稳步推进人民币国际化、完善现代金融监管与货币政策框架，提升金融体系适配性、竞争力和抗风险能力。
 
-洛克希德·马丁公司副总裁表示，此次集成将“进一步扩展‘宙斯盾’系统分层拦截导弹威胁的能力，确保作战人员拥有战略优势”。
+三是提升国家金融管理中心的功能，依托北京金融街的政策、机构、人才和信息优势，推动政策协同、资源整合、经验共享，更好服务国家金融治理现代化。
 
-未来，“爱国者”-3将与“标准”-3、 “标准”-6以及改进型“海麻雀”等导弹共同构成多层防御体系，大幅提升美海军舰艇在高强度作战中的生存能力。
+四是坚守风险底线，统筹发展与安全，健全风险防范化解机制，为经济长期稳定健康发展筑牢金融安全网。
 
-采购加速与部署计划 此次整合计划的推进速度极快。
+责任编辑：王进和
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 00:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 00:45 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 00:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 00:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 00:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 00:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 00:55 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 00:48 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 00:57 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 00:37 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 00:53 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 00:38 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 00:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 00:56 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 00:53 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 00:37 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 01:00 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 00:47 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 00:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [急先锋](https://www.blog.kurohicncr.top/Article/details/5737650458.shtml)
-- 2026-06-30 00:40 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/0914725826.shtml)
-- 2026-06-30 00:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/40224.shtml)
-- 2026-06-30 00:53 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/70353934.shtml)
-- 2026-06-30 00:38 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/171462332.shtml)
-- 2026-06-30 00:34 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/0832863602.shtml)
-- 2026-06-30 00:55 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/64045.shtml)
-- 2026-06-30 00:34 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/988456.shtml)
-- 2026-06-30 00:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/31301.shtml)
-- 2026-06-30 00:34 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/580332.shtml)
-- 2026-06-30 00:31 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/871321.shtml)
-- 2026-06-30 00:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/548885787.shtml)
-- 2026-06-30 00:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/840422.shtml)
-- 2026-06-30 00:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/691660.shtml)
-- 2026-06-30 00:42 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/63140926.shtml)
+- 2026-06-30 00:54 - [我和我的家乡](http://www.share.minike.top/Article/details/00016.shtml)
+- 2026-06-30 00:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/3333440871.shtml)
+- 2026-06-30 00:40 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/68946.shtml)
+- 2026-06-30 01:02 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/3403621.shtml)
+- 2026-06-30 00:42 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/569415553428.shtml)
+- 2026-06-30 00:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/12730979559.shtml)
+- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/76371.shtml)
+- 2026-06-30 00:40 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/176133.shtml)
+- 2026-06-30 01:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/142461.shtml)
+- 2026-06-30 00:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5400604.shtml)
+- 2026-06-30 01:03 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/239635.shtml)
+- 2026-06-30 00:59 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/37817364.shtml)
+- 2026-06-30 00:39 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/8837849.shtml)
+- 2026-06-30 00:40 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/473056376630.shtml)
+- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/6512601455.shtml)

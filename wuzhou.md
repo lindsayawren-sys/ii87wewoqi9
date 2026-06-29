@@ -1,48 +1,61 @@
-# 赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元
+# OpenAI拟秘密提交IPO文件，目标最早9月上市
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-据香港联交所最新数据显示，4月17日，Baillie Gifford & Co减持赣锋锂业（01772）18.08万股，每股作价82.6171港元，总金额约为1493.72万港元。减持后最新持股数目为3367.14万股，持股比例为6.97%。责任编辑：卢昱君
+当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。 据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。该公司在最近一轮私人融资中的估值已达约8500亿美元。 OpenAI本周
 
 ## 正文
 
-据香港联交所最新数据显示，4月17日，Baillie Gifford & Co减持赣锋锂业（01772）18.08万股，每股作价82.6171港元，总金额约为1493.72万港元。
+当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。
 
-减持后最新持股数目为3367.14万股，持股比例为6.97%。
+据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。
 
-责任编辑：卢昱君
+此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。
+
+该公司在最近一轮私人融资中的估值已达约8500亿美元。
+
+OpenAI本周稍早刚跨过IPO的重要障碍之一，公司在与联合创始人埃隆·马斯克的法律诉讼中获胜，法院裁定对OpenAI有利。
+
+不过马斯克已表示将提出上诉。
+
+值得注意的是，OpenAI此次筹备上市恰逢竞争对手SpaceX也在推进其IPO计划。
+
+SpaceX已于上月秘密提交S-1文件，目标估值约1.75万亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 00:31 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 00:48 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 00:36 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 00:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 00:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 00:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 00:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 00:50 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 00:48 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 00:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 00:50 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 00:59 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 00:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 00:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 01:02 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 00:39 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 00:46 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 00:43 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 00:42 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 00:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 00:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 00:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 01:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 01:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 00:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/4726496.shtml)
-- 2026-06-30 00:42 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/211058388761.shtml)
-- 2026-06-30 00:38 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/0919798839.shtml)
-- 2026-06-30 00:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/472033.shtml)
-- 2026-06-30 00:49 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/33168.shtml)
-- 2026-06-30 00:30 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/8550036.shtml)
-- 2026-06-30 00:32 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/23773.shtml)
-- 2026-06-30 00:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/77699059.shtml)
-- 2026-06-30 00:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/753725928797.shtml)
-- 2026-06-30 00:54 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/024050.shtml)
-- 2026-06-30 00:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/724527363731.shtml)
-- 2026-06-30 00:49 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/577737.shtml)
-- 2026-06-30 00:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/23418390246.shtml)
-- 2026-06-30 00:32 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/67641.shtml)
-- 2026-06-30 00:52 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/632216944.shtml)
+- 2026-06-30 01:05 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/87116170770.shtml)
+- 2026-06-30 00:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/30143194.shtml)
+- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/869328379903.shtml)
+- 2026-06-30 00:41 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/437695.shtml)
+- 2026-06-30 00:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/112717.shtml)
+- 2026-06-30 00:44 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/8858984081.shtml)
+- 2026-06-30 00:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/44264.shtml)
+- 2026-06-30 00:37 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/8125538677.shtml)
+- 2026-06-30 00:45 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/680224275.shtml)
+- 2026-06-30 00:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/21698.shtml)
+- 2026-06-30 00:36 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/49298882301.shtml)
+- 2026-06-30 00:45 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/50951899075.shtml)
+- 2026-06-30 00:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/221143.shtml)
+- 2026-06-30 00:44 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/6401515.shtml)
+- 2026-06-30 00:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/491802.shtml)

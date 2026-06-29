@@ -1,59 +1,57 @@
-# 全球轻稀土龙头2025年净利润实现翻倍增长！稀土ETF华泰柏瑞（516780）助力一键把握稀土涨价潮
+# 历经四年谈判 英国与海湾国家达成贸易协议
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-稀土产业链景气度持续升温。在稀土供需偏紧、稀土价格整体上行的趋势下，全球轻稀土龙头2025年营收首次突破400亿元，净利润实现翻倍增长；行业两大巨头同步将2026年二季度精矿关联交易价格上调超四成，涨幅超预期。受此提振，稀土ETF华泰柏瑞（516780）昨日（26/4/20）单日净流入超5700万元、成交额达2亿元，最新规模突破31亿元，流动性优势凸显。 具体来看，全球轻稀土龙
+英国与海湾阿拉伯国家合作委员会签署了期待已久的贸易协议，在当前地缘政治紧张局势和经济压力加剧的背景下，深化与这些石油资源丰富国家的关系。 这项自贸协定的签署，标志着英国与海合会之间长达四年的谈判结束。海合会成员国包括沙特、阿联酋、卡塔尔、科威特、阿曼和巴林。 “海湾国家是我们重要的经济伙伴，这项协议将深化双方关系，增进互信，为贸易和投资开辟新机遇，”英国首相斯塔默表示。 于斯塔
 
 ## 正文
 
-稀土产业链景气度持续升温。
+英国与海湾阿拉伯国家合作委员会签署了期待已久的贸易协议，在当前地缘政治紧张局势和经济压力加剧的背景下，深化与这些石油资源丰富国家的关系。
 
-在稀土供需偏紧、稀土价格整体上行的趋势下，全球轻稀土龙头2025年营收首次突破400亿元，净利润实现翻倍增长；行业两大巨头同步将2026年二季度精矿关联交易价格上调超四成，涨幅超预期。
+这项自贸协定的签署，标志着英国与海合会之间长达四年的谈判结束。
 
-受此提振，稀土ETF华泰柏瑞（516780）昨日（26/4/20）单日净流入超5700万元、成交额达2亿元，最新规模突破31亿元，流动性优势凸显。
+海合会成员国包括沙特、阿联酋、卡塔尔、科威特、阿曼和巴林。
 
-具体来看，全球轻稀土龙头于2026年4月17日晚披露2025年年报：全年实现营业收入425.63亿元，同比增长29.11%，首次突破400亿元并创历史新高；归母净利润22.51亿元，同比大增124.17%。
+“海湾国家是我们重要的经济伙伴，这项协议将深化双方关系，增进互信，为贸易和投资开辟新机遇，”英国首相斯塔默表示。
 
-年报显示，业绩增长主要受益于稀土价格上行及主要产品产销量创历史新高，包括冶炼分离、稀土金属、磁性材料、储氢材料、抛光材料及永磁电机等销量均实现同比增长。
+于斯塔默而言，这不失为一个喘息之机。
 
-近期，行业两大巨头同步上调二季度稀土精矿关联交易价格，其中一家环比涨幅达44.61%，调整后价格为38804元/吨（干量，REO=50%），涨幅超出市场预期，为氧化镨钕价格提供强劲成本支撑。
+他急于证明在经历了一轮惨烈的地方选举后即便他可能面临领导权挑战，其政府仍在脚踏实地推进日常工作。
 
-据SMM统计，3月全国氧化镨钕总产量超9000吨，环比增长约6%，预计4月将环比减少约2%；3月钕铁硼毛坯总产量为29986吨，环比增长43%，同比增长0.2%，预计4月环比提升4.0%。
+推荐阅读：英国国债大跌 投资者为伯纳姆挑战斯塔默做准备 英国表示，协议将使双边贸易额增长近20%，每年增加155亿英镑。
 
-财湘证券研报指出，本周稀土供应端预期缩减，受市场管控趋严影响，原矿分离企业开工率下降，镨钕产出量减少，废料生产相对稳定，后市供应难有增量，现货维持偏紧格局；需求端相对平稳，磁材企业长协订单稳定，开工持稳，企业库存维持低位，下游按需锁单，采购成交有所好转，长期需求预期增加。
+一旦协议全面实施，每年将免除约5.8亿英镑的关税。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 00:38 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 00:50 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 00:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 00:46 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 00:50 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 00:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 00:42 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 00:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 00:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 00:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 00:52 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 00:50 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:53 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 01:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 00:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 00:37 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 01:05 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 00:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 01:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 00:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 00:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 00:50 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/3672728.shtml)
-- 2026-06-30 00:55 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/3731738188.shtml)
-- 2026-06-30 00:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/177907539.shtml)
-- 2026-06-30 00:40 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/514370.shtml)
-- 2026-06-30 00:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/28454579105.shtml)
-- 2026-06-30 00:51 - [东方风云榜直播](https://www.share.minike.top/Article/details/602136453.shtml)
-- 2026-06-30 00:45 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/471605170.shtml)
-- 2026-06-30 00:57 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/16976460800.shtml)
-- 2026-06-30 00:56 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/4524029012.shtml)
-- 2026-06-30 00:37 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/61087660899.shtml)
-- 2026-06-30 00:53 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/486902.shtml)
-- 2026-06-30 00:59 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/318720195.shtml)
-- 2026-06-30 00:36 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/04874282.shtml)
-- 2026-06-30 00:51 - [女心理师](http://www.share.kurohicncr.top/Article/details/718004243.shtml)
-- 2026-06-30 00:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/721560335166.shtml)
+- 2026-06-30 00:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/404361509855.shtml)
+- 2026-06-30 00:38 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/91526723.shtml)
+- 2026-06-30 01:00 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/3494239.shtml)
+- 2026-06-30 00:59 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/43569844.shtml)
+- 2026-06-30 01:05 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/7923959.shtml)
+- 2026-06-30 00:58 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/31552081926.shtml)
+- 2026-06-30 00:49 - [恋与深空 日服](http://www.blog.minike.top/Article/details/54248671.shtml)
+- 2026-06-30 00:48 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/20182524860.shtml)
+- 2026-06-30 00:41 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/0676907.shtml)
+- 2026-06-30 00:38 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/134993326.shtml)
+- 2026-06-30 00:47 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/80241.shtml)
+- 2026-06-30 00:53 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/84542416.shtml)
+- 2026-06-30 00:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/900859.shtml)
+- 2026-06-30 00:56 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/2357292693.shtml)
+- 2026-06-30 00:51 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/443438.shtml)

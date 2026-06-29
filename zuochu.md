@@ -1,57 +1,58 @@
-# 直播海报：“新时代新北京·阅读的力量”全民阅读主题活动
+# 华泰期货：美伊谈判或进入最后阶段 铜价震荡回升
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-特朗普打错算盘“边城”秀山如何变西部陆海新通道节点城市为支点城市？机器人跑赢人类，留给我们的“赛道”又少一个？惠女石上“绣”芳华湖北通山护学警：一部“共享手机”暖护三千学子跨越千里的“医”靠中澳“乒乓外交”亲历者：一颗小球拉近彼此距离中国“西极村”的“旅游账”与“外贸经”一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？细节满满！运-20B、歼-20用特殊呼号迎英雄回家阿尔卡拉斯、
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-20，沪铜主力合约开于 104130元/吨，收于 103950元/吨，较前一交易日收盘-0.55%，昨日夜盘沪铜主力合约开于 104，060元/吨，收于 105，140 元/吨，较昨日午后收盘上涨1.49%。 现货情况： 据 SMM 讯，昨日早盘持货商开始低报升水，主流平水铜报价升水400元/吨附近，
 
 ## 正文
 
-特朗普打错算盘“边城”秀山如何变西部陆海新通道节点城市为支点城市？
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-20，沪铜主力合约开于 104130元/吨，收于 103950元/吨，较前一交易日收盘-0.55%，昨日夜盘沪铜主力合约开于 104，060元/吨，收于 105，140 元/吨，较昨日午后收盘上涨1.49%。
 
-机器人跑赢人类，留给我们的“赛道”又少一个？
+现货情况： 据 SMM 讯，昨日早盘持货商开始低报升水，主流平水铜报价升水400元/吨附近，铁峰、中条山PC、金凤等上海、常州市场价格降至升水350元/吨附近，随后在被压价至升水320-340元/吨成交。
 
-惠女石上“绣”芳华湖北通山护学警：一部“共享手机”暖护三千学子跨越千里的“医”靠中澳“乒乓外交”亲历者：一颗小球拉近彼此距离中国“西极村”的“旅游账”与“外贸经”一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？
+此时主流平水铜依旧升水380-400元/吨报价，货源紧缺。
 
-细节满满！
+好铜升水420元/吨附近以金川为主，CCC-P依旧紧缺。
 
-运-20B、歼-20用特殊呼号迎英雄回家阿尔卡拉斯、萨巴伦卡当选劳伦斯世界体育奖最佳运动员连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金遗毒未消，触目惊心：为什么说靖国神社“罪大恶极”？
+进入第二交易时段，部分日本、韩国、大江PC、大江HS等货源升水300-320元/吨。
 
-被新疆导游带火的天山隧道，到底有多牛？
+低价引起市场下游采购，日内市场采购情绪指数提升至3.18，销售情绪指数提升至3.29。
 
-标注“0反式脂肪酸”的食品真的更健康吗？
+沪铜现货商担心后市升水继续走跌，积极出货止盈。
 
-专家详解国家发改委主任：持续提升国家经济安全保障能力涉宇树科技、胖东来等，最高法谈知识产权司法保护A股收评：超3400只个股飘红，沪指、深指收涨沈阳全城披红 迎第十三批志愿军烈士遗骸归国台胞过广西“三月三”：桂台相似的居然这么多贵州梵净山：夕阳映照落日如画抗美援朝老战士田光秀：我还活着 我还想给他们唱歌导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！
+重要资讯汇总： 地缘上，美国总统特朗普表示，与伊朗的谈判已进入最后阶段，接下来请拭目以待，要么达成协议，要么会做一些有点棘手的事情，但希望这不会发生。
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 00:36 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 00:45 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 00:51 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 00:44 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 00:36 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 00:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 00:44 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:45 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 00:32 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 00:56 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 00:54 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 00:41 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 01:04 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 01:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 00:41 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 00:57 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 01:03 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 00:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 00:41 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 00:54 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:51 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/4431689037.shtml)
-- 2026-06-30 00:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/9876343.shtml)
-- 2026-06-30 00:51 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/018998928599.shtml)
-- 2026-06-30 00:37 - [金牌调解](https://www.blog.minike.top/Article/details/010314822162.shtml)
-- 2026-06-30 00:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/741091148.shtml)
-- 2026-06-30 00:45 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/1013660.shtml)
-- 2026-06-30 00:51 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/515047671.shtml)
-- 2026-06-30 00:49 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/12246247741.shtml)
-- 2026-06-30 00:50 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/356558.shtml)
-- 2026-06-30 00:57 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/06331767.shtml)
-- 2026-06-30 00:44 - [乔家的儿女](https://www.share.minike.top/Article/details/81156957438.shtml)
-- 2026-06-30 00:47 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/939890135.shtml)
-- 2026-06-30 00:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/119031.shtml)
-- 2026-06-30 00:51 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/112267235194.shtml)
-- 2026-06-30 00:40 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/67473343.shtml)
+- 2026-06-30 00:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/774683248.shtml)
+- 2026-06-30 01:03 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/517891012930.shtml)
+- 2026-06-30 00:52 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/22447830.shtml)
+- 2026-06-30 01:01 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/698303.shtml)
+- 2026-06-30 00:57 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/8686670314.shtml)
+- 2026-06-30 00:45 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/0659386.shtml)
+- 2026-06-30 00:59 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/667990327.shtml)
+- 2026-06-30 00:47 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/873396297.shtml)
+- 2026-06-30 00:45 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/04625.shtml)
+- 2026-06-30 00:48 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/8997843684.shtml)
+- 2026-06-30 00:54 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/93860258.shtml)
+- 2026-06-30 00:45 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/451787387949.shtml)
+- 2026-06-30 01:01 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/4170509071.shtml)
+- 2026-06-30 00:39 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/611079212998.shtml)
+- 2026-06-30 00:42 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/946406849.shtml)

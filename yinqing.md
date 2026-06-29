@@ -1,61 +1,61 @@
-# 未来还有哪些航天新任务？嫦娥六号任务副总设计师王琼回应
+# 谈AI战略！中国平安马明哲最新发声
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 21:47 来源：中国新闻网 4月21日，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会，请科技领域代表围绕“弘扬科学家精神聚力科技自立自强”与中外记者见面交流。 嫦娥六号任务副总设计师王琼在会上介绍，“十五五”期间将有不少让人期待的新任务，在行星探测方面将有不少亮点。比方说天问二号将于今年抵达2016HO3小行星，这是一颗几乎和地球同
+在AI快速发展的时代下，拥抱AI已经成为每一家企业的必答题。作为国内金融巨头，中国平安布局AI勇立潮头。5月20日，中国平安2025年年度股东会在深圳举行，来自全国各地的股东们齐聚一堂，围绕投资、AI战略、海外布局、股价表现等话题向公司管理层提问。一位中国平安中小股东告诉上证报记者：“今年市场科技股表现很好，中国平安的科技建设也搞了很久，我很关心公司的科技实力和投资科技股情况。
 
 ## 正文
 
-发布时间：2026年04月21日 21:47 来源：中国新闻网 4月21日，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会，请科技领域代表围绕“弘扬科学家精神聚力科技自立自强”与中外记者见面交流。
+在AI快速发展的时代下，拥抱AI已经成为每一家企业的必答题。
 
-嫦娥六号任务副总设计师王琼在会上介绍，“十五五”期间将有不少让人期待的新任务，在行星探测方面将有不少亮点。
+作为国内金融巨头，中国平安布局AI勇立潮头。
 
-比方说天问二号将于今年抵达2016HO3小行星，这是一颗几乎和地球同步绕太阳公转的近地小行星，将对它进行伴飞探测并且采样返回，这也是中国第一次进行这样的任务。
+5月20日，中国平安2025年年度股东会在深圳举行，来自全国各地的股东们齐聚一堂，围绕投资、AI战略、海外布局、股价表现等话题向公司管理层提问。
 
-天问三号任务将于2028年前后实施两次发射，在2030年后携带火星样品择机返回地球。
+一位中国平安中小股东告诉上证报记者：“今年市场科技股表现很好，中国平安的科技建设也搞了很久，我很关心公司的科技实力和投资科技股情况。
 
-通过对火星样品进行研究和分析，有助于解答火星上是否存在生命的痕迹这样重大的科学问题。
+”谈及AI战略，中国平安董事长马明哲直言：“在科技创新和人工智能的时代下，我们的科技创新在金融业和保险业都是领先的。
 
-天问四号任务将于2030年前后实施发射，对木星及其卫星进行探测，揭示这颗太阳系内最大行星的奥秘。
+未来公司将继续抓住科技创新大潮，建立特殊的竞争优势和竞争能力。
 
-在月球探测领域，嫦娥七号探测器已经运抵文昌航天发射场，计划于今年下半年择机发射。
+”马明哲表示，公司的战略很清楚，就是“综合金融+医疗养老”，然后以科技赋能“综合金融+医疗养老”。
 
-在运载火箭方面，将研制长征九号重型运载火箭并实现首飞，大幅提升中国进入太空的能力。
+“经过这几年的改革，我们的战略更清晰、财务更稳健、‘护城河’更高、未来更可期。
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 00:35 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 00:54 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 00:47 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 00:59 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 00:34 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 00:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 00:49 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 00:36 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 00:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 00:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 00:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 00:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 00:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 00:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 00:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 00:45 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 01:04 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 01:04 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 01:03 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 01:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 00:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 00:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 00:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 00:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 00:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 00:50 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 00:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 00:41 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/05476198684.shtml)
-- 2026-06-30 00:59 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/921268442606.shtml)
-- 2026-06-30 00:59 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/750597743.shtml)
-- 2026-06-30 00:30 - [速度与激情9](http://www.share.minike.top/Article/details/92128.shtml)
-- 2026-06-30 00:34 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/926851.shtml)
-- 2026-06-30 00:44 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/483143846.shtml)
-- 2026-06-30 00:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/59296391807.shtml)
-- 2026-06-30 00:42 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/0020312.shtml)
-- 2026-06-30 00:57 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/981843.shtml)
-- 2026-06-30 00:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/25363.shtml)
-- 2026-06-30 00:33 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/44971.shtml)
-- 2026-06-30 00:50 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/42109720.shtml)
-- 2026-06-30 00:46 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/18535552959.shtml)
-- 2026-06-30 00:32 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/236070082395.shtml)
-- 2026-06-30 00:42 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/265921.shtml)
+- 2026-06-30 00:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/6551330882.shtml)
+- 2026-06-30 00:47 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/260270640.shtml)
+- 2026-06-30 00:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/587163.shtml)
+- 2026-06-30 00:44 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/9789461621.shtml)
+- 2026-06-30 00:38 - [扬名立万](https://www.blog.minike.top/Article/details/998941.shtml)
+- 2026-06-30 00:43 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/898462.shtml)
+- 2026-06-30 00:38 - [一生一世](http://www.blog.minike.top/Article/details/722537941.shtml)
+- 2026-06-30 00:42 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/10685069535.shtml)
+- 2026-06-30 00:43 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/46105.shtml)
+- 2026-06-30 00:49 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/437887988.shtml)
+- 2026-06-30 00:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/32876005.shtml)
+- 2026-06-30 00:48 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/426913435220.shtml)
+- 2026-06-30 01:01 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/68088.shtml)
+- 2026-06-30 00:38 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/345143269.shtml)
+- 2026-06-30 00:57 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/576000.shtml)

@@ -1,61 +1,57 @@
-# 高盛“力挺”，万亿市值巨头工业富联盘中涨停
+# （近观中国）谈中俄关系，习近平用了三句诗
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月22日午后临近尾盘，工业富联股价大幅走高，盘中一度触及涨停，最高报67.55元/股。截至当日收盘，工业富联报66.89元/股，涨8.92%，成交额204亿元，总市值达1.33万亿元。 工业富联也是22日A股“万亿市值俱乐部”中唯一上涨的个股。 根据安排，工业富联将于下周披露2026年一季报。公司在近日举行的年报业绩说明会上表示，在AI相关业务的带动下，2026年一季度公司经
+中新社北京5月20日电 (记者 张素)5月20日，北京人民大会堂，中国国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈，其间提到三句诗。 习近平指出，中俄关系一步一个脚印走到今天这个高度，是因为双方以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，以“更上一层楼”的精神拓展各领域合作，以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。 受访学者表示
 
 ## 正文
 
-4月22日午后临近尾盘，工业富联股价大幅走高，盘中一度触及涨停，最高报67.55元/股。
+中新社北京5月20日电 (记者 张素)5月20日，北京人民大会堂，中国国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈，其间提到三句诗。
 
-截至当日收盘，工业富联报66.89元/股，涨8.92%，成交额204亿元，总市值达1.33万亿元。
+习近平指出，中俄关系一步一个脚印走到今天这个高度，是因为双方以“千磨万击还坚劲”的毅力不断深化政治互信和战略协作，以“更上一层楼”的精神拓展各领域合作，以“乱云飞渡仍从容”的勇气捍卫国际公道正义、推动构建人类命运共同体。
 
-工业富联也是22日A股“万亿市值俱乐部”中唯一上涨的个股。
+受访学者表示，习近平以三句诗阐释中俄关系意蕴深远。
 
-根据安排，工业富联将于下周披露2026年一季报。
+相关论述既阐明中俄关系的稳定性和确定性，也将引领新时代中俄关系向更深层次、更高水平发展。
 
-公司在近日举行的年报业绩说明会上表示，在AI相关业务的带动下，2026年一季度公司经营状况预计实现同比改善。
+“‘千磨万击还坚劲’象征历经磨难仍坚韧不拔的品质。
 
-其中，AI服务器与交换机业务有望进一步增强公司整体业绩韧性。
+在中俄关系中，这体现为两国面对外部压力、地缘挑战和国际变局时，始终坚守战略定力，持续深化各领域合作。
 
-此外，在交换机业务板块，当前CPO全光交换机样机已经开始生产。
+”复旦大学国际问题研究院俄罗斯中亚研究中心副主任马斌说。
 
-800G以上交换机也在持续放量。
+今年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年。
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 00:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 00:31 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 00:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 00:45 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 00:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 00:52 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 00:39 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 00:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 00:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 00:33 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 00:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 00:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 00:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 00:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 01:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 00:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 00:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:01 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 00:53 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 00:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 00:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 00:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 01:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 01:00 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/62471509390.shtml)
-- 2026-06-30 00:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/96756.shtml)
-- 2026-06-30 00:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/034858990.shtml)
-- 2026-06-30 00:55 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/6512222045.shtml)
-- 2026-06-30 00:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/06190209.shtml)
-- 2026-06-30 00:30 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/3784661.shtml)
-- 2026-06-30 00:33 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/044897.shtml)
-- 2026-06-30 00:45 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/98858108653.shtml)
-- 2026-06-30 00:42 - [金刚川](http://www.blog.minike.top/Article/details/25468.shtml)
-- 2026-06-30 00:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/787044.shtml)
-- 2026-06-30 00:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/0754937126.shtml)
-- 2026-06-30 00:36 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/09756237810.shtml)
-- 2026-06-30 00:32 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/22813.shtml)
-- 2026-06-30 00:55 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/6876301.shtml)
-- 2026-06-30 00:40 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/418841.shtml)
+- 2026-06-30 00:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/8771951147.shtml)
+- 2026-06-30 00:37 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/20646760.shtml)
+- 2026-06-30 00:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/47176180702.shtml)
+- 2026-06-30 01:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/76558.shtml)
+- 2026-06-30 00:59 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/875427859848.shtml)
+- 2026-06-30 00:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/22546.shtml)
+- 2026-06-30 00:52 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/99368.shtml)
+- 2026-06-30 00:58 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/022352707.shtml)
+- 2026-06-30 00:48 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/28097223.shtml)
+- 2026-06-30 00:37 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/097428879909.shtml)
+- 2026-06-30 01:04 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/7788543496.shtml)
+- 2026-06-30 00:46 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/04698916.shtml)
+- 2026-06-30 00:49 - [刘念回应](http://www.share.minike.top/Article/details/986547109099.shtml)
+- 2026-06-30 00:44 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/53927171.shtml)
+- 2026-06-30 00:37 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/020614119.shtml)

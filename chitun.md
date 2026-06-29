@@ -1,57 +1,60 @@
-# 故宫博物院推出“神骏”特展 众多展品首次亮相
+# 中国核能科技附属订立合肥东城宝湾屋顶光伏发电项目协议
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月21日电 (记者 应妮)故宫博物院重磅特展“神骏：故宫书画艺术中的马世界”21日在文华殿开幕。展出的55件文物中，金代赵霖《昭陵六骏图》等20件是一级文物，传为唐人所绘的《百马图》等28件是首次展出。 宋代李公麟的《摹韦偃牧放图》被陈列于独立展柜中。画面上沙阜连绵，河流隐现，牧官142人，驱赶1247匹官马自右向左行进，所绘正是盛唐官牧的宏大场景。该展策展人、故宫
+中国核能科技（00611）发布公告，于2026年5月20日（交易时段后），承租人（本公司的间接全资附属公司），与出租人（南山控股的间接非全资附属公司），订立合肥东城宝湾屋顶光伏发电项目协议，出租人将向承租人出租位于安徽省合肥市肥东县肥东经济开发区金阳路与龙城路交界的安徽和安农业发展有限公司的五座综合冷链物流仓库的屋顶，以供本集团进行屋顶太阳能光伏发电系统的设计、建设、安装及运营
 
 ## 正文
 
-中新社北京4月21日电 (记者 应妮)故宫博物院重磅特展“神骏：故宫书画艺术中的马世界”21日在文华殿开幕。
+中国核能科技（00611）发布公告，于2026年5月20日（交易时段后），承租人（本公司的间接全资附属公司），与出租人（南山控股的间接非全资附属公司），订立合肥东城宝湾屋顶光伏发电项目协议，出租人将向承租人出租位于安徽省合肥市肥东县肥东经济开发区金阳路与龙城路交界的安徽和安农业发展有限公司的五座综合冷链物流仓库的屋顶，以供本集团进行屋顶太阳能光伏发电系统的设计、建设、安装及运营以扩大本集团的新能源业务。
 
-展出的55件文物中，金代赵霖《昭陵六骏图》等20件是一级文物，传为唐人所绘的《百马图》等28件是首次展出。
+本集团认为中国国家政策致力于在全国发展新能源系统，包括光伏发电领域。
 
-宋代李公麟的《摹韦偃牧放图》被陈列于独立展柜中。
+本集团希望凭藉领先同业的雄厚实力和资源，抓住这个市场机遇，扩大在新能源行业的市场份额。
 
-画面上沙阜连绵，河流隐现，牧官142人，驱赶1247匹官马自右向左行进，所绘正是盛唐官牧的宏大场景。
+根据合肥东城宝湾屋顶光伏发电项目协议进行的交易，充分善用仓库等领域的屋顶资源建设光伏电站，长远而言，将继续扩大和提升本集团在新能源行业的市场份额。
 
-该展策展人、故宫博物院书画部研究馆员马顺平表示，作为公认的李公麟真迹，画中马匹骨肉停匀，形象生动，用笔自然写意，虽临摹唐人，但画家的创造性十分突出。
+本公司拟透过与南山控股附属公司合作推进光伏项目建立以满足其业务需求。
 
-该画作另一大看点是卷尾明代朱元璋洋洋洒洒一大篇题跋，“朕起布衣，十有九年，方今统一……”马顺平表示，看朱元璋的字，可能感觉写得不好，甚至还能找到错别字，但从整体看，题跋仍是气势磅礴。
+合肥东城宝湾屋顶光伏发电项目协议的订立，将使本集团能够利用南山控股集团拥有的仓库资源。
 
-与这件中国古人画马巅峰之作遥相呼应的，是清代郎世宁的《阚虎骝图》。
+预计本集团与南山控股附属公司的商业合作将带来可观的收入，此将丰富本公司的收入来源，提升其经营业绩。
 
-作为画家为乾隆皇帝所绘《十骏图》中的第二轴，画作寓意勇猛如虎，马身棕白相间，鬃毛细而不乱，渲染自然，富有层次，体现了西方高超的焦点透视画法。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 00:57 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 00:57 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 00:50 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 00:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 00:51 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 00:57 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 00:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 00:56 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 00:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 00:37 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 00:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 00:57 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 00:59 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 00:43 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 00:48 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 00:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 00:43 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 00:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 00:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 00:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 00:38 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 00:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 00:59 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 00:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/95242647.shtml)
-- 2026-06-30 00:39 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/009635453995.shtml)
-- 2026-06-30 00:56 - [小娘惹](https://www.share.minike.top/Article/details/809321.shtml)
-- 2026-06-30 00:50 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/0139005.shtml)
-- 2026-06-30 00:30 - [张凌赫 客串](https://www.share.minike.top/Article/details/45954040604.shtml)
-- 2026-06-30 00:38 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/51715.shtml)
-- 2026-06-30 00:59 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/05153372.shtml)
-- 2026-06-30 00:34 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/646647642496.shtml)
-- 2026-06-30 00:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/32768639.shtml)
-- 2026-06-30 00:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/89030072909.shtml)
-- 2026-06-30 00:57 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/81195054.shtml)
-- 2026-06-30 00:45 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/659087132629.shtml)
-- 2026-06-30 00:58 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/990063304.shtml)
-- 2026-06-30 00:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/64288.shtml)
-- 2026-06-30 00:30 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/81768044771.shtml)
+- 2026-06-30 00:47 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/9986623548.shtml)
+- 2026-06-30 00:47 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/490299199.shtml)
+- 2026-06-30 00:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/86360113511.shtml)
+- 2026-06-30 00:40 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/11559.shtml)
+- 2026-06-30 00:58 - [新官上任三把火](https://www.share.minike.top/Article/details/73101542.shtml)
+- 2026-06-30 00:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/29440788.shtml)
+- 2026-06-30 01:02 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/91134346.shtml)
+- 2026-06-30 00:38 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/476100216268.shtml)
+- 2026-06-30 01:00 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/837557323.shtml)
+- 2026-06-30 00:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/7692677806.shtml)
+- 2026-06-30 01:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/732059649.shtml)
+- 2026-06-30 00:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/309155350.shtml)
+- 2026-06-30 00:59 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/846836.shtml)
+- 2026-06-30 00:55 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/959038.shtml)
+- 2026-06-30 00:52 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/21452642068.shtml)

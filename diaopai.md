@@ -1,43 +1,56 @@
-# 守望归航 沈阳机场塔台做好迎接英烈准备
+# 北京科技周于5月24日启动 京津冀科普资源地图将发布
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 10:08 来源：央视新闻客户端 责任编辑：【杨彦宇】
+记者从北京市科委、中关村管委会获悉，2026年北京科技周将于5月24日在中国科学院空天信息创新研究院启动，系列活动将持续至5月31日。本届科技周以“奋进‘十五五’科技谱新篇”为主题，面向社会公众推出展览、互动、科普等种类丰富的活动。系统展示各领域自主创新成果 科技周期间，将重点围绕人工智能、量子科技、医药健康、航空航天等领域自主创新成果，直观展现我国科技自立自强发展路径与实践成
 
 ## 正文
 
-发布时间：2026年04月22日 10:08 来源：央视新闻客户端 责任编辑：【杨彦宇】
+记者从北京市科委、中关村管委会获悉，2026年北京科技周将于5月24日在中国科学院空天信息创新研究院启动，系列活动将持续至5月31日。
+
+本届科技周以“奋进‘十五五’科技谱新篇”为主题，面向社会公众推出展览、互动、科普等种类丰富的活动。
+
+系统展示各领域自主创新成果 科技周期间，将重点围绕人工智能、量子科技、医药健康、航空航天等领域自主创新成果，直观展现我国科技自立自强发展路径与实践成效。
+
+协同推出“京津冀科普资源地图” 地图紧扣人工智能、医药健康、航空航天、新能源、新材料、合成生物、量子科技等高精尖产业与未来产业，首批纳入京津冀优质科普点位60余个，覆盖科普基地、科技企业、重点实验室、科技园区等多元主体。
+
+地图采用可视化呈现方式，清晰标注各科普资源点位地理位置、特色体验、开放预约及配套服务信息，社会公众可根据地图指引，走进京津冀三地科普基地、科研院所、科技企业、重点实验室和科技园区，实地感受科技魅力。
+
+开展“科普基地与学校‘双走进’”特色活动 科技周期间将围绕科技教育、文化科技、安全科普、健康科普等方向，集中举办20余场“双走进”主题活动。
+
+一方面，有序开放重点实验室、创新生产线等前沿科技场景，组织学生近距离了解前沿技术、创新成果与研发流程。
+
+另一方面，开设科学实验展演、科技小发明竞赛、趣味科学闯关等沉浸式科普活动。
 
 ## 相关推荐
 
-- 2026-06-30 00:41 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 00:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 00:52 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 00:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 00:52 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 00:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 00:30 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 00:40 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 00:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 00:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 00:53 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 00:58 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 00:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 00:45 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 01:03 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 00:52 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 00:39 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 00:51 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 00:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/7897525819.shtml)
-- 2026-06-30 00:31 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/61815163975.shtml)
-- 2026-06-30 00:52 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/49520335.shtml)
-- 2026-06-30 00:39 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/637289275856.shtml)
-- 2026-06-30 00:35 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/05467283.shtml)
-- 2026-06-30 00:31 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/6074547.shtml)
-- 2026-06-30 00:41 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/582004.shtml)
-- 2026-06-30 00:40 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/0484727.shtml)
-- 2026-06-30 00:58 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/992983.shtml)
-- 2026-06-30 00:35 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/420249381411.shtml)
-- 2026-06-30 00:37 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/117579674.shtml)
-- 2026-06-30 00:53 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/0341987.shtml)
-- 2026-06-30 00:58 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/198617355.shtml)
-- 2026-06-30 00:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/223324531668.shtml)
-- 2026-06-30 00:48 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/7996934.shtml)
+- 2026-06-30 00:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/979607182.shtml)
+- 2026-06-30 00:43 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/3732374.shtml)
+- 2026-06-30 00:59 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/57107553012.shtml)
+- 2026-06-30 00:49 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/470463157627.shtml)
+- 2026-06-30 00:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/50250928.shtml)
+- 2026-06-30 00:46 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/360380145654.shtml)
+- 2026-06-30 00:58 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/0883456.shtml)
+- 2026-06-30 00:50 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/963732302282.shtml)
+- 2026-06-30 00:53 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/90554494.shtml)
+- 2026-06-30 00:57 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/146586194771.shtml)
+- 2026-06-30 01:00 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/7612835222.shtml)
+- 2026-06-30 00:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/6972322.shtml)
+- 2026-06-30 00:38 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/59170877.shtml)
+- 2026-06-30 00:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/9003297.shtml)
+- 2026-06-30 00:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/75428.shtml)

@@ -1,61 +1,60 @@
-# 福建惠安小岞林场：盐碱荒滩育出绿色林海
+# 美国总统特朗普最早将于周四签署AI网络安全行政命令
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-阿尔卡拉斯、萨巴伦卡当选劳伦斯世界体育奖最佳运动员连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金遗毒未消，触目惊心：为什么说靖国神社“罪大恶极”？被新疆导游带火的天山隧道，到底有多牛？标注“0反式脂肪酸”的食品真的更健康吗？专家详解国家发改委主任：持续提升国家经济安全保障能力涉宇树科技、胖东来等，最高法谈知识产权司法保护A股收评：超3400只个股飘红，沪指、深指收涨这
+据知情人士称，美国总统唐纳德·特朗普准备最早于周四颁布一道旨在加强人工智能网络安全的行政命令，并已邀请科技行业领袖参加此次活动。 彭博新闻社之前报道称，特朗普料将签署的这道命令将改造现有的网络安全信息共享项目，将AI公司纳入其中，但不会强制前沿模型接受政府审批。 它将呼吁前沿AI系统自愿接受政府测试，以发现并修补联邦、州和地方网络以及美国关键基础设施中的漏洞，而不要求进行强力新
 
 ## 正文
 
-阿尔卡拉斯、萨巴伦卡当选劳伦斯世界体育奖最佳运动员连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金遗毒未消，触目惊心：为什么说靖国神社“罪大恶极”？
+据知情人士称，美国总统唐纳德·特朗普准备最早于周四颁布一道旨在加强人工智能网络安全的行政命令，并已邀请科技行业领袖参加此次活动。
 
-被新疆导游带火的天山隧道，到底有多牛？
+彭博新闻社之前报道称，特朗普料将签署的这道命令将改造现有的网络安全信息共享项目，将AI公司纳入其中，但不会强制前沿模型接受政府审批。
 
-标注“0反式脂肪酸”的食品真的更健康吗？
+它将呼吁前沿AI系统自愿接受政府测试，以发现并修补联邦、州和地方网络以及美国关键基础设施中的漏洞，而不要求进行强力新监管。
 
-专家详解国家发改委主任：持续提升国家经济安全保障能力涉宇树科技、胖东来等，最高法谈知识产权司法保护A股收评：超3400只个股飘红，沪指、深指收涨这些千年书院，藏着你不知道的秘密一间中国礼物商店，如何让在地非遗老技艺“活”在当下？
+知情人士称，参加白宫周四签字活动的邀请已发给多位科技行业高管，但目前尚不清楚哪些人会出席。
 
-中国Token出海惠及东南亚本土语言模型中国AI解了东南亚一道难题全球乱局中，中国这块“金字招牌”越来越亮了中国“玩梗式”赛事掀起 成为城市新流量从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮谷雨：雨落润万物 所盼皆如愿三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远中国咖啡第一村：从“种咖啡”到“兴体验”的转型路导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！
+白宫发言人周三晚间未立即置评。
 
-西楚霸王“归来”！
+顶尖AI开发商OpenAI和Anthropic PBC未立即回复寻求置评的信息。
 
-宿迁街头现巨型墙绘 3D效果拉满长江江豚数量实现恢复性增长山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放黑龙江嫩江：黑土地开展施底肥作业迎春播谷雨：雨落润万物 所盼皆如愿AI“机器腿”撑起宏福苑居民归家路浙江杭州孔庙书市启幕 书香浸润千年府学9秒登顶！
+大约一个月前，Anthropic披露其具有突破性的Mythos模型能够极快发现网络漏洞，并可能构成重大网络安全风险。
 
-来看徒手爬椰子树名场面什么比赛让早起困难的记者，自发周日5点起床桂林首届“粉超”开幕 民众分享超大碗桂林米粉“三月三”的氛围有多欢乐？
+目前，该公司仅向少数大型科技公司和华尔街企业开放Mythos访问权限，而它可能对关键系统构成的新威胁已在全球拉响警报。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 00:42 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 00:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 00:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 00:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 00:38 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 00:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 00:34 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 00:33 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 00:55 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 00:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 00:55 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 00:49 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 00:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 00:52 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 01:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 00:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 00:47 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 01:02 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 00:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:42 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 00:54 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 01:00 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 01:04 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 01:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 00:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 00:54 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/166027.shtml)
-- 2026-06-30 00:56 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/605999.shtml)
-- 2026-06-30 00:41 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/37567128.shtml)
-- 2026-06-30 00:38 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/457902442.shtml)
-- 2026-06-30 00:59 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/53920137975.shtml)
-- 2026-06-30 00:51 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/59162926175.shtml)
-- 2026-06-30 00:58 - [斗破苍穹](http://www.blog.minike.top/Article/details/788338.shtml)
-- 2026-06-30 00:37 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/3651659.shtml)
-- 2026-06-30 00:44 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/486088387.shtml)
-- 2026-06-30 00:55 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/67370.shtml)
-- 2026-06-30 00:39 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/7671603.shtml)
-- 2026-06-30 00:59 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/387280225311.shtml)
-- 2026-06-30 00:34 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/694005184.shtml)
-- 2026-06-30 00:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/30919.shtml)
-- 2026-06-30 00:30 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/945772717392.shtml)
+- 2026-06-30 00:49 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/82660423028.shtml)
+- 2026-06-30 00:44 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/01115.shtml)
+- 2026-06-30 00:37 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/0359926.shtml)
+- 2026-06-30 01:05 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/92608.shtml)
+- 2026-06-30 01:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/2357254735.shtml)
+- 2026-06-30 00:42 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/977451941818.shtml)
+- 2026-06-30 00:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/78267581.shtml)
+- 2026-06-30 00:43 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/3140220.shtml)
+- 2026-06-30 00:47 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/240365.shtml)
+- 2026-06-30 01:05 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/55518022856.shtml)
+- 2026-06-30 00:58 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/943046167.shtml)
+- 2026-06-30 00:48 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/609570101811.shtml)
+- 2026-06-30 00:42 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/6117197871.shtml)
+- 2026-06-30 00:55 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/81474525.shtml)
+- 2026-06-30 00:54 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/6986214643.shtml)

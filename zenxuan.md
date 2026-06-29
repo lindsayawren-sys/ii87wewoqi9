@@ -1,55 +1,57 @@
-# 中国民航局：一季度国际航线客货运输量同比增速均超10%
+# 黄大豆1号、豆油系列期权将于5月29日晚挂牌
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月22日电 (陶思阅 刘文文)中国民用航空局22日发布消息称，2026年一季度，中国民航运输生产取得良好开局，行业整体呈现“客稳货快”的运行态势，全行业完成运输总周转量、旅客运输量、货邮运输量分别为428.0亿吨公里、2.0亿人次、245.2万吨，同比分别增长10.9%、6.5%、9.3%。其中，国际市场保持较快增长，国际航线客货运输量同比增速分别达10.0%和17
+本报讯 （记者王宁）为更好服务油脂油料产业需求、助力我国大豆行业高质量发展，5月20日，大连商品交易所（以下简称“大商所”）发布公告，对黄大豆1号（以下简称“豆一”）、豆油期权合约进行修改，并发布了豆一、豆油系列期权的挂牌参数，明确将于2026年6月1日交易时（即5月29日晚夜盘）起，正式挂牌交易豆一、豆油系列期权合约。 根据公告，本次修改涉及《大连商品交易所黄大豆1号期货期权
 
 ## 正文
 
-中新社北京4月22日电 (陶思阅 刘文文)中国民用航空局22日发布消息称，2026年一季度，中国民航运输生产取得良好开局，行业整体呈现“客稳货快”的运行态势，全行业完成运输总周转量、旅客运输量、货邮运输量分别为428.0亿吨公里、2.0亿人次、245.2万吨，同比分别增长10.9%、6.5%、9.3%。
+本报讯 （记者王宁）为更好服务油脂油料产业需求、助力我国大豆行业高质量发展，5月20日，大连商品交易所（以下简称“大商所”）发布公告，对黄大豆1号（以下简称“豆一”）、豆油期权合约进行修改，并发布了豆一、豆油系列期权的挂牌参数，明确将于2026年6月1日交易时（即5月29日晚夜盘）起，正式挂牌交易豆一、豆油系列期权合约。
 
-其中，国际市场保持较快增长，国际航线客货运输量同比增速分别达10.0%和17.6%。
+根据公告，本次修改涉及《大连商品交易所黄大豆1号期货期权合约》和《大连商品交易所豆油期货期权合约》中“最后交易日”和“交易代码”条款，明确豆一、豆油系列期权于标的期货交割月前2个月第12个交易日到期，并在交易代码中引入“MS”作为专属标识。
 
-客运市场方面，全行业共完成旅客运输量2.0亿人次，其中，国内航线完成1.8亿人次，同比增长6.1%；国际航线完成2081.9万人次，同比增长10.0%。
+合约中其他内容保持不变。
 
-受中东形势影响，西亚航线客运量大幅下降，中国至中亚、欧洲等航线旅客量和客座率均显著提高。
+此外，大商所还在通知中明确了豆一、豆油系列期权的交易指令、挂牌基准价、行权与履约、组合保证金、合约询价等内容。
 
-货运市场方面，全行业共完成货邮运输量245.2万吨，其中，国内航线完成134.7万吨，同比增长3.3%；国际航线完成110.5万吨，同比增长17.6%。
+中信期货研究所金融与量化研究部研究员金月婷表示，豆一、豆油系列期权的引入，将进一步助力企业精细化套保管理。
 
-从货邮运输量和周转量来看，国际货运占比规模分别为45.1%、80.3%，较去年同期分别提升3.2和2.3个百分点，国际市场是推动航空货运市场较快增长的主要驱动力。
+相较常规期权，系列期权到期时间更早，时间价值成本相对更低，有助于企业以更低成本管理市场风险，提高资金利用效率。
 
-(完)
+同时，系列期权使波动率曲面更平滑连续，能够为市场交易月度隐含波动率的跨期波动率策略提供更丰富的选择。
+
+黑龙江象屿农业物产有限公司大豆事业部副总监王成表示，豆一、豆油系列期权的推出将解决相关品种部分月份没有期权合约到期的问题，为采购和销售过程中不同周期头寸提供更为灵活的套保工具，有助于增强企业的短期风险应对能力。
 
 ## 相关推荐
 
-- 2026-06-30 00:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 00:40 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 00:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 00:47 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 00:40 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 00:39 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 00:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 00:45 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:54 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 00:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 00:56 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 00:45 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 00:45 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 00:54 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 00:44 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 00:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 00:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 00:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 00:57 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 00:38 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 01:01 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 00:46 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [千与千寻](https://www.blog.minike.top/Article/details/43098145397.shtml)
-- 2026-06-30 00:33 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/00338.shtml)
-- 2026-06-30 00:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/39594558.shtml)
-- 2026-06-30 00:54 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/609919762.shtml)
-- 2026-06-30 00:40 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/967774685904.shtml)
-- 2026-06-30 00:54 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/582276.shtml)
-- 2026-06-30 00:52 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/055517531232.shtml)
-- 2026-06-30 00:31 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/420861.shtml)
-- 2026-06-30 00:34 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/466780.shtml)
-- 2026-06-30 00:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/952683846771.shtml)
-- 2026-06-30 00:35 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/59572877.shtml)
-- 2026-06-30 00:35 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/876359273882.shtml)
-- 2026-06-30 00:42 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/81154078.shtml)
-- 2026-06-30 00:33 - [恋与深空 日服](http://www.blog.minike.top/Article/details/916944.shtml)
-- 2026-06-30 00:41 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/84427633184.shtml)
+- 2026-06-30 00:36 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/01768975.shtml)
+- 2026-06-30 00:48 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/614642.shtml)
+- 2026-06-30 01:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/7215460643.shtml)
+- 2026-06-30 00:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/69732589952.shtml)
+- 2026-06-30 00:56 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/91009522830.shtml)
+- 2026-06-30 00:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/05783017905.shtml)
+- 2026-06-30 00:43 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/77043901.shtml)
+- 2026-06-30 00:54 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/823007519580.shtml)
+- 2026-06-30 00:52 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/1240914913.shtml)
+- 2026-06-30 00:36 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/614501261210.shtml)
+- 2026-06-30 00:51 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/894724.shtml)
+- 2026-06-30 00:59 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/94870081.shtml)
+- 2026-06-30 00:41 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/36395.shtml)
+- 2026-06-30 01:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/011547.shtml)
+- 2026-06-30 00:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/5000588.shtml)

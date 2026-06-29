@@ -1,59 +1,60 @@
-# OEXN:黄金稳健支撑潜力可期
+# 对话上海金融与发展实验室副理事长骆立云：养老资产要具备抗通胀能力，为退休生活构建持续的现金流
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-4月21日，黄金价格目前维持在每盎司 4800 美元附近，显示出稳健支撑。OEXN认为，尽管短期市场存在波动因素，黄金仍具备下半年上涨潜力。技术面显示，50日和200日移动均线正在逐步构筑支撑区，投机性仓位的减少以及交易所交易基金（ETF）资金流入改善，为金价提供了额外支撑。短期流动性需求可能对价格造成波动压力，但长期结构性因素依然稳固，预计未来几个月黄金有望恢复上涨趋势，并逐
+专题：护航新征程丨金融新启航 在人口结构加速迈入深度老龄化阶段的背景下，养老问题正从长期预期转化为现实压力。随着长寿风险、失能风险与财富保值需求不断叠加，单一依赖储蓄的养老准备方式已难以支撑个体跨越数十年的养老周期，如何构建并完善多层次、可持续的养老金融体系，成为一个日益迫切的现实议题。 新浪财经推出《护航新征程·金融新启航》专题系列，邀请金融业界专家、高管和学者，探讨金融如何
 
 ## 正文
 
-4月21日，黄金价格目前维持在每盎司 4800 美元附近，显示出稳健支撑。
+专题：护航新征程丨金融新启航 在人口结构加速迈入深度老龄化阶段的背景下，养老问题正从长期预期转化为现实压力。
 
-OEXN认为，尽管短期市场存在波动因素，黄金仍具备下半年上涨潜力。
+随着长寿风险、失能风险与财富保值需求不断叠加，单一依赖储蓄的养老准备方式已难以支撑个体跨越数十年的养老周期，如何构建并完善多层次、可持续的养老金融体系，成为一个日益迫切的现实议题。
 
-技术面显示，50日和200日移动均线正在逐步构筑支撑区，投机性仓位的减少以及交易所交易基金（ETF）资金流入改善，为金价提供了额外支撑。
+新浪财经推出《护航新征程·金融新启航》专题系列，邀请金融业界专家、高管和学者，探讨金融如何更有效回应老龄社会的多元需求。
 
-短期流动性需求可能对价格造成波动压力，但长期结构性因素依然稳固，预计未来几个月黄金有望恢复上涨趋势，并逐步重新测试高位。
+本期《护航新征程·金融新启航》对话上海金融与发展实验室副理事长、副主任骆立云。
 
-在基本面和市场需求方面，黄金价格受到实际收益率、通胀预期及市场避险情绪的共同作用。
+她表示，当前养老金融需要重点关注的是如何建立起一个可持续发展的养老金融体系，一方面，通过金融手段为个人的养老生活提供经济保障，另一方面，也让金融更好地服务于银发经济的发展。
 
-当前黄金与五年期实际收益率相关性为-24%，反映出投资者对利率和经济预期更加敏感。
+在她看来，从年轻到退休，其实是一个很长的过程。
 
-同时，高净值投资者和机构的实物黄金需求保持稳健，他们将黄金视为对冲通胀、保持购买力的重要工具。
+在这期间，可能会面临通货膨胀。
 
-此外，白银及贵金属的勘探预算持续增长，为金银市场提供了长期支撑。
+因此，我们需要拥有抗通胀的资产，为可能长达20、30年的退休生活构建持续的现金流。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 00:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 00:49 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 00:49 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 00:59 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:51 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:34 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 00:39 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:57 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 00:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 00:35 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 00:54 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 00:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 00:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 01:02 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 00:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 00:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 00:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 00:45 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 01:00 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:54 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 00:44 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 01:03 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 00:39 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 00:50 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [张凌赫 客串](http://www.blog.minike.top/Article/details/0858788849.shtml)
-- 2026-06-30 00:31 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/6716763.shtml)
-- 2026-06-30 00:34 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/7788671872.shtml)
-- 2026-06-30 00:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/871948250.shtml)
-- 2026-06-30 00:39 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/9920671205.shtml)
-- 2026-06-30 00:55 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/046158.shtml)
-- 2026-06-30 00:44 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/51306761.shtml)
-- 2026-06-30 00:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/452933483.shtml)
-- 2026-06-30 00:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/121835.shtml)
-- 2026-06-30 00:51 - [新官上任三把火](http://www.share.minike.top/Article/details/139786.shtml)
-- 2026-06-30 00:51 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/586076.shtml)
-- 2026-06-30 00:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/82338346.shtml)
-- 2026-06-30 00:44 - [毒液2](http://www.share.kurohicncr.top/Article/details/86842124300.shtml)
-- 2026-06-30 00:55 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/0145726.shtml)
-- 2026-06-30 00:56 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/28726721.shtml)
+- 2026-06-30 00:44 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/736584858043.shtml)
+- 2026-06-30 01:05 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/38581.shtml)
+- 2026-06-30 00:47 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/7078054.shtml)
+- 2026-06-30 01:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/2678056.shtml)
+- 2026-06-30 01:02 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/30498220.shtml)
+- 2026-06-30 00:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/46139007172.shtml)
+- 2026-06-30 00:58 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/4042430734.shtml)
+- 2026-06-30 00:54 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/43808606625.shtml)
+- 2026-06-30 00:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/5451691.shtml)
+- 2026-06-30 00:51 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/7119072920.shtml)
+- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30832628865.shtml)
+- 2026-06-30 00:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/923954.shtml)
+- 2026-06-30 00:49 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/219399245.shtml)
+- 2026-06-30 01:01 - [扬名立万](https://www.share.minike.top/Article/details/7498652.shtml)
+- 2026-06-30 00:58 - [流金岁月](https://www.blog.minike.top/Article/details/179327117250.shtml)

@@ -1,58 +1,59 @@
-# 俄军总参谋长：已完全控制卢甘斯克地区
+# 中国银行党委召开全行树立和践行正确政绩观警示教育大会
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科4月21日电 俄罗斯国防部21日发布消息说，俄武装力量总参谋长格拉西莫夫表示俄军已完全控制卢甘斯克地区。 据俄国防部消息，格拉西莫夫视察了“南方”集团军相关部队，听取部队指挥官的报告，并就下一步行动下达任务。俄国防部并未透露格拉西莫夫此行的具体时间。 格拉西莫夫表示，俄军今年3月至4月在特别军事行动区内共控制34个居民点、约700平方公里土地。自今年年初以来，俄军已
+来源：中国银行 5月21日，中国银行党委组织召开树立和践行正确政绩观警示教育大会，深入学习领会习近平总书记关于树立和践行正确政绩观的重要论述，通报全行政绩观偏差反面典型案例，推动树立和践行正确政绩观学习教育走深走实。党委书记、董事长葛海蛟出席会议并讲话，结合反面典型案例，深刻分析根源，引导党员干部以正确政绩观引领高质量发展，努力创造经得起实践、人民、历史检验的实绩。党委副书记刘
 
 ## 正文
 
-中新社莫斯科4月21日电 俄罗斯国防部21日发布消息说，俄武装力量总参谋长格拉西莫夫表示俄军已完全控制卢甘斯克地区。
+来源：中国银行 5月21日，中国银行党委组织召开树立和践行正确政绩观警示教育大会，深入学习领会习近平总书记关于树立和践行正确政绩观的重要论述，通报全行政绩观偏差反面典型案例，推动树立和践行正确政绩观学习教育走深走实。
 
-据俄国防部消息，格拉西莫夫视察了“南方”集团军相关部队，听取部队指挥官的报告，并就下一步行动下达任务。
+党委书记、董事长葛海蛟出席会议并讲话，结合反面典型案例，深刻分析根源，引导党员干部以正确政绩观引领高质量发展，努力创造经得起实践、人民、历史检验的实绩。
 
-俄国防部并未透露格拉西莫夫此行的具体时间。
+党委副书记刘进主持会议，驻行纪检监察组组长、党委委员苗雨峰通报政绩观偏差反面典型案例，在家党委班子成员出席会议。
 
-格拉西莫夫表示，俄军今年3月至4月在特别军事行动区内共控制34个居民点、约700平方公里土地。
+中央金融纪检监察工委有关同志到会指导。
 
-自今年年初以来，俄军已控制80个居民点和超过1700平方公里土地。
+葛海蛟指出，全行各级党员干部要深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要论述，对照反面典型案例，深刻认识锤炼坚强党性是树立和践行正确政绩观的根本保证，站稳人民立场是树立和践行正确政绩观的价值基础，积极担当作为是树立和践行正确政绩观的实践要求，能力素质过硬是树立和践行正确政绩观的必要条件，切实解决好“政绩为谁而树、树什么样的政绩、靠什么树政绩”的问题，不断增强树立和践行正确政绩观的思想自觉、政治自觉、行动自觉。
 
-特种军事行动的任务仍在继续，各部队正在所有方向发起进攻。
+葛海蛟强调，全行各级党组织和党员干部要全面落实“立党为公、为民造福、科学决策、真抓实干”总要求，坚持立党为公，创造对党负责、让党放心的业绩，确保党中央决策部署在各级机构一贯到底、落地见效；坚持为民造福，创造利民惠民、群众认可的业绩，为广大客户提供优质高效的金融服务，积极服务基层、赋能基层；坚持科学决策，创造符合实际、遵循规律的业绩，在把握客观规律的基础上，因地制宜、实事求是开展工作；坚持真抓实干，创造实实在在、没有水分的业绩，以钉钉子精神履职尽责，以真实业绩推动高质量发展。
 
-他同时表示，为阻止俄军推进，乌克兰武装部队在2月和3月发动了170多次反击，但未能实现其目标，并损失了超过3000名士兵和160多件装备。
+葛海蛟要求，全行各级党组织和党员干部要明确方法路径，推动树立和践行正确政绩观学习教育落细落实，务求实效。
 
-4月1日，俄国防部曾宣布，俄军已完成对卢甘斯克地区的全面控制。
+要深化理论武装锤炼党性修养，从思想上正本清源、固本培元，坚定理想信念；要提高能力本领推动高质量发展，发挥国有大行主力军作用，为经济社会高质量发展提供有力金融支持；要健全制度机制激励担当作为，持续完善有效防范和纠治政绩观偏差工作机制；要压紧压实管党治党责任链条，强化权力运行监督制约，为中国银行高质量发展提供坚强保障。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 00:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 00:56 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 00:54 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 00:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 00:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 00:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 00:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 00:37 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 00:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 00:54 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 00:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 00:59 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 00:45 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 00:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 00:57 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 00:36 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 00:39 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 01:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 00:37 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 00:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 00:41 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 00:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/624434.shtml)
-- 2026-06-30 00:46 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/6926529.shtml)
-- 2026-06-30 00:55 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/84374410576.shtml)
-- 2026-06-30 00:35 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/044040375.shtml)
-- 2026-06-30 00:53 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/714933.shtml)
-- 2026-06-30 00:41 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/36655.shtml)
-- 2026-06-30 00:47 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/990398.shtml)
-- 2026-06-30 00:37 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/07450747601.shtml)
-- 2026-06-30 00:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/514328555.shtml)
-- 2026-06-30 00:51 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/244740.shtml)
-- 2026-06-30 00:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/60382.shtml)
-- 2026-06-30 00:38 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/022954577.shtml)
-- 2026-06-30 00:43 - [炽夏](https://www.blog.minike.top/Article/details/4249845464.shtml)
-- 2026-06-30 00:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/415014.shtml)
-- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/168460226113.shtml)
+- 2026-06-30 00:40 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/32639.shtml)
+- 2026-06-30 00:46 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/7784335.shtml)
+- 2026-06-30 00:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/29615067345.shtml)
+- 2026-06-30 00:37 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/82739099158.shtml)
+- 2026-06-30 00:57 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/533771368612.shtml)
+- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/375133374173.shtml)
+- 2026-06-30 00:51 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/2652221.shtml)
+- 2026-06-30 01:03 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/414570.shtml)
+- 2026-06-30 01:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/52183.shtml)
+- 2026-06-30 00:37 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/142995748.shtml)
+- 2026-06-30 00:38 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/777879.shtml)
+- 2026-06-30 00:58 - [啊啊啊](https://www.share.minike.top/Article/details/7344496860.shtml)
+- 2026-06-30 00:52 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/344040867921.shtml)
+- 2026-06-30 00:44 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/066057636845.shtml)
+- 2026-06-30 00:38 - [极限挑战第一季](http://www.blog.minike.top/Article/details/75527280.shtml)

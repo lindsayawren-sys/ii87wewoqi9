@@ -1,59 +1,57 @@
-# 俄Tuapse炼油厂遭无人机袭击后全面停产
+# 2026“一带一路”华侨华人合作发展大会将于6月在川举办
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-俄罗斯罗斯涅夫公司旗下位于黑海沿岸的Tuapse炼油厂在4月16日遭到无人机袭击后，已全面停止原油加工业务。该炼油厂是俄黑海地区唯一的石油加工企业，年设计加工能力为1200万吨。 据知情人士透露，4月16日的袭击导致炼油厂关键设施受损，大火持续燃烧了三天，动用超过150名消防员和近50台设备才将明火扑灭。就在火势于4月19日刚刚得到控制之际，乌克兰部队于4月20日凌晨再次对该炼
+中新网成都5月21日电 (王利文)5月21日，四川省人民政府新闻办公室召开新闻发布会，通报2026“一带一路”华侨华人合作发展大会相关情况。大会以“汇聚侨界力量 谱写丝路新篇”为主题，将于6月1日至5日在四川举办，将邀请全球120个国家和地区的海外重要侨团负责人、重点华商、侨界专家学者参会。 四川省人民政府副秘书长曹代学介绍，大会构建“1+1+4+N+3”活动框架，包括1场集体
 
 ## 正文
 
-俄罗斯罗斯涅夫公司旗下位于黑海沿岸的Tuapse炼油厂在4月16日遭到无人机袭击后，已全面停止原油加工业务。
+中新网成都5月21日电 (王利文)5月21日，四川省人民政府新闻办公室召开新闻发布会，通报2026“一带一路”华侨华人合作发展大会相关情况。
 
-该炼油厂是俄黑海地区唯一的石油加工企业，年设计加工能力为1200万吨。
+大会以“汇聚侨界力量 谱写丝路新篇”为主题，将于6月1日至5日在四川举办，将邀请全球120个国家和地区的海外重要侨团负责人、重点华商、侨界专家学者参会。
 
-据知情人士透露，4月16日的袭击导致炼油厂关键设施受损，大火持续燃烧了三天，动用超过150名消防员和近50台设备才将明火扑灭。
+四川省人民政府副秘书长曹代学介绍，大会构建“1+1+4+N+3”活动框架，包括1场集体会见、1场开幕式暨全体大会、4个平行主题专场、N场分论坛，以及四川、重庆、新疆3个方向参访线路。
 
-就在火势于4月19日刚刚得到控制之际，乌克兰部队于4月20日凌晨再次对该炼油厂及附近港口发动第二轮袭击，造成一人死亡、一人受伤，储油区再次燃起大火。
+大会旨在充分发挥华侨华人独特优势，推动侨界人才、技术、资金与国内产业、贸易、科技、文化资源深度对接，进一步集聚侨界智慧、激发侨界活力、汇聚侨界力量。
 
-分析显示，此次袭击后储油罐区出现超过10处起火点。
+中国侨联经济科技部副部长许华坤表示，中国侨联将重点抓好三方面工作：一是强化侨界资源整合机制，推动大会参与范围由川渝辐射全国，为侨胞深度参与共建“一带一路”搭建综合性、高效率服务体系。
 
-Tuapse炼油厂此前已成为乌克兰方面的重要打击目标。
+二是健全项目精准对接机制，大会已在川渝、乃至全国范围内促成一批“一带一路”项目签约，同时将围绕供需清单优化环节设计，提升项目落地率。
 
-在4月16日首次袭击之前，该厂已于2025年3月、11月和12月多次遭袭。
+三是完善经贸科技人文协同互通机制，聚焦先进制造、生物医药等重点领域设置专场活动，并发布共建“一带一路”侨力量十佳案例，宣介侨界参与典型。
 
-乌克兰方面证实，这两次打击是由无人系统部队、特种作战部队和军事情报部门联合执行的。
+四川省侨联主席杨东介绍，本届大会设置经贸、侨智、人文、青年四大主题专场，分别对应举办“侨助千企万品出海”经贸交流、“侨助高质量发展”侨智交流、“侨助民心相通·美丽中国出彩”人文交流、“一带一路”侨界青年创新创业交流活动。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 00:54 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 00:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 00:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 00:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 00:50 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 00:38 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 00:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 00:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 00:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 00:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 00:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 00:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 00:46 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 00:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 00:44 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 00:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 00:58 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 00:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 00:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 00:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 00:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 00:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 00:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/931930989.shtml)
-- 2026-06-30 00:30 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/485963.shtml)
-- 2026-06-30 00:35 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/559683160693.shtml)
-- 2026-06-30 00:31 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/94540079072.shtml)
-- 2026-06-30 00:48 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/02793613.shtml)
-- 2026-06-30 00:33 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/19006528.shtml)
-- 2026-06-30 00:55 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/0753136688.shtml)
-- 2026-06-30 00:42 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/139672261278.shtml)
-- 2026-06-30 00:48 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/8586494056.shtml)
-- 2026-06-30 00:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/9759040119.shtml)
-- 2026-06-30 00:33 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/93330253418.shtml)
-- 2026-06-30 00:54 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/53804.shtml)
-- 2026-06-30 00:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/457127.shtml)
-- 2026-06-30 00:38 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/3735765697.shtml)
-- 2026-06-30 00:46 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/478773562.shtml)
+- 2026-06-30 01:05 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/6099583.shtml)
+- 2026-06-30 01:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/77943643.shtml)
+- 2026-06-30 01:01 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/8427092782.shtml)
+- 2026-06-30 00:37 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/131328.shtml)
+- 2026-06-30 01:05 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/3827091765.shtml)
+- 2026-06-30 00:40 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/9076815267.shtml)
+- 2026-06-30 01:01 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/240633931.shtml)
+- 2026-06-30 00:43 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/7464555.shtml)
+- 2026-06-30 01:02 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/880757921289.shtml)
+- 2026-06-30 00:55 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/095823862288.shtml)
+- 2026-06-30 00:41 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/690571259.shtml)
+- 2026-06-30 00:51 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/084608279622.shtml)
+- 2026-06-30 00:58 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/8837447384.shtml)
+- 2026-06-30 01:00 - [千香](http://www.share.kurohicncr.top/Article/details/8602017.shtml)
+- 2026-06-30 00:38 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/800140746.shtml)

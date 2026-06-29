@@ -1,57 +1,51 @@
-# 民建中央副主席孙东生：生态保护与经济发展从来不是对立的
+# 首位香港航天员将执飞 专家：香港可发挥“AI+航天”与金融优势
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 07:18 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期5年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 民建中央副主席孙东生表示，开展长江生态环境保护民主监督是中共中央交付给各民主党派中央和无党派人士的重要政治任务。五年
+发布时间：2026年05月20日 20:52 来源：中国新闻网 5月20日，“2026全球繁荣峰会”继续在香港举行。当日峰会设有“加密世界的善、恶与丑”、“在变迁世界秩序中的国际贸易”和“香港作为航空航天发展的促进者”三场专题讨论。 香港科技大学太空可持续发展人工智能和机器人研究中心主任高扬接受采访，被问及香港首名航天员相关话题时，高扬表示振奋，指香港可发挥科创及金融优势，成为
 
 ## 正文
 
-发布时间：2026年04月22日 07:18 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期5年的长江生态环境保护民主监督。
+发布时间：2026年05月20日 20:52 来源：中国新闻网 5月20日，“2026全球繁荣峰会”继续在香港举行。
 
-从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
+当日峰会设有“加密世界的善、恶与丑”、“在变迁世界秩序中的国际贸易”和“香港作为航空航天发展的促进者”三场专题讨论。
 
-民建中央副主席孙东生表示，开展长江生态环境保护民主监督是中共中央交付给各民主党派中央和无党派人士的重要政治任务。
+香港科技大学太空可持续发展人工智能和机器人研究中心主任高扬接受采访，被问及香港首名航天员相关话题时，高扬表示振奋，指香港可发挥科创及金融优势，成为中国航天事业中的重要一员。
 
-五年来，民建中央把专项监督与湖南的生态治理实践深度融合，一起调研、一起协商、一起整改，形成了“调研、反馈、整改、提升”的工作闭环。
-
-生态保护与经济发展从来不是对立的单选题，而是可以共赢的必答题。
-
-这种协商式、合作式的监督消除了地方顾虑，激发了内生动力，不仅有效把监督成果转化为了政策举措，更是中国新型政党制度独特优势和效能的生动体现。
-
-责任编辑：【田博群】
+(记者 陈子彦） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 00:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 00:35 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 00:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 00:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 00:53 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 00:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 00:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 00:43 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 00:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 00:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 00:50 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 00:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 00:44 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 00:52 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 00:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 01:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 00:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 00:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 00:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 00:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 00:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 01:03 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 00:51 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 00:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/066616703.shtml)
-- 2026-06-30 00:31 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/053787751.shtml)
-- 2026-06-30 00:37 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/228131372439.shtml)
-- 2026-06-30 00:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/90833.shtml)
-- 2026-06-30 00:50 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/943955953.shtml)
-- 2026-06-30 00:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/34093546.shtml)
-- 2026-06-30 00:42 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/09344626.shtml)
-- 2026-06-30 00:56 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/812466045.shtml)
-- 2026-06-30 00:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/3788359.shtml)
-- 2026-06-30 00:54 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/85113018.shtml)
-- 2026-06-30 00:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/249269870998.shtml)
-- 2026-06-30 00:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/18797905.shtml)
-- 2026-06-30 00:51 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/58709.shtml)
-- 2026-06-30 00:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/73342118.shtml)
-- 2026-06-30 00:42 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/022897.shtml)
+- 2026-06-30 00:41 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/257205320020.shtml)
+- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/37637415.shtml)
+- 2026-06-30 00:44 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/585454575855.shtml)
+- 2026-06-30 00:40 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/6328444.shtml)
+- 2026-06-30 00:57 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/17305.shtml)
+- 2026-06-30 00:44 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/47594113348.shtml)
+- 2026-06-30 00:43 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/10406665.shtml)
+- 2026-06-30 00:49 - [新官上任三把火](https://www.share.minike.top/Article/details/96648512404.shtml)
+- 2026-06-30 00:49 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/568486.shtml)
+- 2026-06-30 00:47 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/0273538.shtml)
+- 2026-06-30 01:04 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/08165526.shtml)
+- 2026-06-30 00:53 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/1664865475.shtml)
+- 2026-06-30 00:52 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/0462827755.shtml)
+- 2026-06-30 01:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/78303200.shtml)
+- 2026-06-30 00:50 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/97106459.shtml)

@@ -1,59 +1,57 @@
-# 中韩交接第十三批在韩中国人民志愿军烈士遗骸
+# 山西举办2026年“世界计量日”主题宣传活动
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新社韩国仁川4月22日电 (记者 刘旭 金旭)22日，中国人民解放军空军运-20B运输机搭载着12位中国人民志愿军烈士遗骸和他们的遗物从韩国仁川国际机场起飞，返回故土。 当日上午，第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行。10时许，中国人民解放军礼兵列队从韩方礼兵手中接过9具装有中国人民志愿军烈士遗骸的棕红色棺椁。中韩双方代表现场签署交接书，确认交接1
+中新网太原5月20日电 (记者 杨杰英)2026年5月20日是第27个“世界计量日”，今年主题为“计量筑牢信任基石”。当天，山西省市场监管局、山西省检验检测中心、太原市市场监管局在太原钟楼街步行街联合举办“5·20世界计量日”主题宣传活动。山西省检验检测中心计量所、度量衡所，省计量协(学)会，省眼镜行业协会，国网山西省电力有限公司营销服务中心，太原供水集团有限公司，太原天然气有
 
 ## 正文
 
-中新社韩国仁川4月22日电 (记者 刘旭 金旭)22日，中国人民解放军空军运-20B运输机搭载着12位中国人民志愿军烈士遗骸和他们的遗物从韩国仁川国际机场起飞，返回故土。
+中新网太原5月20日电 (记者 杨杰英)2026年5月20日是第27个“世界计量日”，今年主题为“计量筑牢信任基石”。
 
-当日上午，第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行。
+当天，山西省市场监管局、山西省检验检测中心、太原市市场监管局在太原钟楼街步行街联合举办“5·20世界计量日”主题宣传活动。
 
-10时许，中国人民解放军礼兵列队从韩方礼兵手中接过9具装有中国人民志愿军烈士遗骸的棕红色棺椁。
+山西省检验检测中心计量所、度量衡所，省计量协(学)会，省眼镜行业协会，国网山西省电力有限公司营销服务中心，太原供水集团有限公司，太原天然气有限公司等单位参与现场活动。
 
-中韩双方代表现场签署交接书，确认交接12位在韩中国人民志愿军烈士遗骸及相关遗物。
+工作人员向民众发放宣传资料，受理咨询，现场检定血压计，介绍电能表、燃气表、水表等计量知识，并就民众关心的电子计价秤准确性问题进行讲解。
 
-随后，中方悼念仪式开始。
+同日，山西各市市场监管局结合本地特点开展主题宣传活动，在全省范围内启动加油机专项监督检查。
 
-中国人民解放军礼兵列队将棺椁放置于事先准备好的长桌上，中国驻韩国大使戴兵依次为每一具棺椁覆上国旗，并深深鞠躬。
+山西省检验检测中心还举办实验室开放日活动，组织企事业单位和学校代表参观计量院实验室及“山西计量文化陈列馆科普基地”。
 
-“志愿军烈士们！
+目前，山西全省计量体系持续完善，社会公用计量标准已达2300余项，地方计量技术规范158项。
 
-祖国接你们回家！
+全省已建成省级产业计量测试中心22个，为提升产业科研技术水平提供了有力支撑。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 00:31 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 00:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 00:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 00:34 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 00:37 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 00:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 00:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:35 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 00:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 00:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 01:05 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 00:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 00:42 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:04 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 01:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 00:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 00:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 00:47 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 00:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 00:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/48273.shtml)
-- 2026-06-30 00:51 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/6926562712.shtml)
-- 2026-06-30 00:44 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/2088142.shtml)
-- 2026-06-30 00:58 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/6375885412.shtml)
-- 2026-06-30 00:30 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/779001025630.shtml)
-- 2026-06-30 00:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/631055374485.shtml)
-- 2026-06-30 00:30 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/9011498256.shtml)
-- 2026-06-30 00:34 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/6489771.shtml)
-- 2026-06-30 00:30 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/28618387.shtml)
-- 2026-06-30 00:54 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/13714668.shtml)
-- 2026-06-30 00:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/025982.shtml)
-- 2026-06-30 00:30 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/056410.shtml)
-- 2026-06-30 00:57 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/15573.shtml)
-- 2026-06-30 00:38 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/112202556629.shtml)
-- 2026-06-30 00:36 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/00688387561.shtml)
+- 2026-06-30 00:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/176285731366.shtml)
+- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/55001589498.shtml)
+- 2026-06-30 00:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/87221819.shtml)
+- 2026-06-30 00:53 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/589967864.shtml)
+- 2026-06-30 01:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/21448409.shtml)
+- 2026-06-30 00:49 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/49997940324.shtml)
+- 2026-06-30 00:36 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/245843.shtml)
+- 2026-06-30 01:03 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/92198.shtml)
+- 2026-06-30 00:59 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/940278140.shtml)
+- 2026-06-30 00:56 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/33516956759.shtml)
+- 2026-06-30 00:46 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/881336138.shtml)
+- 2026-06-30 00:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/99992392388.shtml)
+- 2026-06-30 00:47 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/435542402.shtml)
+- 2026-06-30 01:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/0466220.shtml)
+- 2026-06-30 01:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/82520585658.shtml)

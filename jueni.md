@@ -1,58 +1,56 @@
-# 各方对美伊延长停火协议反应不一
+# 全球资本市场的发展趋势丨主题论坛
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：汇通财经 周三（4月22日），中东美伊停火协议获得延长。尽管美国总统特朗普早前多次表示延长“高度不可能”，并威胁若无法达成协议将采取更强硬军事行动，但昨日他突然在TruthSocial上宣布，将在巴基斯坦调解人请求下无限期延长停火，直至伊朗领导人提交“统一提案”并完成讨论。同时，他明确指示美军继续维持
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：清华五道口 2026年5月17日至20日，2026清华五道口全球金融论坛“变局下的全球金融治理：新挑战、新机遇、新发展”在四川省成都市举办。5月18日下午，主题论坛“全球资本市场的发展趋势”顺利举行。 中国证券监督管理委员会国际司副司长谈从炎，清华大学五道口金融学院副院长、讲席教授张晓燕，摩根士丹利证券（
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：清华五道口 2026年5月17日至20日，2026清华五道口全球金融论坛“变局下的全球金融治理：新挑战、新机遇、新发展”在四川省成都市举办。
 
-来源：汇通财经 周三（4月22日），中东美伊停火协议获得延长。
+5月18日下午，主题论坛“全球资本市场的发展趋势”顺利举行。
 
-尽管美国总统特朗普早前多次表示延长“高度不可能”，并威胁若无法达成协议将采取更强硬军事行动，但昨日他突然在TruthSocial上宣布，将在巴基斯坦调解人请求下无限期延长停火，直至伊朗领导人提交“统一提案”并完成讨论。
+中国证券监督管理委员会国际司副司长谈从炎，清华大学五道口金融学院副院长、讲席教授张晓燕，摩根士丹利证券（中国）有限公司董事长张欣，中金公司资深董事总经理、首席策略师缪延亮，标普全球评级亚太区首席经济学家路易斯·凯斯，简街集团亚洲运营负责人爱德华·维泽参与讨论并发表观点。
 
-同时，他明确指示美军继续维持对伊朗港口的海军封锁，并在其他方面保持“随时准备和有能力”行动。
+清华大学五道口金融学院全球家族企业研究中心主任、清华大学公益慈善研究院副院长高皓主持论坛。
 
-特朗普将此举归因于伊朗政府“严重分裂”，需要时间形成统一立场。
+谈从炎 中国证券监督管理委员会国际司副司长 谈从炎表示，全球资本市场高度关联，没有一家可以独善其身。
 
-特朗普的说法 特朗普强调延长是为了给外交留出空间，他称这是应巴基斯坦总理谢赫巴兹·谢里夫和陆军元帅阿西姆·穆尼尔的请求，目的是让伊朗提出结束战争的提案。
+当前，科技正在重塑金融形态，人工智能带来效率提升，也带来复杂度和不确定性；国际共识受到冲击，新兴市场体量扩大也使现有国际金融体系匹配度不足显现。
 
-他同时重申美国不会放松压力，封锁将继续作为杠杆，并表示“伊朗没有选择，我们已经摧毁了他们的海军、空军和部分领导层，最终会达成一笔伟大的协议”。
+他认为，应发挥多边机构作用，凝聚共识、加强跨境协同、制定规则，提升全球监管能力。
 
-特朗普还指出，伊朗政府“严重分裂”，这为延长提供了理由，同时他在社交媒体和相关表态中强调美国处于强势谈判地位，不会匆忙达成“坏协议”。
+中国资本市场已是全球第二大市场，应更加积极参与全球金融治理，推动高水平制度型开放，贡献中国方案。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 00:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 00:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 00:58 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 00:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 00:53 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 00:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 00:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 00:43 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 00:33 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 00:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 00:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 00:55 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 00:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 00:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 01:00 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 00:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 00:48 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 00:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 00:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 00:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/80518.shtml)
-- 2026-06-30 00:45 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/2120366540.shtml)
-- 2026-06-30 00:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/609608828249.shtml)
-- 2026-06-30 00:54 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/409189643.shtml)
-- 2026-06-30 00:59 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/54025558.shtml)
-- 2026-06-30 00:31 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/702135634287.shtml)
-- 2026-06-30 00:55 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/567225.shtml)
-- 2026-06-30 00:46 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/26651352.shtml)
-- 2026-06-30 00:47 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/28938.shtml)
-- 2026-06-30 00:49 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/51793180967.shtml)
-- 2026-06-30 00:46 - [85花告别古偶](http://www.share.minike.top/Article/details/7025894.shtml)
-- 2026-06-30 00:48 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/8493008678.shtml)
-- 2026-06-30 00:55 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/924375538.shtml)
-- 2026-06-30 00:51 - [恋与深空致歉](https://www.share.minike.top/Article/details/143485.shtml)
-- 2026-06-30 00:33 - [绘画区你赢了](https://www.share.minike.top/Article/details/95882478419.shtml)
+- 2026-06-30 00:57 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/784511676330.shtml)
+- 2026-06-30 00:59 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/49100237966.shtml)
+- 2026-06-30 00:38 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/2327146770.shtml)
+- 2026-06-30 01:01 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/13169325122.shtml)
+- 2026-06-30 00:55 - [速度与激情9](https://www.blog.minike.top/Article/details/774702.shtml)
+- 2026-06-30 00:45 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/62597648090.shtml)
+- 2026-06-30 00:44 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/077974720508.shtml)
+- 2026-06-30 00:48 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/80750048769.shtml)
+- 2026-06-30 00:55 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/13668638.shtml)
+- 2026-06-30 01:03 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/81280564608.shtml)
+- 2026-06-30 01:02 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/296366072.shtml)
+- 2026-06-30 00:40 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/484833.shtml)
+- 2026-06-30 00:53 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/86810751.shtml)
+- 2026-06-30 00:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/700433781210.shtml)
+- 2026-06-30 00:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/7400298083.shtml)

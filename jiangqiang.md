@@ -1,49 +1,59 @@
-# “护苗”典型案例｜非法印制并销售侵权盗版中小学教辅
+# 东西问｜戴伟：我在中国乡村开了一家加拿大餐厅
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。最终当事人因侵犯著作权罪被判处刑罚。
+中新社广东清远5月20日电 题：我在中国乡村开了一家加拿大餐厅 ——专访加拿大自媒体博主、餐厅老板戴伟 中新社记者 张璐 2025年12月，加拿大自媒体博主、餐厅老板戴伟(David Klinck)创作的短视频《好像我妈妈在中国变得越来越年轻》，在全球128个国家和地区的45880部参赛作品中脱颖而出，摘得第七届“第三只眼看中国”国际短视频大赛最佳自媒体作品奖。 戴伟在中国工作
 
 ## 正文
 
-群众举报网购的少儿教辅类图书质量低劣疑似盗版，经查，当事人刘某大量印制教辅类侵权盗版图书，并将该图书面向全国销售。
+中新社广东清远5月20日电 题：我在中国乡村开了一家加拿大餐厅 ——专访加拿大自媒体博主、餐厅老板戴伟 中新社记者 张璐 2025年12月，加拿大自媒体博主、餐厅老板戴伟(David Klinck)创作的短视频《好像我妈妈在中国变得越来越年轻》，在全球128个国家和地区的45880部参赛作品中脱颖而出，摘得第七届“第三只眼看中国”国际短视频大赛最佳自媒体作品奖。
 
-最终当事人因侵犯著作权罪被判处刑罚。
+戴伟在中国工作生活22年，如今在广东清远开设了“枫殸·加拿大妈妈菜”餐厅，将万里之外的加拿大家乡风味注入岭南乡村餐桌。
+
+近日，戴伟接受中新社“东西问”专访，分享他与父母在中国工作和生活的经历，讲述他以美食和短视频为媒，搭建中加文化交流之桥的故事。
+
+现将访谈实录摘要如下： 中新社记者：您在中国生活22年，足迹遍布北京、广州等大城市，最终却选择在广东清远的小村落开设加拿大餐厅，这其中有怎样的考量？
+
+戴伟：2004年，我来到中国，先后在北京、广州等大城市工作和生活。
+
+从那时起，我便一直想在中国开一家加拿大餐厅，将家乡的味道分享给这里的人们，让餐厅成为加中文化交流与民间联谊的“家”。
+
+直到2023年，我和朋友自驾游到清远，车开进村子的那一刻，我被这里青翠的竹林、潺潺的溪水深深吸引。
+
+看到不少村民围坐在门前晒太阳，悠然自得地品茶谈笑。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 00:34 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 00:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 00:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 00:44 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 00:54 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 00:46 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 00:45 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 00:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 00:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 00:53 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 01:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 00:48 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 00:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 00:49 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 01:04 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 00:58 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 00:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 00:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 00:37 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 00:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 00:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 01:05 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 00:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 01:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 01:01 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 01:02 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 00:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/388930199.shtml)
-- 2026-06-30 00:37 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/8400815471.shtml)
-- 2026-06-30 00:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/11338671.shtml)
-- 2026-06-30 00:33 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/15543.shtml)
-- 2026-06-30 00:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/898151152.shtml)
-- 2026-06-30 00:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/266237875991.shtml)
-- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/197884200.shtml)
-- 2026-06-30 00:37 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/188551.shtml)
-- 2026-06-30 00:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/232792267103.shtml)
-- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/45481709993.shtml)
-- 2026-06-30 00:34 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/788094044.shtml)
-- 2026-06-30 00:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/4429557092.shtml)
-- 2026-06-30 00:40 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/541328544194.shtml)
-- 2026-06-30 00:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8090164243.shtml)
-- 2026-06-30 00:59 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/6828429.shtml)
+- 2026-06-30 00:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/5534719.shtml)
+- 2026-06-30 01:04 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/63954530063.shtml)
+- 2026-06-30 00:47 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/86296320311.shtml)
+- 2026-06-30 01:02 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/02830553930.shtml)
+- 2026-06-30 00:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/419846122.shtml)
+- 2026-06-30 00:52 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/58324.shtml)
+- 2026-06-30 00:55 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/192075931.shtml)
+- 2026-06-30 00:59 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/867638079982.shtml)
+- 2026-06-30 00:41 - [一生一世](http://www.blog.kurohicncr.top/Article/details/02008.shtml)
+- 2026-06-30 00:41 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/7369381271.shtml)
+- 2026-06-30 00:57 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/307537138313.shtml)
+- 2026-06-30 00:57 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/50860709344.shtml)
+- 2026-06-30 00:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/214519.shtml)
+- 2026-06-30 00:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/211213909.shtml)
+- 2026-06-30 01:05 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/064883726.shtml)

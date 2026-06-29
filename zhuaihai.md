@@ -1,59 +1,60 @@
-# 东山精密、鹏鼎控股齐创新高！华宝基金电子ETF（515260）大涨3.43%，12天11阳强势突破，刷新上市高点！
+# StepStone：UFEC达400亿美元 董事会加派0.55美元特别股息
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-接着奏乐接着舞！PCB龙头东山精密、鹏鼎控股涨停，同创历史新高，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格猛拉3.43%，12天11阳强势突破，于今日（4月22日）刷新上市以来的高点！ 资金面上，电子板块全天获主力资金净流入467.75亿元，拉长时间来看，近5日、近20日分别吸金1136.71亿元和2519.14亿元，板块吸金额持续高居31个申万一级行业首位！
+全球私募市场投资公司StepStone Group于5月21日发布2026财年第四季度财报，宣布董事会批准派发每股0.28美元的季度现金股息及每股0.55美元的特别现金股息，均将于6月30日支付。合计股息达0.83美元，全年总股息达1.67美元，同比增长23%。 财报显示，公司未部署计费资本增至约400亿美元，同比增长63%。这意味着公司拥有庞大的已承诺资本储备，随着这些资本逐
 
 ## 正文
 
-接着奏乐接着舞！
+全球私募市场投资公司StepStone Group于5月21日发布2026财年第四季度财报，宣布董事会批准派发每股0.28美元的季度现金股息及每股0.55美元的特别现金股息，均将于6月30日支付。
 
-PCB龙头东山精密、鹏鼎控股涨停，同创历史新高，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格猛拉3.43%，12天11阳强势突破，于今日（4月22日）刷新上市以来的高点！
+合计股息达0.83美元，全年总股息达1.67美元，同比增长23%。
 
-资金面上，电子板块全天获主力资金净流入467.75亿元，拉长时间来看，近5日、近20日分别吸金1136.71亿元和2519.14亿元，板块吸金额持续高居31个申万一级行业首位！
+财报显示，公司未部署计费资本增至约400亿美元，同比增长63%。
 
-工业富联、东山精密分别获主力资金净流入40.16亿元和37.22亿元，霸居A股吸金榜第一位和第三位。
+这意味着公司拥有庞大的已承诺资本储备，随着这些资本逐步配置到投资项目中，将转化为计费管理资产，为未来费用收益增长提供充足储备。
 
-为何巨额主力资金持续涌入电子板块？
+公司全年新增资本约380亿美元，创历史新高，其中包括第四季度创纪录的约140亿美元。
 
-或有两方面的原因：一方面是AI算力驱动的硬件价值重估，带来实打实的“量价齐升”。
+费用相关收益方面，StepStone第四季度实现FRE 1.05亿美元，同比增长12%，FRE利润率维持在40%。
 
-例如，英伟达新架构使得AI服务器单机柜的PCB用量增长2-3倍，价值量提升4-5倍。
+费用收入达2.6亿美元，同比增长21%。
 
-另一方面是半导体行业的全面周期反转。
+CEO Scott Hart表示，这是公司有史以来最好的FRE季度。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 00:46 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 00:48 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 00:31 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 00:33 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 00:30 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 00:43 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:42 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 00:37 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 00:57 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 00:32 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 00:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 00:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 00:39 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 00:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:57 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:00 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 00:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 01:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 00:44 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 00:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 00:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 00:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 00:46 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 00:41 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 00:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/8736867393.shtml)
-- 2026-06-30 00:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/168741844518.shtml)
-- 2026-06-30 00:59 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/2348931524.shtml)
-- 2026-06-30 00:38 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/46675.shtml)
-- 2026-06-30 00:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/18739001594.shtml)
-- 2026-06-30 00:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/53183722822.shtml)
-- 2026-06-30 00:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/9241437.shtml)
-- 2026-06-30 00:50 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/74817.shtml)
-- 2026-06-30 00:55 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/6188051.shtml)
-- 2026-06-30 00:51 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/972683.shtml)
-- 2026-06-30 00:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/97572759726.shtml)
-- 2026-06-30 00:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/2680532.shtml)
-- 2026-06-30 00:46 - [流金岁月](http://www.share.kurohicncr.top/Article/details/772482914.shtml)
-- 2026-06-30 00:43 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/806584003070.shtml)
-- 2026-06-30 00:48 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/79102878.shtml)
+- 2026-06-30 00:51 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/0288746348.shtml)
+- 2026-06-30 00:48 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/64563137830.shtml)
+- 2026-06-30 00:57 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/679070791.shtml)
+- 2026-06-30 00:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/223673911.shtml)
+- 2026-06-30 00:50 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/21307560183.shtml)
+- 2026-06-30 01:04 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/70419283.shtml)
+- 2026-06-30 01:05 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/40101.shtml)
+- 2026-06-30 00:39 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/48469683.shtml)
+- 2026-06-30 00:46 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/738947.shtml)
+- 2026-06-30 00:41 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/7698822357.shtml)
+- 2026-06-30 00:57 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/177166.shtml)
+- 2026-06-30 00:58 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/54054.shtml)
+- 2026-06-30 01:00 - [周生如故](http://www.share.minike.top/Article/details/56344810.shtml)
+- 2026-06-30 01:00 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/9757889.shtml)
+- 2026-06-30 00:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/8745582.shtml)

@@ -1,46 +1,61 @@
-# 日本陆上自卫队一训练场发生弹药爆炸 3人意识不明
+# 半导体走强！寒武纪创新高！尾号520的科创人工智能ETF放量突破上市高点！机构：AI行情或仍有演绎空间
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网4月21日电 据日本广播协会(NHK)报道，日本防卫省相关人士表示，当地时间21日上午，日本大分县陆上自卫队一处训练场在训练时发生弹药爆炸，多名自卫队员受波及，3名自卫队员意识不明。 目前，日本陆上自卫队正在确认详细伤情以及事故原因。
+5月20日，尾号520的科创人工智能ETF华宝（589520）创历史新高！ 今日半导体继续大涨，科创板逆市表现居前，科创50、科创综指分别上涨3.2%、2.31%，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内涨幅盘中摸高0.91%，收涨0.26%，全天成交额6418万元，连续两日环比放量！ ETF放量突破上市高点，或为资金买点信号！科创人工智能E
 
 ## 正文
 
-中新网4月21日电 据日本广播协会(NHK)报道，日本防卫省相关人士表示，当地时间21日上午，日本大分县陆上自卫队一处训练场在训练时发生弹药爆炸，多名自卫队员受波及，3名自卫队员意识不明。
+5月20日，尾号520的科创人工智能ETF华宝（589520）创历史新高！
 
-目前，日本陆上自卫队正在确认详细伤情以及事故原因。
+今日半导体继续大涨，科创板逆市表现居前，科创50、科创综指分别上涨3.2%、2.31%，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内涨幅盘中摸高0.91%，收涨0.26%，全天成交额6418万元，连续两日环比放量！
+
+ETF放量突破上市高点，或为资金买点信号！
+
+科创人工智能ETF华宝（589520）尾盘明显溢价，收盘溢价率0.20%，伴随成交放量，或有买盘资金积极介入！
+
+权重股寒武纪涨超3%，股价创历史新高，成份股安路科技领涨超5%，澜起科技涨逾4%，奥比中光-W、复旦微电等个股跟涨。
+
+科创人工智能ETF为何迭创历史新高？
+
+或许是因为它具备科创板+AI赛道双重优势加持： 1、科创板方面，存储芯片巨头长鑫科技业绩爆表，叠加首次公开发行股票并上市辅导备案报告，给整个半导体板块带来了重大驱动力，或标志着科创板具备了承接国家级核心资产的能力，从“小而散”成长为硬科技巨头集中营。
+
+分析人士认为，半导体景气向上叠加自主可控，国产替代进入加速期。
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 00:56 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 00:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 00:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 00:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 00:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 00:59 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 00:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 00:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 00:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 00:42 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 00:54 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 00:57 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 00:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:00 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 00:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 00:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 00:51 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 00:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 00:49 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 00:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 00:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 01:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 00:44 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 00:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [一生一世](http://www.share.kurohicncr.top/Article/details/0959779.shtml)
-- 2026-06-30 00:37 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/42808929576.shtml)
-- 2026-06-30 00:35 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/57462040.shtml)
-- 2026-06-30 00:44 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/2017381592.shtml)
-- 2026-06-30 00:45 - [斛珠夫人](http://www.blog.minike.top/Article/details/361568682847.shtml)
-- 2026-06-30 00:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/0188606.shtml)
-- 2026-06-30 00:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/29989.shtml)
-- 2026-06-30 00:57 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/38560921.shtml)
-- 2026-06-30 00:59 - [炽夏](http://www.share.minike.top/Article/details/23072.shtml)
-- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/5128932227.shtml)
-- 2026-06-30 00:50 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/15080770051.shtml)
-- 2026-06-30 00:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/4704010.shtml)
-- 2026-06-30 00:40 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/64608719.shtml)
-- 2026-06-30 00:55 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/22397324900.shtml)
-- 2026-06-30 00:55 - [千与千寻](https://www.blog.minike.top/Article/details/88581821224.shtml)
+- 2026-06-30 00:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/026658348060.shtml)
+- 2026-06-30 00:55 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/47994311.shtml)
+- 2026-06-30 00:56 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/17792.shtml)
+- 2026-06-30 00:42 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/683519.shtml)
+- 2026-06-30 00:44 - [绘画区你赢了](http://www.share.minike.top/Article/details/4031072.shtml)
+- 2026-06-30 01:03 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/687645.shtml)
+- 2026-06-30 01:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/00476182436.shtml)
+- 2026-06-30 00:55 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/854415367.shtml)
+- 2026-06-30 00:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/055314.shtml)
+- 2026-06-30 00:36 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/20098651988.shtml)
+- 2026-06-30 01:01 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/99628.shtml)
+- 2026-06-30 00:51 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/928039628.shtml)
+- 2026-06-30 01:04 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/502412439.shtml)
+- 2026-06-30 00:49 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/62719299292.shtml)
+- 2026-06-30 00:37 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/886988189.shtml)

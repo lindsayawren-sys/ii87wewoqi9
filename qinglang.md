@@ -1,57 +1,56 @@
-# 解码文化自信的城市样本｜潮州：工夫从未负潮州
+# 全球热区高校海口共谋发展新路径
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-原标题：解码文化自信的城市样本丨工夫从未负潮州——解码“海滨邹鲁”潮州的文化自信样本 广东潮州，一座低调的小城，为何近年来愈发引人注目？ 是春节霸榜全网的“年味之最”，还是潮州菜的“人间至味”？是金漆木雕凝结的“时间美学”，还是工夫茶氤氲出的“气定神闲”？或许只有置身其中，方能渐渐品出真味——这座“活着的千年古城”，既是中原文化在南海之滨的活态传承，又与现代生活相映成趣。 20
+中新网海口5月20日电 (记者 张茜翼)“热区”不只有高温和雨林，更有携手应对全球性挑战的智慧与决心。热区高校联盟2026年年会20日在海南大学举行，来自全球热带地区的高校及科研机构代表，围绕气候变化、粮食安全、能源转型等议题展开探讨。 2023年11月，海南大学联合中国热带农业科学院、埃及开罗大学、马来西亚国油科技大学、巴西圣保罗大学等7所高校和科研机构发起成立热区高校联盟。
 
 ## 正文
 
-原标题：解码文化自信的城市样本丨工夫从未负潮州——解码“海滨邹鲁”潮州的文化自信样本 广东潮州，一座低调的小城，为何近年来愈发引人注目？
+中新网海口5月20日电 (记者 张茜翼)“热区”不只有高温和雨林，更有携手应对全球性挑战的智慧与决心。
 
-是春节霸榜全网的“年味之最”，还是潮州菜的“人间至味”？
+热区高校联盟2026年年会20日在海南大学举行，来自全球热带地区的高校及科研机构代表，围绕气候变化、粮食安全、能源转型等议题展开探讨。
 
-是金漆木雕凝结的“时间美学”，还是工夫茶氤氲出的“气定神闲”？
+2023年11月，海南大学联合中国热带农业科学院、埃及开罗大学、马来西亚国油科技大学、巴西圣保罗大学等7所高校和科研机构发起成立热区高校联盟。
 
-或许只有置身其中，方能渐渐品出真味——这座“活着的千年古城”，既是中原文化在南海之滨的活态传承，又与现代生活相映成趣。
+两年半来，联盟成员已覆盖50个国家和地区的121所高校及科研机构。
 
-2020年10月，习近平总书记来到潮州市考察，指出“潮州文化具有鲜明的地域特色，是岭南文化的重要组成部分，是中华文化的重要支脉”，并殷殷嘱托“要保护好城市历史文化遗存，延续城市文脉，使历史和当代相得益彰”。
+面对气候变化、粮食安全等全球性挑战，联合国粮食与农业组织助理总干事塔纳瓦·天信(Thanawat Tiensin)在发言中指出，大学是应对这些问题的核心力量。
 
-2026年春节假期，两倍于本地人口数量的游客涌入，吃潮州菜、赏英歌舞、行广济桥，看街巷烟火。
+同时，人工智能、大数据、遥感等技术正深刻改变教学与研究方式，“唯有携手合作，才能将挑战转化为机遇。
 
-这座兼具历史厚度、文化深度和发展热度的宝藏小城，正在传承保护中延续千年文脉，在活化创新中实现古韵新生。
+” 非洲大学协会主席、纳米比亚大学校长肯尼斯·卡姆维·马滕古(Kenneth Kamwi Matengu)坦言，非洲拥有丰富资源但长期未能自主开发利用，关键在于缺乏知识主权和可持续的技能体系。
 
-工夫从来最潮州 广济楼展厅内，刺绣、木雕、泥塑、手拉朱泥壶、麦秆剪贴画……一件件潮州非遗作品美轮美奂、巧夺天工。
+为此，他呼吁加强联合科研、深化双向人才培养，以切实应对区域挑战。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 00:52 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:42 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 00:33 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 00:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 00:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 00:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 00:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 00:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 00:38 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 00:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 01:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 00:45 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 00:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 01:00 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 00:56 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 01:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 00:54 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 00:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 00:55 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/60856787051.shtml)
-- 2026-06-30 00:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/9411850.shtml)
-- 2026-06-30 00:59 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/9679378898.shtml)
-- 2026-06-30 00:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/68308093.shtml)
-- 2026-06-30 00:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/882385505.shtml)
-- 2026-06-30 00:40 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/068755820523.shtml)
-- 2026-06-30 00:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/072739.shtml)
-- 2026-06-30 00:37 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/804559941897.shtml)
-- 2026-06-30 00:58 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/40473.shtml)
-- 2026-06-30 00:53 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/8049991.shtml)
-- 2026-06-30 00:41 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/213994711522.shtml)
-- 2026-06-30 00:38 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/747050.shtml)
-- 2026-06-30 00:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/06140.shtml)
-- 2026-06-30 00:46 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/931764079.shtml)
-- 2026-06-30 00:59 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/98322573294.shtml)
+- 2026-06-30 00:42 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/650367016.shtml)
+- 2026-06-30 00:49 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0472522156.shtml)
+- 2026-06-30 01:04 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/10429082434.shtml)
+- 2026-06-30 00:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/617092965848.shtml)
+- 2026-06-30 00:43 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/0006844.shtml)
+- 2026-06-30 00:41 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/8114164082.shtml)
+- 2026-06-30 01:00 - [东方风云榜](http://www.blog.minike.top/Article/details/77954808345.shtml)
+- 2026-06-30 01:02 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/57639818903.shtml)
+- 2026-06-30 00:55 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/90576.shtml)
+- 2026-06-30 00:47 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/122083188364.shtml)
+- 2026-06-30 00:47 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/7504882735.shtml)
+- 2026-06-30 00:56 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/2980160.shtml)
+- 2026-06-30 00:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/633074227132.shtml)
+- 2026-06-30 00:37 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/932165521705.shtml)
+- 2026-06-30 00:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/35360798.shtml)

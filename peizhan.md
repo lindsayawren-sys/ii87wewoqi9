@@ -1,61 +1,57 @@
-# “广西三月三”文旅消费持续火热 海内外游客共赴八桂文化盛宴
+# 中国·新疆第十八届环赛里木湖（国际）公路自行车赛在精河县发车
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月21日电(张广权)广西壮族自治区文化和旅游厅21日介绍，2026年“广西三月三”假期，广西文旅活动全域开花，惠民举措精准发力，周边自驾游与演唱会经济成为新引擎，吸引海内外游客共享八桂文化盛宴。 4月18日，2026年“广西三月三·八桂嘉年华”文化旅游品牌活动开幕式在南宁民歌湖举行，活动将持续一个月，推出“多彩民族风”“相约游广西”等五大板块13项特色活动。同期，“
+中新网新疆精河5月20日电 (张艺严)5月20日，中国·新疆第十八届环赛里木湖(国际)公路自行车赛暨中国自行车运动骑游大会(简称“环湖赛”)在精河县开幕。 当日，随着一声鸣笛，环湖赛第一赛段精河县至阿拉山口市赛段开赛。最终，美利达诺飞客车队车手巫帛宏发挥出色，夺得第一赛段冠军，独揽蓝、绿、黄三衫。 在发车仪式期间，现场文艺展演接续上演，歌曲《博州很燃》、舞蹈《鼓舞东方》等节目为
 
 ## 正文
 
-中新网南宁4月21日电(张广权)广西壮族自治区文化和旅游厅21日介绍，2026年“广西三月三”假期，广西文旅活动全域开花，惠民举措精准发力，周边自驾游与演唱会经济成为新引擎，吸引海内外游客共享八桂文化盛宴。
+中新网新疆精河5月20日电 (张艺严)5月20日，中国·新疆第十八届环赛里木湖(国际)公路自行车赛暨中国自行车运动骑游大会(简称“环湖赛”)在精河县开幕。
 
-4月18日，2026年“广西三月三·八桂嘉年华”文化旅游品牌活动开幕式在南宁民歌湖举行，活动将持续一个月，推出“多彩民族风”“相约游广西”等五大板块13项特色活动。
+当日，随着一声鸣笛，环湖赛第一赛段精河县至阿拉山口市赛段开赛。
 
-同期，“为人民绽放——国家艺术基金优秀剧目展演”在南宁、柳州上演，汇聚7省(区、市)12家院团的精品剧目。
+最终，美利达诺飞客车队车手巫帛宏发挥出色，夺得第一赛段冠军，独揽蓝、绿、黄三衫。
 
-非遗消费季点燃全城热潮。
+在发车仪式期间，现场文艺展演接续上演，歌曲《博州很燃》、舞蹈《鼓舞东方》等节目为在场观众和车手奉上精彩的视听盛宴。
 
-“桂韵非遗·乐享生活”广西非遗消费季活动通过布局四大非遗特色主题街区，联动精品展演、特产展销与餐饮购物，让市民与游客在逛吃游玩中感受非遗魅力。
+此外，全国首部援疆主题短剧《爱在博尔塔拉》的本土参演演员也受邀登台，分享拍摄历程与幕后点滴。
 
-广西各地特色活动精彩纷呈，山歌对唱、竹竿舞、民族巡游、非遗手作等沉浸式体验，让游客深度感受八桂民俗魅力。
+新疆体育局党组副书记、局长阿尔特在开幕式上称，环湖赛已从地方赛事成长为全国知名、面向国际的品牌赛事，是新疆体育事业发展的标志性工程。
 
-对外和港台文旅交流持续深化。
+多年来，赛事有效促进体育与文旅融合升级、提升区域影响力，更成为促进各民族交往交流交融、向国内外展示新疆开放包容、团结奋进良好形象的重要窗口。
 
-4月17日至18日，2026中越边民大联欢系列活动举办，防城港东兴市、崇左市大新县还举办了边民友好对话会、联欢晚会等活动。
+本次赛事共吸引国内外26支参赛队伍、160余名(含领队)选手同场竞技。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 00:38 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 00:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 00:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 00:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 00:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 00:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 00:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 00:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 00:45 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 00:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 00:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:52 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 00:50 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 00:37 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 00:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 00:52 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 00:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 00:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 00:58 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 01:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 00:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 01:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 00:43 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 00:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/53632985.shtml)
-- 2026-06-30 00:50 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/2068351.shtml)
-- 2026-06-30 00:53 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/336017583.shtml)
-- 2026-06-30 00:45 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/7004211574.shtml)
-- 2026-06-30 00:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/101418442046.shtml)
-- 2026-06-30 00:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/167422811.shtml)
-- 2026-06-30 00:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/869101281894.shtml)
-- 2026-06-30 00:51 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/2567915.shtml)
-- 2026-06-30 00:50 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/493667.shtml)
-- 2026-06-30 00:49 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/870839287.shtml)
-- 2026-06-30 00:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/20808916872.shtml)
-- 2026-06-30 00:53 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/7599560196.shtml)
-- 2026-06-30 00:43 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/649848539.shtml)
-- 2026-06-30 00:33 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/698101731053.shtml)
-- 2026-06-30 00:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/486355.shtml)
+- 2026-06-30 00:59 - [扫黑风暴](https://www.share.minike.top/Article/details/126923.shtml)
+- 2026-06-30 00:45 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/86453348582.shtml)
+- 2026-06-30 00:57 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/80489.shtml)
+- 2026-06-30 00:40 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/617620.shtml)
+- 2026-06-30 00:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/689656.shtml)
+- 2026-06-30 00:38 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/502663512.shtml)
+- 2026-06-30 00:53 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/913566214075.shtml)
+- 2026-06-30 00:48 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/295100.shtml)
+- 2026-06-30 01:05 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/74740.shtml)
+- 2026-06-30 00:51 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/8523371.shtml)
+- 2026-06-30 01:03 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/43061126.shtml)
+- 2026-06-30 00:45 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/549281858.shtml)
+- 2026-06-30 00:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/3950387.shtml)
+- 2026-06-30 01:04 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/21924340.shtml)
+- 2026-06-30 00:41 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/904131199.shtml)

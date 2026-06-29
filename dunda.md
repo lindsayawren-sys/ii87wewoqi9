@@ -1,57 +1,60 @@
-# 登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中
+# 青海省民宗委举办委员单位铸牢中华民族共同体意识培训班
 
-> 更新时间：2026-06-30 01:00:02 UTC+8
+> 更新时间：2026-06-30 01:06:02 UTC+8
 
 ## 摘要
 
-视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。在抵京前，查波曾先后赴湖南省、青海省参访。在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更
+中新网西宁5月21日电 (祁绣娟)记者21日从青海省民族宗教事务委员会获悉，近日，青海省民宗委在新疆维吾尔自治区党校举办民宗委委员单位铸牢中华民族共同体意识培训班，各委员单位兼职委员、联络员共45人参训。 本期培训采用专题辅导讲座与现场教学相结合的模式。专题辅导课围绕铸牢中华民族共同体意识、防范民族领域重大风险隐患等内容开展。授课专家结合完整准确全面贯彻新时代党的治疆方略、推进
 
 ## 正文
 
-视频丨登青藏高原见证绿色发展 莫桑比克总统：将把中国经验应用于本国发展中 视频：莫桑比克总统访华：登青藏高原见证绿色发展 期盼更大合作来源：央视新闻客户端 4月20日，莫桑比克总统丹尼尔·查波抵达北京，继续访华行程。
+中新网西宁5月21日电 (祁绣娟)记者21日从青海省民族宗教事务委员会获悉，近日，青海省民宗委在新疆维吾尔自治区党校举办民宗委委员单位铸牢中华民族共同体意识培训班，各委员单位兼职委员、联络员共45人参训。
 
-在抵京前，查波曾先后赴湖南省、青海省参访。
+本期培训采用专题辅导讲座与现场教学相结合的模式。
 
-在青海期间，他走访新能源企业，亲身见证中国绿色发展成果。
+专题辅导课围绕铸牢中华民族共同体意识、防范民族领域重大风险隐患等内容开展。
 
-查波表示，将把中国经验应用于莫桑比克的绿色发展中，并期待双方实现更大合作。
+授课专家结合完整准确全面贯彻新时代党的治疆方略、推进新疆民族工作高质量发展等工作实践开展讲解辅导，帮助学员深刻领会新时代党的民族工作创新理论的核心要义、精神实质、丰富内涵与实践要求。
 
-踏上海拔两千多米的青藏高原，莫桑比克总统查波在青海开启“绿色”之旅。
+在新疆维吾尔自治区博物馆、非物质文化遗产馆、交河故城等教学点，授课专家依托历史遗产、实景实物，讲解历代中央政府对西域的管辖、新疆地区自古就同中原地区保持着密切联系的历史事实，引导学员深刻认识，铸牢中华民族共同体意识、推进中华民族共同体建设，是中华民族每一个成员共同的责任和追求。
 
-参访清洁能源和绿色算力调度中心，行走光伏组件全自动智能生产线，走进矿产开发企业，从水电站如何选址，到怎样建立风光互补综合能源体系，再到光伏板制作工艺，查波听得认真，问得仔细，遇到自己感兴趣的产品，他更是直接拿起来向随行人员展示。
+在乌鲁木齐市天山区固原巷社区，学员学习了解新疆在社区党组织建设、互嵌式社区建设方面的成就。
 
-所到之处，访华团的成员也纷纷拿起手机和笔记本，记录着自己在中国的“绿水青山”中找到的发展密码。
+通过现场教学，深入了解新疆依托文物和历史文化遗产开展铸牢中华民族共同体意识教育、以博物馆为载体讲好中华民族共同体故事的经验做法，为青海以旅游促进各民族交往交流交融、发挥文旅文博阵地作用提供有益借鉴。
 
-莫桑比克总统 丹尼尔·查波：我十分认同“绿水青山就是金山银山”的理念。
+学员普遍认为，此次培训拓宽工作视野、启发工作思路、借鉴新疆经验，对精准把握省情、补齐工作短板、推动青海民族工作高质量发展很有借鉴意义。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 00:44 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 00:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 00:44 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 00:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 00:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 00:52 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 00:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 00:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 00:47 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 00:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 01:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 00:36 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 00:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 00:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 01:00 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 00:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 01:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 00:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 00:53 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 00:59 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 00:42 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 01:03 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 00:56 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/88892484034.shtml)
-- 2026-06-30 00:35 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/772015348.shtml)
-- 2026-06-30 00:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/462923455.shtml)
-- 2026-06-30 00:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/7685459.shtml)
-- 2026-06-30 00:33 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/1592958.shtml)
-- 2026-06-30 00:32 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/1092329.shtml)
-- 2026-06-30 00:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/41225404.shtml)
-- 2026-06-30 00:55 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/79630884158.shtml)
-- 2026-06-30 00:54 - [女心理师](http://www.blog.minike.top/Article/details/227068990936.shtml)
-- 2026-06-30 00:55 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0767852.shtml)
-- 2026-06-30 00:41 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/15801603033.shtml)
-- 2026-06-30 00:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/404219797.shtml)
-- 2026-06-30 00:57 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1104222927.shtml)
-- 2026-06-30 00:43 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/733462851879.shtml)
-- 2026-06-30 00:36 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/163776.shtml)
+- 2026-06-30 00:53 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/491319.shtml)
+- 2026-06-30 00:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/764025809985.shtml)
+- 2026-06-30 00:50 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/142683986814.shtml)
+- 2026-06-30 00:37 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/6619406.shtml)
+- 2026-06-30 01:00 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/30769.shtml)
+- 2026-06-30 00:59 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/56104073.shtml)
+- 2026-06-30 00:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/348886752.shtml)
+- 2026-06-30 00:46 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/77490490.shtml)
+- 2026-06-30 00:52 - [送你一朵小红花](https://www.share.minike.top/Article/details/060481649.shtml)
+- 2026-06-30 01:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/49081712865.shtml)
+- 2026-06-30 00:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/226171.shtml)
+- 2026-06-30 00:58 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/0809356245.shtml)
+- 2026-06-30 00:49 - [青春环游记第三季](http://www.share.minike.top/Article/details/772601220156.shtml)
+- 2026-06-30 00:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/68237217.shtml)
+- 2026-06-30 00:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/87186314.shtml)
