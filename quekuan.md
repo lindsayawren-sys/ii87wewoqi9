@@ -1,61 +1,55 @@
-# （聚焦海峡论坛）第十四届“同名村·心连心”联谊活动在厦门举行
+# 新加坡上调2026年出口增长预测
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
+新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。此外，关税带来的拖累
 
 ## 正文
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。
 
-“世界杯魔咒”失灵了？
+新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+此外，关税带来的拖累小于预期，也对贸易额构成了支持。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
-
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
-
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
-
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 04:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:27 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 04:26 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 04:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 04:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 04:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 04:33 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 04:31 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 04:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 04:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 04:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 04:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 04:23 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:32 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 04:36 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 04:21 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 04:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 04:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 04:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 04:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 04:38 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 04:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 04:35 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 04:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 04:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 04:33 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 04:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/6397966.shtml)
-- 2026-06-30 04:13 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/14582164.shtml)
-- 2026-06-30 04:35 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/5134784.shtml)
-- 2026-06-30 04:24 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/31447233670.shtml)
-- 2026-06-30 04:37 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/84398002.shtml)
-- 2026-06-30 04:38 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/87797.shtml)
-- 2026-06-30 04:28 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/32880.shtml)
-- 2026-06-30 04:19 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/874452560430.shtml)
-- 2026-06-30 04:26 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/73041751914.shtml)
-- 2026-06-30 04:20 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/4148011.shtml)
-- 2026-06-30 04:34 - [巴西vs日本](https://www.share.minike.top/Article/details/991391623.shtml)
-- 2026-06-30 04:38 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/6289836343.shtml)
-- 2026-06-30 04:18 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/84309.shtml)
-- 2026-06-30 04:40 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/83714898.shtml)
-- 2026-06-30 04:12 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/1560235007.shtml)
+- 2026-06-30 04:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/0611727.shtml)
+- 2026-06-30 04:32 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/78929646833.shtml)
+- 2026-06-30 04:45 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/45030688.shtml)
+- 2026-06-30 04:21 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/82054.shtml)
+- 2026-06-30 04:20 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/56064.shtml)
+- 2026-06-30 04:27 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/803975476066.shtml)
+- 2026-06-30 04:22 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/02468163.shtml)
+- 2026-06-30 04:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/36679320594.shtml)
+- 2026-06-30 04:33 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/71125.shtml)
+- 2026-06-30 04:27 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/35789.shtml)
+- 2026-06-30 04:32 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/452955937364.shtml)
+- 2026-06-30 04:38 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/0695875.shtml)
+- 2026-06-30 04:31 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/6601699619.shtml)
+- 2026-06-30 04:34 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/5633465.shtml)
+- 2026-06-30 04:28 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/86706.shtml)

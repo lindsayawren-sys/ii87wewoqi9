@@ -1,57 +1,50 @@
-# 青藏铁路首发满编满轴直达拉萨城际班列
+# 大美边疆看我家丨遇见哈尔滨
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新社西宁6月12日电 (潘雨洁 周悦翔 杨春艳)中国铁路青藏集团有限公司(以下简称“青藏集团公司”)首趟实现满编满轴运输的进藏城际班列12日从青海省西宁市青藏铁路物流中心双寨铁路货场驶出，将直达1900余公里外的拉萨西站。 据悉，该趟班列满载汽车、冷链生鲜、日用百货、钢材、化肥等各类重点物资，编组共32辆，货物总重量达1407吨。 当前正值暑运关键阶段，客货运输交织、任务繁重
+发布时间：2026年05月25日 15:47 来源：中国新闻网 提起边疆，总让人联想到辽阔与遥远，而哈尔滨，便是扎根北疆、兼具浪漫与厚重的边境之城。这里华洋风情交融，天朗气清，将边疆的壮阔与城市的温婉相融，藏着独属于北国的独特魅力，是家门口便能邂逅的边疆风光。作者：李淏珺、赵欣颜、李祖伦、张轩宁 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新社西宁6月12日电 (潘雨洁 周悦翔 杨春艳)中国铁路青藏集团有限公司(以下简称“青藏集团公司”)首趟实现满编满轴运输的进藏城际班列12日从青海省西宁市青藏铁路物流中心双寨铁路货场驶出，将直达1900余公里外的拉萨西站。
+发布时间：2026年05月25日 15:47 来源：中国新闻网 提起边疆，总让人联想到辽阔与遥远，而哈尔滨，便是扎根北疆、兼具浪漫与厚重的边境之城。
 
-据悉，该趟班列满载汽车、冷链生鲜、日用百货、钢材、化肥等各类重点物资，编组共32辆，货物总重量达1407吨。
+这里华洋风情交融，天朗气清，将边疆的壮阔与城市的温婉相融，藏着独属于北国的独特魅力，是家门口便能邂逅的边疆风光。
 
-当前正值暑运关键阶段，客货运输交织、任务繁重。
-
-“这趟班列‘一站式’直达拉萨，中途不再停靠进行编组作业，时效缩短至48小时内，实现运力和运输效益最大化。
-
-”青藏集团公司物流事业部副总经理曾强介绍。
-
-2026年是青藏铁路全线通车20周年。
-
-今年前五个月，双寨铁路货场每日开行1列进藏城际班列，已累计发运进藏物资约1500车、6.5万余吨，成为进出藏物资保供与商贸流通的重要载体。
-
-(完)
+作者：李淏珺、赵欣颜、李祖伦、张轩宁 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 04:34 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 04:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 04:25 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 04:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 04:41 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 04:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 04:15 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 04:32 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 04:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 04:18 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 04:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 04:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 04:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:32 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 04:45 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 04:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 04:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 04:19 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 04:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 04:31 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 04:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 04:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:18 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/50491.shtml)
-- 2026-06-30 04:19 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/36784.shtml)
-- 2026-06-30 04:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/34618896.shtml)
-- 2026-06-30 04:12 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/51715185303.shtml)
-- 2026-06-30 04:38 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/125516565.shtml)
-- 2026-06-30 04:22 - [孙兴慜道歉](http://www.share.minike.top/Article/details/3434529.shtml)
-- 2026-06-30 04:17 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/11403152.shtml)
-- 2026-06-30 04:36 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/604695409179.shtml)
-- 2026-06-30 04:21 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/912236285080.shtml)
-- 2026-06-30 04:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/460221231004.shtml)
-- 2026-06-30 04:25 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/023393.shtml)
-- 2026-06-30 04:17 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/28131860179.shtml)
-- 2026-06-30 04:40 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/5334248610.shtml)
-- 2026-06-30 04:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/126444954062.shtml)
-- 2026-06-30 04:38 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/97545.shtml)
+- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/9883667.shtml)
+- 2026-06-30 04:30 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/5177414.shtml)
+- 2026-06-30 04:32 - [日本 高位逼抢](http://www.share.minike.top/Article/details/6793882.shtml)
+- 2026-06-30 04:38 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/676658.shtml)
+- 2026-06-30 04:20 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/9913946.shtml)
+- 2026-06-30 04:35 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/61611.shtml)
+- 2026-06-30 04:46 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/67745.shtml)
+- 2026-06-30 04:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/65601705099.shtml)
+- 2026-06-30 04:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/259744.shtml)
+- 2026-06-30 04:21 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/314884483453.shtml)
+- 2026-06-30 04:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/509356512.shtml)
+- 2026-06-30 04:27 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/37526165905.shtml)
+- 2026-06-30 04:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/96448819.shtml)
+- 2026-06-30 04:43 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/754733.shtml)
+- 2026-06-30 04:21 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/823691783878.shtml)

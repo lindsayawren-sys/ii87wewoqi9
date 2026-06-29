@@ -1,57 +1,57 @@
-# 广西钦江古龙窑窑火再燃 “非遗狂欢季”启动
+# 酒价内参5月25日价格发布：精品茅台下跌3元/瓶
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网钦州6月13日电(段薇)6月13日，一年一度的文化和自然遗产日，在广西钦州市钦江古龙窑，2026年钦州市“文化和自然遗产日”暨端午节系列活动宣布启动，并举行第十一届千年坭兴陶钦江古龙窑火祭仪式。 据介绍，此次系列活动以“滨海运河潮起·钦州非遗绽彩”为主题，立足钦州非遗资源禀赋，通过场景创新、形式创新、传播创新，丰富非遗活化载体，拓宽非遗传播路径。系列活动覆盖全城，多业态融
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品
 
 ## 正文
 
-中新网钦州6月13日电(段薇)6月13日，一年一度的文化和自然遗产日，在广西钦州市钦江古龙窑，2026年钦州市“文化和自然遗产日”暨端午节系列活动宣布启动，并举行第十一届千年坭兴陶钦江古龙窑火祭仪式。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。
 
-据介绍，此次系列活动以“滨海运河潮起·钦州非遗绽彩”为主题，立足钦州非遗资源禀赋，通过场景创新、形式创新、传播创新，丰富非遗活化载体，拓宽非遗传播路径。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。
 
-系列活动覆盖全城，多业态融合、多点开花。
+市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。
 
-当天8时，非物质文化遗产代表性传承人团队在钦州坭兴陶发源地缸瓦窑村采集火种，随即开启一场全程约12公里的城市火炬接力，途经金海湾大桥、白石湖公园、钦州老街、平南古渡、钦江大桥、钦江陶影·1956陶艺市集、古龙窑平陆运河文化旅游体育公园等城市地标，最终将火种传送至终点钦江古龙窑。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-整条线路将非物质文化遗产、城市风光与运河新景融为一体，在平陆运河即将通航之际，全方位呈现钦州的城市形象。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，重返530元上方；习酒君品与青花郎均上涨4元/瓶，后者收复700元整数关口；五粮液普五八代、洋河梦之蓝M6+与水晶剑南春均上涨1元/瓶。
 
-10时，第十一届千年坭兴陶钦江古龙窑火祭仪式正式拉开帷幕，钦江古龙窑窑火点燃。
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，回落至月内次低位；茅台系飞天茅台与精品茅台均下跌3元/瓶；五粮液1618与青花汾20均下跌1元/瓶，后者回落至月内最低位，近一个月价格重心持续下移。
 
-6月18日至21日，钦州市将迎来非遗狂欢。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-届时，钦江古龙窑开窑，将掀起非遗“淘宝”热潮。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:31 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 04:39 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 04:40 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 04:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 04:41 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:40 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 04:23 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 04:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 04:35 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 04:30 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 04:25 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 04:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:32 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 04:45 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 04:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 04:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 04:24 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 04:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 04:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 04:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 04:34 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/627333.shtml)
-- 2026-06-30 04:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/894863825.shtml)
-- 2026-06-30 04:12 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/388644796804.shtml)
-- 2026-06-30 04:17 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/01121.shtml)
-- 2026-06-30 04:28 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/909091.shtml)
-- 2026-06-30 04:17 - [起风了](https://www.share.kurohicncr.top/Article/details/3050523.shtml)
-- 2026-06-30 04:36 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/965405.shtml)
-- 2026-06-30 04:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/026489002.shtml)
-- 2026-06-30 04:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/77195955286.shtml)
-- 2026-06-30 04:23 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/17867908274.shtml)
-- 2026-06-30 04:21 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/558527691.shtml)
-- 2026-06-30 04:26 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/4017390.shtml)
-- 2026-06-30 04:37 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/1404225872.shtml)
-- 2026-06-30 04:34 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/792571459.shtml)
-- 2026-06-30 04:19 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/216298417079.shtml)
+- 2026-06-30 04:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/06818943385.shtml)
+- 2026-06-30 04:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/745728118713.shtml)
+- 2026-06-30 04:26 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4498625.shtml)
+- 2026-06-30 04:23 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/4802724.shtml)
+- 2026-06-30 04:20 - [田曦薇没招了](https://www.blog.minike.top/Article/details/3665917.shtml)
+- 2026-06-30 04:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/319710235510.shtml)
+- 2026-06-30 04:35 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/663050.shtml)
+- 2026-06-30 04:27 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/010420.shtml)
+- 2026-06-30 04:20 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/63766.shtml)
+- 2026-06-30 04:41 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/605464354.shtml)
+- 2026-06-30 04:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/71327237.shtml)
+- 2026-06-30 04:24 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/350820039587.shtml)
+- 2026-06-30 04:40 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/0268317.shtml)
+- 2026-06-30 04:44 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/189655415875.shtml)
+- 2026-06-30 04:38 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/413078819288.shtml)

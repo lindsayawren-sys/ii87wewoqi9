@@ -1,60 +1,47 @@
-# 钼代钨+AI液冷+地缘缓和！多重利好共振，华宝基金有色ETF（159876）最高飙涨超7%，获资金净申购9460万份！
+# 汇川技术：公司认为人形机器人产业仍处于非常早期阶段
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！ 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。 伴随火热行情，资
+证券日报网5月25日讯，汇川技术在接受调研者提问时表示，公司认为人形机器人产业仍处于非常早期阶段，零部件和整机都处于快速进化阶段，未来存在较好机遇。公司将通过人形机器人核心零部件技术优势赋能产业，并凭借丰富工业场景资源，推动人形机器人解决方案在工业领域落地。
 
 ## 正文
 
-周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！
+证券日报网5月25日讯，汇川技术在接受调研者提问时表示，公司认为人形机器人产业仍处于非常早期阶段，零部件和整机都处于快速进化阶段，未来存在较好机遇。
 
-洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！
-
-热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。
-
-伴随火热行情，资金积极进场布局！
-
-数据显示，有色ETF华宝（159876）全天获资金净申购9460万份。
-
-成份股狂掀涨停潮，铜陵有色、洛阳钼业、金钼股份、北方铜业、海亮股份、金田股份、驰宏锌锗7股涨停，锡业股份、云南铜业、江西铜业盘中触板，权重股紫金矿业涨超6%，北方稀土、中国铝业涨逾4%。
-
-今日有色金属板块缘何大涨？
-
-或可从三个维度进行拆解： 1、宏观层面，美国总统特朗普释放出美国与伊朗“即将达成和平协议”的信号，地缘风险溢价回落，风险偏好显著修复。
+公司将通过人形机器人核心零部件技术优势赋能产业，并凭借丰富工业场景资源，推动人形机器人解决方案在工业领域落地。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 04:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 04:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 04:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 04:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 04:12 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 04:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 04:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 04:34 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 04:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 04:15 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:27 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 04:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 04:20 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 04:38 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 04:22 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 04:31 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 04:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 04:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 04:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 04:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 04:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:46 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 04:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 04:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 04:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/57505.shtml)
-- 2026-06-30 04:41 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/1023136892.shtml)
-- 2026-06-30 04:12 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/01218807343.shtml)
-- 2026-06-30 04:25 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/6458453.shtml)
-- 2026-06-30 04:35 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/12716.shtml)
-- 2026-06-30 04:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/10668918.shtml)
-- 2026-06-30 04:40 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/80985920.shtml)
-- 2026-06-30 04:15 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/17682974608.shtml)
-- 2026-06-30 04:16 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/5112930.shtml)
-- 2026-06-30 04:22 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/189588675.shtml)
-- 2026-06-30 04:13 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/93843.shtml)
-- 2026-06-30 04:26 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/32941916.shtml)
-- 2026-06-30 04:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/96178.shtml)
-- 2026-06-30 04:13 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/50993149236.shtml)
-- 2026-06-30 04:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/45015793.shtml)
+- 2026-06-30 04:39 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/812501989472.shtml)
+- 2026-06-30 04:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/18563485.shtml)
+- 2026-06-30 04:33 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/69598957.shtml)
+- 2026-06-30 04:34 - [孙兴慜道歉](http://www.share.minike.top/Article/details/6845692.shtml)
+- 2026-06-30 04:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/56936.shtml)
+- 2026-06-30 04:33 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/316377.shtml)
+- 2026-06-30 04:42 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/29841962.shtml)
+- 2026-06-30 04:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/44192085.shtml)
+- 2026-06-30 04:43 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/26030.shtml)
+- 2026-06-30 04:23 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/80322535677.shtml)
+- 2026-06-30 04:44 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/754869236.shtml)
+- 2026-06-30 04:30 - [沉睡花园](https://www.blog.minike.top/Article/details/439040513287.shtml)
+- 2026-06-30 04:34 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/63516.shtml)
+- 2026-06-30 04:25 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/572505138669.shtml)
+- 2026-06-30 04:34 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/73485311160.shtml)

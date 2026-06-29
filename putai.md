@@ -1,60 +1,57 @@
-# 5国好物首秀南博会 19款境外特色商品集中亮相
+# 酒价内参5月25日价格发布：青花郎上涨4元/瓶
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月12日电 (时文枝)老挝精品咖啡、马尔代夫金枪鱼罐头、进口葡萄酒……12日，来自老挝、澳大利亚、马尔代夫、加拿大、日本5个国家的19款特色商品，集体亮相第10届南博会南博新品首发仪式境外特色商品专场，首次通过南博会平台面向中国市场公开发布。现场，吸引众多企业、商会代表等共赏创新好物，共寻合作商机。 为充分发挥南博会“以展促贸、以展兴企”的平台效能，本届南博新品首发
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品
 
 ## 正文
 
-中新网昆明6月12日电 (时文枝)老挝精品咖啡、马尔代夫金枪鱼罐头、进口葡萄酒……12日，来自老挝、澳大利亚、马尔代夫、加拿大、日本5个国家的19款特色商品，集体亮相第10届南博会南博新品首发仪式境外特色商品专场，首次通过南博会平台面向中国市场公开发布。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。
 
-现场，吸引众多企业、商会代表等共赏创新好物，共寻合作商机。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。
 
-为充分发挥南博会“以展促贸、以展兴企”的平台效能，本届南博新品首发仪式紧扣低空经济、先进制造、医疗康养等重点产业与热门领域，设置五大特色专场。
+市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。
 
-其中，境外特色商品专场涵盖进口葡萄酒、老挝精品咖啡、马尔代夫金枪鱼罐头、日本传统工艺用品、适老化康养器具等，荟萃RCEP及南亚、东南亚各国特色商品，助力境内外企业抢抓市场机遇、拓宽合作渠道。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-“老挝万象中心VC咖啡是我们立足老挝本土优质资源，精心打造的一款兼具中老合作特色与老挝风土底蕴的咖啡产品。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，重返530元上方；习酒君品与青花郎均上涨4元/瓶，后者收复700元整数关口；五粮液普五八代、洋河梦之蓝M6+与水晶剑南春均上涨1元/瓶。
 
-”云南建投集团国际部(海投公司)副总经理张友作称，它不仅是一杯饮品，更是中老两国深化经贸合作、促进民心相通的生动缩影。
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，回落至月内次低位；茅台系飞天茅台与精品茅台均下跌3元/瓶；五粮液1618与青花汾20均下跌1元/瓶，后者回落至月内最低位，近一个月价格重心持续下移。
 
-据悉，该款咖啡精选老挝波罗芬高原等代表性产区的咖啡豆，具有干净、醇厚、顺滑、层次丰富等特点，自2024年推出以来，深受老挝民众欢迎。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-张友作表示，希望依托南博会，充分发挥中老合资企业的桥梁作用，将老挝优质咖啡资源转化为更具识别度、品质感与传播力的品牌产品，让消费者在品味咖啡的同时，感受老挝风土之美、中老合作之深及企业扎根之实。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 04:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 04:27 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 04:19 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 04:22 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 04:25 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 04:23 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 04:13 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 04:33 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 04:31 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 04:34 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:23 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 04:26 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 04:37 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 04:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 04:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 04:46 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 04:33 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:41 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 04:18 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 04:44 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 04:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:24 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 04:20 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 04:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:21 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/7949510168.shtml)
-- 2026-06-30 04:36 - [巴西绝杀](http://www.share.minike.top/Article/details/8344036.shtml)
-- 2026-06-30 04:24 - [一见倾心](https://www.blog.minike.top/Article/details/56657269.shtml)
-- 2026-06-30 04:24 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/88263212957.shtml)
-- 2026-06-30 04:15 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/530618378827.shtml)
-- 2026-06-30 04:32 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/632377.shtml)
-- 2026-06-30 04:31 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/6836185.shtml)
-- 2026-06-30 04:21 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/96353.shtml)
-- 2026-06-30 04:37 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/18368773679.shtml)
-- 2026-06-30 04:25 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/521765.shtml)
-- 2026-06-30 04:32 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/3463054.shtml)
-- 2026-06-30 04:40 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/47714481.shtml)
-- 2026-06-30 04:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/0217684629.shtml)
-- 2026-06-30 04:34 - [苗族银饰](https://www.share.minike.top/Article/details/31067919.shtml)
-- 2026-06-30 04:16 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/9743288988.shtml)
+- 2026-06-30 04:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/16477757966.shtml)
+- 2026-06-30 04:43 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/22439037.shtml)
+- 2026-06-30 04:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/4943978.shtml)
+- 2026-06-30 04:26 - [苗族银饰](http://www.blog.minike.top/Article/details/3180614023.shtml)
+- 2026-06-30 04:46 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/245669631231.shtml)
+- 2026-06-30 04:31 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/0434620.shtml)
+- 2026-06-30 04:46 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/24939.shtml)
+- 2026-06-30 04:18 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/747835266.shtml)
+- 2026-06-30 04:23 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/433444195.shtml)
+- 2026-06-30 04:47 - [沉睡花园](https://www.share.minike.top/Article/details/74092003.shtml)
+- 2026-06-30 04:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/46448033433.shtml)
+- 2026-06-30 04:44 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/5787060.shtml)
+- 2026-06-30 04:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/92911651.shtml)
+- 2026-06-30 04:21 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/47912599808.shtml)
+- 2026-06-30 04:40 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/10277.shtml)

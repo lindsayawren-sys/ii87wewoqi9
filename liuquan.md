@@ -1,48 +1,57 @@
-# 美军一战斗机在华盛顿州坠毁 飞行员弹射逃生
+# 中东部大范围降雨持续：多部门全力救援 紧急转移群众、抢修道路保畅通
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网6月14日电 据美国全国广播公司(NBC)报道，当地时间13日，一架美军战斗机在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员受轻伤。 据报道，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。飞行员弹射逃生，后被送往医院。 美军方面表示，事故原因正在调查中，暂不提供更多细节。
+央视网消息：5月25日—26日两天，中国中东部大范围降雨持续。5月25日，本轮强降雨迎来最强时段，安徽、湖北东部和西南部、重庆北部等地部分地区有大暴雨。中央气象台5月26日6时发布暴雨黄色预警和强对流天气蓝色预警。长江沿线降雨强度大 极端性突出 本轮降雨的一个突出特点是，长江沿线降雨强度大、极端性突出。中央气象台强降雨落区预报图显示，华北南部、黄淮西部、江淮大部、江汉大部、江南
 
 ## 正文
 
-中新网6月14日电 据美国全国广播公司(NBC)报道，当地时间13日，一架美军战斗机在华盛顿州的一座山上坠毁，引发丛林火灾，飞行员受轻伤。
+央视网消息：5月25日—26日两天，中国中东部大范围降雨持续。
 
-据报道，这架隶属于美国海军陆战队的F/A-18“超级大黄蜂”战斗机，坠毁前正在“例行训练”。
+5月25日，本轮强降雨迎来最强时段，安徽、湖北东部和西南部、重庆北部等地部分地区有大暴雨。
 
-飞行员弹射逃生，后被送往医院。
+中央气象台5月26日6时发布暴雨黄色预警和强对流天气蓝色预警。
 
-美军方面表示，事故原因正在调查中，暂不提供更多细节。
+长江沿线降雨强度大 极端性突出 本轮降雨的一个突出特点是，长江沿线降雨强度大、极端性突出。
+
+中央气象台强降雨落区预报图显示，华北南部、黄淮西部、江淮大部、江汉大部、江南北部及重庆中北部等地部分地区有大到暴雨。
+
+其中，湖北东部、安徽西南部等地部分地区有特大暴雨。
+
+江西婺源：饶河婺源段水位超警戒线 紧急转移群众 从24日晚到25日凌晨，江西上饶、宜春等地的18个县出现暴雨到大暴雨。
+
+在婺源县，局地最大降雨量达到了266.4毫米，强降雨导致饶河婺源段水位一度超出警戒线，城区部门沿街商铺被淹、人员受困。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 04:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 04:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 04:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 04:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 04:30 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 04:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 04:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 04:17 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 04:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 04:39 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:29 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 04:38 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 04:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 04:29 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 04:34 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 04:30 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 04:24 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 04:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 04:46 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 04:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/819220915075.shtml)
-- 2026-06-30 04:19 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/4593596559.shtml)
-- 2026-06-30 04:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/276616025.shtml)
-- 2026-06-30 04:16 - [张凌赫 客串](https://www.blog.minike.top/Article/details/0315395.shtml)
-- 2026-06-30 04:28 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/4451862557.shtml)
-- 2026-06-30 04:18 - [房价什么时候能涨](https://www.share.minike.top/Article/details/927045093.shtml)
-- 2026-06-30 04:41 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/02780472655.shtml)
-- 2026-06-30 04:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/0411787.shtml)
-- 2026-06-30 04:29 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/51809.shtml)
-- 2026-06-30 04:29 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/61430.shtml)
-- 2026-06-30 04:14 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/9133241.shtml)
-- 2026-06-30 04:14 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/9797596.shtml)
-- 2026-06-30 04:23 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/4073447135.shtml)
-- 2026-06-30 04:19 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/743232600981.shtml)
-- 2026-06-30 04:12 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/89393738.shtml)
+- 2026-06-30 04:25 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/44547205.shtml)
+- 2026-06-30 04:19 - [起风了](http://www.blog.kurohicncr.top/Article/details/0563809054.shtml)
+- 2026-06-30 04:47 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/615118878111.shtml)
+- 2026-06-30 04:38 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/532853760.shtml)
+- 2026-06-30 04:31 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/5883525213.shtml)
+- 2026-06-30 04:21 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/22157.shtml)
+- 2026-06-30 04:30 - [啊啊啊](http://www.blog.minike.top/Article/details/88781.shtml)
+- 2026-06-30 04:38 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/66347744.shtml)
+- 2026-06-30 04:36 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/847920.shtml)
+- 2026-06-30 04:31 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/78903572865.shtml)
+- 2026-06-30 04:44 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/905829.shtml)
+- 2026-06-30 04:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/5642715.shtml)
+- 2026-06-30 04:43 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/77398.shtml)
+- 2026-06-30 04:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/886702831263.shtml)
+- 2026-06-30 04:41 - [沙丘](https://www.share.minike.top/Article/details/856611211227.shtml)

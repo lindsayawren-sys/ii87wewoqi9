@@ -1,49 +1,48 @@
-# “数爱无疆”数字公益故事展播 | “一村一品”助农专项
+# 两座大桥同日合龙 通甬高铁再迎新进展
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 15:26 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由百度电商推送的“‘一村一品
+发布时间：2026年05月25日 23:05 来源：中国新闻网 5月25日，浙江嘉兴，通甬高铁海盐段迎来重要进展。通甬高铁全线施工难度最大、安全风险最高的重难点控制性工程之一跨百步亭港T构连续梁，与跨秦山大道连续梁顺利实现合龙，为加快后续施工奠定基础。据悉，通甬高铁是国家“八纵八横”高速铁路网沿海客运通道的核心组成部分，也是长三角城际轨道交通骨干干线。(记者 王刚 制作 侯诗蕊
 
 ## 正文
 
-发布时间：2026年06月12日 15:26 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
+发布时间：2026年05月25日 23:05 来源：中国新闻网 5月25日，浙江嘉兴，通甬高铁海盐段迎来重要进展。
 
-2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由百度电商推送的“‘一村一品’助农专项”作品入选。
+通甬高铁全线施工难度最大、安全风险最高的重难点控制性工程之一跨百步亭港T构连续梁，与跨秦山大道连续梁顺利实现合龙，为加快后续施工奠定基础。
 
-责任编辑：【刘湃】
+据悉，通甬高铁是国家“八纵八横”高速铁路网沿海客运通道的核心组成部分，也是长三角城际轨道交通骨干干线。
+
+(记者 王刚 制作 侯诗蕊) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 04:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 04:23 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 04:29 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 04:18 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 04:22 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 04:34 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 04:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 04:22 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 04:28 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 04:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 04:31 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 04:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 04:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 04:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 04:23 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 04:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 04:42 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 04:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 04:18 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 04:36 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/497256087835.shtml)
-- 2026-06-30 04:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/273291040.shtml)
-- 2026-06-30 04:36 - [天道](https://www.share.minike.top/Article/details/086704.shtml)
-- 2026-06-30 04:24 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/9873818918.shtml)
-- 2026-06-30 04:38 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/312090.shtml)
-- 2026-06-30 04:40 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7921772907.shtml)
-- 2026-06-30 04:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/59948581799.shtml)
-- 2026-06-30 04:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/559765989604.shtml)
-- 2026-06-30 04:17 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/59676.shtml)
-- 2026-06-30 04:32 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/401509267405.shtml)
-- 2026-06-30 04:22 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/90730755.shtml)
-- 2026-06-30 04:23 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/0420870.shtml)
-- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/75204.shtml)
-- 2026-06-30 04:21 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/89348458382.shtml)
-- 2026-06-30 04:30 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/03210.shtml)
+- 2026-06-30 04:45 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/961917363985.shtml)
+- 2026-06-30 04:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/924893392.shtml)
+- 2026-06-30 04:36 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/97979.shtml)
+- 2026-06-30 04:29 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/318149974.shtml)
+- 2026-06-30 04:30 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/471205946536.shtml)
+- 2026-06-30 04:29 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/5544515.shtml)
+- 2026-06-30 04:39 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/9964282.shtml)
+- 2026-06-30 04:47 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/9200931208.shtml)
+- 2026-06-30 04:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/65136.shtml)
+- 2026-06-30 04:24 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/722453.shtml)
+- 2026-06-30 04:27 - [第一炉香](http://www.blog.minike.top/Article/details/73626.shtml)
+- 2026-06-30 04:20 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/9117881188.shtml)
+- 2026-06-30 04:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/053229113338.shtml)
+- 2026-06-30 04:20 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/533393581.shtml)
+- 2026-06-30 04:21 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/65488670.shtml)

@@ -1,50 +1,56 @@
-# 联合国秘书长强烈谴责以色列袭击黎巴嫩贝鲁特
+# 油价暴跌与“供应危机”警告同时出现：市场错了吗？
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-当地时间6月14日，联合国秘书长古特雷斯就中东局势发表声明，强烈谴责以色列当日对黎巴嫩首都贝鲁特发动袭击。 声明中说，此次袭击发生在停火协议仍然有效的情况下，而且正值美国与伊朗预计将达成协议、为通过和平方式解决这场冲突铺平道路之际。古特雷斯表示，这场冲突正在对世界经济造成严重破坏性影响。 古特雷斯敦促各方在这一关键时刻保持最大限度的克制。(央视记者 曹健 吴汉婴)
+汇通财经APP讯——资深市场策略师杰夫·柯里周一（5月25日）表示，亚洲石油市场正接近最低运营水平，欧洲可能紧随其后，美国可能在7月面临短缺，这突显了伊朗战争引发的全球能源冲击。 凯雷集团能源路径首席战略官兼Abaxx Markets联合主席柯里指出，全球库存的整体数据可能具有误导性，因为全球储存的石油中有很大一部分无法立即使用。其中大部分石油需要用于维持管道和储存系统的安全运
 
 ## 正文
 
-当地时间6月14日，联合国秘书长古特雷斯就中东局势发表声明，强烈谴责以色列当日对黎巴嫩首都贝鲁特发动袭击。
+汇通财经APP讯——资深市场策略师杰夫·柯里周一（5月25日）表示，亚洲石油市场正接近最低运营水平，欧洲可能紧随其后，美国可能在7月面临短缺，这突显了伊朗战争引发的全球能源冲击。
 
-声明中说，此次袭击发生在停火协议仍然有效的情况下，而且正值美国与伊朗预计将达成协议、为通过和平方式解决这场冲突铺平道路之际。
+凯雷集团能源路径首席战略官兼Abaxx Markets联合主席柯里指出，全球库存的整体数据可能具有误导性，因为全球储存的石油中有很大一部分无法立即使用。
 
-古特雷斯表示，这场冲突正在对世界经济造成严重破坏性影响。
+其中大部分石油需要用于维持管道和储存系统的安全运行，只有较小的一部分可供市场使用。
 
-古特雷斯敦促各方在这一关键时刻保持最大限度的克制。
+柯里表述，亚洲已接近这些所谓的“最低运营水平”。
 
-(央视记者 曹健 吴汉婴)
+成品油市场：新加坡问题从航空燃油转向柴油 自今年早些时候伊朗战争爆发、霍尔木兹海峡航运中断导致中东能源出口急剧减少以来，全球石油市场一直承压。
+
+“我们已经看到成品油价格暴涨。
+
+航空燃油价格有所下降，但柴油价格已涨至航空燃油之上。
+
+因此，新加坡的问题仍在继续，只是从航空燃油转移到了柴油，”柯里表示。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 04:25 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 04:18 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 04:40 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 04:19 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 04:38 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 04:18 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 04:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 04:30 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 04:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 04:35 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 04:46 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 04:25 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 04:19 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 04:43 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 04:24 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 04:32 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 04:37 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 04:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 04:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:13 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/616686686.shtml)
-- 2026-06-30 04:12 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/338832815539.shtml)
-- 2026-06-30 04:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/287099322620.shtml)
-- 2026-06-30 04:27 - [极限挑战第一季](https://www.blog.minike.top/Article/details/5229735.shtml)
-- 2026-06-30 04:34 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/07389342.shtml)
-- 2026-06-30 04:41 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/9524280059.shtml)
-- 2026-06-30 04:35 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/085537.shtml)
-- 2026-06-30 04:34 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/6618688.shtml)
-- 2026-06-30 04:13 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/0860869.shtml)
-- 2026-06-30 04:22 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/6265502.shtml)
-- 2026-06-30 04:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/69426508.shtml)
-- 2026-06-30 04:14 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/1430304769.shtml)
-- 2026-06-30 04:13 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/13721.shtml)
-- 2026-06-30 04:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/3755105640.shtml)
-- 2026-06-30 04:39 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/898115696.shtml)
+- 2026-06-30 04:34 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/88138.shtml)
+- 2026-06-30 04:47 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/83400.shtml)
+- 2026-06-30 04:36 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/789229.shtml)
+- 2026-06-30 04:20 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/5639452251.shtml)
+- 2026-06-30 04:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/67260263.shtml)
+- 2026-06-30 04:33 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/45389.shtml)
+- 2026-06-30 04:45 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/19519891385.shtml)
+- 2026-06-30 04:34 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/8605570.shtml)
+- 2026-06-30 04:28 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/487422312.shtml)
+- 2026-06-30 04:40 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/8959451465.shtml)
+- 2026-06-30 04:33 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/64509406.shtml)
+- 2026-06-30 04:21 - [沙丘](http://www.blog.minike.top/Article/details/439244.shtml)
+- 2026-06-30 04:37 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/323550906.shtml)
+- 2026-06-30 04:18 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/328495963785.shtml)
+- 2026-06-30 04:33 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/22430053757.shtml)

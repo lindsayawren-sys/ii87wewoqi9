@@ -1,53 +1,60 @@
-# 台湾时事评论员王炳忠：台当局禁止县市人员参加海峡论坛是“心里有鬼”
+# 瑞银把银价预期从100砍到85，白银跌回76.35附近——底在哪？
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 17:21 来源：中国新闻网 6月13日，台湾时事评论员、新中华儿女学会创会理事长王炳忠在第十八届海峡论坛期间接受媒体采访时表示，台当局要求县市政府与公职人员不得出席海峡论相关活动坛，是“心里有鬼”且心虚的表现。他指出，民进党根本解决不了台湾的民生问题，连绿营南部的基层民代都私下议论，所谓“盟友”也无法帮台湾解决问题，致使像他故乡台南的农渔产品
+来源：汇通网 汇通财经APP讯——周二（5月26日）亚洲时段，白银价格回吐了前一交易日的部分涨幅，交投于76.35美元附近，跌幅超2%。由于美军周一在伊朗南部实施“自卫打击”，地缘政治不确定性重燃，加剧了市场对能源驱动型通胀冲击的担忧，强化了央行将在更长时间内维持紧缩货币政策的预期，从而打压了白银等无息资产。 地缘动态：美军对伊朗实施“自卫打击” 美国中央司令部发言人称，美军周
 
 ## 正文
 
-发布时间：2026年06月13日 17:21 来源：中国新闻网 6月13日，台湾时事评论员、新中华儿女学会创会理事长王炳忠在第十八届海峡论坛期间接受媒体采访时表示，台当局要求县市政府与公职人员不得出席海峡论相关活动坛，是“心里有鬼”且心虚的表现。
+来源：汇通网 汇通财经APP讯——周二（5月26日）亚洲时段，白银价格回吐了前一交易日的部分涨幅，交投于76.35美元附近，跌幅超2%。
 
-他指出，民进党根本解决不了台湾的民生问题，连绿营南部的基层民代都私下议论，所谓“盟友”也无法帮台湾解决问题，致使像他故乡台南的农渔产品只能赔本贩卖。
+由于美军周一在伊朗南部实施“自卫打击”，地缘政治不确定性重燃，加剧了市场对能源驱动型通胀冲击的担忧，强化了央行将在更长时间内维持紧缩货币政策的预期，从而打压了白银等无息资产。
 
-王炳忠批评，民进党当局只会喊“抗中”口号，但“抗中保台”其实只有“抗中”没有“保台”，不但保不了台，反而是在“祸台”。
+地缘动态：美军对伊朗实施“自卫打击” 美国中央司令部发言人称，美军周一在伊朗南部实施了“自卫打击”，目标为导弹发射场及试图布设水雷的伊朗船只。
 
-(记者 郎佳慧） 责任编辑：【吉翔】
+据报道，美军中央司令部发言人蒂姆·霍金斯在声明中表示，打击旨在保护美军部队“免受伊朗军队构成的威胁”，并声称在持续停火期间，美军将继续“保持克制”。
+
+据伊朗多家媒体报道，当地时间25日深夜，阿巴斯港传出三起爆炸声，霍尔木兹海峡沿岸的锡里克和贾斯克两地也传出类似爆炸声响。
+
+社交媒体消息显示，伊朗伊斯兰革命卫队海军两艘快艇当晚遭到美军战机袭击，据称造成多人死亡。
+
+作为回应，伊朗方面向阿曼湾的美国军舰开火，美军随后对阿巴斯港东边进行空袭，伊朗防空系统启动。
+
+尽管交火事件一度引发局势紧张，但美国福克斯新闻频道援引美方高级官员称，美军空袭“暂时结束”，目前整体局势相对平静。
 
 ## 相关推荐
 
-- 2026-06-30 04:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 04:41 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 04:16 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 04:23 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 04:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 04:13 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 04:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 04:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 04:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 04:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 04:24 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 04:33 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 04:37 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 04:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 04:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:34 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 04:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 04:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 04:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 04:41 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 04:29 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 04:25 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 04:30 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 04:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 04:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 04:28 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 04:47 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 04:28 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 04:40 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/033977869.shtml)
-- 2026-06-30 04:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/8339234139.shtml)
-- 2026-06-30 04:26 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/63035803.shtml)
-- 2026-06-30 04:20 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/153324798345.shtml)
-- 2026-06-30 04:21 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/31981.shtml)
-- 2026-06-30 04:34 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/1850625.shtml)
-- 2026-06-30 04:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/38902913.shtml)
-- 2026-06-30 04:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/5430269.shtml)
-- 2026-06-30 04:22 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/94346936344.shtml)
-- 2026-06-30 04:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/47962181.shtml)
-- 2026-06-30 04:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/152955764.shtml)
-- 2026-06-30 04:40 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/385065116264.shtml)
-- 2026-06-30 04:28 - [恋与深空 巧合](https://www.share.minike.top/Article/details/16253.shtml)
-- 2026-06-30 04:28 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/74122915039.shtml)
-- 2026-06-30 04:23 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/44289761.shtml)
+- 2026-06-30 04:24 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/593766242948.shtml)
+- 2026-06-30 04:23 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/017462363.shtml)
+- 2026-06-30 04:25 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/0531608.shtml)
+- 2026-06-30 04:33 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/12276.shtml)
+- 2026-06-30 04:40 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/76957470423.shtml)
+- 2026-06-30 04:44 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/9456625.shtml)
+- 2026-06-30 04:46 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/08428881.shtml)
+- 2026-06-30 04:44 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/07800.shtml)
+- 2026-06-30 04:35 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/500368667.shtml)
+- 2026-06-30 04:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/143985785231.shtml)
+- 2026-06-30 04:46 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/49985328.shtml)
+- 2026-06-30 04:24 - [日本淘汰](http://www.blog.minike.top/Article/details/10155543.shtml)
+- 2026-06-30 04:41 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/2039500.shtml)
+- 2026-06-30 04:42 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/720831635.shtml)
+- 2026-06-30 04:29 - [毒液2](https://www.share.kurohicncr.top/Article/details/16183.shtml)

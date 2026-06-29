@@ -1,61 +1,55 @@
-# 日本民众集会 反对高市政权推动扩军修宪
+# 直击武警新兵实弹射击考核现场
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-当地时间13日，部分日本民众在东京新宿举行集会。他们手持“反对修宪”“反对战争”等标语，强烈反对高市政权推动扩军修宪、大幅增加防卫费、解禁杀伤性武器出口等一系列危险动向。 集会参加者：日本的粮食自给率本来就非常低。因此，比起武器买卖，更重要的应该是通过与其他国家之间的协商与外交确保粮食供应。 集会参加者：目前对于防卫费增长的制约机制已经越来越弱了。日本过去曾经有一个“防卫费不超
+发布时间：2026年05月26日 14:24 来源：中国新闻网 近日，武警天津总队新兵团新兵某大队严密组织新兵实弹射击考核，考核全程依规有序开展，从严落实安全规范。考核现场，新兵列队进场、取弹、装弹、据枪、瞄准、击发，干部骨干现场全程督导，把控秩序。此次考核全面检验了前期射击基础训练成效，锤炼了新兵心理素质与枪械实操水平。下一步，大队将持续聚焦练兵备战，常态化开展实战化基础科目
 
 ## 正文
 
-当地时间13日，部分日本民众在东京新宿举行集会。
+发布时间：2026年05月26日 14:24 来源：中国新闻网 近日，武警天津总队新兵团新兵某大队严密组织新兵实弹射击考核，考核全程依规有序开展，从严落实安全规范。
 
-他们手持“反对修宪”“反对战争”等标语，强烈反对高市政权推动扩军修宪、大幅增加防卫费、解禁杀伤性武器出口等一系列危险动向。
+考核现场，新兵列队进场、取弹、装弹、据枪、瞄准、击发，干部骨干现场全程督导，把控秩序。
 
-集会参加者：日本的粮食自给率本来就非常低。
+此次考核全面检验了前期射击基础训练成效，锤炼了新兵心理素质与枪械实操水平。
 
-因此，比起武器买卖，更重要的应该是通过与其他国家之间的协商与外交确保粮食供应。
+下一步，大队将持续聚焦练兵备战，常态化开展实战化基础科目训练，助力新兵补齐训练短板、精进军事技能、提升军事素养，为圆满完成各项任务筑牢坚实根基。
 
-集会参加者：目前对于防卫费增长的制约机制已经越来越弱了。
-
-日本过去曾经有一个“防卫费不超过GDP的1%”的限制，但这个限制逐渐被打破，现在已经到了看不到上限的地步。
-
-我希望日本政府能够对防卫费的增长设置明确的限制。
-
-集会参加者：对于可能为战争做准备的法案，政府在没有进行充分对话，也没有充分向民众告知相关信息的情况下就作出决定，这让我感到非常强烈的不安和愤怒。
+(作者：高欣蕊 姚天宝） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 04:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 04:16 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 04:22 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 04:34 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 04:31 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 04:33 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 04:22 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 04:34 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 04:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 04:41 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 04:36 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 04:19 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 04:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 04:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 04:23 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 04:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 04:40 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 04:42 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 04:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 04:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 04:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 04:29 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:24 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 04:22 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 04:21 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 04:46 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 04:43 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 04:35 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/855882273.shtml)
-- 2026-06-30 04:30 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/881550.shtml)
-- 2026-06-30 04:38 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/497602959.shtml)
-- 2026-06-30 04:20 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/449248106.shtml)
-- 2026-06-30 04:24 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/50271698.shtml)
-- 2026-06-30 04:38 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/30580007948.shtml)
-- 2026-06-30 04:33 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/60682801973.shtml)
-- 2026-06-30 04:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/79730814.shtml)
-- 2026-06-30 04:17 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/6940417305.shtml)
-- 2026-06-30 04:37 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/09396538.shtml)
-- 2026-06-30 04:27 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/79454.shtml)
-- 2026-06-30 04:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/4355043.shtml)
-- 2026-06-30 04:15 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/641815.shtml)
-- 2026-06-30 04:39 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/27737755.shtml)
-- 2026-06-30 04:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/558034225.shtml)
+- 2026-06-30 04:45 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/61161580824.shtml)
+- 2026-06-30 04:45 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/6397518577.shtml)
+- 2026-06-30 04:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/293294290.shtml)
+- 2026-06-30 04:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/363571494285.shtml)
+- 2026-06-30 04:44 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/1342990.shtml)
+- 2026-06-30 04:20 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/36988.shtml)
+- 2026-06-30 04:39 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/80637611.shtml)
+- 2026-06-30 04:36 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/3872873.shtml)
+- 2026-06-30 04:27 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/765494.shtml)
+- 2026-06-30 04:19 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/139582051.shtml)
+- 2026-06-30 04:40 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/73522976756.shtml)
+- 2026-06-30 04:20 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/04130.shtml)
+- 2026-06-30 04:37 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/79336128969.shtml)
+- 2026-06-30 04:41 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/18022.shtml)
+- 2026-06-30 04:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/027865278068.shtml)

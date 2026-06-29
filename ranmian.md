@@ -1,56 +1,57 @@
-# 南博会上云南文旅展魅力 邀客旅游旅居旅创
+# 上银基金经理陈博在公交车打广告，结果就真的“翻车”了……
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月12日电 (黄兴鸿)第10届中国—南亚博览会暨第30届中国昆明进出口商品交易会(下称“南博会”)于6月11日至16日在昆明滇池国际会展中心举办。云南省文化旅游体育馆以七大主题全方位展示该省文旅魅力与生活方式，旨在吸引更多游客旅游旅居旅创，让丰富独特的旅游资源变成惠民产业，为乡村振兴注入源源不断的动能。 南博会11号云南文化旅游体育馆以“有一种叫云南的生活”为主题，
+来源：今晚吃基 原标题：《某基金经理在公交车打广告，结果就真的“翻车”了……》 昨天有粉丝给基哥留言，说： 某司的科技先锋基金，在科技大牛市里，仨月爆亏超过20%…… 纳尼？ 科技基金？最近三个月亏了20%以上？ 一看，还真是…… 基金名称中妥妥的有“科技”二字，不仅是科技，还是“科技先锋”。 产品成立于2026年1月20日，迎接科技牛市……然后，就妥妥的亏了20%多！ 不是，
 
 ## 正文
 
-中新网昆明6月12日电 (黄兴鸿)第10届中国—南亚博览会暨第30届中国昆明进出口商品交易会(下称“南博会”)于6月11日至16日在昆明滇池国际会展中心举办。
+来源：今晚吃基 原标题：《某基金经理在公交车打广告，结果就真的“翻车”了……》 昨天有粉丝给基哥留言，说： 某司的科技先锋基金，在科技大牛市里，仨月爆亏超过20%…… 纳尼？
 
-云南省文化旅游体育馆以七大主题全方位展示该省文旅魅力与生活方式，旨在吸引更多游客旅游旅居旅创，让丰富独特的旅游资源变成惠民产业，为乡村振兴注入源源不断的动能。
+科技基金？
 
-南博会11号云南文化旅游体育馆以“有一种叫云南的生活”为主题，聚焦旅居云南、遇见云南、云南之夜、情定云南、云南礼物、秘境云南、寻味云南七大主题。
+最近三个月亏了20%以上？
 
-地处中国西南边陲的云南省，是闻名遐迩的旅游目的地，明代地理学家、旅行家、文学家徐霞客曾在云南游历一年零九个月，并在《徐霞客游记》中大篇幅生动讲述当时的“云南生活”。
+一看，还真是…… 基金名称中妥妥的有“科技”二字，不仅是科技，还是“科技先锋”。
 
-近年来，“有一种叫云南的生活”成为享誉全国的文旅IP。
+产品成立于2026年1月20日，迎接科技牛市……然后，就妥妥的亏了20%多！
 
-2024年，云南出台《加快推进旅居云南建设三年行动》，此后又印发《“旅居云南”发展专项规划(2025—2030年)》，推出为旅居客提供旅居村查询、管家对接、地道攻略、圈子互动等一站式服务的“旅居云南”小程序体验版等，赋能文旅从“观光旅游”向“旅居、旅创”升级。
+不是，您这…… 买的啥科技，这么狠啊？
 
-参展的云南省大理白族自治州文化和旅游局副局长杨梅秀介绍，近年来，该州把“旅居大理”建设作为文旅产业转型升级的重要载体，实施“百村千宿”培育、经营主体引育、公共服务配套等八大工程，取得良好成效。
+酱香科技和浓香科技都不带这么跌的好嘛？
 
-目前，大理州推出一批涵盖乡村、养老、城镇、度假、文艺、体育等类型旅居典范，开展旅居接待自然村达89个。
+一看基金经理： 嗯……这基金经理有点眼熟，感觉在哪儿见过似的！
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 04:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 04:18 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 04:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 04:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 04:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 04:31 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 04:23 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 04:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 04:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 04:29 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 04:37 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 04:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 04:32 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 04:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 04:39 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 04:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 04:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 04:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 04:22 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 04:26 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/3782527232.shtml)
-- 2026-06-30 04:26 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/408120051691.shtml)
-- 2026-06-30 04:21 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/664117519597.shtml)
-- 2026-06-30 04:22 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/569506085.shtml)
-- 2026-06-30 04:20 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/19392.shtml)
-- 2026-06-30 04:21 - [千香](https://www.blog.kurohicncr.top/Article/details/876057.shtml)
-- 2026-06-30 04:30 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/6069250.shtml)
-- 2026-06-30 04:31 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/35799857.shtml)
-- 2026-06-30 04:25 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/78628956.shtml)
-- 2026-06-30 04:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/41574123502.shtml)
-- 2026-06-30 04:19 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/204907792.shtml)
-- 2026-06-30 04:34 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/801899974494.shtml)
-- 2026-06-30 04:28 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/109641360.shtml)
-- 2026-06-30 04:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/472402423863.shtml)
-- 2026-06-30 04:31 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/86347.shtml)
+- 2026-06-30 04:27 - [斗破苍穹](http://www.blog.minike.top/Article/details/92864.shtml)
+- 2026-06-30 04:42 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/061732166.shtml)
+- 2026-06-30 04:29 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/69575061.shtml)
+- 2026-06-30 04:18 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/067228082679.shtml)
+- 2026-06-30 04:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/81628982013.shtml)
+- 2026-06-30 04:32 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/3064782.shtml)
+- 2026-06-30 04:34 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/964855073803.shtml)
+- 2026-06-30 04:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/500039874.shtml)
+- 2026-06-30 04:28 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/8622885488.shtml)
+- 2026-06-30 04:34 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/55010530.shtml)
+- 2026-06-30 04:35 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/600297978720.shtml)
+- 2026-06-30 04:18 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/87439579709.shtml)
+- 2026-06-30 04:20 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/23142.shtml)
+- 2026-06-30 04:40 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/23239399958.shtml)
+- 2026-06-30 04:25 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/691711571.shtml)

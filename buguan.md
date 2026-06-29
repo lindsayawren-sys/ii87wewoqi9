@@ -1,59 +1,57 @@
-# 适配全民骑行热潮 城市出行配套持续升级
+# 综合整治“内卷式”竞争 北京约谈17家重点平台企业
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-适配全民骑行热潮 城市出行配套持续升级 城市骑行环境变迁调查 2026年6月3日是世界自行车日，骑行被称为“黄金有氧运动”。 近年来，绿色低碳理念深入人心，骑行从一种通勤方式演变为集社交、健身、休闲体验于一体的生活方式。2024年8月，《中共中央 国务院关于加快经济社会发展全面绿色转型的意见》提出，加强人行步道和自行车专用道等城市慢行系统建设。2026年5月28日，国务院印发的
+中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。 北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。北京市商务局强调，要
 
 ## 正文
 
-适配全民骑行热潮 城市出行配套持续升级 城市骑行环境变迁调查 2026年6月3日是世界自行车日，骑行被称为“黄金有氧运动”。
+中新网5月25日电 据北京市市场监督管理局网站消息，为加强平台经济监管，规范“6·18”期间平台经营行为，近日，北京市市场监管局组织召开北京市网络市场监管联席会议，对17家重点平台企业开展约谈指导。
 
-近年来，绿色低碳理念深入人心，骑行从一种通勤方式演变为集社交、健身、休闲体验于一体的生活方式。
+北京市市场监管局要求，要严格落实“内卷式”竞争综合整治工作要求，杜绝在“6·18”期间开展非理性大额补贴促销活动，规范价格和广告营销行为，强化食品安全风险防控。
 
-2024年8月，《中共中央 国务院关于加快经济社会发展全面绿色转型的意见》提出，加强人行步道和自行车专用道等城市慢行系统建设。
+北京市商务局强调，要坚守诚信经营底线，严守公平竞争经营准则，健全全流程服务体系，推动经营模式提质升级。
 
-2026年5月28日，国务院印发的《城市更新“十五五”规划》公开发布，其中也提出，建设改造人行道、非机动车道，构建城市绿色慢行交通系统。
+北京市文化和旅游局提示，要严格落实住宿业务等资质核验要求，强化内容管控，加强产品审核，充分展示退订退费规则，妥善处理投诉。
 
-不少城市积极响应。
+北京市通信管理局强调，要不断优化APP改进服务，加强网络售卡渠道相关资质审核，不得未经消费者同意擅自发送营销短信。
 
-比如，上海打造符合专业比赛要求的封闭式骑行道；重庆两江新区照母山片区新建6公里、宽4米的骑行专用道；截至2025年底，成都建成的10048公里各级绿道串联起赛事、消费与生活……一幅幅“骑行友好城市”的画卷徐徐展开。
+北京市税务局指出，要严格落实税务信息报送规定，及时准确报送平台内经营者和从业人员信息，主动提示办理证照。
 
-骑行的人多了，城市的道路跟上了吗？
+北京市邮政局提示，要加强人员、运力、设备、信息系统能力储备，提高末端投递服务能力，严禁寄递违规物品。
 
-《法治日报》记者近日通过走访多地骑友、体验新建骑行道，记录当前城市骑行环境的真实变化。
+北京市版权局要求，要健全版权审核、投诉处置、侵权惩戒全链条机制，积极开展正版合规自查。
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 04:31 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 04:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 04:25 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 04:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 04:18 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 04:14 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 04:12 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 04:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 04:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 04:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 04:38 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 04:35 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 04:26 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 04:44 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 04:42 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 04:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 04:33 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 04:27 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 04:36 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 04:41 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 04:39 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 04:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [女心理师](https://www.share.kurohicncr.top/Article/details/6183578929.shtml)
-- 2026-06-30 04:15 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/53517161.shtml)
-- 2026-06-30 04:17 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/982404.shtml)
-- 2026-06-30 04:37 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/574639108.shtml)
-- 2026-06-30 04:15 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/1622988795.shtml)
-- 2026-06-30 04:14 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/49377.shtml)
-- 2026-06-30 04:21 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/9491740999.shtml)
-- 2026-06-30 04:37 - [流金岁月](https://www.blog.minike.top/Article/details/35208327582.shtml)
-- 2026-06-30 04:20 - [日本反击率先破门](http://www.share.minike.top/Article/details/8504345326.shtml)
-- 2026-06-30 04:28 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/69299709825.shtml)
-- 2026-06-30 04:36 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/3339272.shtml)
-- 2026-06-30 04:41 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/66064.shtml)
-- 2026-06-30 04:30 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/57360.shtml)
-- 2026-06-30 04:33 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/35596696009.shtml)
-- 2026-06-30 04:41 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/09114.shtml)
+- 2026-06-30 04:29 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/48054563193.shtml)
+- 2026-06-30 04:39 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/69280568.shtml)
+- 2026-06-30 04:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/25343126354.shtml)
+- 2026-06-30 04:31 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/37016.shtml)
+- 2026-06-30 04:19 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/185753847.shtml)
+- 2026-06-30 04:35 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/48084460.shtml)
+- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/72022609334.shtml)
+- 2026-06-30 04:19 - [美人鱼](https://www.share.kurohicncr.top/Article/details/8411148608.shtml)
+- 2026-06-30 04:27 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/796500.shtml)
+- 2026-06-30 04:47 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/36292.shtml)
+- 2026-06-30 04:21 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/39143.shtml)
+- 2026-06-30 04:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/552615.shtml)
+- 2026-06-30 04:43 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/647748280.shtml)
+- 2026-06-30 04:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/67981906.shtml)
+- 2026-06-30 04:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/9747889.shtml)

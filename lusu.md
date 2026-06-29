@@ -1,58 +1,59 @@
-# 亚太经合组织财政高官会在华举行
+# Spotify高管抨击AI生成音乐
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 中国财政部11日至12日在四川成都举办亚太经合组织(APEC)财政高官会。会议围绕全球和区域经济金融形势、支持民生发展的财政政策、数字基础设施融资、普惠金融和促进APEC青年财经人才交流合作等议题进行了深入讨论。据中国财政部12日公布的新闻稿，中国财政部副部长廖岷出席会议并致开幕辞。廖岷表示，在科技进步和数字化转型驱动下，亚太地区经济保持快速增长，依然是
+Spotify联合首席执行官亚历克斯·诺斯特伦为公司布局人工智能生成音乐业务作出辩护，他表示，合规管控下的相关产品，要优于目前网络上泛滥的、缺乏监管的劣质AI音乐内容。 诺斯特伦在接受采访时谈及各类AI音乐制作工具时称：“市面上出现了大量无序开发的相关产品。”他表示，Spotify希望成为行业内合法合规、规范运营的一方。 本周四，Spotify与环球音乐集团达成合作。根据协议，
 
 ## 正文
 
-中新社北京6月12日电 中国财政部11日至12日在四川成都举办亚太经合组织(APEC)财政高官会。
+Spotify联合首席执行官亚历克斯·诺斯特伦为公司布局人工智能生成音乐业务作出辩护，他表示，合规管控下的相关产品，要优于目前网络上泛滥的、缺乏监管的劣质AI音乐内容。
 
-会议围绕全球和区域经济金融形势、支持民生发展的财政政策、数字基础设施融资、普惠金融和促进APEC青年财经人才交流合作等议题进行了深入讨论。
+诺斯特伦在接受采访时谈及各类AI音乐制作工具时称：“市面上出现了大量无序开发的相关产品。
 
-据中国财政部12日公布的新闻稿，中国财政部副部长廖岷出席会议并致开幕辞。
+”他表示，Spotify希望成为行业内合法合规、规范运营的一方。
 
-廖岷表示，在科技进步和数字化转型驱动下，亚太地区经济保持快速增长，依然是全球经济的重要引擎。
+本周四，Spotify与环球音乐集团达成合作。
 
-当前区域经济面临多重挑战，APEC经济体应坚持多边主义，深化宏观经济政策沟通协调，加快推进经济转型，维护区域产业链供应链稳定畅通，共同推动亚太经济长期可持续增长。
+根据协议，平台用户可利用AI对签约艺人的歌曲进行翻唱与二次混音创作。
 
-廖岷介绍了中国经济运行情况，并强调在“十五五”时期，中国将持续推动高质量发展和高水平开放，进一步扩大内需、提振消费，与世界共享中国发展机遇和红利，共建亚太命运共同体。
+诺斯特伦在面向投资者的发布会中表示，这项增值付费功能能让一首歌在Spotify应用内衍生出上万首改编作品。
 
-各方高度肯定中国作为今年APEC东道主所发挥的引领作用，积极评价财金渠道取得的进展。
+此番一系列消息公布后，Spotify股价大涨18%。
 
-(完)
+两家公司暂未披露该功能在标准订阅套餐之外的具体加价金额。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 04:30 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 04:28 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 04:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 04:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 04:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 04:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 04:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 04:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 04:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 04:22 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 04:37 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 04:38 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 04:29 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 04:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 04:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 04:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 04:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 04:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 04:41 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 04:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 04:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 04:21 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/9741432154.shtml)
-- 2026-06-30 04:14 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/627194200.shtml)
-- 2026-06-30 04:38 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/39732871158.shtml)
-- 2026-06-30 04:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/22149.shtml)
-- 2026-06-30 04:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/6128939115.shtml)
-- 2026-06-30 04:32 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/2199942189.shtml)
-- 2026-06-30 04:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/727632788.shtml)
-- 2026-06-30 04:30 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/858489.shtml)
-- 2026-06-30 04:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/728568670734.shtml)
-- 2026-06-30 04:30 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/0161723.shtml)
-- 2026-06-30 04:41 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/71188.shtml)
-- 2026-06-30 04:19 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/3571709794.shtml)
-- 2026-06-30 04:15 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/3803554456.shtml)
-- 2026-06-30 04:36 - [日本反击率先破门](http://www.blog.minike.top/Article/details/919317303867.shtml)
-- 2026-06-30 04:16 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/19667.shtml)
+- 2026-06-30 04:41 - [TOP Prada](http://www.share.minike.top/Article/details/67044799411.shtml)
+- 2026-06-30 04:39 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/511765523.shtml)
+- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/2626708.shtml)
+- 2026-06-30 04:32 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/30005007.shtml)
+- 2026-06-30 04:39 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/9774745574.shtml)
+- 2026-06-30 04:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/585081962146.shtml)
+- 2026-06-30 04:45 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/8028852602.shtml)
+- 2026-06-30 04:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/242358.shtml)
+- 2026-06-30 04:39 - [金刚川](https://www.blog.minike.top/Article/details/10870350242.shtml)
+- 2026-06-30 04:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/660850.shtml)
+- 2026-06-30 04:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/636349009.shtml)
+- 2026-06-30 04:38 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/42020780111.shtml)
+- 2026-06-30 04:27 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/1225638.shtml)
+- 2026-06-30 04:32 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/021914.shtml)
+- 2026-06-30 04:22 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/40003934798.shtml)

@@ -1,56 +1,53 @@
-# 短剧“完片保”落地浙江横店
+# 伊朗议员称潜在的霍尔木兹海峡协议对伊朗将是“纯粹的损失”
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-来源：中国银行保险报 记者：房文彬 近日，太保产险浙江分公司携手工商银行浙江省分行，在横店推出全国首单“保险+信贷”模式的短剧制作“完片保”，为东阳极趣文化科技有限公司提供覆盖项目全周期的风险保障与综合金融服务，为金融支持文化产业高质量发展再添创新实践。 当前，短剧产业呈爆发式增长。为护航产业可持续健康发展，浙江金融监管局等四部门联合印发《关于推进影视保险服务试点工作的通知》，
+一名伊朗资深议员表示，一项涉及霍尔木兹海峡的潜在协议有悖于伊朗的国家利益。 保守派议员、伊朗对美谈判团队成员马哈茂德．纳巴维安（Mahmoud Nabavian）在X上发帖称，如果一项协议仅以重新开放海峡来换取解除封锁，却不保障伊朗的主权或过境费，缺乏明确补偿，且在解除制裁方面模棱两可，那么接受任何此类协议都将是“纯粹的损失”。 他补充说，如果这项潜在协议还规定，伊朗在发电和放
 
 ## 正文
 
-来源：中国银行保险报 记者：房文彬 近日，太保产险浙江分公司携手工商银行浙江省分行，在横店推出全国首单“保险+信贷”模式的短剧制作“完片保”，为东阳极趣文化科技有限公司提供覆盖项目全周期的风险保障与综合金融服务，为金融支持文化产业高质量发展再添创新实践。
+一名伊朗资深议员表示，一项涉及霍尔木兹海峡的潜在协议有悖于伊朗的国家利益。
 
-当前，短剧产业呈爆发式增长。
+保守派议员、伊朗对美谈判团队成员马哈茂德．纳巴维安（Mahmoud Nabavian）在X上发帖称，如果一项协议仅以重新开放海峡来换取解除封锁，却不保障伊朗的主权或过境费，缺乏明确补偿，且在解除制裁方面模棱两可，那么接受任何此类协议都将是“纯粹的损失”。
 
-为护航产业可持续健康发展，浙江金融监管局等四部门联合印发《关于推进影视保险服务试点工作的通知》，推动影视保险服务试点。
+他补充说，如果这项潜在协议还规定，伊朗在发电和放射性药物生产等领域的和平核利用必须获得美国批准，那么这将有悖于国家利益。
 
-太保产险浙江分公司积极响应，主动参与横店影视文化产业集聚区管委会组织的专题调研座谈会，与横店影视城运营方、微短剧制作企业面对面交流，深入摸排影视制作拍摄、演艺人员意外和信贷融资保障等全产业链的风险隐患与保障诉求，携手工商银行浙江省分行定制“保险+信贷”综合金融服务，落地短剧制作“完片保”影视综合保险。
+这同时也违反了伊朗领导层和最高国家安全委员会设定的条件。
 
-据悉，该产品精准适配短剧产业的生产特点，为制片方在财产损失、制作中断以及因造成第三方财产损害而依法承担的经济赔偿责任等提供全面保障。
-
-同时，创新采用“保险+信贷”联动模式，通过保险增信有效破解轻资产型影视企业的融资瓶颈，打通“风险保障+金融授信”一体化服务链条，成为政、银、保协同服务文化产业的标志性实践。
-
-太保产险浙江分公司表示，将不断完善影视保险产品体系，积极探索更多金融与文化产业融合的新模式，为文化产业高质量发展注入动能。
-
-编辑：徐宁责任编辑：秦艺
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 04:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 04:35 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 04:14 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 04:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 04:36 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 04:12 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 04:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 04:18 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 04:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 04:24 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 04:24 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 04:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 04:38 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 04:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 04:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 04:45 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 04:31 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 04:33 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 04:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 04:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/6113461.shtml)
-- 2026-06-30 04:31 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/37504022.shtml)
-- 2026-06-30 04:13 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/30733777601.shtml)
-- 2026-06-30 04:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/46509.shtml)
-- 2026-06-30 04:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/67060468.shtml)
-- 2026-06-30 04:32 - [扬名立万](https://www.share.minike.top/Article/details/286116639.shtml)
-- 2026-06-30 04:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/78337722842.shtml)
-- 2026-06-30 04:29 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/507179262649.shtml)
-- 2026-06-30 04:18 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/256519.shtml)
-- 2026-06-30 04:32 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/5394597.shtml)
-- 2026-06-30 04:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/74125.shtml)
-- 2026-06-30 04:34 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/56749276.shtml)
-- 2026-06-30 04:18 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/82635.shtml)
-- 2026-06-30 04:32 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/2262705837.shtml)
-- 2026-06-30 04:40 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/9172641571.shtml)
+- 2026-06-30 04:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/90962846.shtml)
+- 2026-06-30 04:20 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/30587.shtml)
+- 2026-06-30 04:41 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/32481.shtml)
+- 2026-06-30 04:47 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/167405641.shtml)
+- 2026-06-30 04:37 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/495109120.shtml)
+- 2026-06-30 04:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/07725.shtml)
+- 2026-06-30 04:22 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/23297361475.shtml)
+- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/3241155.shtml)
+- 2026-06-30 04:19 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3125467523.shtml)
+- 2026-06-30 04:36 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/40860.shtml)
+- 2026-06-30 04:32 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/1288340.shtml)
+- 2026-06-30 04:24 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/051419869278.shtml)
+- 2026-06-30 04:18 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/396340.shtml)
+- 2026-06-30 04:39 - [美股](http://www.share.minike.top/Article/details/66976743154.shtml)
+- 2026-06-30 04:33 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/4887185119.shtml)

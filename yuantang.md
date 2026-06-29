@@ -1,58 +1,58 @@
-# 长安期货屈亚娟：宏观压力与供给支撑并存 铜价上下空间或有限
+# 文化产业版权金融大会在深圳举行
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-5月中旬后铜价整体先升后降，6月初的高点低于5月中，且近日低点有所下移，宏观系统性压力占据主导，美元走强而金银走弱拖累铜价，不过因铜的商品属性在，使其调整幅度有限。 警惕宏观流动性风险 地缘方面，6月11日，中东局势上演戏剧性反转，特朗普取消打击伊朗计划，并称美伊协议进入最后定稿阶段，有望本周末签署，但需注意反复的可能。国际油价较前期高位有所回落，但其引发的通胀升温的数据才逐步
+中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办
 
 ## 正文
 
-5月中旬后铜价整体先升后降，6月初的高点低于5月中，且近日低点有所下移，宏观系统性压力占据主导，美元走强而金银走弱拖累铜价，不过因铜的商品属性在，使其调整幅度有限。
+中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
 
-警惕宏观流动性风险 地缘方面，6月11日，中东局势上演戏剧性反转，特朗普取消打击伊朗计划，并称美伊协议进入最后定稿阶段，有望本周末签署，但需注意反复的可能。
+第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。
 
-国际油价较前期高位有所回落，但其引发的通胀升温的数据才逐步显现，美国5月CPI同比上涨4.2%，核心CPI同比上涨2.9%，PPI同比涨幅达到6.5%；与此同时，就业市场数据还较好，5月非农就业人口新增17.2万人，远超市场预期，失业率持平于4.3%，3月和4月就业人数上修9.3万人；通胀与就业的叠加，使得美联储年内加息概率提升，美元和美债收益率走强，宏观流动性风险加剧。
+其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办的“湾区之眼”分会场主题活动“文化产业版权金融大会”在深圳举行。
 
-欧央行已有所行动，自2023年9月以来首次加息。
+此次活动汇聚了版权金融领域各方智慧与力量，通过政策解读、主题演讲、实践分享、项目对接等多种形式，为推动版权从“知产”向“资产”转化、共同构建版权金融新生态，以版权金融推动文化产业高质量发展提供了新思路、新路径。
 
-短期需要关注美伊协议能否达成及霍尔木兹海峡通航情况，若局势缓和，通胀与加息压力或可缓解。
+活动现场，中国人民大学国家版权贸易基地与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
 
-另外，本月中旬将迎来美联储新主席沃什的首次会议，关注其政策倾向、点阵图等。
+北方国家版权交易中心与工商银行大连分行签署战略合作协议，携手推进版权金融产品落地实施。
 
-铜矿供应持续偏紧 由于近些年资本开支不足、矿石品位下滑，及冶炼产能扩张等因素影响，长期铜矿供应紧张已成市场普遍共识，矿端越紧张，矿的加工费就越低。
+此外，在版权融资项目路演环节，湖南漫联卡通文化传媒有限公司、深圳市创梦天地科技有限公司、大连天虹影视文化服务有限公司、大爱时光(广州)科技有限公司、魔萌动漫文化传播(深圳)有限公司、深圳华实科技文化有限公司等六家企业先后登台，分别就“虹猫蓝兔”国民IP重启、《地铁跑酷》游戏与中国文化融合、纪录电影《主场》、中国童话王国原创IP、“魔鬼猫”原创潮流IP以及“宾至通”智慧物业解决方案等优质版权融资项目进行了展示。
 
-2026年度铜精矿长单加工费降为0美元/吨，SMM现货进口矿加工费TC指数自去年后降至负值，今年3月后更是加速下行，上周降到-113.83美元/干吨。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 04:41 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 04:39 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 04:16 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 04:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 04:34 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 04:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 04:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 04:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 04:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 04:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 04:33 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 04:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 04:29 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 04:19 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 04:36 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 04:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 04:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 04:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 04:22 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 04:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 04:38 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/239541069997.shtml)
-- 2026-06-30 04:31 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/7860028.shtml)
-- 2026-06-30 04:16 - [巴西扳平比分](https://www.share.minike.top/Article/details/4940876556.shtml)
-- 2026-06-30 04:24 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/47241697804.shtml)
-- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/583081.shtml)
-- 2026-06-30 04:31 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/79534546679.shtml)
-- 2026-06-30 04:22 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/428277.shtml)
-- 2026-06-30 04:37 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/70419805209.shtml)
-- 2026-06-30 04:21 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/93602.shtml)
-- 2026-06-30 04:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/26980.shtml)
-- 2026-06-30 04:24 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/52351594.shtml)
-- 2026-06-30 04:32 - [世界杯](https://www.blog.minike.top/Article/details/83497535266.shtml)
-- 2026-06-30 04:35 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/200785.shtml)
-- 2026-06-30 04:35 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/7004066.shtml)
-- 2026-06-30 04:22 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/589007.shtml)
+- 2026-06-30 04:25 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/656209.shtml)
+- 2026-06-30 04:32 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/009250713.shtml)
+- 2026-06-30 04:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/0558880.shtml)
+- 2026-06-30 04:40 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/76302.shtml)
+- 2026-06-30 04:47 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/67901714.shtml)
+- 2026-06-30 04:47 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/7119322.shtml)
+- 2026-06-30 04:35 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/707181.shtml)
+- 2026-06-30 04:44 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/9737309180.shtml)
+- 2026-06-30 04:42 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/86701.shtml)
+- 2026-06-30 04:20 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/8741903386.shtml)
+- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/7641268245.shtml)
+- 2026-06-30 04:25 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/319226920761.shtml)
+- 2026-06-30 04:43 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/43792635.shtml)
+- 2026-06-30 04:26 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/96794327439.shtml)
+- 2026-06-30 04:25 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/3346077.shtml)

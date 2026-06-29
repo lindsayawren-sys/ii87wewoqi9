@@ -1,53 +1,46 @@
-# 亚洲股市高开高走 日韩股市强劲上涨 此前美国和伊朗达成协议
+# 伊朗媒体披露更多潜在谅解备忘录内容
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。韩国KOSPI指数一度飙升5.2%。日经225指数上涨幅度高达3%。日本东证指数逾2%。责任编辑：王永生
+发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。
-
-韩国KOSPI指数一度飙升5.2%。
-
-日经225指数上涨幅度高达3%。
-
-日本东证指数逾2%。
-
-责任编辑：王永生
+发布时间：2026年05月25日 10:54 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 04:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 04:25 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 04:18 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 04:13 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 04:14 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 04:26 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 04:20 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 04:19 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 04:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 04:25 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 04:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 04:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 04:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 04:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 04:44 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 04:29 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 04:24 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 04:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 04:23 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 04:23 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 04:40 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 04:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 04:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 04:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/3618465912.shtml)
-- 2026-06-30 04:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/587654901.shtml)
-- 2026-06-30 04:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/61787123241.shtml)
-- 2026-06-30 04:28 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/57573282421.shtml)
-- 2026-06-30 04:30 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/9569583986.shtml)
-- 2026-06-30 04:33 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/5669167.shtml)
-- 2026-06-30 04:39 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/2109715031.shtml)
-- 2026-06-30 04:19 - [世界杯](http://www.blog.kurohicncr.top/Article/details/93586.shtml)
-- 2026-06-30 04:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/332268934817.shtml)
-- 2026-06-30 04:26 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/01794008766.shtml)
-- 2026-06-30 04:39 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/351225666.shtml)
-- 2026-06-30 04:17 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/3330061985.shtml)
-- 2026-06-30 04:41 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/848970380436.shtml)
-- 2026-06-30 04:21 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/61734.shtml)
-- 2026-06-30 04:14 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/98663931.shtml)
+- 2026-06-30 04:26 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/56797964816.shtml)
+- 2026-06-30 04:45 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/1358300089.shtml)
+- 2026-06-30 04:43 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/2842072052.shtml)
+- 2026-06-30 04:34 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/6753112.shtml)
+- 2026-06-30 04:38 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/7286371913.shtml)
+- 2026-06-30 04:46 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/5254365.shtml)
+- 2026-06-30 04:27 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/49568182568.shtml)
+- 2026-06-30 04:40 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/063087777.shtml)
+- 2026-06-30 04:24 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/030571.shtml)
+- 2026-06-30 04:37 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/768797865079.shtml)
+- 2026-06-30 04:41 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/44579.shtml)
+- 2026-06-30 04:42 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/1272531.shtml)
+- 2026-06-30 04:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/513880427150.shtml)
+- 2026-06-30 04:27 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/897100.shtml)
+- 2026-06-30 04:25 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/0707043.shtml)

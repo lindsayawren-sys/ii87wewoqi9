@@ -1,59 +1,61 @@
-# 荔枝“小年”如何破局？广东茂名，“荔”挽狂澜！
+# 网友戏称“大A仅此一韬”，孰料尾盘果真涨停
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-今年全国荔枝预计产量约231万吨，较去年减产约37%，广东是全国荔枝种植第一大省，产量缩减近四成。其中，“桂味”“糯米糍”等品种受“大小年”现象叠加暖冬影响，产能仅为去年的5%左右，产地价格上涨约4倍，零售价较去年上涨5倍以上。记者走访广东深圳、茂名等地了解到，减产导致部分品种货源紧缺，销售期缩短，而“妃子笑”“白糖罂”等早熟品种受影响较小，价格相对平稳。 荔枝“小年”部分品种
+专题：A股上涨行情未结束 均衡配置正当时 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，A股主要指数盘中下探后有所回升，截至收盘，上证指数跌0.17%，深证成指涨0.12%，创业板指涨0.54%，科创综指跌1.42%。 从板块来看，PCB概念反复走强，生益电子涨停，沪电股份盘中触及涨停；电力板块表现活跃，华电能源2连板，上海电力涨停；有色金属板块
 
 ## 正文
 
-今年全国荔枝预计产量约231万吨，较去年减产约37%，广东是全国荔枝种植第一大省，产量缩减近四成。
+专题：A股上涨行情未结束 均衡配置正当时 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中，“桂味”“糯米糍”等品种受“大小年”现象叠加暖冬影响，产能仅为去年的5%左右，产地价格上涨约4倍，零售价较去年上涨5倍以上。
+今天，A股主要指数盘中下探后有所回升，截至收盘，上证指数跌0.17%，深证成指涨0.12%，创业板指涨0.54%，科创综指跌1.42%。
 
-记者走访广东深圳、茂名等地了解到，减产导致部分品种货源紧缺，销售期缩短，而“妃子笑”“白糖罂”等早熟品种受影响较小，价格相对平稳。
+从板块来看，PCB概念反复走强，生益电子涨停，沪电股份盘中触及涨停；电力板块表现活跃，华电能源2连板，上海电力涨停；有色金属板块震荡拉升，中国铝业、招金黄金涨停；先进封装概念震荡回升，长电科技2连板，通富微电盘中触及涨停。
 
-荔枝“小年”部分品种减产 有单无货、价格上浮 广东深圳的西丽果场是当地知名的传统荔枝种植园。
+存储芯片概念震荡走弱，大普微、同有科技、朗科科技、江波龙、德明利纷纷下挫。
 
-往年6月中旬，山头上早已挤满了前来采摘的消费者，但今年枝头挂果稀少，果园里比较安静。
+值得一提的是，雄韬股份尾盘涨停，成交额为17.8亿元。
 
-果场负责人介绍，这就是典型的荔枝“大小年”现象。
+有网友称其为“玄学概念股”，在股吧发帖称：“大A仅此一‘韬’，没想到今天真的封板了”。
 
-大年超负荷挂果，大量消耗树体养分，下一年自然进入恢复期，就会出现花少、果少的小年局面。
+5月25日，华为公司发表了韬（τ）定律，提出以“时间（τ）缩微”替代“几何缩微”，作为半导体与电子系统演进的新指导原则，引爆市场相关概念。
 
-2025年是达到历史峰值的荔枝大年，再叠加暖冬气温偏高，不利于果树开花，今年“桂味”“糯米糍”等荔枝品种挂果偏少。
+事实上，雄韬股份也涉及算力相关概念。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 04:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 04:31 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 04:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 04:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 04:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 04:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 04:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 04:26 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 04:23 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 04:17 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 04:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 04:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 04:42 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 04:23 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 04:27 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 04:29 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 04:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 04:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 04:32 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 04:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 04:20 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 04:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 04:40 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 04:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 04:44 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 04:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/888151967.shtml)
-- 2026-06-30 04:37 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/472517788701.shtml)
-- 2026-06-30 04:19 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/99669539.shtml)
-- 2026-06-30 04:24 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/7499157.shtml)
-- 2026-06-30 04:18 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/529232.shtml)
-- 2026-06-30 04:41 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/1717934565.shtml)
-- 2026-06-30 04:21 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/75835275.shtml)
-- 2026-06-30 04:14 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2475833.shtml)
-- 2026-06-30 04:12 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/74272230523.shtml)
-- 2026-06-30 04:38 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/65668741286.shtml)
-- 2026-06-30 04:38 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/687144.shtml)
-- 2026-06-30 04:20 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/28731333.shtml)
-- 2026-06-30 04:12 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/382165499.shtml)
-- 2026-06-30 04:24 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/75839897242.shtml)
-- 2026-06-30 04:12 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/37490.shtml)
+- 2026-06-30 04:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/02780830.shtml)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/85727212942.shtml)
+- 2026-06-30 04:29 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/7369904.shtml)
+- 2026-06-30 04:36 - [《共患难》](https://www.share.minike.top/Article/details/533756.shtml)
+- 2026-06-30 04:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/720466122181.shtml)
+- 2026-06-30 04:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/5940128.shtml)
+- 2026-06-30 04:35 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/732064334440.shtml)
+- 2026-06-30 04:29 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/5764136.shtml)
+- 2026-06-30 04:32 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/089329885.shtml)
+- 2026-06-30 04:40 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/201062546.shtml)
+- 2026-06-30 04:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/314857810.shtml)
+- 2026-06-30 04:19 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/0037622253.shtml)
+- 2026-06-30 04:21 - [刘念回应](https://www.blog.minike.top/Article/details/304243.shtml)
+- 2026-06-30 04:36 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/409651693.shtml)
+- 2026-06-30 04:42 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/515335.shtml)

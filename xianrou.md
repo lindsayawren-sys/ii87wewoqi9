@@ -1,57 +1,49 @@
-# 斯里兰卡茶商在南博会找到中国市场“密码”
+# 明确超龄劳动者权益 首部专门规章7月1日起施行
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新社昆明6月13日电 (记者 蒋雪林)“我们斯里兰卡的制茶工艺，150年没变过，而中国的红茶工艺已经发生了巨大变化。”在正于昆明举行的第10届中国—南亚博览会(简称南博会)上，斯里兰卡茶商阿努拉说，“南博会不仅帮我们把茶叶卖到中国，更重要的是给我们斯里兰卡商人带来了创新灵感。” 阿努拉是南博会的资深参展商。他说，“首届斯里兰卡参展企业只有三四十家，今年来了95家企业。”参展产
+5月25日，人力资源社会保障部等5部门对外发布《超龄劳动者基本权益保障暂行规定》，自7月1日起施行。这是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。 记者：张晓洁
 
 ## 正文
 
-中新社昆明6月13日电 (记者 蒋雪林)“我们斯里兰卡的制茶工艺，150年没变过，而中国的红茶工艺已经发生了巨大变化。
+5月25日，人力资源社会保障部等5部门对外发布《超龄劳动者基本权益保障暂行规定》，自7月1日起施行。
 
-”在正于昆明举行的第10届中国—南亚博览会(简称南博会)上，斯里兰卡茶商阿努拉说，“南博会不仅帮我们把茶叶卖到中国，更重要的是给我们斯里兰卡商人带来了创新灵感。
+这是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。
 
-” 阿努拉是南博会的资深参展商。
-
-他说，“首届斯里兰卡参展企业只有三四十家，今年来了95家企业。
-
-”参展产品也从最初的茶叶、宝石，扩展到海产品、服装、香料等多个行业。
-
-阿努拉介绍，斯里兰卡年产茶叶约33万吨，去年出口到中国约1万吨。
-
-“中国市场潜力还很大，去年出口到中国的斯里兰卡茶叶中，有20%到30%用在新式茶饮。
-
-” “中国人喝茶很讲究茶形，要先看茶形，再闻香，进而品味。
+记者：张晓洁
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 04:17 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 04:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 04:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 04:34 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 04:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 04:27 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 04:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 04:33 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 04:27 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 04:32 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 04:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 04:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 04:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 04:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 04:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 04:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 04:20 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 04:37 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 04:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 04:30 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 04:27 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/953868658790.shtml)
-- 2026-06-30 04:17 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/257308080.shtml)
-- 2026-06-30 04:21 - [千香](https://www.blog.kurohicncr.top/Article/details/4304806458.shtml)
-- 2026-06-30 04:16 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/54558879400.shtml)
-- 2026-06-30 04:12 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/65586.shtml)
-- 2026-06-30 04:26 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/880137057.shtml)
-- 2026-06-30 04:25 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/178864.shtml)
-- 2026-06-30 04:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/01247.shtml)
-- 2026-06-30 04:33 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/58301911817.shtml)
-- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/48860509460.shtml)
-- 2026-06-30 04:19 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/33689725.shtml)
-- 2026-06-30 04:34 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/16735036.shtml)
-- 2026-06-30 04:24 - [天道](http://www.share.kurohicncr.top/Article/details/28927.shtml)
-- 2026-06-30 04:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/197591576.shtml)
-- 2026-06-30 04:29 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/789140730471.shtml)
+- 2026-06-30 04:20 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/30601367.shtml)
+- 2026-06-30 04:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/32683422.shtml)
+- 2026-06-30 04:33 - [蔚来车主罚站](https://www.share.minike.top/Article/details/20428387896.shtml)
+- 2026-06-30 04:47 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/04949184186.shtml)
+- 2026-06-30 04:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/341058263797.shtml)
+- 2026-06-30 04:23 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4330545.shtml)
+- 2026-06-30 04:46 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/065512.shtml)
+- 2026-06-30 04:19 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/9305792586.shtml)
+- 2026-06-30 04:32 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/352597579.shtml)
+- 2026-06-30 04:29 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/105310172000.shtml)
+- 2026-06-30 04:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/805985770768.shtml)
+- 2026-06-30 04:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/64525565651.shtml)
+- 2026-06-30 04:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/35815498.shtml)
+- 2026-06-30 04:40 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/11723282156.shtml)
+- 2026-06-30 04:43 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/73915122.shtml)

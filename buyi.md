@@ -1,57 +1,56 @@
-# 2026“同心·共铸中国心”拉萨行媒体发布会在北京举行
+# 经港珠澳大桥珠海公路口岸出入境港澳单牌车总量突破1000万辆次
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月14日电 (记者 刘大炜)2026“同心·共铸中国心”拉萨行和青藏铁路沿线医疗主题公益活动媒体发布会13日于北京市怀柔区北房镇四时里举行。活动现场聚焦西藏拉萨及青藏铁路沿线地区医疗健康事业发展，正式发布2026年度公益行动整体规划。 本次活动由北京同心共铸公益基金会主办。同心共铸中国心组委会执行主席金大鹏致辞表示，“同心·共铸中国心”项目始终坚守公益初心，深耕西藏
+据珠海边检总站港珠澳大桥边检站数据统计，自2023年“澳车北上”“港车北上”政策相继实施以来，截至今年5月25日上午11时50分，经港珠澳大桥珠海公路口岸出入境港澳单牌车总量正式突破1000万辆次，人流、物流、资金流加速流通，自驾“北上”已成为港澳居民融入国家发展大局、共享粤港澳大湾区政策红利的主流出行方式。“澳车北上”“港车北上”政策不设投资纳税限制，申请流程简便，出行范围广
 
 ## 正文
 
-中新网北京6月14日电 (记者 刘大炜)2026“同心·共铸中国心”拉萨行和青藏铁路沿线医疗主题公益活动媒体发布会13日于北京市怀柔区北房镇四时里举行。
+据珠海边检总站港珠澳大桥边检站数据统计，自2023年“澳车北上”“港车北上”政策相继实施以来，截至今年5月25日上午11时50分，经港珠澳大桥珠海公路口岸出入境港澳单牌车总量正式突破1000万辆次，人流、物流、资金流加速流通，自驾“北上”已成为港澳居民融入国家发展大局、共享粤港澳大湾区政策红利的主流出行方式。
 
-活动现场聚焦西藏拉萨及青藏铁路沿线地区医疗健康事业发展，正式发布2026年度公益行动整体规划。
+“澳车北上”“港车北上”政策不设投资纳税限制，申请流程简便，出行范围广，自落地实施以来广受港澳居民欢迎，备案申请情况持续火热。
 
-本次活动由北京同心共铸公益基金会主办。
+据边检部门统计，截至今年5月25日，完成“澳车北上”“港车北上”边检备案的司机数量超过22.8万人，备案车辆超过19.2万辆。
 
-同心共铸中国心组委会执行主席金大鹏致辞表示，“同心·共铸中国心”项目始终坚守公益初心，深耕西藏及青藏铁路沿线地区多年，始终聚焦高原群众急难愁盼的医疗健康问题。
+政策红利持续释放，通关流程不断优化，配套机制更为完善，自驾“北上”正成为越来越多港澳居民跨境出行的首选方式之一，经口岸出入境港澳单牌车数量实现快速增长。
 
-2026年度公益行动将持续聚焦高原医疗薄弱环节，以专业的医疗公益服务赋能民族地区卫生事业高质量发展，用爱心与责任搭建民族团结、健康帮扶的“连心桥”。
+据港珠澳大桥边检站统计，2025年，经边检部门查验出入境港澳单牌车总量已达到380万辆次，是2023年政策实施首年的2.7倍，年均增速超过60%。
 
-会上，北京同心共铸公益基金会副秘书长王帆介绍了2026“同心·共铸中国心”拉萨行和青藏铁路沿线医疗主题公益活动整体工作方案。
+“2026年以来，边检部门查验港澳单牌车数量已超过163万辆次，周末节假日日均达到约1.6万辆次，其中，4月6日清明假期，出入境港澳单牌车单日达到2.28万辆次，刷新政策实施以来单日历史新高。
 
-志愿者代表结合多年高原公益服务经验，围绕高原常见疾病防治、基层医疗能力提升、公益医疗服务优化等话题展开交流，表示将发挥专业优势，投身本年度公益帮扶工作，以专业医术守护高原群众健康。
+”港珠澳大桥边检站副站长张磊表示。
 
-中国西藏文化保护与发展协会副会长安七一作总结发言时指出，医疗健康是民生之本，也是民族地区高质量发展的重要基石。
+“澳车北上”“港车北上”政策大大拓宽了港澳两地居民工作生活空间，选择自驾“北上”到内地旅游探亲、休闲消费、创业置业的港澳居民人数更多，往返频次更密。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 04:29 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 04:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 04:32 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 04:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 04:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 04:18 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 04:35 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 04:34 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 04:35 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 04:26 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 04:29 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 04:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 04:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 04:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 04:44 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 04:30 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 04:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/7790761253.shtml)
-- 2026-06-30 04:12 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/72273.shtml)
-- 2026-06-30 04:21 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/13056.shtml)
-- 2026-06-30 04:34 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/673732.shtml)
-- 2026-06-30 04:35 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/00465433802.shtml)
-- 2026-06-30 04:17 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/7420603692.shtml)
-- 2026-06-30 04:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/99110.shtml)
-- 2026-06-30 04:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/47921015638.shtml)
-- 2026-06-30 04:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/45733.shtml)
-- 2026-06-30 04:33 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/8795098477.shtml)
-- 2026-06-30 04:18 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/18950.shtml)
-- 2026-06-30 04:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/04776833.shtml)
-- 2026-06-30 04:22 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/2023657280.shtml)
-- 2026-06-30 04:30 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/478175.shtml)
-- 2026-06-30 04:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/904956.shtml)
+- 2026-06-30 04:28 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/60967246672.shtml)
+- 2026-06-30 04:47 - [请回答王牌2019](https://www.share.minike.top/Article/details/8918431904.shtml)
+- 2026-06-30 04:22 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/294106605.shtml)
+- 2026-06-30 04:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/0727100.shtml)
+- 2026-06-30 04:28 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/300547347.shtml)
+- 2026-06-30 04:34 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/515915.shtml)
+- 2026-06-30 04:27 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/86751233.shtml)
+- 2026-06-30 04:30 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/1899468.shtml)
+- 2026-06-30 04:26 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/75427678.shtml)
+- 2026-06-30 04:27 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/10493918982.shtml)
+- 2026-06-30 04:33 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/0527169.shtml)
+- 2026-06-30 04:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/10830159092.shtml)
+- 2026-06-30 04:47 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/81576.shtml)
+- 2026-06-30 04:29 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/09861801.shtml)
+- 2026-06-30 04:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/26101205.shtml)

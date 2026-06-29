@@ -1,59 +1,58 @@
-# 第九届“以慈化瓷”两岸陶艺文化交流活动在上海启幕
+# 特朗普要求先签“亚伯拉罕协议” 沙特方面回应
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网上海6月13日电(范宇斌)第九届“以慈化瓷”两岸陶艺文化交流活动13日在上海市虹口区下海庙启幕。本届活动延续十二年两岸文化交流之约，汇聚两岸260余位陶艺家及嘉宾，以陶瓷为纽带，搭建两岸艺术互鉴、民心相通的优质平台。 “以慈化瓷”始创于2014年，是上海知名的常态化两岸陶艺交流品牌。本次活动立足下海庙百年人文底蕴，融合虹口海派开埠文化与滨江地域特色，凝练“瓷之匠心、慈之向
+当地时间25日，据沙特阿拉伯方面消息，就美国总统特朗普呼吁沙特等国在美国与伊朗达成协议前先签署“亚伯拉罕协议”、实现与以色列关系正常化，一名沙特消息人士表示，沙特相关立场没有改变。 这名消息人士表示，沙特在巴勒斯坦问题上的立场没有改变，认为“需要一条不可逆转的巴勒斯坦建国路径”。 沙特方面长期立场指出，沙特多次强调，若巴勒斯坦无法建国，就不会与以色列实现关系正常化。 特朗普当天
 
 ## 正文
 
-中新网上海6月13日电(范宇斌)第九届“以慈化瓷”两岸陶艺文化交流活动13日在上海市虹口区下海庙启幕。
+当地时间25日，据沙特阿拉伯方面消息，就美国总统特朗普呼吁沙特等国在美国与伊朗达成协议前先签署“亚伯拉罕协议”、实现与以色列关系正常化，一名沙特消息人士表示，沙特相关立场没有改变。
 
-本届活动延续十二年两岸文化交流之约，汇聚两岸260余位陶艺家及嘉宾，以陶瓷为纽带，搭建两岸艺术互鉴、民心相通的优质平台。
+这名消息人士表示，沙特在巴勒斯坦问题上的立场没有改变，认为“需要一条不可逆转的巴勒斯坦建国路径”。
 
-“以慈化瓷”始创于2014年，是上海知名的常态化两岸陶艺交流品牌。
+沙特方面长期立场指出，沙特多次强调，若巴勒斯坦无法建国，就不会与以色列实现关系正常化。
 
-本次活动立足下海庙百年人文底蕴，融合虹口海派开埠文化与滨江地域特色，凝练“瓷之匠心、慈之向善、海之包容”内核，塑造“瓷在虹口、慈在下海、情在两岸”的交流特色，为传统陶艺交流融入海派人文特质。
+特朗普当天在社交媒体发文，呼吁参与斡旋美伊谈判的沙特、卡塔尔、埃及、约旦、土耳其和巴基斯坦“立即”加入“亚伯拉罕协议”，并称沙特和卡塔尔应该带头，否则，上述国家不应参与美伊协议斡旋。
 
-本届活动规模再创佳绩，50余位台湾艺术家专程赴沪，参会群体涵盖业界泰斗、资深匠人与青年新锐。
+特朗普还说，如果美伊达成协议，伊朗也应该加入“亚伯拉罕协议”。
 
-新老艺人同台交流、碰撞创意，充分展现中华陶艺代代传承的蓬勃生机，彰显两岸文化交融、民心相通的良好局面。
+“亚伯拉罕协议”是以色列政府同阿联酋、巴林、苏丹、摩洛哥等阿拉伯国家签署的、意在快速推进以色列与阿拉伯国家关系正常化的协议。
 
-上海市政协、上海海外联谊会、上海市台办、虹口区相关负责人及两岸艺术界代表出席开幕式，并寄语深耕陶瓷文化、深化两岸艺术合作，助力中华优秀传统文化传承创新。
+2023年10月新一轮巴以冲突爆发前，美国曾力促沙特与以色列关系正常化。
 
-开幕仪式现场，百余名两岸艺术家捐赠原创陶艺作品，由下海庙永久珍藏，寄托两岸同根同源的深厚情谊。
+冲突爆发后，沙特暂停沙以关系正常化谈判。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 04:34 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 04:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 04:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 04:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 04:13 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 04:22 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 04:12 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 04:33 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 04:18 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 04:37 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 04:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 04:38 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 04:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 04:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 04:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 04:38 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 04:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 04:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 04:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:22 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 04:18 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 04:45 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:29 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/00781.shtml)
-- 2026-06-30 04:12 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/488557618867.shtml)
-- 2026-06-30 04:19 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/73199993.shtml)
-- 2026-06-30 04:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/136444.shtml)
-- 2026-06-30 04:13 - [我和我的家乡](https://www.blog.minike.top/Article/details/12441744.shtml)
-- 2026-06-30 04:23 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/9292815522.shtml)
-- 2026-06-30 04:25 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/836763741.shtml)
-- 2026-06-30 04:38 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/442611.shtml)
-- 2026-06-30 04:15 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/249855722893.shtml)
-- 2026-06-30 04:14 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/270423269249.shtml)
-- 2026-06-30 04:19 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/5618411716.shtml)
-- 2026-06-30 04:22 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/915008105188.shtml)
-- 2026-06-30 04:33 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/02304581.shtml)
-- 2026-06-30 04:25 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/4961920.shtml)
-- 2026-06-30 04:19 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/196433.shtml)
+- 2026-06-30 04:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/627648.shtml)
+- 2026-06-30 04:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/97169138631.shtml)
+- 2026-06-30 04:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/1592289735.shtml)
+- 2026-06-30 04:46 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/0070070435.shtml)
+- 2026-06-30 04:21 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/257082327545.shtml)
+- 2026-06-30 04:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/50624099.shtml)
+- 2026-06-30 04:35 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/26838002712.shtml)
+- 2026-06-30 04:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/817118.shtml)
+- 2026-06-30 04:33 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/622262809003.shtml)
+- 2026-06-30 04:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/51322803235.shtml)
+- 2026-06-30 04:27 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/56385.shtml)
+- 2026-06-30 04:27 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/6680915.shtml)
+- 2026-06-30 04:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/79398971284.shtml)
+- 2026-06-30 04:20 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/228807920287.shtml)
+- 2026-06-30 04:34 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/8100952764.shtml)

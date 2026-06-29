@@ -1,60 +1,60 @@
-# 地平线余凯：主机厂自研是产业规律，供应商要做“偏房丫鬟”等召唤
+# 心相近｜共同铸牢中塞“铁杆友谊”
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，地平线创始人兼CEO余凯出席并演讲。 在回应“智能化时代是否会出现像宁德时代那样利润集中的企业”时，余凯表示，他并没有享受到所谓的暴利。 他提到，任何一个新兴产业在萌芽阶段，供应商体系不成熟、分工不专业、效率不高，因此玩家通常选择垂直整合、自研。“电动汽车的早期也是如此，涉及
+新华社贝尔格莱德5月24日电 心相近｜共同铸牢中塞“铁杆友谊” 新华社记者张远 石中玉 应国家主席习近平邀请，塞尔维亚总统武契奇于5月24日至28日首次对中国进行国事访问。 在两国领导人战略引领下，近年来中塞关系高水平运行。双方坚定支持彼此核心利益和重大关切，政治互信稳固，合作成果丰硕，多边协作紧密，人员往来热络。中塞“铁杆友谊”在两国日益深入人心。 这份“铁杆友谊”，体现在两
 
 ## 正文
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，地平线创始人兼CEO余凯出席并演讲。
+新华社贝尔格莱德5月24日电 心相近｜共同铸牢中塞“铁杆友谊” 新华社记者张远 石中玉 应国家主席习近平邀请，塞尔维亚总统武契奇于5月24日至28日首次对中国进行国事访问。
 
-在回应“智能化时代是否会出现像宁德时代那样利润集中的企业”时，余凯表示，他并没有享受到所谓的暴利。
+在两国领导人战略引领下，近年来中塞关系高水平运行。
 
-他提到，任何一个新兴产业在萌芽阶段，供应商体系不成熟、分工不专业、效率不高，因此玩家通常选择垂直整合、自研。
+双方坚定支持彼此核心利益和重大关切，政治互信稳固，合作成果丰硕，多边协作紧密，人员往来热络。
 
-“电动汽车的早期也是如此，涉及到智能驾驶、智能座舱等事情，市面上没有成熟的供应商，早期只能自研。
+中塞“铁杆友谊”在两国日益深入人心。
 
-” 随着市场发展，专业供应商开始出现，分工逐渐发展，一部分整车厂会发现专业分工效率更高。
+这份“铁杆友谊”，体现在两国元首的高频互动与战略引领中—— 抵达北京之际，武契奇总统在社交媒体上发文表示，习近平主席是塞尔维亚真诚而伟大的朋友。
 
-因为专业供应商可以大量出货，摊薄研发成本，迭代速度更快。
+“我相信，此次访问将进一步加强塞尔维亚与中国之间的联系，开启两国合作新篇章，并对未来产生深远影响。
 
-此外，他提到，现在主机厂坚持自研符合产业规律，“这个阶段本质上不能骂主机厂，只能骂自己，作为供应商不够成熟、效率不够高”。
+” 2024年5月，习近平主席对塞尔维亚进行国事访问，武契奇总统亲赴机场迎接和送别。
 
-如果供应商足够成熟、足够专业、效率足够高，主机厂基于商业原则一定会用。
+访问期间，两国领导人叙友谊、话合作，塞方举办史无前例的盛大欢迎仪式，两位领导人在塞尔维亚大厦平台，向近2万名前来热情欢迎的塞尔维亚民众挥手致意，现场欢呼声、掌声雷鸣般响起，留下难忘瞬间。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 04:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 04:37 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 04:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 04:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 04:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 04:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 04:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 04:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 04:19 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 04:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:21 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 04:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 04:28 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 04:32 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 04:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 04:34 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 04:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 04:36 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 04:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 04:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 04:19 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 04:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 04:22 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 04:33 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 04:24 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/7951259.shtml)
-- 2026-06-30 04:26 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/4476184463.shtml)
-- 2026-06-30 04:20 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/22821426.shtml)
-- 2026-06-30 04:37 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/17680912.shtml)
-- 2026-06-30 04:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/903309299005.shtml)
-- 2026-06-30 04:21 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/758827818265.shtml)
-- 2026-06-30 04:23 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/8091012.shtml)
-- 2026-06-30 04:30 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/80979.shtml)
-- 2026-06-30 04:39 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/056565.shtml)
-- 2026-06-30 04:24 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/23196797.shtml)
-- 2026-06-30 04:27 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/4102080.shtml)
-- 2026-06-30 04:31 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/67013210735.shtml)
-- 2026-06-30 04:18 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/48690659349.shtml)
-- 2026-06-30 04:30 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/540048723.shtml)
-- 2026-06-30 04:39 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/417906604303.shtml)
+- 2026-06-30 04:39 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/259976253123.shtml)
+- 2026-06-30 04:24 - [《贺子珍》](https://www.blog.minike.top/Article/details/406559.shtml)
+- 2026-06-30 04:46 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/2257261.shtml)
+- 2026-06-30 04:35 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/687245.shtml)
+- 2026-06-30 04:18 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/0592201638.shtml)
+- 2026-06-30 04:25 - [扬名立万](http://www.share.minike.top/Article/details/3274667530.shtml)
+- 2026-06-30 04:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/530754819.shtml)
+- 2026-06-30 04:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/16906.shtml)
+- 2026-06-30 04:31 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/439220289.shtml)
+- 2026-06-30 04:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/40945.shtml)
+- 2026-06-30 04:20 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/383603095.shtml)
+- 2026-06-30 04:39 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/747186.shtml)
+- 2026-06-30 04:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/6631900625.shtml)
+- 2026-06-30 04:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/55279241175.shtml)
+- 2026-06-30 04:26 - [日本进球](http://www.blog.minike.top/Article/details/77661516.shtml)

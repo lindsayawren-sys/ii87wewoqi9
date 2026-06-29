@@ -1,60 +1,56 @@
-# 经济日报头版头条：房地产市场筑底回稳态势增强
+# 南宁铁警进校开展“硬核”科普 趣味课堂解锁铁路安全必修课
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-来源：经济日报 一段时间以来，我国房地产市场处于调整周期。今年3月份至今，房地产市场筑底回稳态势增强，这既得益于各地因城施策调整优化相关政策，也源于宏观经济向好对需求形成利好。各地还将进一步挖掘市场潜力，努力稳定房地产市场。 多地市场热度提升 4月份，房地产市场总体上延续了一季度良好态势。住房和城乡建设部政策研究中心副主任浦湛介绍，二手房方面，一线城市继续保持量增价涨，4月份，
+中新网南宁5月25日电(姚鹏鹏)5月26日是全国铁路爱路护路宣传日。近日，南宁铁路公安处乘警支队联合南宁客运段团委、关工委，依托“壮锦乘警服务队”党建品牌，走进北京大学南宁附属实验学校，为200余名学生开展了一场沉浸式铁路安全法治宣讲活动。 此次活动贴合青少年认知规律，摒弃枯燥说教模式，通过实景展示、趣味授课、互动问答等多元化形式，将铁路安全知识、法治常识、文明出行理念融入生动
 
 ## 正文
 
-来源：经济日报 一段时间以来，我国房地产市场处于调整周期。
+中新网南宁5月25日电(姚鹏鹏)5月26日是全国铁路爱路护路宣传日。
 
-今年3月份至今，房地产市场筑底回稳态势增强，这既得益于各地因城施策调整优化相关政策，也源于宏观经济向好对需求形成利好。
+近日，南宁铁路公安处乘警支队联合南宁客运段团委、关工委，依托“壮锦乘警服务队”党建品牌，走进北京大学南宁附属实验学校，为200余名学生开展了一场沉浸式铁路安全法治宣讲活动。
 
-各地还将进一步挖掘市场潜力，努力稳定房地产市场。
+此次活动贴合青少年认知规律，摒弃枯燥说教模式，通过实景展示、趣味授课、互动问答等多元化形式，将铁路安全知识、法治常识、文明出行理念融入生动课堂，让安全法治理念根植青少年心中。
 
-多地市场热度提升 4月份，房地产市场总体上延续了一季度良好态势。
+活动现场，青年乘警带来了伸缩警棍、催泪喷射器等常用警用装备，平日里仅在影视画面中出现的警务装备悉数亮相，瞬间吸引了同学们的目光。
 
-住房和城乡建设部政策研究中心副主任浦湛介绍，二手房方面，一线城市继续保持量增价涨，4月份，北京、上海二手住宅成交量分别约为1.8万套、2.5万套，同比增长约15%、25%；一线城市二手住宅价格环比继续保持上涨。
+乘警现场逐一展示装备用途、规范使用场景及安全防护原理，同时结合装备实操讲解铁路治安防护、违法违规行为处置相关知识，让大家近距离感受铁路公安的硬核守护，直观认识遵纪守法、爱护铁路设施的重要意义，进一步树立了同学们敬畏法律、敬畏规则的意识。
 
-据有关市场机构统计，成交量增长的同时，部分城市二手房存量挂牌套数持续下降，到4月底，北京、上海头部中介二手房存量挂牌套数较去年的高点分别下降约14%、23%，表明二手房市场供求关系持续修复，支撑价格稳定回升的力量进一步增强。
+课堂上，民警化身安全讲师，将法律条文转化为通俗易懂的“安全秘籍”，精准聚焦青少年日常生活和出行场景开展普法宣讲。
 
-新房方面，4月份，一线城市新建商品住宅价格环比继续保持上涨，70个大中城市中有21个城市新建商品住宅价格环比上涨或持平，数量较3月份有明显增加。
+针对校园安全，开设反霸凌小课堂，引导同学们团结友善、和睦相处，学会自我保护的同时，勇敢向霸凌行为说“不”。
 
-供给端主动控增量，新开工面积收缩调整，反映库存的商品房待售面积连续2个月下降，4月份较2月份下降超过2000万平方米，供求关系进一步修复和改善。
+针对青少年网络安全，民警通过普及防诈知识，详细拆解了针对未成年人的各类诈骗套路，提醒大家不轻信陌生信息、不随意转账消费，守护个人财产安全。
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 04:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 04:13 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 04:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 04:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 04:18 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 04:28 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 04:39 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 04:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 04:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 04:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 04:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 04:17 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 04:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 04:32 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 04:28 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 04:47 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 04:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 04:20 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 04:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 04:46 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 04:25 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 04:19 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 04:47 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/313311140308.shtml)
-- 2026-06-30 04:14 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/82010.shtml)
-- 2026-06-30 04:34 - [起风了](https://www.share.minike.top/Article/details/4569939000.shtml)
-- 2026-06-30 04:15 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/8435377.shtml)
-- 2026-06-30 04:14 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/6889082010.shtml)
-- 2026-06-30 04:23 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/091246.shtml)
-- 2026-06-30 04:18 - [周生如故](http://www.blog.minike.top/Article/details/109984.shtml)
-- 2026-06-30 04:35 - [扬名立万](https://www.blog.minike.top/Article/details/0574238.shtml)
-- 2026-06-30 04:13 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/6267413239.shtml)
-- 2026-06-30 04:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/1771409.shtml)
-- 2026-06-30 04:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/8084153.shtml)
-- 2026-06-30 04:25 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/95048139982.shtml)
-- 2026-06-30 04:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/61497.shtml)
-- 2026-06-30 04:17 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/164957.shtml)
-- 2026-06-30 04:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/8650849079.shtml)
+- 2026-06-30 04:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/620385509.shtml)
+- 2026-06-30 04:41 - [《共患难》](http://www.share.kurohicncr.top/Article/details/30932791819.shtml)
+- 2026-06-30 04:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/93952717.shtml)
+- 2026-06-30 04:47 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/7580584.shtml)
+- 2026-06-30 04:18 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/22140765581.shtml)
+- 2026-06-30 04:19 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/64698.shtml)
+- 2026-06-30 04:42 - [请回答王牌2019](https://www.share.minike.top/Article/details/437745.shtml)
+- 2026-06-30 04:37 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/783768682.shtml)
+- 2026-06-30 04:25 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/47496341584.shtml)
+- 2026-06-30 04:42 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/8211394.shtml)
+- 2026-06-30 04:31 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/4796851769.shtml)
+- 2026-06-30 04:18 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/547515491.shtml)
+- 2026-06-30 04:22 - [TOP Prada](https://www.share.minike.top/Article/details/64874179775.shtml)
+- 2026-06-30 04:25 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/953027530075.shtml)
+- 2026-06-30 04:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/31575559022.shtml)

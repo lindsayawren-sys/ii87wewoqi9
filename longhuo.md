@@ -1,59 +1,59 @@
-# 上半年A股11家上市公司退市 律师提醒：受损股民可索赔
+# 农业银行全力做好重庆、安徽、广西多地防汛救灾金融服务保障
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 随着退市新规发力，A股市场的优胜劣汰机制显现出前所未有的威力。据统计，截至2026年6月中旬，今年以来A股退市或锁定退市的公司数量已突破20家，其中财务类退市依然是绝对主力，占比超过六成。 然而，比“退市”本身更令人震惊的，是一部分公司在告别A股前，存在“财务造假”、“欺诈发行”、“业绩变脸”等违规行为。 上海沪紫律师事务所刘鹏
+来源：中国农业银行 近日，重庆、安徽、广西等地持续遭遇强降雨天气，部分地区发生洪涝灾害，群众生产生活秩序受到较大影响。农业银行第一时间启动防汛救灾应急预案，做好隐患排查、应急抢险、金融服务保障等工作，全力守护人民群众生命财产安全，确保金融服务平稳有序，以实际行动筑牢民生安全防线。 闻“汛”而动 筑牢防汛安全防线 强降雨导致重庆多地受灾，农业银行在渝分支机构迅速响应。面对突发险情
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 随着退市新规发力，A股市场的优胜劣汰机制显现出前所未有的威力。
+来源：中国农业银行 近日，重庆、安徽、广西等地持续遭遇强降雨天气，部分地区发生洪涝灾害，群众生产生活秩序受到较大影响。
 
-据统计，截至2026年6月中旬，今年以来A股退市或锁定退市的公司数量已突破20家，其中财务类退市依然是绝对主力，占比超过六成。
+农业银行第一时间启动防汛救灾应急预案，做好隐患排查、应急抢险、金融服务保障等工作，全力守护人民群众生命财产安全，确保金融服务平稳有序，以实际行动筑牢民生安全防线。
 
-然而，比“退市”本身更令人震惊的，是一部分公司在告别A股前，存在“财务造假”、“欺诈发行”、“业绩变脸”等违规行为。
+闻“汛”而动 筑牢防汛安全防线 强降雨导致重庆多地受灾，农业银行在渝分支机构迅速响应。
 
-上海沪紫律师事务所刘鹏律师团队整理了律所在代理的可索赔的11家退市公司，分别为*ST太和、*ST沪科、*ST国化、观典防务、*ST华嵘、*ST熊猫、*ST万方、元道通信、ST长药、立方数科、奥维通信。
+面对突发险情，各网点立即全面排查营业场所，及时处置自助区渗水、外围沟渠积水外溢等隐患。
 
-（刘鹏律师专栏） 刘鹏律师指出：即便公司股票从主板退市，只要其在此前的经营中存在信息披露违法违规行为，并因此导致投资者受损，上市公司及相关责任主体就必须承担民事赔偿责任。
+针对受灾严重的乡镇，农行重庆永川支行迅速调配应急物资，为受灾群众和救援人员送去暖心帮扶。
 
-只要公司还有资产，或者保荐机构、会计师事务所等中介机构负有连带责任，投资者就有获赔的可能。
+▲农行重庆永川支行向受灾严重的茶山竹海街道捐赠饮用水、药品等物资 5月24日凌晨，重庆遭遇新一轮强降雨袭击，部分网点因河道水位暴涨，电表、水表及线路等设施被洪水冲毁。
 
-纵观这11家公司，虽然退市的具体原因各异，但核心问题高度集中：信息披露的虚假与隐瞒。
+农行重庆北碚柳荫支行第一时间启动应急预案，联动当地通信、供电、水务部门协同抢险，当日即完成电力恢复和设备重装，快速化解险情，有力保障了网点平稳运营。
 
-具体来看： 1、系统性财务造假 这是性质最恶劣的违法行为之一。
+▲暴雨过后，农行重庆北碚柳荫支行附近河道水位上涨 在做好应急抢险的同时，农行重庆分行同步推进灾后纾困工作。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 04:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 04:23 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 04:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:33 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 04:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 04:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 04:40 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 04:27 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 04:34 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 04:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 04:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 04:16 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 04:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 04:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 04:18 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 04:43 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 04:19 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 04:46 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 04:36 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 04:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 04:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 04:27 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 04:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 04:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 04:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [金刚川](https://www.blog.minike.top/Article/details/3812172203.shtml)
-- 2026-06-30 04:17 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/060442732.shtml)
-- 2026-06-30 04:24 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/306415906481.shtml)
-- 2026-06-30 04:32 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/905679245908.shtml)
-- 2026-06-30 04:27 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/03172211037.shtml)
-- 2026-06-30 04:18 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/04152031.shtml)
-- 2026-06-30 04:42 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/08711658574.shtml)
-- 2026-06-30 04:34 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/999718558507.shtml)
-- 2026-06-30 04:16 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/523815.shtml)
-- 2026-06-30 04:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/10890380.shtml)
-- 2026-06-30 04:17 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/4478702636.shtml)
-- 2026-06-30 04:19 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/96206839.shtml)
-- 2026-06-30 04:27 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/66656770928.shtml)
-- 2026-06-30 04:21 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/86917897823.shtml)
-- 2026-06-30 04:24 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/21125748.shtml)
+- 2026-06-30 04:23 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/50269173089.shtml)
+- 2026-06-30 04:24 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/07835134011.shtml)
+- 2026-06-30 04:29 - [张凌赫 客串](https://www.blog.minike.top/Article/details/07863939.shtml)
+- 2026-06-30 04:38 - [内马尔替补](http://www.share.minike.top/Article/details/219937171.shtml)
+- 2026-06-30 04:31 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/72446257331.shtml)
+- 2026-06-30 04:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/42033351140.shtml)
+- 2026-06-30 04:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/75258050.shtml)
+- 2026-06-30 04:40 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/7611773.shtml)
+- 2026-06-30 04:35 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/568947835.shtml)
+- 2026-06-30 04:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/00650600.shtml)
+- 2026-06-30 04:30 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/756143753.shtml)
+- 2026-06-30 04:20 - [女心理师](http://www.blog.minike.top/Article/details/073474.shtml)
+- 2026-06-30 04:28 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/951527900.shtml)
+- 2026-06-30 04:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/24772281.shtml)
+- 2026-06-30 04:47 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/7883639759.shtml)

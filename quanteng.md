@@ -1,49 +1,53 @@
-# 网易云音乐注销763.135万股库存股份
+# 日本民调：高市内阁支持率连续下滑
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-网易云音乐（09899）公布，自2024年9月9日至2026年5月29日，公司根据2024年购回授权及2025年购回授权于香港联合交易所有限公司进行了一系列股份购回，并持作库存股份。截至本公告日期，公司已购回合共763.135万股股份并持作库存股份，占已发行股份总数（不包括库存股份）的约3.63%，且该等库存股份已于2026年6月12日注销。责任编辑：卢昱君
+中新网东京5月25日电 据日本《每日新闻》25日报道，该报于本月23日至24日在日本全国范围内进行的民意调查结果显示，日本首相高市早苗领导的内阁支持率为50%，连续3个月出现下滑。 调查显示，高市内阁的支持率为50%，较该报于4月18日和19日开展的上一次调查的支持率(53%)下降了3个百分点，连续两个月刷新高市内阁成立以来的最低纪录。此外，本次民调显示不支持率为33%，与上一
 
 ## 正文
 
-网易云音乐（09899）公布，自2024年9月9日至2026年5月29日，公司根据2024年购回授权及2025年购回授权于香港联合交易所有限公司进行了一系列股份购回，并持作库存股份。
+中新网东京5月25日电 据日本《每日新闻》25日报道，该报于本月23日至24日在日本全国范围内进行的民意调查结果显示，日本首相高市早苗领导的内阁支持率为50%，连续3个月出现下滑。
 
-截至本公告日期，公司已购回合共763.135万股股份并持作库存股份，占已发行股份总数（不包括库存股份）的约3.63%，且该等库存股份已于2026年6月12日注销。
+调查显示，高市内阁的支持率为50%，较该报于4月18日和19日开展的上一次调查的支持率(53%)下降了3个百分点，连续两个月刷新高市内阁成立以来的最低纪录。
 
-责任编辑：卢昱君
+此外，本次民调显示不支持率为33%，与上一次调查持平。
+
+本次调查采用了针对智能手机的调查方式，在全日本约7700万名18岁以上的人群中进行了随机抽样。
+
+最终共获得1780份有效回复。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 04:35 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 04:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 04:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 04:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 04:35 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 04:37 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 04:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 04:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 04:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 04:18 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 04:22 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 04:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 04:44 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 04:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 04:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 04:35 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 04:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 04:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 04:19 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 04:41 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/378436707936.shtml)
-- 2026-06-30 04:32 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/347563728.shtml)
-- 2026-06-30 04:21 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/69442523216.shtml)
-- 2026-06-30 04:40 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/30058.shtml)
-- 2026-06-30 04:32 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/1137962467.shtml)
-- 2026-06-30 04:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/26683882.shtml)
-- 2026-06-30 04:29 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/1576238910.shtml)
-- 2026-06-30 04:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/57087.shtml)
-- 2026-06-30 04:13 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/08083488310.shtml)
-- 2026-06-30 04:18 - [斗破苍穹](http://www.share.minike.top/Article/details/980318064.shtml)
-- 2026-06-30 04:30 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/8248602.shtml)
-- 2026-06-30 04:12 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/530581026.shtml)
-- 2026-06-30 04:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/742752.shtml)
-- 2026-06-30 04:25 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/98677125.shtml)
-- 2026-06-30 04:35 - [刘念回应](http://www.share.minike.top/Article/details/487161700.shtml)
+- 2026-06-30 04:44 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/01475.shtml)
+- 2026-06-30 04:24 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/219392.shtml)
+- 2026-06-30 04:35 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/2173727.shtml)
+- 2026-06-30 04:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/430049564.shtml)
+- 2026-06-30 04:46 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/7915832022.shtml)
+- 2026-06-30 04:30 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/38484.shtml)
+- 2026-06-30 04:24 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/20592334142.shtml)
+- 2026-06-30 04:35 - [周生如故](https://www.blog.minike.top/Article/details/4582441.shtml)
+- 2026-06-30 04:23 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/42876038.shtml)
+- 2026-06-30 04:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/9760388.shtml)
+- 2026-06-30 04:26 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/69756883.shtml)
+- 2026-06-30 04:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/636472318896.shtml)
+- 2026-06-30 04:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/932185690483.shtml)
+- 2026-06-30 04:28 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/8782049.shtml)
+- 2026-06-30 04:47 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/29045.shtml)

@@ -1,57 +1,59 @@
-# 盘前：航天概念股整体走高 纳指期货涨0.4%
+# AI商业化：“收费”是大模型的趋势吗？
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 随着美国和伊朗即将达成结束战争协议的消息进一步发酵，全球股市和债市持续反弹，油价大幅下跌，比特币走低，黄金上涨。 道琼斯工业平均指数期货上涨0.6%，标普500指数期货上涨0.5%，以科技股为主的纳斯达克指数期货上涨0.4%。此前，三大股指周四全线收高，并录得4月初以来最大单日百分比涨幅。 全球股市普涨 欧
+“收费”是大模型的趋势吗 曾经免费的、触手可及的国产大模型，是否要全面开启收费模式？ AI商业化的一个转折点来了。 不久前，AI助手豆包在苹果App Store悄然更新了一则“订阅服务声明”：基础版免费使用，满足日常需求；同时推出3档付费订阅方案——标准版每月68元、加强版每月200元、专业版每月500元，年付价格最高可达5088元。消息一经扩散，迅速引发网友热议，“豆包付费”
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 随着美国和伊朗即将达成结束战争协议的消息进一步发酵，全球股市和债市持续反弹，油价大幅下跌，比特币走低，黄金上涨。
+“收费”是大模型的趋势吗 曾经免费的、触手可及的国产大模型，是否要全面开启收费模式？
 
-道琼斯工业平均指数期货上涨0.6%，标普500指数期货上涨0.5%，以科技股为主的纳斯达克指数期货上涨0.4%。
+AI商业化的一个转折点来了。
 
-此前，三大股指周四全线收高，并录得4月初以来最大单日百分比涨幅。
+不久前，AI助手豆包在苹果App Store悄然更新了一则“订阅服务声明”：基础版免费使用，满足日常需求；同时推出3档付费订阅方案——标准版每月68元、加强版每月200元、专业版每月500元，年付价格最高可达5088元。
 
-全球股市普涨 欧洲股市开盘上涨，跟随美国和亚洲市场走势。
+消息一经扩散，迅速引发网友热议，“豆包付费”等词条更是接连冲上热搜。
 
-泛欧Stoxx 600指数上涨1.2%，消费和工业股领涨；不过，能源股因油价下跌承压。
+事实上，豆包并非首个尝试“收费”的国产大模型。
 
-德国DAX指数上涨1.2%，伦敦FTSE 100指数上涨0.7%，法国CAC 40指数上涨1.4%。
+此前，包括百度文心一言、Kimi等多个大模型都曾试水或建立了自己的付费体系。
 
-稍早，亚洲股市指数上涨2.8%，韩国KOSPI指数领涨。
+但作为国内月活第一的AI应用，豆包的“转身”被业内认为是国产大模型转型的一个标志性节点。
 
-日本日经指数上涨2.8%，香港恒生指数上涨1.4%。
+“当月活规模最大的玩家都开始收费，用户感知到的不是‘这家公司变了’，而是‘这个行业变了’。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 04:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 04:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 04:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 04:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 04:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 04:38 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 04:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 04:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 04:34 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 04:37 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 04:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 04:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 04:47 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 04:29 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 04:43 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 04:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 04:43 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 04:47 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 04:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 04:41 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 04:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 04:34 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 04:31 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/25184430807.shtml)
-- 2026-06-30 04:20 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/51553.shtml)
-- 2026-06-30 04:39 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/328784978.shtml)
-- 2026-06-30 04:39 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/6818062.shtml)
-- 2026-06-30 04:30 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/849506128.shtml)
-- 2026-06-30 04:35 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/762799627.shtml)
-- 2026-06-30 04:16 - [沉睡花园](https://www.blog.minike.top/Article/details/594401.shtml)
-- 2026-06-30 04:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/345506084.shtml)
-- 2026-06-30 04:18 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/3324869.shtml)
-- 2026-06-30 04:35 - [金牌调解](https://www.blog.minike.top/Article/details/423521.shtml)
-- 2026-06-30 04:23 - [《共患难》](http://www.share.minike.top/Article/details/35073600483.shtml)
-- 2026-06-30 04:34 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/88566.shtml)
-- 2026-06-30 04:24 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/12218.shtml)
-- 2026-06-30 04:28 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/907627451400.shtml)
-- 2026-06-30 04:16 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/13486169690.shtml)
+- 2026-06-30 04:20 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/5982790.shtml)
+- 2026-06-30 04:36 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/207707252381.shtml)
+- 2026-06-30 04:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/384752023291.shtml)
+- 2026-06-30 04:37 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/583606407.shtml)
+- 2026-06-30 04:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/51066.shtml)
+- 2026-06-30 04:22 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/861796473237.shtml)
+- 2026-06-30 04:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/85625093.shtml)
+- 2026-06-30 04:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/45702604.shtml)
+- 2026-06-30 04:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/0162387001.shtml)
+- 2026-06-30 04:25 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/17803.shtml)
+- 2026-06-30 04:34 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/7805499229.shtml)
+- 2026-06-30 04:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/51204966.shtml)
+- 2026-06-30 04:45 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/743701240310.shtml)
+- 2026-06-30 04:35 - [第一炉香](https://www.blog.minike.top/Article/details/3226047.shtml)
+- 2026-06-30 04:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/89989.shtml)

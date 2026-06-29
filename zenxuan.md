@@ -1,57 +1,57 @@
-# 比亚迪凌和平：“闪充技术”为新能源汽车持续高速发展起到引领作用
+# 聚焦雪域高原少年成长 《我的名字叫太阳》新书发布
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，比亚迪汽车工程研究院副院长凌和平出席并演讲。 凌和平谈到，比亚迪推出的闪充技术，以及自己建站，为新能源汽车的持续高速增长起到了重要引领作用。同时，背后的储能方案还可能为芯片制造等领域提供新的解决方案。 他举例表示，比亚迪把储能技术用到了闪充系统中，储能技术能够让整个供电变得非
+中新网北京5月26日电 (记者 高凯)由作家出版社主办的《我的名字叫太阳》新书发布会日前在北京举行。 《我的名字叫太阳》作者猴叔孙鹏系中央第十批援藏干部、时任西藏自治区那曲市尼玛县委副书记，该作品聚焦高原少年成长，以细腻真挚的笔触刻画一代高原孩子的成长轨迹，生动展现了新时代青少年思想观念、成长环境与教育发展的深刻变迁。作品立足雪域土地与少年生活，记录时代巨变，承载着高原少年的梦
 
 ## 正文
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，比亚迪汽车工程研究院副院长凌和平出席并演讲。
+中新网北京5月26日电 (记者 高凯)由作家出版社主办的《我的名字叫太阳》新书发布会日前在北京举行。
 
-凌和平谈到，比亚迪推出的闪充技术，以及自己建站，为新能源汽车的持续高速增长起到了重要引领作用。
+《我的名字叫太阳》作者猴叔孙鹏系中央第十批援藏干部、时任西藏自治区那曲市尼玛县委副书记，该作品聚焦高原少年成长，以细腻真挚的笔触刻画一代高原孩子的成长轨迹，生动展现了新时代青少年思想观念、成长环境与教育发展的深刻变迁。
 
-同时，背后的储能方案还可能为芯片制造等领域提供新的解决方案。
+作品立足雪域土地与少年生活，记录时代巨变，承载着高原少年的梦想与这片土地的生机与希望，具备深刻的现实意义与文学价值。
 
-他举例表示，比亚迪把储能技术用到了闪充系统中，储能技术能够让整个供电变得非常稳定。
+发布会上，学者韩敬群表示，变与不变是中国当代文学创作的共性议题，不同时代环境、创作心境，都会促使写作风格迭代演进，文学传统始终处于持续重构之中，西藏题材写作同样遵循这一规律。
 
-而在芯片制造以及大模型建立的过程中，对电力和供电稳定也有很大需求。
+韩敬群将猴叔孙鹏的创作归为新大众文艺范畴，并肯定其扎实的文学功底，希望他能继续创作出契合时代水准的优质作品。
 
-所以闪充技术中的相关积累，对芯片制造领域的供电稳定性也能起到很大的作用。
+儿童阅读领域专家王健枥聚焦作品背后的高原教育与儿童成长力量。
 
-“因为这么大功率的充电，如果完全依赖电网，电网是承受不住的。
+她表示，在尼玛县，猴叔孙鹏积极引入优质绘本与专业阅读资源，还在著作中收录当地孩童画作，让大众看见高原孩子未经雕琢、绚烂纯粹的艺术天赋。
 
-比亚迪通过引入储能，让整个电网的使用率提高了很多。
+猴叔孙鹏表示，自己的创作意在展现少年人生的多样可能，发掘孩子们身上质朴可贵的闪光点。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 04:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 04:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 04:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 04:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 04:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 04:36 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 04:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 04:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 04:38 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 04:32 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 04:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 04:45 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 04:46 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 04:24 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:33 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 04:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 04:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 04:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 04:30 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 04:40 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/012992.shtml)
-- 2026-06-30 04:37 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9809016506.shtml)
-- 2026-06-30 04:28 - [美股](http://www.blog.minike.top/Article/details/3153607.shtml)
-- 2026-06-30 04:18 - [金牌调解](http://www.share.minike.top/Article/details/74799054.shtml)
-- 2026-06-30 04:38 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/986148.shtml)
-- 2026-06-30 04:14 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/966555060.shtml)
-- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/4777363.shtml)
-- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/681969.shtml)
-- 2026-06-30 04:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2954959827.shtml)
-- 2026-06-30 04:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/920587.shtml)
-- 2026-06-30 04:27 - [我们的少年时代2](https://www.blog.minike.top/Article/details/2058368.shtml)
-- 2026-06-30 04:16 - [日本 高位逼抢](http://www.share.minike.top/Article/details/109455318.shtml)
-- 2026-06-30 04:13 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/14261780286.shtml)
-- 2026-06-30 04:41 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/06005917075.shtml)
-- 2026-06-30 04:13 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/96106532702.shtml)
+- 2026-06-30 04:40 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/09799333.shtml)
+- 2026-06-30 04:45 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/4431886.shtml)
+- 2026-06-30 04:29 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/67155.shtml)
+- 2026-06-30 04:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/081263.shtml)
+- 2026-06-30 04:39 - [内马尔替补](http://www.share.minike.top/Article/details/696982292.shtml)
+- 2026-06-30 04:32 - [我们的少年时代2](https://www.blog.minike.top/Article/details/778963.shtml)
+- 2026-06-30 04:33 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2932441.shtml)
+- 2026-06-30 04:30 - [极限挑战第一季](http://www.share.minike.top/Article/details/2058340.shtml)
+- 2026-06-30 04:23 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/90605704.shtml)
+- 2026-06-30 04:33 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/806505.shtml)
+- 2026-06-30 04:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/3587691.shtml)
+- 2026-06-30 04:25 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/551387211915.shtml)
+- 2026-06-30 04:18 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/59990163535.shtml)
+- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/2098862.shtml)
+- 2026-06-30 04:18 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/77212.shtml)

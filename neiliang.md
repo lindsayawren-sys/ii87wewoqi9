@@ -1,59 +1,56 @@
-# 对话智源研究院院长王仲远：预测下一个“状态”，人工智能正发生重大范式变革
+# 伊朗官员及阿拉伯调解方：遇袭事件难阻外交谈判进程
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-专题：2026北京智源大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 6月12日下午消息，今日举办的2026第八届北京智源大会上，北京智源人工智能研究院院长王仲远指出，随着Next Token Prediction研发的深入，人工智能正在发生一场重大的范式变革，演进到Next State Prediction，或者是Next Physi
+伊朗和阿拉伯调解方官员表示，尽管美军对伊朗武装人员发动致命袭击，伊朗首席谈判代表仍留守卡塔尔，继续开展第二天的停战协议谈判。 官员称，伊朗首席谈判代表于周一抵达卡塔尔，旨在解决和平方案中的各项分歧，其中包括伊朗要求解冻被冻结资产，以及霍尔木兹海峡重新通航的相关细则。抵达数小时后，美国中央司令部宣称，其打击了数艘正在布设水雷的伊朗快艇。相关官员透露，为避免谈判中断，伊朗推迟公布此
 
 ## 正文
 
-专题：2026北京智源大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+伊朗和阿拉伯调解方官员表示，尽管美军对伊朗武装人员发动致命袭击，伊朗首席谈判代表仍留守卡塔尔，继续开展第二天的停战协议谈判。
 
-新浪科技讯 6月12日下午消息，今日举办的2026第八届北京智源大会上，北京智源人工智能研究院院长王仲远指出，随着Next Token Prediction研发的深入，人工智能正在发生一场重大的范式变革，演进到Next State Prediction，或者是Next Physical State Prediction。
+官员称，伊朗首席谈判代表于周一抵达卡塔尔，旨在解决和平方案中的各项分歧，其中包括伊朗要求解冻被冻结资产，以及霍尔木兹海峡重新通航的相关细则。
 
-“早年大语言模型处理的是文字，多模态模型开始引入图像、音频、脑信号，接下来会解决的就是真实物理空间的时间、空间、物理规律、物理常识。
+抵达数小时后，美国中央司令部宣称，其打击了数艘正在布设水雷的伊朗快艇。
 
-”王仲远在与新浪科技等媒体沟通中指出，去年智源发布悟界大模型，也在宣告人工智能正在加速从数字世界迈向物理世界，悟界系列大模型的核心理念，就是解决人工智能从数字世界迈向物理世界的关键能力和关键问题。
+相关官员透露，为避免谈判中断，伊朗推迟公布此次袭击造成数名伊斯兰革命卫队人员身亡的消息。
 
-“过去半年间，世界模型突然异常火热，但并不是全新的概念，早在1943年Kenneth提出的‘心智模型’便被广泛被认为是世界模型的理论源头，最近几年大语言模型能够解决数字世界的很多问题，包括最新Claude模型的发布让数字世界模型能力极大地增强，但物理世界依然有很多问题无法被AI解决，这也是最近几年世界模型被重新提及、反复讨论的根源。
+伊朗政府发言人周二表态，外交谈判大概率会持续推进。
 
-”王仲远直言。
+在被问及此次袭击事件时，她在新闻发布会上表示，伊朗前线军事力量与伊朗首席谈判代表主导的谈判工作相辅相成，“终将惠及伊朗民众”。
 
-据他介绍，智源研究院作为国内最早提出并且开展世界模型研究的科研机构，早在2024年，智源便发布了对于人工智能特别是大模型技术路径演进——明确地提出大模型会沿着大语言模型向多模态大模型再向世界模型的方向发展，明确地将世界模型作为人工智能下一个大模型重要研究的范式。
+同时她也批评，美方言行前后矛盾，已成为谈判中的一大阻碍。
 
-“经过这两年的发展，我们2024年发布的悟界Emu3就是全球首个原生多模态世界模型，到了2025年悟界Emu3.5，我们也在提多模态世界模型的概念，更让我们感觉到人工智能进一步进化。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 04:33 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 04:15 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 04:18 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 04:16 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 04:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 04:32 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:31 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 04:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 04:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 04:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 04:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 04:27 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 04:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 04:47 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 04:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 04:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 04:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 04:43 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 04:39 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 04:26 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/02932058636.shtml)
-- 2026-06-30 04:14 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/5114725.shtml)
-- 2026-06-30 04:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/5714254769.shtml)
-- 2026-06-30 04:17 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/01411.shtml)
-- 2026-06-30 04:35 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/21173975307.shtml)
-- 2026-06-30 04:21 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/491277.shtml)
-- 2026-06-30 04:13 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/779602542.shtml)
-- 2026-06-30 04:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/5161420.shtml)
-- 2026-06-30 04:13 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/351170865438.shtml)
-- 2026-06-30 04:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/57518171352.shtml)
-- 2026-06-30 04:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/3254470827.shtml)
-- 2026-06-30 04:12 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/62537714287.shtml)
-- 2026-06-30 04:31 - [扫黑风暴](https://www.share.minike.top/Article/details/452603664887.shtml)
-- 2026-06-30 04:14 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/6549573582.shtml)
-- 2026-06-30 04:32 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/429057928.shtml)
+- 2026-06-30 04:25 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/62826524.shtml)
+- 2026-06-30 04:47 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/181743145.shtml)
+- 2026-06-30 04:25 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/979969.shtml)
+- 2026-06-30 04:29 - [小娘惹](http://www.blog.minike.top/Article/details/95189005705.shtml)
+- 2026-06-30 04:38 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/685914398871.shtml)
+- 2026-06-30 04:36 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/2555098536.shtml)
+- 2026-06-30 04:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/05566.shtml)
+- 2026-06-30 04:38 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/45533.shtml)
+- 2026-06-30 04:38 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/32492.shtml)
+- 2026-06-30 04:35 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/3851585.shtml)
+- 2026-06-30 04:30 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/84432.shtml)
+- 2026-06-30 04:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/760421524.shtml)
+- 2026-06-30 04:35 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/3369617.shtml)
+- 2026-06-30 04:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/47788.shtml)
+- 2026-06-30 04:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/95923345.shtml)

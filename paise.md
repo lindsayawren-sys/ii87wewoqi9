@@ -1,58 +1,61 @@
-# 山东曲阜：文物修复师修复孔府档案
+# 预制菜年报|惠发食品大幅亏损6955万元 现金无法覆盖短债
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁
+2025 年，中国预制菜行业迎来了发展史上的重要转折点。在经历了前几年的野蛮生长和高速扩张后，行业进入加速分化阶段。 11 家上市公司中接近一半营收下滑，净利润下滑的公司更是达到8家。头部企业凭借规模优势、研发能力和完善的供应链体系进一步巩固市场地位，中小厂商则面临出清压力。从细分领域来看，主营凉菜预制菜、早餐预制菜、鸡肉调理品的企业增速领先，速冻类预制菜企业业绩则在下滑。 增
 
 ## 正文
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+2025 年，中国预制菜行业迎来了发展史上的重要转折点。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+在经历了前几年的野蛮生长和高速扩张后，行业进入加速分化阶段。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+11 家上市公司中接近一半营收下滑，净利润下滑的公司更是达到8家。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+头部企业凭借规模优势、研发能力和完善的供应链体系进一步巩固市场地位，中小厂商则面临出清压力。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯掷纸飞机、彩虹跑！
+从细分领域来看，主营凉菜预制菜、早餐预制菜、鸡肉调理品的企业增速领先，速冻类预制菜企业业绩则在下滑。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+增速放缓盈利承压 新国标加速行业洗牌 2025 年预制菜行业呈现出三大核心趋势： 第一，行业增速放缓，盈利普遍承压。
 
-再见了屏幕！
+与过去数年动辄 双位数增长不同，2025 年行业整体增速大幅回落。
 
-未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创在田里支起手机 广西“村播”抱团闯出兴农路高三毕业生用“束脩之礼”答谢老师南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了上影节开幕 梁朝伟领衔金爵奖评委团 北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国
+更值得关注的是，整体盈利能力出现下滑，11 家主要上市公司中有 8 家净利润同比下降，其中不乏行业头部企业。
 
 ## 相关推荐
 
-- 2026-06-30 04:16 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 04:23 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 04:16 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 04:26 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 04:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 04:23 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 04:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 04:20 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 04:37 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 04:36 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 04:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 04:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 04:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 04:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 04:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 04:34 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 04:28 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 04:22 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 04:18 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:39 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 04:24 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 04:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 04:28 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 04:28 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 04:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 04:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 04:28 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:14 - [苗族银饰](http://www.share.minike.top/Article/details/84577707582.shtml)
-- 2026-06-30 04:16 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/748864.shtml)
-- 2026-06-30 04:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/03831.shtml)
-- 2026-06-30 04:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/009261.shtml)
-- 2026-06-30 04:23 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/84150732.shtml)
-- 2026-06-30 04:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/4658865.shtml)
-- 2026-06-30 04:13 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/986370952660.shtml)
-- 2026-06-30 04:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/025372.shtml)
-- 2026-06-30 04:36 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/990452503.shtml)
-- 2026-06-30 04:21 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/777700875.shtml)
-- 2026-06-30 04:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/05431322.shtml)
-- 2026-06-30 04:38 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/338404106563.shtml)
-- 2026-06-30 04:26 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/68088590198.shtml)
-- 2026-06-30 04:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/814826535758.shtml)
-- 2026-06-30 04:24 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/892392458481.shtml)
+- 2026-06-30 04:46 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/02739132.shtml)
+- 2026-06-30 04:22 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/6939086.shtml)
+- 2026-06-30 04:32 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/0651034.shtml)
+- 2026-06-30 04:20 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/375108005380.shtml)
+- 2026-06-30 04:37 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/35898967.shtml)
+- 2026-06-30 04:25 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/19620.shtml)
+- 2026-06-30 04:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/810278747.shtml)
+- 2026-06-30 04:21 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/205036.shtml)
+- 2026-06-30 04:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/10978.shtml)
+- 2026-06-30 04:25 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/478188521.shtml)
+- 2026-06-30 04:28 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/96220837129.shtml)
+- 2026-06-30 04:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/42607382.shtml)
+- 2026-06-30 04:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/598936539745.shtml)
+- 2026-06-30 04:22 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/1432891586.shtml)
+- 2026-06-30 04:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/9204698.shtml)

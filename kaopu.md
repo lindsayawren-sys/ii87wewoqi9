@@ -1,60 +1,58 @@
-# “创赢未来”2026创业大赛辽宁省选拔赛在铁岭落幕
+# 东盟水果抢“鲜”入境 广西凭祥产业链发力打造全国集散枢纽
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。经过三天的激烈角逐，大赛圆满落下帷幕。 本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+
+中新网凭祥5月25日电 题：东盟水果抢“鲜”入境 广西凭祥产业链发力打造全国集散枢纽 作者 张诗缨 杨开金 庞海文 近年来，广西凭祥市将口岸优势转化为产业优势，让东盟水果“抢鲜”入境，更让其“留下来、分出去、卖出价”。一条从产地直采到线上销售的产业链已初见规模。 为应对榴莲进口旺季，友谊关海关设立了进口榴莲专用通道，同时海关综合查验平台引入多项智能化系统，实现了通关“秒级”验放
 
 ## 正文
 
-中新网铁岭6月13日电 (记者 李晛)6月10日至6月12日，“创赢未来”2026创业大赛辽宁省选拔赛在铁岭市举办。
+中新网凭祥5月25日电 题：东盟水果抢“鲜”入境 广西凭祥产业链发力打造全国集散枢纽 作者 张诗缨 杨开金 庞海文 近年来，广西凭祥市将口岸优势转化为产业优势，让东盟水果“抢鲜”入境，更让其“留下来、分出去、卖出价”。
 
-经过三天的激烈角逐，大赛圆满落下帷幕。
+一条从产地直采到线上销售的产业链已初见规模。
 
-本届大赛以“释放创业动能 圆梦出彩人生——汇聚英才兴辽 创享振兴未来”为主题，旨在通过赛事引导发展多种创业模式，激发全社会内生动力和创新活力。
+为应对榴莲进口旺季，友谊关海关设立了进口榴莲专用通道，同时海关综合查验平台引入多项智能化系统，实现了通关“秒级”验放。
 
-大赛采用“4+1”模式，设立了“科技成果+创业”、“产业发展+创业”、“职业技能+创业”、“民生需求+创业”4个主体赛道，以及1个青年创新专项赛。
+2026年1月至4月，友谊关口岸车辆进出达37.69万辆(次)，同比增长37.04%。
 
-自2月份启动以来，全省15个地市积极响应，首次依托全省统一网络实名制报名通道，累计吸引2069个项目报名参加各市选拔赛，251个项目从中脱颖而出参加省赛，报名数量创历年新高。
+“我们今天申报入境了一车水果，现在正在等待海关查验。
 
-选拔赛现场，参赛选手们通过精彩的项目路演和答辩，全方位展示了项目的创新引领性、商业模式及带动就业潜力。
+这批水果是从泰国运来的，经老挝、越南，然后再入境的。
 
-由35位省内外知名投资人、成功创业家及就业创业政策专家组成的评审团，严格按照国赛标准进行了公正评审。
+如果不送检的话，应该当天就可以发往全国各地。
 
-最终，“基于AI的虚拟电厂调节与负荷侧节能降碳系统”等10个项目获得一等奖；“高频高速电子级树脂及光刻胶关键单体国产化产业化项目”等20个项目获得二等奖；“智能芯片SDS设备的研发与产业化”等30个项目获得三等奖。
+”广西自贸区洪泰物流有限公司查验部负责人余伟峰说。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 04:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 04:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 04:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 04:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 04:13 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 04:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 04:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 04:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 04:14 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 04:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 04:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 04:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 04:19 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 04:30 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 04:28 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 04:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 04:42 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 04:27 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 04:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 04:25 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 04:44 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 04:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 04:46 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:17 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/83596.shtml)
-- 2026-06-30 04:20 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/4072279480.shtml)
-- 2026-06-30 04:39 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/296124.shtml)
-- 2026-06-30 04:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/7182831.shtml)
-- 2026-06-30 04:13 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/45566790.shtml)
-- 2026-06-30 04:39 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/529574.shtml)
-- 2026-06-30 04:34 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/7199689838.shtml)
-- 2026-06-30 04:40 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/69359717.shtml)
-- 2026-06-30 04:40 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/038832445.shtml)
-- 2026-06-30 04:27 - [金刚川](http://www.share.kurohicncr.top/Article/details/6716961.shtml)
-- 2026-06-30 04:14 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/8159269146.shtml)
-- 2026-06-30 04:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/11069.shtml)
-- 2026-06-30 04:28 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/89103147.shtml)
-- 2026-06-30 04:36 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/9917211.shtml)
-- 2026-06-30 04:22 - [沉睡花园](https://www.share.minike.top/Article/details/68904042.shtml)
+- 2026-06-30 04:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/2593809.shtml)
+- 2026-06-30 04:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/0211736614.shtml)
+- 2026-06-30 04:29 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/290804369737.shtml)
+- 2026-06-30 04:40 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/9744679423.shtml)
+- 2026-06-30 04:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/17885891862.shtml)
+- 2026-06-30 04:29 - [月亮](http://www.blog.minike.top/Article/details/23712059.shtml)
+- 2026-06-30 04:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/1631587.shtml)
+- 2026-06-30 04:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/408546.shtml)
+- 2026-06-30 04:45 - [巴西绝杀日本](http://www.share.minike.top/Article/details/652101244782.shtml)
+- 2026-06-30 04:28 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/366544.shtml)
+- 2026-06-30 04:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/682578574202.shtml)
+- 2026-06-30 04:47 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/8285890997.shtml)
+- 2026-06-30 04:29 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/86538.shtml)
+- 2026-06-30 04:19 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/16843618610.shtml)
+- 2026-06-30 04:25 - [巴西2比1日本](http://www.blog.minike.top/Article/details/120444096203.shtml)

@@ -1,59 +1,57 @@
-# 柬埔寨木薯淀粉首经西部陆海新通道海铁联运抵渝——缩短周转时间压缩物流成本
+# 高盛：美联储大幅缩表门槛仍然很高
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-6月2日，600吨柬埔寨木薯淀粉首次通过西部陆海新通道海铁联运模式，运抵重庆国际铁路港综合保税区。 木薯淀粉常用于食品加工与轻工产业，国内市场需求旺盛。柬埔寨是全球优质木薯主产国之一，得益于常年高温多雨、土壤肥沃的热带种植环境，其木薯原料淀粉含量高、出粉率高。此前，柬埔寨木薯淀粉多通过传统海运输往我国沿海口岸。本批货物由柬埔寨起运，海运至钦州港办理转关后，经铁路直达重庆团结村。
+文章来源：财联社 宏观 摩根士丹利：关税传导接近尾声，美国通胀或在2027年明显回落 市场当前普遍高估了油价上涨与AI投资热潮对美国通胀的持续推升作用，而忽视了“关税通胀”即将进入尾声后带来的明显反通胀效应。未来一年美国通胀大概率将在短期见顶后逐步回落，美联储重新加息的门槛实际上非常高。 2025年以来，美国关税已累计推高PCE同比通胀约70个基点，而截至今年4月，约64个基点
 
 ## 正文
 
-6月2日，600吨柬埔寨木薯淀粉首次通过西部陆海新通道海铁联运模式，运抵重庆国际铁路港综合保税区。
+文章来源：财联社 宏观 摩根士丹利：关税传导接近尾声，美国通胀或在2027年明显回落 市场当前普遍高估了油价上涨与AI投资热潮对美国通胀的持续推升作用，而忽视了“关税通胀”即将进入尾声后带来的明显反通胀效应。
 
-木薯淀粉常用于食品加工与轻工产业，国内市场需求旺盛。
+未来一年美国通胀大概率将在短期见顶后逐步回落，美联储重新加息的门槛实际上非常高。
 
-柬埔寨是全球优质木薯主产国之一，得益于常年高温多雨、土壤肥沃的热带种植环境，其木薯原料淀粉含量高、出粉率高。
+2025年以来，美国关税已累计推高PCE同比通胀约70个基点，而截至今年4月，约64个基点的关税传导已经完成，意味着企业大部分涨价动作已经落地。
 
-此前，柬埔寨木薯淀粉多通过传统海运输往我国沿海口岸。
+随着关税价格传导结束，未来核心商品价格有望重新回到2023-2024年接近零增长的趋势，这可能给未来一年通胀带来约70个基点的“反向回吐”。
 
-本批货物由柬埔寨起运，海运至钦州港办理转关后，经铁路直达重庆团结村。
+即便中东局势导致油价维持高位，或AI投资继续推升软件、存储器及数据中心相关需求，这些因素也必须至少额外贡献70个基点通胀，才能抵消关税回吐带来的降温作用。
 
-“依托重庆东盟木薯淀粉西南集散中心区位优势，西部陆海新通道打通了柬埔寨至我国西南内陆直达物流链路，相较传统全水路运输，缩短了周转时间、压缩了综合物流成本。
+换言之，市场当前对“通胀重新升温”和“美联储加息”的定价可能偏激进。
 
-”陆港枢纽(重庆)经贸有限公司有关负责人表示， 为保障该批木薯淀粉高效通关，重庆海关所属渝州海关提前对接企业，在货物运抵后第一时间完成转关放行和现场查验等工作。
+预计2026年和2027年美国实际GDP分别增长2.3%和2.6%，AI相关资本开支、企业投资以及高收入群体资产负债表仍是核心支撑。
 
-下一步，重庆海关将持续优化通关服务，支持更多东盟特色产品通过西部陆海新通道高效进口，进一步提升通道运行效能与产业保障能力。
+二季度GDP跟踪预测已上调至2.4%。
 
 ## 相关推荐
 
-- 2026-06-30 04:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 04:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 04:32 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 04:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 04:24 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 04:37 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 04:20 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 04:17 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 04:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 04:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 04:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 04:23 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 04:43 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 04:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 04:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 04:33 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 04:34 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 04:30 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 04:40 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:33 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 04:22 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:39 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 04:23 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/56263371802.shtml)
-- 2026-06-30 04:36 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/6200485.shtml)
-- 2026-06-30 04:30 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/11561852.shtml)
-- 2026-06-30 04:13 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/76390982.shtml)
-- 2026-06-30 04:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/06166010.shtml)
-- 2026-06-30 04:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/11559.shtml)
-- 2026-06-30 04:15 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/8315521601.shtml)
-- 2026-06-30 04:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/124997192.shtml)
-- 2026-06-30 04:32 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/3008789290.shtml)
-- 2026-06-30 04:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/4527606.shtml)
-- 2026-06-30 04:42 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/470644.shtml)
-- 2026-06-30 04:31 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/53877732939.shtml)
-- 2026-06-30 04:15 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/670808828.shtml)
-- 2026-06-30 04:38 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/66784831053.shtml)
-- 2026-06-30 04:31 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/521470741.shtml)
+- 2026-06-30 04:33 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/20926337061.shtml)
+- 2026-06-30 04:22 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/0676966.shtml)
+- 2026-06-30 04:34 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/446667.shtml)
+- 2026-06-30 04:36 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/1415110884.shtml)
+- 2026-06-30 04:23 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/971843779.shtml)
+- 2026-06-30 04:19 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/068571.shtml)
+- 2026-06-30 04:47 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/37469569132.shtml)
+- 2026-06-30 04:29 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/821263.shtml)
+- 2026-06-30 04:40 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/2207455649.shtml)
+- 2026-06-30 04:18 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/14451345.shtml)
+- 2026-06-30 04:25 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/69135066663.shtml)
+- 2026-06-30 04:18 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/7192526.shtml)
+- 2026-06-30 04:25 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/240259676.shtml)
+- 2026-06-30 04:46 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/8927826.shtml)
+- 2026-06-30 04:29 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/733638.shtml)

@@ -1,57 +1,60 @@
-# 溜溜梅港股首日高开逾117% 一手赚5142港元 公开发售超购6586倍
+# 预制菜年报|春雪食品净利润大幅增长 货币资金减少现金无法覆盖短债
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-6月15日，中国果类零食龙头企业溜溜梅（06658.HK）正式在港交所主板挂牌上市。首日表现强势，股价大幅高开逾117%，报95港元；每手100股，不计手续费，投资者每手账面获利约5142港元。 此前在上一交易日的富途暗盘交易中，溜溜梅已显露强劲势头。暗盘收涨127.74%，报99.25港元，较发售价翻逾一倍，不计手续费每手赚5567港元。 根据公司公布的配发结果，溜溜梅此次I
+2025 年，中国预制菜行业迎来了发展史上的重要转折点。在经历了前几年的野蛮生长和高速扩张后，行业进入加速分化阶段。 11 家上市公司中接近一半营收下滑，净利润下滑的公司更是达到8家。头部企业凭借规模优势、研发能力和完善的供应链体系进一步巩固市场地位，中小厂商则面临出清压力。从细分领域来看，主营凉菜预制菜、早餐预制菜、鸡肉调理品的企业增速领先，速冻类预制菜企业业绩则在下滑。 增
 
 ## 正文
 
-6月15日，中国果类零食龙头企业溜溜梅（06658.HK）正式在港交所主板挂牌上市。
+2025 年，中国预制菜行业迎来了发展史上的重要转折点。
 
-首日表现强势，股价大幅高开逾117%，报95港元；每手100股，不计手续费，投资者每手账面获利约5142港元。
+在经历了前几年的野蛮生长和高速扩张后，行业进入加速分化阶段。
 
-此前在上一交易日的富途暗盘交易中，溜溜梅已显露强劲势头。
+11 家上市公司中接近一半营收下滑，净利润下滑的公司更是达到8家。
 
-暗盘收涨127.74%，报99.25港元，较发售价翻逾一倍，不计手续费每手赚5567港元。
+头部企业凭借规模优势、研发能力和完善的供应链体系进一步巩固市场地位，中小厂商则面临出清压力。
 
-根据公司公布的配发结果，溜溜梅此次IPO公开发售部分录得约6586.73倍超额认购。
+从细分领域来看，主营凉菜预制菜、早餐预制菜、鸡肉调理品的企业增速领先，速冻类预制菜企业业绩则在下滑。
 
-最终公开发售股份数目为114.65万股，占全球发售总数的约10%。
+增速放缓盈利承压 新国标加速行业洗牌 2025 年预制菜行业呈现出三大核心趋势： 第一，行业增速放缓，盈利普遍承压。
 
-共接获约18.05万份有效申请，其中约11，465份申请获受理，申购一手获配发股份的比率仅为1.5%，意味着一手中签率低至1.5%，认购竞争极为激烈。
+与过去数年动辄 双位数增长不同，2025 年行业整体增速大幅回落。
 
-国际配售方面，溜溜梅获2.64倍认购，国际发售股份最终数目为1，031.76万股，占发售股份总数的90%。
+更值得关注的是，整体盈利能力出现下滑，11 家主要上市公司中有 8 家净利润同比下降，其中不乏行业头部企业。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 04:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 04:34 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 04:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 04:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 04:18 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 04:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 04:29 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 04:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 04:27 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 04:29 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 04:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 04:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:44 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 04:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 04:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 04:34 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 04:38 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 04:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 04:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 04:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 04:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 04:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 04:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:29 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4024045.shtml)
-- 2026-06-30 04:41 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/976341629285.shtml)
-- 2026-06-30 04:15 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/42833.shtml)
-- 2026-06-30 04:18 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/416196279.shtml)
-- 2026-06-30 04:25 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/64836732.shtml)
-- 2026-06-30 04:40 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/6077303.shtml)
-- 2026-06-30 04:14 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/856930071218.shtml)
-- 2026-06-30 04:26 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/29835387713.shtml)
-- 2026-06-30 04:21 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/74145951.shtml)
-- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/097365032333.shtml)
-- 2026-06-30 04:29 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/872689.shtml)
-- 2026-06-30 04:18 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/74657.shtml)
-- 2026-06-30 04:23 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/295425.shtml)
-- 2026-06-30 04:30 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/10896.shtml)
-- 2026-06-30 04:16 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/4201784961.shtml)
+- 2026-06-30 04:47 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/15379923.shtml)
+- 2026-06-30 04:32 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/705212.shtml)
+- 2026-06-30 04:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/77593175.shtml)
+- 2026-06-30 04:22 - [《贺子珍》](http://www.share.minike.top/Article/details/772248555167.shtml)
+- 2026-06-30 04:46 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/9521408.shtml)
+- 2026-06-30 04:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/769570020318.shtml)
+- 2026-06-30 04:25 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/18457116.shtml)
+- 2026-06-30 04:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/727156.shtml)
+- 2026-06-30 04:43 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/8819424.shtml)
+- 2026-06-30 04:39 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/517698420.shtml)
+- 2026-06-30 04:31 - [速度与激情9](https://www.share.minike.top/Article/details/44078369507.shtml)
+- 2026-06-30 04:29 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/55067.shtml)
+- 2026-06-30 04:29 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/50406.shtml)
+- 2026-06-30 04:41 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/979687538.shtml)
+- 2026-06-30 04:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/053146965989.shtml)

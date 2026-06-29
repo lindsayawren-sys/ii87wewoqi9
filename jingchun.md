@@ -1,58 +1,57 @@
-# 警方提醒：切勿贪图蝇头小利 成为诈骗分子的帮凶
+# 最高法：对虐待残害未成年人犯罪坚决依法从严惩处
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 16:01 来源：中国新闻网 6月12日，公安部召开新闻发布会。北京市公安局刑侦总队政治处主任李小燕在会上表示，电诈犯罪环节多、链条长，诈骗分子藏身境外窝点，诱导并遥控指挥大量境内人员，从事引流、洗钱、幕后技术开发等形形色色的涉诈黑灰产业。一些人法律意识淡薄，而且贪图蝇头小利，被诱导成为诈骗分子的帮凶，尝到甜头以后丧失了底线，逐渐演变为积极参与
+最高人民法院5月26日发布6件防范和惩治家庭内部侵害未成年人合法权益典型案例。在一起案例中，法院对长期实施虐待、残害，导致未成年人死亡、罪行极其严重的，依法判处死刑，以绝不姑息纵容的司法裁判，全力守护未成年人健康安全。文某某(女)与已婚的田某同居。2023年2月至12月，田某携婚生女田某某(被害人，殁年2岁)与文某某共同生活。其间，文某某、田某经常采用捆绑、吊起、罚站、冻饿等方
 
 ## 正文
 
-发布时间：2026年06月12日 16:01 来源：中国新闻网 6月12日，公安部召开新闻发布会。
+最高人民法院5月26日发布6件防范和惩治家庭内部侵害未成年人合法权益典型案例。
 
-北京市公安局刑侦总队政治处主任李小燕在会上表示，电诈犯罪环节多、链条长，诈骗分子藏身境外窝点，诱导并遥控指挥大量境内人员，从事引流、洗钱、幕后技术开发等形形色色的涉诈黑灰产业。
+在一起案例中，法院对长期实施虐待、残害，导致未成年人死亡、罪行极其严重的，依法判处死刑，以绝不姑息纵容的司法裁判，全力守护未成年人健康安全。
 
-一些人法律意识淡薄，而且贪图蝇头小利，被诱导成为诈骗分子的帮凶，尝到甜头以后丧失了底线，逐渐演变为积极参与电诈网络犯罪的共犯。
+文某某(女)与已婚的田某同居。
 
-李小燕介绍，在这些人中，有的主动出租出借个人银行卡、手机卡，包括互联网账号；有的轻信网络兼职，替境外诈骗分子跑腿、群发信息、拉人建群，在不知不觉当中沦为了电诈的“工具人”。
+2023年2月至12月，田某携婚生女田某某(被害人，殁年2岁)与文某某共同生活。
 
-有的明知是违法犯罪，帮助诈骗分子运送现金、黄金；或者通过购买电脑、笔记本等贵重物品，还有牲畜、粮食等大宗农产品帮助洗钱；有的直接使用个人银行卡为涉诈资金提供跑分和洗钱的服务；有的注册公司开立大量对公账户，为涉诈资金提供转移的通道；还有的利用自己未成年人、重症患者的身份，帮助诈骗分子完成取现、取金任务，并流窜全国反复作案，试图逃避公安机关侦查打击。
+其间，文某某、田某经常采用捆绑、吊起、罚站、冻饿等方式虐待田某某，还频繁使用拳脚、拖鞋、饭铲、木条等暴力殴打田某某。
 
-这些为电信网络诈骗提供帮助的行为均涉嫌违法犯罪，根据不同情节，轻则受到行政处罚、联合惩戒，重则会被追究刑事责任。
+2023年12月21日6时许，田某上班后，文某某因田某某尿床，使用手机充电线等严重殴打田某某胸部等处致其倒地抽搐，文某某叫田某回家后一起将田某某送至医院，田某某经抢救无效死亡。
 
-希望大家切莫贪图小利、违反法律，最终害人害己。
+审理法院认为，文某某伙同田某虐待共同生活的幼儿，情节恶劣，还故意伤害幼儿，其行为分别构成虐待罪、故意伤害罪，依法应予并罚。
 
-(记者 董泽宇) 责任编辑：【刘湃】
+文某某长期、持续、反复实施故意伤害，且于案发当日实施的殴打行为系导致被害人田某某右心房破裂而死亡的直接原因，严重违背社会公德、践踏人伦底线，犯罪情节特别恶劣，手段特别残忍，社会影响恶劣，罪行极其严重，应依法从严惩处。
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 04:29 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 04:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 04:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 04:24 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 04:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 04:12 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 04:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 04:27 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 04:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 04:40 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 04:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 04:46 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 04:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 04:20 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 04:46 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 04:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 04:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:40 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 04:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 04:20 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 04:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/63602.shtml)
-- 2026-06-30 04:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/7566884.shtml)
-- 2026-06-30 04:25 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/10150.shtml)
-- 2026-06-30 04:33 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/510725917.shtml)
-- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/094458.shtml)
-- 2026-06-30 04:40 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/544967364612.shtml)
-- 2026-06-30 04:39 - [急先锋](https://www.share.minike.top/Article/details/590885.shtml)
-- 2026-06-30 04:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/710724418833.shtml)
-- 2026-06-30 04:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/96706.shtml)
-- 2026-06-30 04:22 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/34930.shtml)
-- 2026-06-30 04:24 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/876827.shtml)
-- 2026-06-30 04:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/0733691842.shtml)
-- 2026-06-30 04:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/261685916523.shtml)
-- 2026-06-30 04:38 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/341387811.shtml)
-- 2026-06-30 04:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/202510327102.shtml)
+- 2026-06-30 04:40 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/13256828.shtml)
+- 2026-06-30 04:21 - [毒液2](http://www.share.minike.top/Article/details/10406657553.shtml)
+- 2026-06-30 04:40 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/1227042.shtml)
+- 2026-06-30 04:40 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/7083772113.shtml)
+- 2026-06-30 04:38 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/237946311.shtml)
+- 2026-06-30 04:30 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/668645937.shtml)
+- 2026-06-30 04:21 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/77937.shtml)
+- 2026-06-30 04:47 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/1339750.shtml)
+- 2026-06-30 04:39 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/1687245525.shtml)
+- 2026-06-30 04:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/78691627.shtml)
+- 2026-06-30 04:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/589374489337.shtml)
+- 2026-06-30 04:23 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/948066.shtml)
+- 2026-06-30 04:31 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/56954.shtml)
+- 2026-06-30 04:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/30718.shtml)
+- 2026-06-30 04:34 - [千与千寻](http://www.share.kurohicncr.top/Article/details/1085396799.shtml)

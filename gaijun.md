@@ -1,56 +1,59 @@
-# 【好评中国】考出“三夏”好成绩，绘就全年好“丰”景
+# 超跌反弹？华宝基金有色ETF（159876）最高涨超3.2%！铝业龙头显著领涨，中国铝业等3股涨停！
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-沃野千里麦浪香，机声隆隆收粮忙。眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。“三夏”是一年农业生产的关键节点。夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经
+今日（5月26日）有色金属板块领涨两市，全天获主力资金净流入109.68亿元，板块吸金额高居31个申万一级行业首位，同标的指数规模最大*的有色ETF华宝（159876）场内价格最高涨超3.2%，收涨2.85%，一举收复10日线和半年线，全天成交额1.68亿元，环比激增93%，交投火热！ 成份股方面，中国铝业、华锡有色、金钼股份3股涨停，南山铝业涨超8%，国城矿业、西部黄金、云铝
 
 ## 正文
 
-沃野千里麦浪香，机声隆隆收粮忙。
+今日（5月26日）有色金属板块领涨两市，全天获主力资金净流入109.68亿元，板块吸金额高居31个申万一级行业首位，同标的指数规模最大*的有色ETF华宝（159876）场内价格最高涨超3.2%，收涨2.85%，一举收复10日线和半年线，全天成交额1.68亿元，环比激增93%，交投火热！
 
-眼下全国“三夏”大规模小麦跨区机收全面推进，从江淮平原到华北大地，金黄麦田里一派抢收抢种的繁忙景象。
+成份股方面，中国铝业、华锡有色、金钼股份3股涨停，南山铝业涨超8%，国城矿业、西部黄金、云铝股份、天山铝业涨逾7%。
 
-“三夏”生产连着夏粮丰收、关乎全年收成，唯有抢农时、抓田管、稳供给，才能在这一场大考中，考出全年粮食丰产丰收的好成绩。
+权重股洛阳钼业涨超5%，紫金矿业涨逾4%。
 
-“三夏”是一年农业生产的关键节点。
+宏观层面，美国和伊朗有望达成停火协议的消息提振市场情绪，市场预期霍尔木兹海峡将重新开放，或受相关消息影响，国际油价大跌超5%，通胀担忧随之降温。
 
-夏收，要把半年来的辛苦耕耘变成沉甸甸的颗粒归仓；夏种，要为秋粮播种打下扎实基础；夏管，要管好已经种下的作物促生长。
+东吴证券认为，当前市场对于2026年底至2027年的加息预期可能过度，美国经济并非“过热”，而是由AI与能源双轮驱动带来的K型经济结构，市场对于加息预期可能存在错误定价*。
 
-这环环相扣的三步，哪一步都耽误不得，直接决定着全年粮食的丰产丰收。
+产业层面，全球最大铝土矿生产国几内亚计划下月推出铝土矿出口管制措施，以提振铝价。
 
-我国夏粮占全年粮食总产量的四分之一，其中小麦占夏粮产量的九成以上，是绝对的“主力”。
+几内亚占全球铝土矿产量逾三分之一，其政策变动直接加剧了市场对原料供给收缩的担忧。
 
-在经历去年罕见秋雨汛情、今年小麦返青拔节期低温等多重考验后，今年夏粮丰收势头向好，我们要铆足劲打赢“三夏”这场硬仗，拿下全年粮食生产的主动权，为稳物价、稳预期、稳大盘筑牢坚实的基础。
+从产业逻辑来看，具备高矿石自给率或海外多极化布局的企业将率先受益，中国铝业、云铝股份、天山铝业等在资源端优势突出的铝业龙头，有望在此轮原料价格博弈中占据主动。
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 04:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 04:34 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 04:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 04:36 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 04:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 04:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 04:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 04:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 04:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 04:18 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 04:28 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 04:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 04:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 04:42 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 04:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 04:24 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 04:33 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 04:35 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 04:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 04:30 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 04:27 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/6774348682.shtml)
-- 2026-06-30 04:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/921952893745.shtml)
-- 2026-06-30 04:16 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/36303.shtml)
-- 2026-06-30 04:20 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/52709123928.shtml)
-- 2026-06-30 04:20 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/8796610359.shtml)
-- 2026-06-30 04:39 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/714587244.shtml)
-- 2026-06-30 04:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/29109.shtml)
-- 2026-06-30 04:20 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/45908247.shtml)
-- 2026-06-30 04:35 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/8730759.shtml)
-- 2026-06-30 04:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/27498207748.shtml)
-- 2026-06-30 04:14 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/4032541641.shtml)
-- 2026-06-30 04:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/885990589.shtml)
-- 2026-06-30 04:12 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/501295296.shtml)
-- 2026-06-30 04:16 - [85花告别古偶](http://www.blog.minike.top/Article/details/555793099.shtml)
-- 2026-06-30 04:35 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/275781643990.shtml)
+- 2026-06-30 04:22 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/3106039.shtml)
+- 2026-06-30 04:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/232941264.shtml)
+- 2026-06-30 04:29 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/67909.shtml)
+- 2026-06-30 04:21 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/488029.shtml)
+- 2026-06-30 04:41 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/06458.shtml)
+- 2026-06-30 04:23 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/60541613.shtml)
+- 2026-06-30 04:43 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/0990785.shtml)
+- 2026-06-30 04:35 - [月亮](http://www.share.kurohicncr.top/Article/details/8257532090.shtml)
+- 2026-06-30 04:23 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/6560788.shtml)
+- 2026-06-30 04:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/091037.shtml)
+- 2026-06-30 04:39 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/25815428461.shtml)
+- 2026-06-30 04:41 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/3621958.shtml)
+- 2026-06-30 04:23 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/00915954.shtml)
+- 2026-06-30 04:27 - [人类...完蛋了...](https://www.share.minike.top/Article/details/19233.shtml)
+- 2026-06-30 04:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/6499216217.shtml)

@@ -1,57 +1,60 @@
-# 甲骨文赢得3.96亿美元联邦人力资源现代化合同
+# 湖南桂东构建产业双引擎：县乡村联动服务 政企村共生赋能
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-美国人事管理办公室已授予甲骨文公司一份价值3.958亿美元的合同，用于为联邦政府打造统一的人力资源平台。该平台将覆盖约200万名美国联邦文职雇员，取代目前各机构使用的100多个分散的遗留系统。 人事管理办公室主任斯科特·库珀在宣布该合同时表示，联邦政府的人力资源基础设施已变得不必要地分散，这份合同是对联邦劳动力管理未来的基础性投资。该项目名为“联邦人力资源2.0”，将采用甲骨文
+中新网桂东5月25日电 (鲁毅 扶秀玲)“最初打算在桂东发展高山蔬菜时，我心里也没底，对政策支持、土地流转等方面都有些担忧。”湖南醉氧高山生态农业有限公司负责人王镇说。 六年前，湖南桂东青年王镇想回乡创业，曾担心没人管、没人帮。让他没想到的是，县里干部主动上门送政策，乡镇干部实地查看基地选址，村级组织优化服务保障。从县级统筹到村级落地，每个环节都有人对接。如今，他已拥有九个高山
 
 ## 正文
 
-美国人事管理办公室已授予甲骨文公司一份价值3.958亿美元的合同，用于为联邦政府打造统一的人力资源平台。
+中新网桂东5月25日电 (鲁毅 扶秀玲)“最初打算在桂东发展高山蔬菜时，我心里也没底，对政策支持、土地流转等方面都有些担忧。
 
-该平台将覆盖约200万名美国联邦文职雇员，取代目前各机构使用的100多个分散的遗留系统。
+”湖南醉氧高山生态农业有限公司负责人王镇说。
 
-人事管理办公室主任斯科特·库珀在宣布该合同时表示，联邦政府的人力资源基础设施已变得不必要地分散，这份合同是对联邦劳动力管理未来的基础性投资。
+六年前，湖南桂东青年王镇想回乡创业，曾担心没人管、没人帮。
 
-该项目名为“联邦人力资源2.0”，将采用甲骨文的Fusion Cloud HCM系统，计划于2026年秋季完成核心实施阶段。
+让他没想到的是，县里干部主动上门送政策，乡镇干部实地查看基地选址，村级组织优化服务保障。
 
-新平台将处理核心人事流程、薪资与福利整合、考勤追踪、人才招聘及绩效管理等功能，并须符合《联邦信息安全现代化法案》和联邦风险与授权管理计划的网络安全标准。
+从县级统筹到村级落地，每个环节都有人对接。
 
-人事管理办公室预计，将系统整合到单一云平台将为纳税人节省超过90%的成本。
+如今，他已拥有九个高山蔬菜基地，从未与周边村民发生过矛盾。
 
-此次合同的达成经历了一番波折。
+王镇的高山蔬菜产业越做越大，背后少不了桂东县近年来推动产业发展的两个重要助力——县乡村三级联动服务和政企村深度共生赋能。
 
-人事管理办公室曾在2025年5月试图独家授予Workday合同，但随后取消该计划并展开竞争性招标。
+县乡村联动：为创业者铺路 “从土地流转到招工，基本上没让我操过心。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 04:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 04:20 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 04:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 04:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 04:37 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 04:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 04:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 04:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 04:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 04:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 04:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 04:28 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 04:34 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 04:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 04:29 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 04:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:35 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 04:35 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:19 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 04:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 04:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 04:26 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 04:23 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:46 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [沙丘](http://www.blog.kurohicncr.top/Article/details/70690.shtml)
-- 2026-06-30 04:14 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/06016827.shtml)
-- 2026-06-30 04:36 - [天道](https://www.share.minike.top/Article/details/3254773525.shtml)
-- 2026-06-30 04:13 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/18846.shtml)
-- 2026-06-30 04:26 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/863587.shtml)
-- 2026-06-30 04:12 - [张凌赫 客串](http://www.blog.minike.top/Article/details/942022573314.shtml)
-- 2026-06-30 04:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/83934.shtml)
-- 2026-06-30 04:35 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/7681380.shtml)
-- 2026-06-30 04:34 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/11810056.shtml)
-- 2026-06-30 04:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/83631100.shtml)
-- 2026-06-30 04:14 - [日本领先巴西](http://www.blog.minike.top/Article/details/1910068.shtml)
-- 2026-06-30 04:12 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/243311301574.shtml)
-- 2026-06-30 04:17 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/89877329.shtml)
-- 2026-06-30 04:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/8306226.shtml)
-- 2026-06-30 04:13 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/548038.shtml)
+- 2026-06-30 04:32 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/245694.shtml)
+- 2026-06-30 04:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/620259801.shtml)
+- 2026-06-30 04:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/14170766.shtml)
+- 2026-06-30 04:19 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/21667.shtml)
+- 2026-06-30 04:23 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/16198302814.shtml)
+- 2026-06-30 04:34 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/8023672132.shtml)
+- 2026-06-30 04:43 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/687172.shtml)
+- 2026-06-30 04:24 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/797322933.shtml)
+- 2026-06-30 04:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/4590557.shtml)
+- 2026-06-30 04:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/9780055.shtml)
+- 2026-06-30 04:28 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/16975076977.shtml)
+- 2026-06-30 04:28 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/47068235341.shtml)
+- 2026-06-30 04:22 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/77735.shtml)
+- 2026-06-30 04:47 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/645754.shtml)
+- 2026-06-30 04:42 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/928132.shtml)

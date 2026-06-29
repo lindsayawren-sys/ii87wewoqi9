@@ -1,56 +1,60 @@
-# 《日月潭》牵两岸情 台湾青年踏上寻根之旅
+# 现代汽车集团设立专门部门负责软件定义工厂战略和机器人零部件采购
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网广州6月13日电 (记者 张璐)“‘日月潭’不仅仅是一个地理名词，许多大陆同胞通过《日月潭》想象出宝岛模样。那片潭水，成为无数大陆同胞对台湾最初也最亲切的印象。”华南师范大学台湾学生邱星惠接受中新网采访时表示，自己的家乡能够被大家认识，成为大陆同学童年里的美丽风景，让她感受到自豪。 “地理为桥·文史融通——吴壮达教授学术思想研讨会暨学术人生专题展”(简称“活动”)12日在
+据业内人士周一透露，现代汽车集团已成立专门部门，致力于推进其软件定义工厂 （SDF） 战略，并采购机器人组件，这是其在汽车制造工厂部署Atlas人形机器人的更广泛计划的一部分。 据消息人士透露，该集团近期设立了一个职位，负责监管其软件定义工厂（SDF）项目，并任命现代汽车集团新加坡创新中心首席创新官阿尔佩什·帕特尔（Alpesh Patel）担任此职。 软件定义工厂（SDF）指
 
 ## 正文
 
-中新网广州6月13日电 (记者 张璐)“‘日月潭’不仅仅是一个地理名词，许多大陆同胞通过《日月潭》想象出宝岛模样。
+据业内人士周一透露，现代汽车集团已成立专门部门，致力于推进其软件定义工厂 （SDF） 战略，并采购机器人组件，这是其在汽车制造工厂部署Atlas人形机器人的更广泛计划的一部分。
 
-那片潭水，成为无数大陆同胞对台湾最初也最亲切的印象。
+据消息人士透露，该集团近期设立了一个职位，负责监管其软件定义工厂（SDF）项目，并任命现代汽车集团新加坡创新中心首席创新官阿尔佩什·帕特尔（Alpesh Patel）担任此职。
 
-”华南师范大学台湾学生邱星惠接受中新网采访时表示，自己的家乡能够被大家认识，成为大陆同学童年里的美丽风景，让她感受到自豪。
+软件定义工厂（SDF）指的是利用人工智能（AI）软件控制和管理生产、质量及物流运营的工厂。
 
-“地理为桥·文史融通——吴壮达教授学术思想研讨会暨学术人生专题展”(简称“活动”)12日在华南师范大学拉开帷幕。
+此举被视为现代汽车集团在其全球制造网络中应用SDF战略的第一步。
 
-活动以学术研讨与实物展览相结合的形式，全面展示著名地理学家、华南师范大学地理学科奠基者之一吴壮达的治学人生与家国担当。
+此前，现代汽车集团宣布计划到2028年建成年产3万台人形机器人的工厂，并在现代汽车公司和起亚汽车公司的制造工厂部署2.5万台机器人。
 
-1947年至1948年，吴壮达受聘任台湾省立农学院(现中兴大学)教授。
+该公司还计划逐步将机器人部署扩展到其在印度和韩国的新工厂。
 
-其间，他采集了海量田野数据，搭建起完整的台湾区域地理研究体系，撰写了《台湾的开发》《台湾地理》《琉球与中国》等著作，相关著作被翻译成俄文等对外传播，《日月潭》便是改编自其中的一篇散文。
+消息人士称，现代汽车集团已成立一个专门负责机器人零部件采购的新办公室，由北京现代汽车前战略规划负责人Soh Hyun-seong领导。
 
-吴壮达深耕华南师范大学讲台三十五载，先后开设中国地理等十余门课程，为华南区域培育了大批地理专业人才。
+随着波士顿动力公司Atlas机器人进入量产阶段，此举被视为现代汽车集团旨在加强零部件采购能力并提升成本竞争力。
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 04:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 04:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 04:32 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 04:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 04:32 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 04:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 04:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 04:18 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 04:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 04:29 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 04:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 04:44 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 04:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 04:30 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 04:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 04:26 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 04:37 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 04:44 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 04:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 04:31 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 04:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 04:46 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/7127637433.shtml)
-- 2026-06-30 04:19 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/2648412.shtml)
-- 2026-06-30 04:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/1660136316.shtml)
-- 2026-06-30 04:26 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/9901413.shtml)
-- 2026-06-30 04:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/387921812.shtml)
-- 2026-06-30 04:15 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/270442467.shtml)
-- 2026-06-30 04:30 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/7019283605.shtml)
-- 2026-06-30 04:38 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/160481783.shtml)
-- 2026-06-30 04:26 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/9691382.shtml)
-- 2026-06-30 04:14 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/06693.shtml)
-- 2026-06-30 04:17 - [日本进球](http://www.share.kurohicncr.top/Article/details/78128169008.shtml)
-- 2026-06-30 04:31 - [明星大侦探第四季](http://www.share.minike.top/Article/details/407223135.shtml)
-- 2026-06-30 04:26 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/06453739463.shtml)
-- 2026-06-30 04:27 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/625689562.shtml)
-- 2026-06-30 04:36 - [一生一世](https://www.blog.minike.top/Article/details/1181248.shtml)
+- 2026-06-30 04:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/0801235045.shtml)
+- 2026-06-30 04:46 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/1045470.shtml)
+- 2026-06-30 04:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/62842.shtml)
+- 2026-06-30 04:43 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/649943623.shtml)
+- 2026-06-30 04:46 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/38060402.shtml)
+- 2026-06-30 04:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/29393637.shtml)
+- 2026-06-30 04:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/100249867246.shtml)
+- 2026-06-30 04:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/957839897351.shtml)
+- 2026-06-30 04:24 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/01126299.shtml)
+- 2026-06-30 04:43 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/10894901679.shtml)
+- 2026-06-30 04:23 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/20640.shtml)
+- 2026-06-30 04:41 - [青春环游记第三季](https://www.blog.minike.top/Article/details/08311437104.shtml)
+- 2026-06-30 04:23 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/73823.shtml)
+- 2026-06-30 04:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/96112704.shtml)
+- 2026-06-30 04:33 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/91677958.shtml)

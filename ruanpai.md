@@ -1,56 +1,59 @@
-# 纳斯达克总裁：SpaceX本次募资中有150亿美元来自散户
+# 外交部介绍巴基斯坦总理夏巴兹此访三大亮点
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 纳斯达克总裁尼尔森・格里格斯在 CNBC 采访中表示，SpaceX 的开盘撮合流程比预期更快、效率更高，本次由摩根士丹利牵头负责股价稳定操作，该股以 1.50 美元、5800 万股完成首笔开盘交易。 “这份成果并非纳斯达克一己之功，是整个市场各方协同，摩根士丹利主导稳定承销工作。我们高效匹配到承销商所需的订单规模，簿
+中新网北京5月26日电 (记者 谢雁冰)中国外交部发言人毛宁26日主持例行记者会。 有记者提问：我们注意到，巴基斯坦总理夏巴兹刚刚结束访华，发言人能否进一步介绍访问情况及此访主要成果和亮点？ 毛宁：巴基斯坦总理夏巴兹于5月23日至26日对中国进行正式访问。这是中巴建交75周年之际，两国间的一次重要高层交往，是对中巴特殊友好关系的巩固和提升。这次访问有三大亮点： 一是元首外交领航
 
 ## 正文
 
-专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 纳斯达克总裁尼尔森・格里格斯在 CNBC 采访中表示，SpaceX 的开盘撮合流程比预期更快、效率更高，本次由摩根士丹利牵头负责股价稳定操作，该股以 1.50 美元、5800 万股完成首笔开盘交易。
+中新网北京5月26日电 (记者 谢雁冰)中国外交部发言人毛宁26日主持例行记者会。
 
-“这份成果并非纳斯达克一己之功，是整个市场各方协同，摩根士丹利主导稳定承销工作。
+有记者提问：我们注意到，巴基斯坦总理夏巴兹刚刚结束访华，发言人能否进一步介绍访问情况及此访主要成果和亮点？
 
-我们高效匹配到承销商所需的订单规模，簿记订单里能看到大量买盘支撑。
+毛宁：巴基斯坦总理夏巴兹于5月23日至26日对中国进行正式访问。
 
-” 格里格斯称。
+这是中巴建交75周年之际，两国间的一次重要高层交往，是对中巴特殊友好关系的巩固和提升。
 
-格里格斯表示，本次 IPO 的簿记订单结构十分多元，涵盖长期纯多头机构、短线交易资金，散户认购热度更是空前高涨。
+这次访问有三大亮点： 一是元首外交领航，彰显中巴关系的战略性。
 
-他估算，本次募集资金里约 150 亿美元来自散户投资者，并称这一散户配售规模 “远超绝大多数新股发行”；同时提到特斯拉庞大的散户股东群体，很大程度上助推了市场对 SpaceX 上市的投资热情。
+中巴建交75年来，两国相互理解、相互信任、相互支持，锻造了牢不可破的传统友谊。
 
-开盘后不久，该股涨幅便扩大至开盘价上方约 20%。
+访问期间，习近平主席同夏巴兹总理深入沟通，两国领导人一致同意深化中巴全天候战略合作伙伴关系，加快构建更加紧密的中巴命运共同体，坚定支持彼此维护核心利益，为中巴关系提供政治引领，注入强劲动力。
 
-格里格斯透露，纳斯达克正密切监控股价波动，但暂未出现需要依据涨跌停熔断机制暂停交易的信号。
+二是务实合作支撑，彰显中巴关系的互利性。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 04:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 04:33 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 04:20 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 04:21 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 04:24 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 04:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 04:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 04:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 04:34 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 04:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:42 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 04:36 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 04:20 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 04:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 04:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 04:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 04:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 04:24 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 04:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 04:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 04:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 04:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:22 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/45640.shtml)
-- 2026-06-30 04:23 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/26446574.shtml)
-- 2026-06-30 04:30 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/54877.shtml)
-- 2026-06-30 04:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/606026.shtml)
-- 2026-06-30 04:12 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/42744699.shtml)
-- 2026-06-30 04:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/166609.shtml)
-- 2026-06-30 04:37 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/0879390361.shtml)
-- 2026-06-30 04:29 - [速度与激情9](http://www.blog.minike.top/Article/details/769628141360.shtml)
-- 2026-06-30 04:21 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/341246098.shtml)
-- 2026-06-30 04:17 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/0938018.shtml)
-- 2026-06-30 04:30 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/490252346.shtml)
-- 2026-06-30 04:39 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/84133.shtml)
-- 2026-06-30 04:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/769579768.shtml)
-- 2026-06-30 04:23 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/42660.shtml)
-- 2026-06-30 04:21 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/93176.shtml)
+- 2026-06-30 04:39 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/13657321235.shtml)
+- 2026-06-30 04:19 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/2925620005.shtml)
+- 2026-06-30 04:30 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/48824496.shtml)
+- 2026-06-30 04:31 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/476626.shtml)
+- 2026-06-30 04:34 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/2322762.shtml)
+- 2026-06-30 04:37 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/865689249.shtml)
+- 2026-06-30 04:22 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/05747.shtml)
+- 2026-06-30 04:44 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/916940050.shtml)
+- 2026-06-30 04:42 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/317248.shtml)
+- 2026-06-30 04:37 - [我和我的家乡](https://www.blog.minike.top/Article/details/9571624.shtml)
+- 2026-06-30 04:36 - [刘念回应](https://www.share.minike.top/Article/details/21189052087.shtml)
+- 2026-06-30 04:40 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/540365.shtml)
+- 2026-06-30 04:44 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/42107344923.shtml)
+- 2026-06-30 04:33 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/5143159.shtml)
+- 2026-06-30 04:26 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/41551824.shtml)

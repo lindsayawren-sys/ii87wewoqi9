@@ -1,61 +1,60 @@
-# 东岳集团早盘涨超10% 机构长期看三代制冷剂仍有较大涨价空间
+# 新加坡一季度GDP同比增长6%，经济前景下行风险显著上升
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-东岳集团（00189）早盘涨超10%，截至发稿，股价上涨10.47%，现报17.52港元，成交额5.60亿港元。 2027制冷剂配额政策征求意见稿下发。国内制冷剂27年配额方案与26年基本维持一致，其中HFC-245fa禁止转换到其他品种，其他品种切换至HFC-245fa转换比率上限提升至50%。受益于配额制生产和市场供需关系的持续改善，制冷剂均价有望迎来恢复性上涨。 中信建投
+新加坡贸工部周一表示，今年第一季度新加坡国内生产总值（GDP）同比增长6%，延续了上一季度5.7%的增长势头。 新加坡贸工部表示：“尽管如此，新加坡经济前景面临的下行风险已显著上升，贸工部将继续密切关注事态发展，并在必要时调整年内国内生产总值（GDP）增长预测。” 新加坡第一季度GDP环比增长1%，低于前一季度的1.3%。 一季度的增长主要得益于批发贸易、制造业以及金融和保险业
 
 ## 正文
 
-东岳集团（00189）早盘涨超10%，截至发稿，股价上涨10.47%，现报17.52港元，成交额5.60亿港元。
+新加坡贸工部周一表示，今年第一季度新加坡国内生产总值（GDP）同比增长6%，延续了上一季度5.7%的增长势头。
 
-2027制冷剂配额政策征求意见稿下发。
+新加坡贸工部表示：“尽管如此，新加坡经济前景面临的下行风险已显著上升，贸工部将继续密切关注事态发展，并在必要时调整年内国内生产总值（GDP）增长预测。
 
-国内制冷剂27年配额方案与26年基本维持一致，其中HFC-245fa禁止转换到其他品种，其他品种切换至HFC-245fa转换比率上限提升至50%。
+” 新加坡第一季度GDP环比增长1%，低于前一季度的1.3%。
 
-受益于配额制生产和市场供需关系的持续改善，制冷剂均价有望迎来恢复性上涨。
+一季度的增长主要得益于批发贸易、制造业以及金融和保险业的强劲表现。
 
-中信建投此前发布研报称，东岳集团是二代及三代制冷剂龙头，在R22、R32等核心产品的市占率高，且具备行业联合定价权。
+新加坡贸工部表示：“尤其值得一提的是，人工智能相关需求的强劲增长带动了批发贸易领域机械、设备和用品板块以及制造业电子和精密工程集群的增长。
 
-长期看三代制冷剂仍有较大涨价空间，公司有望深度受益。
+” 与此同时，金融和保险业全面增长，银行业、基金管理和证券交易等领域表现稳健。
 
-该行指出，制冷剂板块的丰厚利润有望为高端氟材料的研发持续补充血液。
+另一方面，新加坡贸工部在其最新经济调查报告中指出，受伊朗冲突影响，原油及其衍生品价格上涨和供应短缺，导致批发贸易领域的燃料和化学品板块以及制造业的化学品集群出现萎缩。
 
-责任编辑：卢昱君
+今年2月，新加坡贸工部将2026年经济增长预期从1%至3%上调至2%至4%，当时，全球金融状况预计会支撑全球经济增长，但自伊朗冲突爆发以来，全球经济前景恶化。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 04:39 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 04:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 04:30 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 04:40 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 04:36 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 04:29 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 04:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 04:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:14 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 04:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 04:23 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 04:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 04:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 04:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 04:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 04:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 04:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 04:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 04:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 04:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:22 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 04:33 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 04:24 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 04:37 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 04:26 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 04:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [天道](https://www.share.minike.top/Article/details/68681708495.shtml)
-- 2026-06-30 04:26 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/68645034089.shtml)
-- 2026-06-30 04:16 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/10953863.shtml)
-- 2026-06-30 04:27 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/381020894.shtml)
-- 2026-06-30 04:18 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/199402.shtml)
-- 2026-06-30 04:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/923429406.shtml)
-- 2026-06-30 04:32 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/1350593.shtml)
-- 2026-06-30 04:16 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/4802597.shtml)
-- 2026-06-30 04:22 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/46013251.shtml)
-- 2026-06-30 04:38 - [小娘惹](http://www.blog.minike.top/Article/details/087415.shtml)
-- 2026-06-30 04:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/241081.shtml)
-- 2026-06-30 04:28 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/6475272699.shtml)
-- 2026-06-30 04:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/76161.shtml)
-- 2026-06-30 04:37 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/3945818.shtml)
-- 2026-06-30 04:32 - [85花告别古偶](https://www.blog.minike.top/Article/details/36933.shtml)
+- 2026-06-30 04:39 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/406608489.shtml)
+- 2026-06-30 04:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/390158.shtml)
+- 2026-06-30 04:47 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/25886.shtml)
+- 2026-06-30 04:40 - [起风了](http://www.blog.minike.top/Article/details/050171444.shtml)
+- 2026-06-30 04:28 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/7431520.shtml)
+- 2026-06-30 04:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/013709.shtml)
+- 2026-06-30 04:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/597707903.shtml)
+- 2026-06-30 04:28 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/44374.shtml)
+- 2026-06-30 04:29 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/191087808.shtml)
+- 2026-06-30 04:34 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/406290105213.shtml)
+- 2026-06-30 04:33 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/531459958.shtml)
+- 2026-06-30 04:24 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/63719.shtml)
+- 2026-06-30 04:40 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/62228615637.shtml)
+- 2026-06-30 04:39 - [田曦薇没招了](http://www.blog.minike.top/Article/details/45156567.shtml)
+- 2026-06-30 04:41 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/520632.shtml)

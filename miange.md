@@ -1,58 +1,57 @@
-# 24年献血320次 她说“无偿献血是我做的最有意义的事”
+# 武汉七旬老人患40斤巨型肿瘤 同济多学科联手摘除
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网郑州6月14日电 (记者 韩章云)6月14日是第23个世界献血者日。在郑州举行的“世界献血者日主题宣传活动”中，献血志愿者王艳霞收到一捧红艳艳的花束，一位用血者以此向她致谢，感谢她坚持24年的献血义举。 血液，是生命的“应急生命线”，无偿献血对保障临床用血、挽救生命有重要作用。今年，我国世界献血者日的口号是“一滴热血，一份爱心；无偿献血，挽救生命”。 53岁的王艳霞是郑州
+发布时间：2026年05月26日 15:03 来源：中国新闻网 近日，华中科技大学附属同济医院完成一场高难度盆腔巨大卵巢肿瘤切除手术。在多学科团队的精准协作与全程护航下，医护团队一次性吸出20000毫升囊液，成功为患者拆除重达40斤的体内“炸弹”。 今年72岁的刘奶奶此前被确诊为卵巢肿瘤合并再生障碍性贫血。受病症影响，她的腹部异常膨隆，状态如同足月妊娠，巨大肿瘤长期压迫膈肌与肺
 
 ## 正文
 
-中新网郑州6月14日电 (记者 韩章云)6月14日是第23个世界献血者日。
+发布时间：2026年05月26日 15:03 来源：中国新闻网 近日，华中科技大学附属同济医院完成一场高难度盆腔巨大卵巢肿瘤切除手术。
 
-在郑州举行的“世界献血者日主题宣传活动”中，献血志愿者王艳霞收到一捧红艳艳的花束，一位用血者以此向她致谢，感谢她坚持24年的献血义举。
+在多学科团队的精准协作与全程护航下，医护团队一次性吸出20000毫升囊液，成功为患者拆除重达40斤的体内“炸弹”。
 
-血液，是生命的“应急生命线”，无偿献血对保障临床用血、挽救生命有重要作用。
+今年72岁的刘奶奶此前被确诊为卵巢肿瘤合并再生障碍性贫血。
 
-今年，我国世界献血者日的口号是“一滴热血，一份爱心；无偿献血，挽救生命”。
+受病症影响，她的腹部异常膨隆，状态如同足月妊娠，巨大肿瘤长期压迫膈肌与肺部，导致患者呼吸困难、行动受限。
 
-53岁的王艳霞是郑州市一名普通职员，2002年第一次献血，她自己也没想到，这一献就是24年，捐献全血3次，捐献成分血317次，她成为郑州市献血次数最多的女性。
+同时，由于长期病痛折磨与营养不良，患者身体极度虚弱，皮下脂肪极少，身体耐受度极差，手术风险和救治难度成倍增加。
 
-“现在，无偿献血已经成为我的生活习惯。
+5月18日，同济医院迅速启动多学科协作诊疗模式，集结妇产科、血液内科、麻醉科、心血管内科等多学科专家开展联合会诊。
 
-”王艳霞向记者表示，献血是一件利人利己的好事，多年来她已养成习惯，献血日前几天开始清淡饮食、保证充足的睡眠，以最健康饱满的状态去献血。
+团队全面评估患者身体状况、基础病史及手术风险，量身定制个体化诊疗方案，并制定了完备的手术应急预案。
 
-这些年，除了定期献血，王艳霞也加入志愿者队伍，为献血者服务、向大众科普无偿献血的常识，“一个人的力量是有限的，还是希望更多人能加入无偿献血队伍，捐献可再生的血液，挽救不可再生的生命”。
+手术过程中，医疗团队精准操作、稳步推进，先对肿瘤进行穿刺引流减压，一次性吸出近40斤、共计20000毫升囊液，再精细分离粘连组织，完整剥离巨大卵巢肿瘤，顺利完成双侧附件切除及盆腔粘连松解术。
 
 ## 相关推荐
 
-- 2026-06-30 04:21 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 04:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 04:12 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 04:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 04:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 04:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 04:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 04:18 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 04:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 04:35 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 04:13 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 04:38 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 04:20 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 04:45 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 04:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 04:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 04:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 04:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 04:40 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 04:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 04:36 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 04:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 04:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:19 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/96630749.shtml)
-- 2026-06-30 04:38 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/051820653549.shtml)
-- 2026-06-30 04:25 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/3495604713.shtml)
-- 2026-06-30 04:16 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9691234233.shtml)
-- 2026-06-30 04:37 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/474093670330.shtml)
-- 2026-06-30 04:40 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/3021962746.shtml)
-- 2026-06-30 04:33 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/63873.shtml)
-- 2026-06-30 04:28 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/2288039991.shtml)
-- 2026-06-30 04:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/379899332467.shtml)
-- 2026-06-30 04:19 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/19430.shtml)
-- 2026-06-30 04:36 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/8813420738.shtml)
-- 2026-06-30 04:35 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/92808866578.shtml)
-- 2026-06-30 04:22 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/9223942344.shtml)
-- 2026-06-30 04:36 - [逃狱兄弟](http://www.share.minike.top/Article/details/1650788123.shtml)
-- 2026-06-30 04:13 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/61438727.shtml)
+- 2026-06-30 04:46 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/53191925.shtml)
+- 2026-06-30 04:45 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/4866334394.shtml)
+- 2026-06-30 04:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/0309365302.shtml)
+- 2026-06-30 04:19 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/5583516693.shtml)
+- 2026-06-30 04:39 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/45876511.shtml)
+- 2026-06-30 04:19 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/0772445201.shtml)
+- 2026-06-30 04:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/9725691.shtml)
+- 2026-06-30 04:40 - [爱很美味](https://www.share.kurohicncr.top/Article/details/82151669.shtml)
+- 2026-06-30 04:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/3098814.shtml)
+- 2026-06-30 04:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/88107578.shtml)
+- 2026-06-30 04:24 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/8517777488.shtml)
+- 2026-06-30 04:35 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/721990695677.shtml)
+- 2026-06-30 04:20 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/11268955829.shtml)
+- 2026-06-30 04:47 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/870006.shtml)
+- 2026-06-30 04:18 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/6035679.shtml)

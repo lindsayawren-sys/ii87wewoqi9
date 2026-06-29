@@ -1,57 +1,60 @@
-# 博彩集团Flutter将从伦敦交易所退市，仅保留纽约上市
+# 2026班主任专业发展学术研讨会在深圳举办
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-伦敦证交所近年已有多家企业撤离 旗下拥有范德尤、扑克之星、帕迪鲍尔品牌的Flutter集团已于 2024 年 1 月登陆纽约股市。 Flutter集团（股票代码 FLUT，当前跌幅 1.89%）计划自伦敦证券交易所退市，此后仅在纽约单一市场挂牌交易，此举再度重创英国资本市场。 这家线上体育博彩与游戏企业表示，综合考量两地股票交易量与合规监管成本，从英国交易所退市符合公司及全体股
+中新网深圳5月25日电 (记者 索有为)2026班主任专业发展学术研讨会24至25日在深圳市南山区前海创新教育集团桂湾学校举办。研讨会以“班主任专业成长与班级育人环境优化”为主题，汇聚全国教育专家、一线班主任及教育工作者400余人，共同探讨新时代班主任队伍专业化建设路径。 中国陶行知研究会会长朱永新以视频方式致辞时表示，建设教育强国，根基在基础教育；基础教育的高质量发展，关键在
 
 ## 正文
 
-伦敦证交所近年已有多家企业撤离 旗下拥有范德尤、扑克之星、帕迪鲍尔品牌的Flutter集团已于 2024 年 1 月登陆纽约股市。
+中新网深圳5月25日电 (记者 索有为)2026班主任专业发展学术研讨会24至25日在深圳市南山区前海创新教育集团桂湾学校举办。
 
-Flutter集团（股票代码 FLUT，当前跌幅 1.89%）计划自伦敦证券交易所退市，此后仅在纽约单一市场挂牌交易，此举再度重创英国资本市场。
+研讨会以“班主任专业成长与班级育人环境优化”为主题，汇聚全国教育专家、一线班主任及教育工作者400余人，共同探讨新时代班主任队伍专业化建设路径。
 
-这家线上体育博彩与游戏企业表示，综合考量两地股票交易量与合规监管成本，从英国交易所退市符合公司及全体股东的最大利益。
+中国陶行知研究会会长朱永新以视频方式致辞时表示，建设教育强国，根基在基础教育；基础教育的高质量发展，关键在教师；而教师队伍中，班主任又是连接国家意志与儿童成长的第一座桥梁。
 
-集团旗下运营范德尤、扑克之星、帕迪鲍尔三大平台，公告称 7 月 31 日将是其在伦敦证交所的最后一个交易日。
+班主任队伍的专业水平，直接决定着基础教育的内涵品质；一间间教室的温度，直接关系着教育强国的民生温度。
 
-今年一季度公司净利润由去年同期 2.83 亿美元下滑至 2.18 亿美元，Flutter遂于 5 月启动对伦敦上市地位的评估审查。
+本次研讨会由中国教育学会班主任专业委员会、苏州大学新教育研究院、深圳市南山区教育局共同主办，深圳市南山区教育科学研究院承办。
 
-Flutter 2024 年 1 月登陆纽约证券交易所，并在同年 5 月 31 日将纽约定为第一上市地。
+教育部基础教育司副司长游森、中国教育学会班主任专委会理事长马建华等参加活动。
 
-近年来多家企业将核心上市阵地转移至美国，伦敦证券交易所持续遭遇企业撤离。
+新教育“完美教室”公益项目捐赠仪式在开幕式上举行。
 
-同类企业案例 今年 5 月，跨境支付企业智慧（Wise）将主上市地迁至纽约，仅保留伦敦二次上市资格； 3 月，设备租赁公司阿什泰德取消伦敦主板上市，将其美国核心业务子公司桑贝尔特租赁单独于纽交所挂牌。
+该项目自2012年启动以来，已在全国31个省市自治区捐赠建设完美教室341间，受益师生超过十万人。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 04:28 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 04:40 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 04:34 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 04:24 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 04:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 04:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 04:30 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 04:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 04:33 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 04:37 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 04:36 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 04:29 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 04:47 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 04:22 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 04:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 04:20 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 04:33 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 04:36 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 04:25 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 04:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 04:27 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 04:43 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 04:35 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/46438521.shtml)
-- 2026-06-30 04:37 - [千香](http://www.share.kurohicncr.top/Article/details/31940.shtml)
-- 2026-06-30 04:23 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/33689906.shtml)
-- 2026-06-30 04:36 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/426001025.shtml)
-- 2026-06-30 04:35 - [世界杯](https://www.share.kurohicncr.top/Article/details/949367.shtml)
-- 2026-06-30 04:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/7569549.shtml)
-- 2026-06-30 04:16 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/374829422.shtml)
-- 2026-06-30 04:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/665205.shtml)
-- 2026-06-30 04:21 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/9684686435.shtml)
-- 2026-06-30 04:25 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/91172.shtml)
-- 2026-06-30 04:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/0748184.shtml)
-- 2026-06-30 04:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/576091.shtml)
-- 2026-06-30 04:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/8366601953.shtml)
-- 2026-06-30 04:30 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/61035606736.shtml)
-- 2026-06-30 04:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/318347662.shtml)
+- 2026-06-30 04:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/132014362.shtml)
+- 2026-06-30 04:40 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/655937.shtml)
+- 2026-06-30 04:37 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/36580730278.shtml)
+- 2026-06-30 04:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/67063989.shtml)
+- 2026-06-30 04:43 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/1955092.shtml)
+- 2026-06-30 04:19 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/6486015.shtml)
+- 2026-06-30 04:18 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/9605767862.shtml)
+- 2026-06-30 04:41 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/387275154.shtml)
+- 2026-06-30 04:22 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/357485131316.shtml)
+- 2026-06-30 04:18 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/983006474119.shtml)
+- 2026-06-30 04:45 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/56478577485.shtml)
+- 2026-06-30 04:33 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/4371227088.shtml)
+- 2026-06-30 04:47 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/53622.shtml)
+- 2026-06-30 04:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/846637.shtml)
+- 2026-06-30 04:18 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/132590669005.shtml)

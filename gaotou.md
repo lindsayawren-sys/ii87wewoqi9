@@ -1,48 +1,49 @@
-# 百胜中国于6月12日斥资773.9万港元回购2.26万股
+# 拾光纪·这一幕情真意切，中塞铁杆友谊具象化了！
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-百胜中国（09987）发布公告，该公司于2026年6月12日斥资773.9万港元回购2.26万股股份，每股回购价格为337.6-345.4港元。 于同日，斥资300万美元回购6.77万股股份，每股回购价格为43.86-44.62美元；及注销6.85万股已回购股份。责任编辑：卢昱君
+5月24日至28日，塞尔维亚总统武契奇对中国进行国事访问。2024年5月，习主席访塞时，一万五千名当地民众挥舞两国国旗表示最热烈的欢迎。回顾这一幕，感受中塞铁杆友谊！
 
 ## 正文
 
-百胜中国（09987）发布公告，该公司于2026年6月12日斥资773.9万港元回购2.26万股股份，每股回购价格为337.6-345.4港元。
+5月24日至28日，塞尔维亚总统武契奇对中国进行国事访问。
 
-于同日，斥资300万美元回购6.77万股股份，每股回购价格为43.86-44.62美元；及注销6.85万股已回购股份。
+2024年5月，习主席访塞时，一万五千名当地民众挥舞两国国旗表示最热烈的欢迎。
 
-责任编辑：卢昱君
+回顾这一幕，感受中塞铁杆友谊！
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 04:18 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 04:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 04:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 04:17 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 04:28 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 04:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 04:41 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 04:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 04:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 04:34 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 04:14 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 04:34 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 04:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 04:22 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 04:26 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 04:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 04:34 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 04:35 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 04:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 04:45 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 04:32 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 04:21 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 04:22 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/71990610.shtml)
-- 2026-06-30 04:35 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/8680690943.shtml)
-- 2026-06-30 04:21 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/7431774251.shtml)
-- 2026-06-30 04:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/922284646061.shtml)
-- 2026-06-30 04:36 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/528191853.shtml)
-- 2026-06-30 04:39 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/13951.shtml)
-- 2026-06-30 04:33 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/602378198216.shtml)
-- 2026-06-30 04:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/8005468.shtml)
-- 2026-06-30 04:25 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/63353.shtml)
-- 2026-06-30 04:18 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/23493244.shtml)
-- 2026-06-30 04:13 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/05666.shtml)
-- 2026-06-30 04:17 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/30635955.shtml)
-- 2026-06-30 04:22 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/430653648.shtml)
-- 2026-06-30 04:27 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/28857513.shtml)
-- 2026-06-30 04:20 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/453731.shtml)
+- 2026-06-30 04:40 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/276226518.shtml)
+- 2026-06-30 04:36 - [小娘惹](https://www.blog.minike.top/Article/details/20484951454.shtml)
+- 2026-06-30 04:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/64699.shtml)
+- 2026-06-30 04:32 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/04669253.shtml)
+- 2026-06-30 04:35 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/121850366803.shtml)
+- 2026-06-30 04:20 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/95869391.shtml)
+- 2026-06-30 04:34 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/001273121.shtml)
+- 2026-06-30 04:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/4508624284.shtml)
+- 2026-06-30 04:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/8144614497.shtml)
+- 2026-06-30 04:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/32118.shtml)
+- 2026-06-30 04:25 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/9965555129.shtml)
+- 2026-06-30 04:40 - [周生如故](https://www.share.kurohicncr.top/Article/details/8991854749.shtml)
+- 2026-06-30 04:36 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/7041783.shtml)
+- 2026-06-30 04:27 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/790072.shtml)
+- 2026-06-30 04:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/20772092889.shtml)

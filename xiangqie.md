@@ -1,59 +1,48 @@
-# 没有中国队，满屏中国字！中国企业在世界杯上演“聪明反杀”，到底是谁的主场？
+# 伊朗最高领袖哈梅内伊：中东不会再为美国基地提供保护
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-文|《BUG》栏目 闫妍 北京时间6月12日凌晨，2026年美加墨世界杯将正式打响。 虽然，中国男足遗憾缺席，但中国企业从未离场，他们以一种近乎“霸屏”的姿态，成为本届世界杯最不可忽视的主角之一。虽没有中国队，但满屏中国字。 根据中国贸促会相关信息显示，本届世界杯16家全球赞助商中，中国企业占据4席，整体赞助投入超5亿美元，占到国际足联27亿美元赞助总收入的近五分之一，赞助规模
+伊朗最高领袖穆杰塔巴·哈梅内伊在有关伊斯兰教朝觐的书面声明中表示：“这个地区的国家和土地将不再充当美国军事基地的屏障。” 美国将“再也不会在该地区拥有制造事端和建设军事基地的安全避风港。” “我真诚而纯粹地邀请所有伊斯兰国家和政府发展友谊和合作。”责任编辑：江学思
 
 ## 正文
 
-文|《BUG》栏目 闫妍 北京时间6月12日凌晨，2026年美加墨世界杯将正式打响。
+伊朗最高领袖穆杰塔巴·哈梅内伊在有关伊斯兰教朝觐的书面声明中表示：“这个地区的国家和土地将不再充当美国军事基地的屏障。
 
-虽然，中国男足遗憾缺席，但中国企业从未离场，他们以一种近乎“霸屏”的姿态，成为本届世界杯最不可忽视的主角之一。
+” 美国将“再也不会在该地区拥有制造事端和建设军事基地的安全避风港。
 
-虽没有中国队，但满屏中国字。
+” “我真诚而纯粹地邀请所有伊斯兰国家和政府发展友谊和合作。
 
-根据中国贸促会相关信息显示，本届世界杯16家全球赞助商中，中国企业占据4席，整体赞助投入超5亿美元，占到国际足联27亿美元赞助总收入的近五分之一，赞助规模位居全球第二。
-
-据报道，“中国制造”的标签已经大量出现在全球各地足球市场，更有众多中国品牌站上“顶流C位”。
-
-从官方赞助商到外围借势品牌，从赛场广告到赛事装备，从转播技术到周边商品，“中国元素”正以前所未有的密度和深度，嵌入世界杯的每一个毛细血管。
-
-这不是偶然，而是一场谋划已久的“中国式突围”。
-
-16家全球赞助商中，中国占4席 FIFA官方赞助商名单中，中国品牌的身影格外醒目。
+”责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 04:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 04:17 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 04:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 04:33 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 04:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 04:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 04:35 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 04:13 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 04:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 04:32 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 04:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 04:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 04:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 04:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 04:22 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 04:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 04:37 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 04:18 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 04:25 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 04:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 04:28 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/3027961417.shtml)
-- 2026-06-30 04:37 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/8463214684.shtml)
-- 2026-06-30 04:32 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/4991463.shtml)
-- 2026-06-30 04:13 - [孙兴慜道歉](http://www.share.minike.top/Article/details/85321280175.shtml)
-- 2026-06-30 04:21 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/161107.shtml)
-- 2026-06-30 04:25 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/73467.shtml)
-- 2026-06-30 04:28 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/755051.shtml)
-- 2026-06-30 04:26 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/958986854.shtml)
-- 2026-06-30 04:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/52699.shtml)
-- 2026-06-30 04:19 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/300898.shtml)
-- 2026-06-30 04:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/99543521166.shtml)
-- 2026-06-30 04:19 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/3798321.shtml)
-- 2026-06-30 04:31 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/3290353.shtml)
-- 2026-06-30 04:24 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/570404991.shtml)
-- 2026-06-30 04:20 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/195745143.shtml)
+- 2026-06-30 04:25 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/464684551236.shtml)
+- 2026-06-30 04:33 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/471760.shtml)
+- 2026-06-30 04:27 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/8606602.shtml)
+- 2026-06-30 04:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/41059845655.shtml)
+- 2026-06-30 04:18 - [一生一世](http://www.share.minike.top/Article/details/50565.shtml)
+- 2026-06-30 04:32 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/05230.shtml)
+- 2026-06-30 04:44 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/154745.shtml)
+- 2026-06-30 04:42 - [刘念回应](http://www.blog.minike.top/Article/details/264318.shtml)
+- 2026-06-30 04:35 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/87078639335.shtml)
+- 2026-06-30 04:37 - [沙丘](https://www.blog.kurohicncr.top/Article/details/275858682915.shtml)
+- 2026-06-30 04:40 - [斗破苍穹](http://www.share.minike.top/Article/details/84419.shtml)
+- 2026-06-30 04:26 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/15794674.shtml)
+- 2026-06-30 04:25 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/032359949.shtml)
+- 2026-06-30 04:43 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/4250073.shtml)
+- 2026-06-30 04:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/3618702.shtml)

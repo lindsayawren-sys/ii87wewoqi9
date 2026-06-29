@@ -1,56 +1,56 @@
-# 创新药放量反攻，见底信号？华宝基金港股通创新药ETF（520880）劲涨3.66%，周线7连阴后首度收阳
+# 欧盟计划对谷歌处以数亿欧元罚款
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-6月12日，AH创新药携手上攻，显著跑赢大市！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。 聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨
+德国《商报》援引欧盟委员会消息人士称，欧盟计划对Alphabet旗下谷歌处以高达数亿欧元的罚款，作为一项反垄断调查的一部分。 该报称，相关裁决已接近完成，预计将在夏季休会前正式公布，并补充说，这将是欧盟因违反新《数字市场法案》（DMA）而开出的最高金额罚单。 此项调查于2025年3月正式启动，涉及对谷歌在搜索结果中偏袒自身服务的担忧，旨在确保这一全球最受欢迎的互联网搜索引擎遵守
 
 ## 正文
 
-6月12日，AH创新药携手上攻，显著跑赢大市！
+德国《商报》援引欧盟委员会消息人士称，欧盟计划对Alphabet旗下谷歌处以高达数亿欧元的罚款，作为一项反垄断调查的一部分。
 
-重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。
+该报称，相关裁决已接近完成，预计将在夏季休会前正式公布，并补充说，这将是欧盟因违反新《数字市场法案》（DMA）而开出的最高金额罚单。
 
-沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。
+此项调查于2025年3月正式启动，涉及对谷歌在搜索结果中偏袒自身服务的担忧，旨在确保这一全球最受欢迎的互联网搜索引擎遵守当地法规。
 
-聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！
+欧盟委员会发言人托马斯·雷尼耶在一份电子邮件声明中表示，比起“简单地开出罚单”，委员会更希望与谷歌找到未来合规的解决方案。
 
-权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨超5%，百济神州、翰森制药、三生制药齐涨超2%。
+“即使我们正就未来解决方案进行谈判，我们也会毫不犹豫地尽快推进下一步措施，”他补充道。
 
-热门ETF方面，100%创新药研发标的——港股通创新药ETF华宝（520880）全天震荡上行，盘中摸高3.92%，收涨3.66%，创下4月16日以来最大单日升幅，全天成交5.28亿元，较上日激增逾77%！
+本月早些时候，欧盟委员会曾表示，在谷歌此前提出的方案未达要求后，已给予其稍多一点时间来消除顾虑。
 
-本周，港股通创新药初现止跌迹象，520880在连跌7周后，周线终于收阳！
-
-尽管单周累计涨幅仅为0.25%，但已成功跑赢大盘，恒指周跌0.98%，连跌5周。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 04:25 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 04:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 04:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 04:39 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 04:21 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 04:31 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 04:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 04:37 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 04:40 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 04:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 04:20 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 04:25 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 04:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 04:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 04:46 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 04:46 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 04:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 04:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 04:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 04:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 04:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/99366906.shtml)
-- 2026-06-30 04:25 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/350666585.shtml)
-- 2026-06-30 04:12 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/782995595908.shtml)
-- 2026-06-30 04:24 - [请回答王牌2019](https://www.share.minike.top/Article/details/786692.shtml)
-- 2026-06-30 04:24 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/0763370771.shtml)
-- 2026-06-30 04:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/0703048.shtml)
-- 2026-06-30 04:41 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/120714571.shtml)
-- 2026-06-30 04:31 - [扬名立万](http://www.share.kurohicncr.top/Article/details/837952528434.shtml)
-- 2026-06-30 04:35 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/50358731.shtml)
-- 2026-06-30 04:36 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4900358071.shtml)
-- 2026-06-30 04:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/045209216.shtml)
-- 2026-06-30 04:29 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/3496510566.shtml)
-- 2026-06-30 04:27 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/82102014440.shtml)
-- 2026-06-30 04:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/48137.shtml)
-- 2026-06-30 04:36 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5789645974.shtml)
+- 2026-06-30 04:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7094739176.shtml)
+- 2026-06-30 04:29 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/68475749170.shtml)
+- 2026-06-30 04:20 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/297936500020.shtml)
+- 2026-06-30 04:25 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/466302.shtml)
+- 2026-06-30 04:44 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/388530721474.shtml)
+- 2026-06-30 04:42 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/5392913757.shtml)
+- 2026-06-30 04:44 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/213788558.shtml)
+- 2026-06-30 04:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/42104774146.shtml)
+- 2026-06-30 04:29 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/218621209774.shtml)
+- 2026-06-30 04:29 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/9473768.shtml)
+- 2026-06-30 04:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/03370169089.shtml)
+- 2026-06-30 04:24 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/718146.shtml)
+- 2026-06-30 04:40 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/7978365683.shtml)
+- 2026-06-30 04:18 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/583750.shtml)
+- 2026-06-30 04:46 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/07724388.shtml)

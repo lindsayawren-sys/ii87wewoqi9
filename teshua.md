@@ -1,56 +1,56 @@
-# 美国点火容易灭火难
+# 民政部：共同守护好每一名流动儿童健康成长
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-连日来，中东局势再度激变。 美国总统特朗普11日表示，鉴于美国和伊朗即将达成协议，他已取消原定针对伊朗的打击。但德黑兰方面12日表示，尚未就美国总统宣布的旨在结束战争的协议作出决定。 伊朗媒体表示：“他(特朗普)每小时都在撒谎并自吹自擂。” 此前，美军于6月9日对伊朗实施了打击。而面对美方的极限施压，伊朗外长阿拉格齐则针锋相对地放话：“美国若想要安全，就撤出我们这个地区。” 炮
+中新网5月26日电 国务院新闻办公室26日举行国务院政策例行吹风会，介绍《关于推行常住地提供基本公共服务的实施意见》有关情况。民政部儿童福利司司长孟志强表示，民政部将逐步统一关爱服务内容、办事流程、帮扶尺度等，推动流动儿童关爱服务走向标准化、规范化，真正做到人在哪里，关爱服务就跟进到哪里，共同守护好每一名流动儿童健康成长。孟志强介绍，流动儿童是指随父母或者其他监护人双方或者一方
 
 ## 正文
 
-连日来，中东局势再度激变。
+中新网5月26日电 国务院新闻办公室26日举行国务院政策例行吹风会，介绍《关于推行常住地提供基本公共服务的实施意见》有关情况。
 
-美国总统特朗普11日表示，鉴于美国和伊朗即将达成协议，他已取消原定针对伊朗的打击。
+民政部儿童福利司司长孟志强表示，民政部将逐步统一关爱服务内容、办事流程、帮扶尺度等，推动流动儿童关爱服务走向标准化、规范化，真正做到人在哪里，关爱服务就跟进到哪里，共同守护好每一名流动儿童健康成长。
 
-但德黑兰方面12日表示，尚未就美国总统宣布的旨在结束战争的协议作出决定。
+孟志强介绍，流动儿童是指随父母或者其他监护人双方或者一方离开户籍地，跨县域异地居住或生活6个月以上不满16周岁的未成年人，是流动人口中的重要群体。
 
-伊朗媒体表示：“他(特朗普)每小时都在撒谎并自吹自擂。
+近期，国务院印发《关于推行常住地提供基本公共服务的实施意见》，明确提出支持流动儿童融入城市，推动各地出台流动儿童在居住地享有关爱服务基础清单，保障流动儿童基本享有基本公共服务。
 
-” 此前，美军于6月9日对伊朗实施了打击。
+文件从国家层面确立了“流入地为主、流出地协同”的常住地服务保障总体原则，促进流动儿童在常住地同等享有养育、教育、医疗、困难救助、精神关爱等全方位保障。
 
-而面对美方的极限施压，伊朗外长阿拉格齐则针锋相对地放话：“美国若想要安全，就撤出我们这个地区。
+孟志强透露，民政部作为流动儿童和留守儿童权益保障的牵头部门，聚焦人口流动新形势和儿童成长的新需求，会同相关部门不断健全完善政策。
 
-” 炮火轰鸣之下，全球能源市场的神经再度紧绷，国际油价应声大涨。
+2024年8月，民政部等21部门联合印发《关于加强流动儿童关爱保护行动方案》，同步出台了《流动儿童在居住地享有关爱服务基础清单》，为流动儿童关爱服务划定了内容、明确了方向，基本搭建起“四梁八柱”的制度框架。
 
-一种更令全球市场揪心的观点是，无论接下来中东局势如何发展，哪怕美以与伊朗在短期内达成某种形式的停火，一场深层次的能源危机，似乎已不可避免地开始向全球蔓延。
+今年5月，民政部等23部门又联合印发《流动儿童在居住地享有关爱服务基础清单工作索引》，将关于推行常住地提供基本公共服务的实施意见要求落得更细更实了，工作索引相当于一部流动儿童权益保障的“实用手册”，明确了相关部门在幼有所育、学有所教、病有所医、住有所居、弱有所扶等方面的职责分工和工作要求，让流动儿童及其家长能够一目了然地了解可享受的服务项目和内容，推动实现从“有清单”向“会落地、能落地、落地好”转变。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 04:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 04:38 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 04:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 04:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 04:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 04:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 04:14 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 04:39 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 04:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 04:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 04:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 04:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 04:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 04:41 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 04:46 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 04:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 04:40 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/8358622396.shtml)
-- 2026-06-30 04:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/283965954971.shtml)
-- 2026-06-30 04:16 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/98069562839.shtml)
-- 2026-06-30 04:16 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/4170315.shtml)
-- 2026-06-30 04:14 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/068486650.shtml)
-- 2026-06-30 04:22 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/497086596433.shtml)
-- 2026-06-30 04:23 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/13170511939.shtml)
-- 2026-06-30 04:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/994733533264.shtml)
-- 2026-06-30 04:20 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/752625.shtml)
-- 2026-06-30 04:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/299576717.shtml)
-- 2026-06-30 04:17 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/1690108.shtml)
-- 2026-06-30 04:31 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/649227267.shtml)
-- 2026-06-30 04:30 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/770098.shtml)
-- 2026-06-30 04:32 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/73584360916.shtml)
-- 2026-06-30 04:35 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/151218343.shtml)
+- 2026-06-30 04:35 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/1669795.shtml)
+- 2026-06-30 04:20 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/675554.shtml)
+- 2026-06-30 04:42 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/24595216.shtml)
+- 2026-06-30 04:35 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/787348125.shtml)
+- 2026-06-30 04:29 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/14100927537.shtml)
+- 2026-06-30 04:35 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/56707689.shtml)
+- 2026-06-30 04:28 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7177619814.shtml)
+- 2026-06-30 04:34 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/468941528.shtml)
+- 2026-06-30 04:23 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/15063153385.shtml)
+- 2026-06-30 04:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/67752420.shtml)
+- 2026-06-30 04:19 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/323541.shtml)
+- 2026-06-30 04:32 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/292237237.shtml)
+- 2026-06-30 04:34 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/2071104.shtml)
+- 2026-06-30 04:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/465712.shtml)
+- 2026-06-30 04:32 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/9644493956.shtml)

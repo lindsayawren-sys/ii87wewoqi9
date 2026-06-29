@@ -1,56 +1,57 @@
-# 文化和自然遗产日丨一块石，映出百姓对安宁的盼
+# 安联：中国旅行者保险认知度全球第一，88%已购或计划购买
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-【文化和自然遗产日·漫动时节】 编者按：在中国，我们拥有4处世界文化和自然双重遗产：泰山、黄山、峨眉山-乐山大佛、武夷山。巨石不语，却成为了华夏文明的重要坐标。山养万物人传艺。在大山的荫泽下，或一门手艺、一种习俗、一股子精气神，世代绵延。山有魂，艺有心。2026年文化和自然遗产日前夕，光明网《漫动时节》栏目将带诸君走进4处双遗名山，于山与艺间，轻抚那流淌千年的文脉长河。 我们先
+尽管全球形势依然复杂，但似乎并没有挡住人们旅游的热情。 安联集团旗下专注救援与保险服务的安联世合携手安联人寿与京东安联财险，于5月26日共同发布的《2026安联全球旅行信心指数》（下称《指数》）调研数据显示，全球人群的旅行意愿依然强劲，总体达74%；其中，中国旅行者的旅行意愿更是高达81%。同时，中国也是全球旅行保险认知度最高的市场，88%的中国旅行者已经或计划为即将到来的夏季
 
 ## 正文
 
-【文化和自然遗产日·漫动时节】 编者按：在中国，我们拥有4处世界文化和自然双重遗产：泰山、黄山、峨眉山-乐山大佛、武夷山。
+尽管全球形势依然复杂，但似乎并没有挡住人们旅游的热情。
 
-巨石不语，却成为了华夏文明的重要坐标。
+安联集团旗下专注救援与保险服务的安联世合携手安联人寿与京东安联财险，于5月26日共同发布的《2026安联全球旅行信心指数》（下称《指数》）调研数据显示，全球人群的旅行意愿依然强劲，总体达74%；其中，中国旅行者的旅行意愿更是高达81%。
 
-山养万物人传艺。
+同时，中国也是全球旅行保险认知度最高的市场，88%的中国旅行者已经或计划为即将到来的夏季旅行购买旅行保险。
 
-在大山的荫泽下，或一门手艺、一种习俗、一股子精气神，世代绵延。
+该调研覆盖了全球10个主要市场。
 
-山有魂，艺有心。
+《指数》调研显示，尽管全球人群旅行意愿仍不低，但他们在规划夏季旅行时面临诸多顾虑，主要问题包括经济压力、全球不稳定局势和安全担忧、健康风险以及后勤保障方面的挑战。
 
-2026年文化和自然遗产日前夕，光明网《漫动时节》栏目将带诸君走进4处双遗名山，于山与艺间，轻抚那流淌千年的文脉长河。
+对中国旅行者而言，最担忧的事项依次为：公共卫生（91%）、极端天气风险（90%）、安全（88%）以及旅行中的健康风险（87%）。
 
-我们先从一块石头说起…… 泰山脚下，村落巷口，桥头要冲常见这样一块石 上书“泰山石敢当” 并不十分高大 甚至有些粗糙 但千百年来人们相信 这石能挡灾、能镇宅、能佑一方平安 “石敢当”三字 早见于西汉史游《急就篇》 “师猛虎，石敢当，所不侵，龙未央。
+在这样的背景下，保险成旅行“定心丸”。
 
-” 彼时，这是句驱邪镇宅的铭文 后来，人们将其人格化—— 相传泰山脚下，有位叫石敢当的青年 勇敢正直，击退了作祟的妖魔 为防流窜的小妖作怪 百姓于石上刻“泰山石敢当” 立于墙头，驱邪祛魅 朴素的传说 折射出国人对“安居”的祈盼 慢慢地 泰山封禅文化、民间山石崇拜以及英雄传说合流 “泰山石敢当习俗”逐渐成形 2006年 它被列入第一批国家级非物质文化遗产名录 “泰山石敢当习俗”遍布全国 甚至远播海外华人社区 如今 热衷文创的青年也相中了它 “石敢当”拓片、摆件、书签 成为备受追捧的非遗伴手礼 泰山是石敢当的精神原乡 那一山、一石、一传说 折射出国人对“稳”的质朴追求 身稳、业稳、家稳、国稳 山河无恙 人间皆安稳 策划：李方舟 董大正 宫辞 文案/制作：董大正 (光明网)
+《指数》数据显示，全球三分之二的旅行者表示有可能购买旅行保险，但各调研市场之间差异显著，反映出各调研市场旅行者在风险管理方面的态度乃至需求各不相同。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 04:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 04:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 04:30 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 04:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 04:15 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 04:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 04:33 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 04:22 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 04:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 04:34 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 04:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 04:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 04:32 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 04:46 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 04:27 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 04:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 04:35 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 04:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 04:23 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/94058529316.shtml)
-- 2026-06-30 04:27 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/16860.shtml)
-- 2026-06-30 04:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/832378910379.shtml)
-- 2026-06-30 04:12 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/1073028.shtml)
-- 2026-06-30 04:29 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/239786244814.shtml)
-- 2026-06-30 04:31 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/628108113.shtml)
-- 2026-06-30 04:19 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/75807648815.shtml)
-- 2026-06-30 04:23 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/7607774155.shtml)
-- 2026-06-30 04:38 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/42171975206.shtml)
-- 2026-06-30 04:24 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/829194.shtml)
-- 2026-06-30 04:37 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/57107786.shtml)
-- 2026-06-30 04:23 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/563436453.shtml)
-- 2026-06-30 04:17 - [内马尔替补](http://www.blog.minike.top/Article/details/7044995.shtml)
-- 2026-06-30 04:19 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/61877.shtml)
-- 2026-06-30 04:38 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/0063847.shtml)
+- 2026-06-30 04:30 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/613148907.shtml)
+- 2026-06-30 04:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/52066533918.shtml)
+- 2026-06-30 04:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/689927124.shtml)
+- 2026-06-30 04:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/90126908833.shtml)
+- 2026-06-30 04:22 - [急先锋](http://www.share.kurohicncr.top/Article/details/108141.shtml)
+- 2026-06-30 04:30 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/771464.shtml)
+- 2026-06-30 04:42 - [爱很美味](http://www.share.minike.top/Article/details/72179147.shtml)
+- 2026-06-30 04:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/292695484.shtml)
+- 2026-06-30 04:31 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/7780960649.shtml)
+- 2026-06-30 04:38 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/619650.shtml)
+- 2026-06-30 04:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/90195.shtml)
+- 2026-06-30 04:37 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/392291.shtml)
+- 2026-06-30 04:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/833048.shtml)
+- 2026-06-30 04:35 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/45118753025.shtml)
+- 2026-06-30 04:34 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/687191.shtml)

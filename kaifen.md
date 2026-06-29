@@ -1,57 +1,45 @@
-# 无锡惠山“惠聚新光” 让每一束“微光”暖心同行
+# 保险业已赔付湖北等六省份暴雨洪涝灾害损失2.1亿元
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-快递小哥、外卖骑手、网约车司机……城市运转的每一刻，这些奔忙在大街小巷的“微光”身影，是服务市民生活、助力区域发展的新生力军。 如何让他们被看见、被温暖、被凝聚？从“16条暖新举措”的精准落地，到“结对共建”机制的深度嵌入，再到“全场景友好”服务的全面铺开，无锡市惠山区以“惠聚新光”暖心聚力专项行动作答，用实实在在的行动，为新就业群体点亮前行的路。 近年来，惠山区全面打造“全场
+记者今天（25日）从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省（自治区、直辖市）保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。责任编辑：曹睿潼
 
 ## 正文
 
-快递小哥、外卖骑手、网约车司机……城市运转的每一刻，这些奔忙在大街小巷的“微光”身影，是服务市民生活、助力区域发展的新生力军。
+记者今天（25日）从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省（自治区、直辖市）保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。
 
-如何让他们被看见、被温暖、被凝聚？
-
-从“16条暖新举措”的精准落地，到“结对共建”机制的深度嵌入，再到“全场景友好”服务的全面铺开，无锡市惠山区以“惠聚新光”暖心聚力专项行动作答，用实实在在的行动，为新就业群体点亮前行的路。
-
-近年来，惠山区全面打造“全场景友好”服务，扎实开展新就业群体基层服务站点建设，依托各级党群服务中心设立71个暖“新”驿站。
-
-在商业综合体，增设“小哥专属停车位”和换电柜，遴选“友好商家”推出“小哥专属套餐”；在住宅小区，增设“小哥友好”引导标识牌，清晰标注楼栋分布、出入口位置、停车区域等关键信息，彻底打通配送“最后一米”。
-
-值得一提的是，针对货车司机群体，惠山区还依托石塘湾信息物流园区打造江苏首个市级道路货运行业党群服务中心“红色加油站”，提供休息、热水、药品、维修工具等基础服务，并常态化开展安全教育、健康义诊、法律咨询等活动。
-
-百件实事精准服务 “以前最怕手机没电、找不到地方吃饭，现在这些问题都有人帮我们想着。
-
-”外卖骑手张师傅说。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 04:19 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 04:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 04:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 04:17 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 04:26 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 04:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 04:15 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 04:37 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 04:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 04:12 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 04:39 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 04:30 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 04:46 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 04:28 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 04:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 04:41 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 04:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 04:42 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:22 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 04:33 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 04:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 04:38 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [流金岁月](http://www.share.minike.top/Article/details/30343836.shtml)
-- 2026-06-30 04:31 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/74215605973.shtml)
-- 2026-06-30 04:41 - [爱很美味](https://www.share.minike.top/Article/details/1440100614.shtml)
-- 2026-06-30 04:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/2307963355.shtml)
-- 2026-06-30 04:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/56592893.shtml)
-- 2026-06-30 04:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/84874.shtml)
-- 2026-06-30 04:39 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/881369.shtml)
-- 2026-06-30 04:12 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/282048.shtml)
-- 2026-06-30 04:31 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/4821910809.shtml)
-- 2026-06-30 04:20 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/913735929306.shtml)
-- 2026-06-30 04:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/48553.shtml)
-- 2026-06-30 04:14 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/43907540738.shtml)
-- 2026-06-30 04:38 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/510483.shtml)
-- 2026-06-30 04:33 - [爱很美味](https://www.blog.minike.top/Article/details/622564692.shtml)
-- 2026-06-30 04:17 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/7251659.shtml)
+- 2026-06-30 04:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/065964099710.shtml)
+- 2026-06-30 04:24 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/8721878.shtml)
+- 2026-06-30 04:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/86702870161.shtml)
+- 2026-06-30 04:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/34386827652.shtml)
+- 2026-06-30 04:32 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/6730450019.shtml)
+- 2026-06-30 04:39 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/61024.shtml)
+- 2026-06-30 04:20 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/387104359.shtml)
+- 2026-06-30 04:40 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/201746534876.shtml)
+- 2026-06-30 04:47 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/2965401114.shtml)
+- 2026-06-30 04:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/062978.shtml)
+- 2026-06-30 04:33 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/3719674.shtml)
+- 2026-06-30 04:38 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/18613831.shtml)
+- 2026-06-30 04:28 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/51426024414.shtml)
+- 2026-06-30 04:46 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/9131292356.shtml)
+- 2026-06-30 04:18 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/310366024391.shtml)

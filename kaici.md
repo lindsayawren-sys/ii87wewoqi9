@@ -1,56 +1,59 @@
-# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
+# 超百亿主力资金狂涌！有色金属领跑两市！中国铝业涨停，华宝基金有色ETF（159876）逆市上探2.85%
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
+今日（5月26日）午后，A股主要指数悉数飘绿，有色金属板块逆市领跑，截至发稿，获主力资金净流入超100亿元，板块吸金额高居31个申万一级行业首位！ 热门ETF方面，业绩高增，但行情滞涨的有色ETF华宝（159876）场内涨幅盘中上探2.85%，现涨1.62%，实时成交额超8700万元，交投火热。 成份股方面，铝业龙头显著领涨，有色ETF华宝（159876）涨幅前十大成份股中，铝
 
 ## 正文
 
-中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
+今日（5月26日）午后，A股主要指数悉数飘绿，有色金属板块逆市领跑，截至发稿，获主力资金净流入超100亿元，板块吸金额高居31个申万一级行业首位！
 
-《宣言》的达成，将发展权正式确立为一项人权。
+热门ETF方面，业绩高增，但行情滞涨的有色ETF华宝（159876）场内涨幅盘中上探2.85%，现涨1.62%，实时成交额超8700万元，交投火热。
 
-《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
+成份股方面，铝业龙头显著领涨，有色ETF华宝（159876）涨幅前十大成份股中，铝业龙头占据6席，中国铝业涨停、南山铝业涨超8%， 云铝股份、天山铝业涨逾6%；黄金龙头亦有亮眼表现，西部黄金涨超5%，山金国际涨逾3%，山东黄金涨逾2%。
 
-在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
+此外，钼业龙头金钼股份涨停，铅锌龙头国城矿业涨逾5%。
 
-气候变化是人类当前面临的最严峻挑战之一。
+有色ETF华宝（159876）成份股 当前涨幅TOP10 消息面上，美国和伊朗有望达成停火协议的消息提振市场情绪，市场预期霍尔木兹海峡将重新开放，受此影响国际油价大跌超5%，通胀担忧随之降温。
 
-联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
+同时，美元指数走低，为黄金和白银等无息资产提供了估值支撑。
 
-据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
+东吴证券认为，加息预期过度，市场存在错误定价。
 
-在此背景下，“气候正义”概念正从边缘走向全球核心议程。
+当前市场对于2026年底至2027年的加息预期可能过度，美国经济并非“过热”，而是由AI与能源双轮驱动带来的更加K型的经济结构，这意味着市场对于加息预期可能存在错误定价。
 
 ## 相关推荐
 
-- 2026-06-30 04:27 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 04:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 04:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 04:19 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 04:26 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 04:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 04:16 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 04:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 04:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 04:41 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 04:31 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 04:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 04:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 04:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 04:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 04:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 04:40 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 04:33 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 04:28 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 04:33 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 04:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 04:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 04:37 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:18 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/067310.shtml)
-- 2026-06-30 04:27 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/77370450.shtml)
-- 2026-06-30 04:20 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/360643.shtml)
-- 2026-06-30 04:28 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/76715272062.shtml)
-- 2026-06-30 04:17 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/044486740708.shtml)
-- 2026-06-30 04:33 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/783243860.shtml)
-- 2026-06-30 04:39 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/66327.shtml)
-- 2026-06-30 04:36 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/94001464793.shtml)
-- 2026-06-30 04:17 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/004301.shtml)
-- 2026-06-30 04:16 - [刘念回应](https://www.blog.minike.top/Article/details/59971.shtml)
-- 2026-06-30 04:40 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/92101.shtml)
-- 2026-06-30 04:17 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/374037.shtml)
-- 2026-06-30 04:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/945286.shtml)
-- 2026-06-30 04:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/279942098004.shtml)
-- 2026-06-30 04:24 - [送你一朵小红花](https://www.blog.minike.top/Article/details/71105027.shtml)
+- 2026-06-30 04:30 - [时光音乐会](https://www.share.minike.top/Article/details/1562965.shtml)
+- 2026-06-30 04:28 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/582043.shtml)
+- 2026-06-30 04:28 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/493769150406.shtml)
+- 2026-06-30 04:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/185469924022.shtml)
+- 2026-06-30 04:33 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/40419144.shtml)
+- 2026-06-30 04:32 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/87215643.shtml)
+- 2026-06-30 04:41 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/7665638021.shtml)
+- 2026-06-30 04:42 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/91987990476.shtml)
+- 2026-06-30 04:28 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/483382005.shtml)
+- 2026-06-30 04:34 - [毒液2](https://www.share.kurohicncr.top/Article/details/61283.shtml)
+- 2026-06-30 04:42 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/289505.shtml)
+- 2026-06-30 04:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/984827.shtml)
+- 2026-06-30 04:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/29117176.shtml)
+- 2026-06-30 04:42 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/96639.shtml)
+- 2026-06-30 04:19 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/56136421362.shtml)

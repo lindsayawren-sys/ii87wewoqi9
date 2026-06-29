@@ -1,57 +1,57 @@
-# 2026年文化和自然遗产日：民众漫步南京明城墙邂逅六百年历史
+# 新加坡 4 月通胀率录得 1.8%，低于预期，同时上调经济增长预期
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
+新加坡周一公布，受服务业与零售物价涨幅收窄影响，4月消费者物价同比上涨1.8%，增幅低于市场预期。 媒体调查的经济学家此前预估整体通胀率为2%。 剔除私人交通及住房价格后的核心通胀率为1.4%，低于1.7%的预期值。 新加坡金融管理局表示，未来数月该国输入性成本压力预计将逐步攀升且影响范围扩大。 政府声明称：“中东局势变动推高能源及其他生产要素成本，相关成本将沿全球供应链传导，
 
 ## 正文
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+新加坡周一公布，受服务业与零售物价涨幅收窄影响，4月消费者物价同比上涨1.8%，增幅低于市场预期。
 
-“世界杯魔咒”失灵了？
+媒体调查的经济学家此前预估整体通胀率为2%。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+剔除私人交通及住房价格后的核心通胀率为1.4%，低于1.7%的预期值。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+新加坡金融管理局表示，未来数月该国输入性成本压力预计将逐步攀升且影响范围扩大。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+政府声明称：“中东局势变动推高能源及其他生产要素成本，相关成本将沿全球供应链传导，进而抬高新加坡各类进口商品与服务的生产、运输成本。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+” 新加坡金管局预测，2026年全年整体通胀与核心通胀区间均为1.5%至2.5%。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
+同日早些时候，新加坡大幅上调一季度国内生产总值增速，从此前初步预估的4.6%修正至6%，超出媒体5.1%的预测值。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+新加坡贸工部称，受霍尔木兹海峡能源运输受阻影响，该国2026年全年经济增速预计维持在2%至4%区间。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 04:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 04:26 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 04:26 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 04:33 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 04:31 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 04:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 04:24 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 04:25 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 04:34 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 04:13 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 04:24 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 04:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 04:38 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 04:24 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:22 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 04:36 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 04:39 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 04:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 04:22 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 04:24 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:12 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/01142375.shtml)
-- 2026-06-30 04:38 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/423734.shtml)
-- 2026-06-30 04:13 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/62390.shtml)
-- 2026-06-30 04:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/26797.shtml)
-- 2026-06-30 04:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/818386901.shtml)
-- 2026-06-30 04:32 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/27749362.shtml)
-- 2026-06-30 04:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/637579.shtml)
-- 2026-06-30 04:19 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/17811873917.shtml)
-- 2026-06-30 04:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/965834.shtml)
-- 2026-06-30 04:41 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/232732941.shtml)
-- 2026-06-30 04:18 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/3708157.shtml)
-- 2026-06-30 04:23 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/517462642486.shtml)
-- 2026-06-30 04:19 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/691466190739.shtml)
-- 2026-06-30 04:27 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/9863034.shtml)
-- 2026-06-30 04:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/4170893480.shtml)
+- 2026-06-30 04:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/07981729391.shtml)
+- 2026-06-30 04:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/298940634.shtml)
+- 2026-06-30 04:30 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/44229.shtml)
+- 2026-06-30 04:43 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/18651867797.shtml)
+- 2026-06-30 04:29 - [金牌调解](http://www.share.minike.top/Article/details/686350229.shtml)
+- 2026-06-30 04:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/7442399.shtml)
+- 2026-06-30 04:20 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/8008869181.shtml)
+- 2026-06-30 04:21 - [人类...完蛋了...](https://www.share.minike.top/Article/details/0535154.shtml)
+- 2026-06-30 04:21 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/45382536.shtml)
+- 2026-06-30 04:33 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/00679052240.shtml)
+- 2026-06-30 04:21 - [千香](http://www.blog.minike.top/Article/details/36550828.shtml)
+- 2026-06-30 04:40 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/40617405.shtml)
+- 2026-06-30 04:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/94179261.shtml)
+- 2026-06-30 04:42 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/64164.shtml)
+- 2026-06-30 04:35 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/409961806121.shtml)

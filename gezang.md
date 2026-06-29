@@ -1,52 +1,57 @@
-# 前特斯拉董事会成员：SpaceX需至少实现两大目标才能维持2万亿美元估值
+# 想查年报请先“自报家门”？河北多家银行官网查阅设门槛
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克旗下SpaceX的前特斯拉董事会成员周五对CNBC表示，该公司需要实现其三项“登月”目标中的至少两项，才能支撑其巨大的估值。 风险投资家、前特斯拉董事会成员史蒂夫·韦斯特利周五表示，对SpaceX即将进行的IPO进行定价将难以预测，因为其三大核心业务“完全不同”。 除了太空业务，马斯克的公司还拥有Starlink卫星互联网服务，该服务占其营收的大部分，并且是唯一盈利
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月26日，记者发现，沧州银行、保定银行、邯郸银行、廊坊银行等部分河北地方性银行官网的2025年年报查阅通道，均设置不同程度的访问门槛。用户需先填写个人信息方可查看2025年年报，个别银行甚至还出现填对信息后仍无法查阅、页面卡顿、下载迟迟无响应等问题，给公众及投资者获取公开信息带来不便。 具体来看，各家银行对信息的要求略有不同。
 
 ## 正文
 
-埃隆·马斯克旗下SpaceX的前特斯拉董事会成员周五对CNBC表示，该公司需要实现其三项“登月”目标中的至少两项，才能支撑其巨大的估值。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月26日，记者发现，沧州银行、保定银行、邯郸银行、廊坊银行等部分河北地方性银行官网的2025年年报查阅通道，均设置不同程度的访问门槛。
 
-风险投资家、前特斯拉董事会成员史蒂夫·韦斯特利周五表示，对SpaceX即将进行的IPO进行定价将难以预测，因为其三大核心业务“完全不同”。
+用户需先填写个人信息方可查看2025年年报，个别银行甚至还出现填对信息后仍无法查阅、页面卡顿、下载迟迟无响应等问题，给公众及投资者获取公开信息带来不便。
 
-除了太空业务，马斯克的公司还拥有Starlink卫星互联网服务，该服务占其营收的大部分，并且是唯一盈利的部门。
+具体来看，各家银行对信息的要求略有不同。
 
-此外，公司还包括xAI——马斯克于今年2月将xAI与SpaceX合并。
+沧州银行只需填写姓名和手机号，输入正确的验证码后，即可成功查阅其2025年年报。
 
-责任编辑：张俊 SF065
+年报显示，截至2025年末，沧州银行总资产3258.51亿元；2025年实现主营业务收入61.43亿元，同比减少约2.8亿元；实现净利润14.55亿元，同比微增。
+
+相比之下，保定银行、邯郸银行、廊坊银行3家银行则需要填写姓名、职业、所在机构等更多信息。
+
+其中，廊坊银行还额外设置了图形验证和短信验证两种方式。
+
+记者按要求填写信息后，成功查阅了邯郸银行2025年年报：截至2025年末，总资产为2608.64亿元；2025年实现净利润5.89亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 04:28 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 04:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 04:13 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 04:18 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 04:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 04:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 04:22 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 04:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 04:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 04:17 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 04:23 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 04:46 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 04:31 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:45 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 04:44 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 04:31 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 04:30 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 04:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 04:24 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 04:25 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 04:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 04:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/807284.shtml)
-- 2026-06-30 04:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/30099.shtml)
-- 2026-06-30 04:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/516243.shtml)
-- 2026-06-30 04:32 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/36950439.shtml)
-- 2026-06-30 04:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/73702.shtml)
-- 2026-06-30 04:37 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/484516.shtml)
-- 2026-06-30 04:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/5011373224.shtml)
-- 2026-06-30 04:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/3902792.shtml)
-- 2026-06-30 04:21 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/2994902.shtml)
-- 2026-06-30 04:13 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/9618007.shtml)
-- 2026-06-30 04:39 - [青春环游记第三季](https://www.blog.minike.top/Article/details/5788081.shtml)
-- 2026-06-30 04:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/244032372124.shtml)
-- 2026-06-30 04:40 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/81542073594.shtml)
-- 2026-06-30 04:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/72730.shtml)
-- 2026-06-30 04:25 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/156516824791.shtml)
+- 2026-06-30 04:31 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/4326245.shtml)
+- 2026-06-30 04:28 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/86395656.shtml)
+- 2026-06-30 04:19 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/85352.shtml)
+- 2026-06-30 04:29 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/27814096242.shtml)
+- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/65746217.shtml)
+- 2026-06-30 04:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/6825444188.shtml)
+- 2026-06-30 04:20 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/122288186.shtml)
+- 2026-06-30 04:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/4349111.shtml)
+- 2026-06-30 04:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/93738155.shtml)
+- 2026-06-30 04:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/06128268107.shtml)
+- 2026-06-30 04:44 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/481885773147.shtml)
+- 2026-06-30 04:27 - [日本淘汰](https://www.share.minike.top/Article/details/96417.shtml)
+- 2026-06-30 04:46 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/99751.shtml)
+- 2026-06-30 04:41 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/337841780.shtml)
+- 2026-06-30 04:36 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/3583738.shtml)

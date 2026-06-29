@@ -1,56 +1,58 @@
-# 传承信仰的力量 经典话剧《红岩》在沪亮相
+# 中国首富，砸5亿再次跨界
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网上海6月12日电 (谢梦圆)12日下午，由中国文联戏剧艺术中心指导、中国国家铁路集团有限公司党组宣传部监制、中国铁路文工团出品的经典话剧《红岩》亮相上海，在同济大学四平路校区礼堂上演。 此次演出的话剧《红岩》改编自同名经典革命历史小说，是中国铁路文工团的经典剧目，经过四次创排，先后在北京、重庆、成都、长沙、南昌等地巡演，生动讲述了在重庆解放前夕，许云峰、江姐、成岗等共产党
+记者丨费心懿 编辑丨曹恩惠 骆一帆 当全固态电池被业界视为下一代电池的重要方向之时，中国首富钟睒睒悄然入局。 2026年5月，农夫山泉创始人钟睒睒通过其控制的养生堂有限公司出资设立的私募基金，领投了一家成立仅一年有余的固态电解质企业——浙江智邦锂电新材料有限公司（下称智邦锂电）。 这笔通过基金间接落地的投资，将这位“大自然的搬运工”推向了新能源材料产业的最上游，也折射出固态电池
 
 ## 正文
 
-中新网上海6月12日电 (谢梦圆)12日下午，由中国文联戏剧艺术中心指导、中国国家铁路集团有限公司党组宣传部监制、中国铁路文工团出品的经典话剧《红岩》亮相上海，在同济大学四平路校区礼堂上演。
+记者丨费心懿 编辑丨曹恩惠 骆一帆 当全固态电池被业界视为下一代电池的重要方向之时，中国首富钟睒睒悄然入局。
 
-此次演出的话剧《红岩》改编自同名经典革命历史小说，是中国铁路文工团的经典剧目，经过四次创排，先后在北京、重庆、成都、长沙、南昌等地巡演，生动讲述了在重庆解放前夕，许云峰、江姐、成岗等共产党员因叛徒出卖被捕，在狱中顽强斗争，迎接新中国黎明的故事。
+2026年5月，农夫山泉创始人钟睒睒通过其控制的养生堂有限公司出资设立的私募基金，领投了一家成立仅一年有余的固态电解质企业——浙江智邦锂电新材料有限公司（下称智邦锂电）。
 
-为进一步弘扬红岩精神、传承信仰力量，中国铁路上海局集团有限公司(简称“上铁集团”)邀请干部职工、同济大学师生等共同观剧，在舞台光影中重温不朽红岩精神，邂逅跨越时代的感动。
+这笔通过基金间接落地的投资，将这位“大自然的搬运工”推向了新能源材料产业的最上游，也折射出固态电池赛道对圈外资本的强大吸引力。
 
-剧中角色江姐、许云峰、成岗等不畏酷刑、慷慨赴死的坚贞和不屈，深深打动观众，现场不时爆发雷鸣般的掌声。
+二级市场上，据Wind显示，截至2026年5月26日，固态电池板块年内累计涨幅超24%，多只龙头股年内股价大涨，大族激光、德福科技年内涨超200%。
 
-演出结束后，上海动车段调试车间列调一班工长张华，“最美铁路人”、上海机辆段“周恩来号”机车组党支部书记冯剑坚，上海客运段高铁一车队业务员顾蓉等铁路劳模，为现场铁路干部职工和同济大学师生带来“对话《红岩》：穿越时空的信仰传承”情景大思政课，深情讲述新时代铁路人感悟红岩精神、拼搏奋斗追梦的感人故事。
+首富的跨界投资密码 据公开信息，2026年5月8日，智邦锂电完成A轮融资，领投方昆山格物致知一期创业投资基金持股约10%。
 
-“这是一场直击心灵的艺术盛宴。
+穿透股权后，该基金核心出资方为养生堂有限公司，认缴约5亿元，占比约81%，而养生堂的实际控制人正是钟睒睒。
 
-我们新时代‘周恩来号’机车组精神‘忠诚热爱、奋斗担当，手握闸把、心系旅客’，是红岩精神在铁路的传承与发展。
+这意味着，钟睒睒通过基金间接持有智邦锂电，正式切入固态电池材料赛道。
 
-今后我们将赤诚忠魂融入每一次值乘任务，守护万千旅客归途，让红岩精神随着‘周恩来号’机车在飞驰铁道线上代代相传。
+此外，在本轮融资中，衢州地方国资背景的衢州智纳、险峰长青等也联合参投。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 04:38 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 04:20 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 04:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 04:19 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 04:20 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 04:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 04:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 04:39 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 04:40 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 04:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 04:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 04:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 04:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 04:30 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 04:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 04:41 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 04:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 04:45 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 04:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 04:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/65088338824.shtml)
-- 2026-06-30 04:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/95707855181.shtml)
-- 2026-06-30 04:27 - [孙兴慜道歉](https://www.share.minike.top/Article/details/837666055.shtml)
-- 2026-06-30 04:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/50321.shtml)
-- 2026-06-30 04:38 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/963645.shtml)
-- 2026-06-30 04:16 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/073328907765.shtml)
-- 2026-06-30 04:39 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/452693777.shtml)
-- 2026-06-30 04:25 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/261911197.shtml)
-- 2026-06-30 04:32 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/56805.shtml)
-- 2026-06-30 04:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/829057.shtml)
-- 2026-06-30 04:40 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/05912.shtml)
-- 2026-06-30 04:33 - [极限挑战第一季](http://www.share.minike.top/Article/details/419982509.shtml)
-- 2026-06-30 04:32 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/89002495.shtml)
-- 2026-06-30 04:16 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/55645.shtml)
-- 2026-06-30 04:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/250715704501.shtml)
+- 2026-06-30 04:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9211979.shtml)
+- 2026-06-30 04:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/50008.shtml)
+- 2026-06-30 04:18 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/95169787.shtml)
+- 2026-06-30 04:38 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/44293.shtml)
+- 2026-06-30 04:44 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/89204020247.shtml)
+- 2026-06-30 04:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/796530042679.shtml)
+- 2026-06-30 04:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/52903901617.shtml)
+- 2026-06-30 04:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/693870963.shtml)
+- 2026-06-30 04:25 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/3161381047.shtml)
+- 2026-06-30 04:39 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/1830661.shtml)
+- 2026-06-30 04:33 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/16357.shtml)
+- 2026-06-30 04:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/07674179764.shtml)
+- 2026-06-30 04:27 - [月亮](https://www.blog.minike.top/Article/details/968695987670.shtml)
+- 2026-06-30 04:40 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/044265.shtml)
+- 2026-06-30 04:18 - [扬名立万](http://www.share.kurohicncr.top/Article/details/1622911572.shtml)

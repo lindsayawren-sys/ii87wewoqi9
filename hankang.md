@@ -1,43 +1,56 @@
-# 塔里木河出现今年首场洪水 正式入汛
+# 港股午评：恒指涨0.54% 科指涨2.29% 航空股回暖 芯片股走强 华虹半导体涨超10% 联想涨超17%
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 13:20 来源：央视新闻 责任编辑：【韦俊龙】
+5月26日消息，港股三大指数高开高走。截至午间收盘，恒生指数涨0.54%，报25743.37，恒生科技指数涨2.29%，国企指数涨0.91%。盘面上，科网股涨跌不一，联想涨超17%，网易涨超4%，阿里巴巴、小米涨超1%，京东跌超2%，美团、哔哩哔哩跌超1%；芯片股走强，华虹半导体涨超10%；航空股回暖，东方航空涨超5%；铝业股活跃，中国铝业涨超7%。 芯片股走强，华虹半导体涨超
 
 ## 正文
 
-发布时间：2026年06月12日 13:20 来源：央视新闻 责任编辑：【韦俊龙】
+5月26日消息，港股三大指数高开高走。
+
+截至午间收盘，恒生指数涨0.54%，报25743.37，恒生科技指数涨2.29%，国企指数涨0.91%。
+
+盘面上，科网股涨跌不一，联想涨超17%，网易涨超4%，阿里巴巴、小米涨超1%，京东跌超2%，美团、哔哩哔哩跌超1%；芯片股走强，华虹半导体涨超10%；航空股回暖，东方航空涨超5%；铝业股活跃，中国铝业涨超7%。
+
+芯片股走强，华虹半导体涨超10%。
+
+5月25日，华为正式发表“韬（τ）定律”引发市场关注。
+
+人民日报社网络评论平台“人民锐评”公众号发文称，该定律”不以几何尺寸论英雄，而以逻辑折叠和时间效率取胜，在摩尔定律之外开启“第二曲线”，丰富了全球半导体产业发展路径。
+
+此前发改委召开发布会，指导国产大模型加大力度适配国产算力芯片。
+
+分析认为这一表态将“国产大模型”与“国产算力芯片”的协同适配提升至明确的政策指导层面。
 
 ## 相关推荐
 
-- 2026-06-30 04:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 04:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 04:29 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 04:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 04:19 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 04:40 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 04:40 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 04:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 04:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 04:28 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 04:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 04:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 04:32 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 04:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 04:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 04:44 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 04:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 04:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 04:30 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 04:25 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 04:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/79012.shtml)
-- 2026-06-30 04:35 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/98341081.shtml)
-- 2026-06-30 04:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/516548859.shtml)
-- 2026-06-30 04:23 - [送你一朵小红花](http://www.share.minike.top/Article/details/99202307.shtml)
-- 2026-06-30 04:39 - [巴西绝杀日本](https://www.share.minike.top/Article/details/7519935.shtml)
-- 2026-06-30 04:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/08807719.shtml)
-- 2026-06-30 04:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/053716372490.shtml)
-- 2026-06-30 04:29 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/0259909933.shtml)
-- 2026-06-30 04:18 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/26863552.shtml)
-- 2026-06-30 04:18 - [沉睡花园](https://www.share.minike.top/Article/details/7393827.shtml)
-- 2026-06-30 04:31 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/37991651844.shtml)
-- 2026-06-30 04:19 - [日本16强魔咒](http://www.blog.minike.top/Article/details/4725702.shtml)
-- 2026-06-30 04:17 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/6803377.shtml)
-- 2026-06-30 04:18 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/77901473180.shtml)
-- 2026-06-30 04:39 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/98220688.shtml)
+- 2026-06-30 04:22 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/23126.shtml)
+- 2026-06-30 04:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/139715539.shtml)
+- 2026-06-30 04:18 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/3445904.shtml)
+- 2026-06-30 04:27 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6946839.shtml)
+- 2026-06-30 04:47 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/3647631.shtml)
+- 2026-06-30 04:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/1282247.shtml)
+- 2026-06-30 04:23 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/03007.shtml)
+- 2026-06-30 04:25 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/87036.shtml)
+- 2026-06-30 04:40 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/812791553.shtml)
+- 2026-06-30 04:19 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/86226376676.shtml)
+- 2026-06-30 04:25 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/790189581852.shtml)
+- 2026-06-30 04:21 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/05030831.shtml)
+- 2026-06-30 04:40 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/498232829357.shtml)
+- 2026-06-30 04:34 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/932990277691.shtml)
+- 2026-06-30 04:18 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/579743408137.shtml)

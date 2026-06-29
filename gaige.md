@@ -1,57 +1,56 @@
-# 德国央行行长：欧洲央行准备再度上调借贷利率
+# 好评中国｜服务业新动能澎湃，高质量发展步履铿锵
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-德国央行行长约阿希姆・内格尔于周五表态，欧洲央行准备再度上调借贷利率。就在此前一天，欧洲央行因中东地区引发的能源冲击，做出了自2023年以来的首次加息决定。 周四，欧洲央行将基准利率（存款便利利率）上调25个基点至2.25%，成为七国集团中首个针对海湾地区冲突出台货币政策应对的央行。内格尔随后发表声明称：“我们保留所有政策选项，一旦形势需要，将再次采取加息行动。” 内格尔表示，
+今年以来，在推动服务业扩能提质各项措施的作用下，我国服务业保持了平稳增长，结构优化升级，新动能稳步成长，呈现出量增质升的发展态势。4月份，服务业生产指数同比增长4.3%。服务业既是吸纳就业、拉动经济增长的主引擎，也是推动农业和工业发展的润滑剂与催化剂。服务业延续向稳向好态势，充分说明我国经济增长的潜力大、韧性强。数字技术赋能，新动能加速涌现。在数字经济时代，算力需求快速增长，信
 
 ## 正文
 
-德国央行行长约阿希姆・内格尔于周五表态，欧洲央行准备再度上调借贷利率。
+今年以来，在推动服务业扩能提质各项措施的作用下，我国服务业保持了平稳增长，结构优化升级，新动能稳步成长，呈现出量增质升的发展态势。
 
-就在此前一天，欧洲央行因中东地区引发的能源冲击，做出了自2023年以来的首次加息决定。
+4月份，服务业生产指数同比增长4.3%。
 
-周四，欧洲央行将基准利率（存款便利利率）上调25个基点至2.25%，成为七国集团中首个针对海湾地区冲突出台货币政策应对的央行。
+服务业既是吸纳就业、拉动经济增长的主引擎，也是推动农业和工业发展的润滑剂与催化剂。
 
-内格尔随后发表声明称：“我们保留所有政策选项，一旦形势需要，将再次采取加息行动。
+服务业延续向稳向好态势，充分说明我国经济增长的潜力大、韧性强。
 
-” 内格尔表示，此次地缘冲突引发的能源冲击强度大、持续久，各国央行无法对此视而不见，周四的加息举措实属必要。
+数字技术赋能，新动能加速涌现。
 
-德国央行在周五发布最新经济预测并发出警示：受伊朗局势影响，能源价格高企，德国经济再度陷入停滞。
+在数字经济时代，算力需求快速增长，信息技术服务正以前所未有的深度和广度赋能千行百业。
 
-这个欧洲第一大经济体的整体通胀率连续两年逼近3%。
+4月份，信息传输、软件和信息技术服务业生产指数同比增长了11.7%，明显快于服务业整体增速，反映出云计算、大数据、人工智能等新兴领域蓬勃向上的发展态势。
 
-德国央行表示，本轮冲击对经济增长的主要影响将在明年集中显现。
+数字化消费场景的创新拓展，带动通讯信息服务类零售额保持两位数增长；数字化与实体经济的深度融合，更推动生产性服务业与制造业加速协同。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 04:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 04:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 04:23 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 04:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 04:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 04:14 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 04:27 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 04:25 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 04:12 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:18 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 04:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 04:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:23 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 04:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 04:47 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 04:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 04:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 04:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:24 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 04:34 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/9654162454.shtml)
-- 2026-06-30 04:23 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/64022038.shtml)
-- 2026-06-30 04:12 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/872318120943.shtml)
-- 2026-06-30 04:30 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/84058289721.shtml)
-- 2026-06-30 04:31 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/014528.shtml)
-- 2026-06-30 04:36 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/4532502.shtml)
-- 2026-06-30 04:36 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/20423374953.shtml)
-- 2026-06-30 04:39 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/36256.shtml)
-- 2026-06-30 04:38 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/80695564048.shtml)
-- 2026-06-30 04:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/79977615292.shtml)
-- 2026-06-30 04:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/53041.shtml)
-- 2026-06-30 04:16 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/280805.shtml)
-- 2026-06-30 04:23 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/327037.shtml)
-- 2026-06-30 04:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/699823.shtml)
-- 2026-06-30 04:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/88539018.shtml)
+- 2026-06-30 04:45 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/7484907396.shtml)
+- 2026-06-30 04:41 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/940540.shtml)
+- 2026-06-30 04:23 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/054710.shtml)
+- 2026-06-30 04:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/462817256257.shtml)
+- 2026-06-30 04:31 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/77828.shtml)
+- 2026-06-30 04:44 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/73039110637.shtml)
+- 2026-06-30 04:34 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/077115635.shtml)
+- 2026-06-30 04:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/8821598.shtml)
+- 2026-06-30 04:34 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/91705608364.shtml)
+- 2026-06-30 04:19 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/405211.shtml)
+- 2026-06-30 04:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/428651276.shtml)
+- 2026-06-30 04:44 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/937107.shtml)
+- 2026-06-30 04:35 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/493010672.shtml)
+- 2026-06-30 04:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/915311298.shtml)
+- 2026-06-30 04:37 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/766800217.shtml)

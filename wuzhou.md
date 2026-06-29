@@ -1,58 +1,48 @@
-# 多部门协同持续优化跨区通行等保障服务 聚力保障“三夏”抢收
+# 2026年1-4月我国全行业对外直接投资4294.2亿元人民币
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-多部门协同，持续优化跨区通行、“送油下乡”等保障服务 聚力保障“三夏”抢收(三夏进行时) “多亏农机及时赶来，只用3天，840亩小麦趁着降雨间隙完成收割。”安徽望江县忠东家庭农场负责人汪忠东说。 江苏、安徽两省中南部相邻地区的10余个地市，夏粮小麦种植面积2550多万亩，“三夏”期间正值当地多雨时节。今年，安徽省调度790多支农机应急作业服务队、3.3万台履带式联合收割机投入夏
+据商务部、外汇局统计，2026年1-4月，我国全行业对外直接投资4294.2亿元人民币，同比增长3.9%(以美元计为619.9亿美元，增长7.7%)。 其中，我国境内投资者共对全球142个国家和地区的5231家境外企业进行了非金融类直接投资，累计投资3157.4亿元人民币，下降13.9%(以美元计为455.8亿美元，下降10.7%)。 (总台央视记者 丁雅妮 林杉)
 
 ## 正文
 
-多部门协同，持续优化跨区通行、“送油下乡”等保障服务 聚力保障“三夏”抢收(三夏进行时) “多亏农机及时赶来，只用3天，840亩小麦趁着降雨间隙完成收割。
+据商务部、外汇局统计，2026年1-4月，我国全行业对外直接投资4294.2亿元人民币，同比增长3.9%(以美元计为619.9亿美元，增长7.7%)。
 
-”安徽望江县忠东家庭农场负责人汪忠东说。
+其中，我国境内投资者共对全球142个国家和地区的5231家境外企业进行了非金融类直接投资，累计投资3157.4亿元人民币，下降13.9%(以美元计为455.8亿美元，下降10.7%)。
 
-江苏、安徽两省中南部相邻地区的10余个地市，夏粮小麦种植面积2550多万亩，“三夏”期间正值当地多雨时节。
-
-今年，安徽省调度790多支农机应急作业服务队、3.3万台履带式联合收割机投入夏粮抢收，组织省内“北机南下”、发布信息引机入皖，单日收获超800万亩。
-
-在江苏，针对镇江、泰州等小麦倒伏易发多发地市，加强履带式收割机、移动式烘干机的调度协调，提高倒伏小麦抢收效率。
-
-截至6月12日17时，全国已收获夏粮小麦2.78亿亩，收获进度82.01%。
-
-当日收获1451万亩、投入联合收割机17.08万台。
-
-江苏麦收基本结束，山东近八成，河北、陕西过五成半，山西过四成，新疆、甘肃零星收获。
+(总台央视记者 丁雅妮 林杉)
 
 ## 相关推荐
 
-- 2026-06-30 04:24 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 04:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 04:21 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 04:25 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 04:16 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 04:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 04:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 04:40 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 04:32 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 04:41 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 04:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 04:19 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 04:34 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 04:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 04:44 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 04:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 04:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 04:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 04:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 04:47 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 04:45 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:26 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/77177011.shtml)
-- 2026-06-30 04:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/14280020463.shtml)
-- 2026-06-30 04:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/71475.shtml)
-- 2026-06-30 04:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/16286314.shtml)
-- 2026-06-30 04:35 - [千香](http://www.share.kurohicncr.top/Article/details/6697186.shtml)
-- 2026-06-30 04:24 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/08751065673.shtml)
-- 2026-06-30 04:33 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/1363898830.shtml)
-- 2026-06-30 04:20 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/7613997594.shtml)
-- 2026-06-30 04:24 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/85964603.shtml)
-- 2026-06-30 04:36 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/294185779372.shtml)
-- 2026-06-30 04:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/527569044.shtml)
-- 2026-06-30 04:38 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/6511001.shtml)
-- 2026-06-30 04:21 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/763879220655.shtml)
-- 2026-06-30 04:39 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/57484659.shtml)
-- 2026-06-30 04:37 - [内马尔替补](https://www.blog.minike.top/Article/details/81995.shtml)
+- 2026-06-30 04:41 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/18100.shtml)
+- 2026-06-30 04:27 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/69610.shtml)
+- 2026-06-30 04:45 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/119310.shtml)
+- 2026-06-30 04:47 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/917532.shtml)
+- 2026-06-30 04:45 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/2098579909.shtml)
+- 2026-06-30 04:22 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/220227532778.shtml)
+- 2026-06-30 04:31 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/83855939649.shtml)
+- 2026-06-30 04:34 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/36230580.shtml)
+- 2026-06-30 04:19 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/92063275.shtml)
+- 2026-06-30 04:34 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/64053768606.shtml)
+- 2026-06-30 04:25 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/5573788061.shtml)
+- 2026-06-30 04:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/131854516.shtml)
+- 2026-06-30 04:39 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/672974.shtml)
+- 2026-06-30 04:45 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/823521789437.shtml)
+- 2026-06-30 04:31 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/531363.shtml)

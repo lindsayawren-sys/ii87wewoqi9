@@ -1,50 +1,61 @@
-# 美官员谈美伊协议要点：以伊朗履约为前提 涉核计划与霍尔木兹海峡
+# 波动加剧！军工信息化概念大幅回调，中国长城领跌8%！华宝基金军工ETF（512810）跌逾3%创近1个月新低
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-一位美国高级官员表示，美国和伊朗之间正在酝酿的是一项以履约为前提的协议，内容包括伊朗放弃核材料以及开放霍尔木兹海峡。 根据这位官员介绍，协议主要内容包括： 销毁和移除核材料； 废除核计划； 在伊朗履行承诺前不会解除资金限制； 开放霍尔木兹海峡； 不得资助恐怖组织。 注：根据伊朗方面的说法，和平协议将包括美国与伊朗延长停火安排，并就伊朗核计划展开进一步谈判。两国都将解除对霍尔木兹
+5月26日，军工板块低开低走，军工核心资产——军工ETF华宝（512810）场内价格跌超3%下探近1个月新低，场内频现溢价，或有资金逢跌介入。 军工信息化概念领跌，中国长城跌8%，上海瀚讯跌超7%，此前行情火热的军工电子亦回调，华力创通、奥普光电等大幅下挫。航天发展、中国卫星等商业航天热门股同步下行。 作为成长性板块，军工受市场风险偏好影响较大，今日科技股掉头向下，市场情绪迅速
 
 ## 正文
 
-一位美国高级官员表示，美国和伊朗之间正在酝酿的是一项以履约为前提的协议，内容包括伊朗放弃核材料以及开放霍尔木兹海峡。
+5月26日，军工板块低开低走，军工核心资产——军工ETF华宝（512810）场内价格跌超3%下探近1个月新低，场内频现溢价，或有资金逢跌介入。
 
-根据这位官员介绍，协议主要内容包括： 销毁和移除核材料； 废除核计划； 在伊朗履行承诺前不会解除资金限制； 开放霍尔木兹海峡； 不得资助恐怖组织。
+军工信息化概念领跌，中国长城跌8%，上海瀚讯跌超7%，此前行情火热的军工电子亦回调，华力创通、奥普光电等大幅下挫。
 
-注：根据伊朗方面的说法，和平协议将包括美国与伊朗延长停火安排，并就伊朗核计划展开进一步谈判。
+航天发展、中国卫星等商业航天热门股同步下行。
 
-两国都将解除对霍尔木兹海峡的封锁。
+作为成长性板块，军工受市场风险偏好影响较大，今日科技股掉头向下，市场情绪迅速降温，压制板块表现。
 
-责任编辑：何云
+往后看，SpaceX IPO预期（计划6月12日纳斯达克挂牌）可能在未来两至三周内为商业航天板块提供情绪支撑，因此当前位置逢跌或可考虑分批吸筹。
+
+国盛证券研报表示，建议重点关注的板块包括被动元器件、燃机/商发、商业航天、民航航材、军工后市场、无人装备、船舶，此外建议积极关注传统军工板块（包括军贸）的机会。
+
+（来源：国盛证券20260525《国防军工行业周报：军工MLCC企业借AI东风迎来新成长逻辑》） 【投军工，选“八一”】代码有“八一”的军工ETF华宝（512810）（原国防军工ETF）汇聚“海陆空天”尖端军工科技，全面覆盖商业航天、军工AI、大飞机、低空经济等热门主题。
+
+同时是融资融券+互联互通标的，是一键投资军工核心资产的高效工具。
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 04:12 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 04:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 04:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 04:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 04:17 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 04:27 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 04:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 04:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 04:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 04:22 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 04:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 04:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 04:42 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 04:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 04:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 04:31 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 04:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 04:22 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 04:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 04:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 04:40 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 04:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 04:34 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 04:42 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/704378.shtml)
-- 2026-06-30 04:28 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/317282546175.shtml)
-- 2026-06-30 04:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/036974674.shtml)
-- 2026-06-30 04:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/405319331.shtml)
-- 2026-06-30 04:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/72064.shtml)
-- 2026-06-30 04:27 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/4664309.shtml)
-- 2026-06-30 04:26 - [日本淘汰](http://www.share.minike.top/Article/details/201608445961.shtml)
-- 2026-06-30 04:29 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/786868030.shtml)
-- 2026-06-30 04:14 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/494757.shtml)
-- 2026-06-30 04:17 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/048589.shtml)
-- 2026-06-30 04:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/53080783282.shtml)
-- 2026-06-30 04:37 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/106816311159.shtml)
-- 2026-06-30 04:28 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/389224202.shtml)
-- 2026-06-30 04:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/8436567.shtml)
-- 2026-06-30 04:14 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/540589.shtml)
+- 2026-06-30 04:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/90561271.shtml)
+- 2026-06-30 04:29 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/34693066.shtml)
+- 2026-06-30 04:23 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/8582162.shtml)
+- 2026-06-30 04:43 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/62625.shtml)
+- 2026-06-30 04:40 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/711832239535.shtml)
+- 2026-06-30 04:34 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/9470807416.shtml)
+- 2026-06-30 04:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/97419.shtml)
+- 2026-06-30 04:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/51790873798.shtml)
+- 2026-06-30 04:23 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/46663096.shtml)
+- 2026-06-30 04:24 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/002715254985.shtml)
+- 2026-06-30 04:29 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/7110650.shtml)
+- 2026-06-30 04:48 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/69125912.shtml)
+- 2026-06-30 04:38 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/284994.shtml)
+- 2026-06-30 04:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/4325679.shtml)
+- 2026-06-30 04:30 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/202618.shtml)

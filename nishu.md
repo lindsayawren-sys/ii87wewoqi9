@@ -1,55 +1,59 @@
-# 探访沙漠科技绿洲：黄沙中瓜果飘香花开四季
+# 风雨同心！建设银行全力支持防汛救灾工作
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 11:31 来源：中国新闻网 在黄沙无垠的恩格贝沙漠腹地，高大的植株、鲜艳的花朵、湿润的空气，科技赋能的生态绿洲打破人们对沙漠的刻板印象。6月12日，中外媒体采访团走进内蒙古鄂尔多斯恩格贝示范区沙漠生态农业科技展示中心。 这里配套11340平方米连栋智能温室、2160平方米日光温室，借助土壤改良、智能温控、无土栽培、水肥一体化技术，园区成功培育
+来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。 重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。建行重庆永川支
 
 ## 正文
 
-发布时间：2026年06月13日 11:31 来源：中国新闻网 在黄沙无垠的恩格贝沙漠腹地，高大的植株、鲜艳的花朵、湿润的空气，科技赋能的生态绿洲打破人们对沙漠的刻板印象。
+来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。
 
-6月12日，中外媒体采访团走进内蒙古鄂尔多斯恩格贝示范区沙漠生态农业科技展示中心。
+面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。
 
-这里配套11340平方米连栋智能温室、2160平方米日光温室，借助土壤改良、智能温控、无土栽培、水肥一体化技术，园区成功培育香蕉、火龙果等热带水果，各类蔬菜长势喜人，月季常年盛放。
+重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。
 
-从寸草难生的荒漠沙地，到瓜果繁茂的现代农业产业园，这片试验田为全国干旱半干旱地区荒漠化治理与生态修复提供了可落地、可复制的范本。
+强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。
 
-(记者 陈峰 奥蓝） 责任编辑：【吉翔】
+建行重庆永川支行第一时间与受灾最为严重的茶山竹海街道、中山路街道和双石镇政府取得联系，在得知目前受灾群众急需方便面、牛奶、手电等物资后，立即组织员工自愿捐款、采购物资，于5月26日上午将物资送到灾区群众手中。
+
+▲建行重庆永川支行组织员工为灾区捐款，采购急需物资（左右滑动查看） 永川支行各网点开展安全检查，布放防汛沙袋，在确保安全的情况下持续正常营业，并借助“劳动者港湾”等区域，为市民和救灾人员提供休息、充电等便民服务。
+
+为满足防汛救灾金融需求，永川支行第一时间开通防汛救灾专属绿色通道，特事特办、简化流程、优先办理，确保救灾资金快速到账；针对银行卡、社保卡损毁遗失等情况，开设专属窗口提供一站式服务；全面摸排客户受灾情况，为因受灾出现还款困难的客户及时提供还款计划调整等服务，切实减轻受灾群众和经营主体资金压力，助力尽快恢复生产生活秩序。
+
+▲建行重庆永川支行做好防汛应急准备 广西 5月19日，广西柳州启动四级防汛预警，叠加此前地震影响，面临双重考验。
 
 ## 相关推荐
 
-- 2026-06-30 04:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 04:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 04:15 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 04:30 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 04:26 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 04:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 04:26 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 04:24 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 04:23 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 04:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 04:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 04:18 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 04:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 04:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:41 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 04:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 04:33 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 04:27 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 04:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 04:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 04:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 04:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 04:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 04:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 04:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:16 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/824022347.shtml)
-- 2026-06-30 04:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/104822.shtml)
-- 2026-06-30 04:17 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/00551.shtml)
-- 2026-06-30 04:31 - [日本16强魔咒](http://www.share.minike.top/Article/details/4213400.shtml)
-- 2026-06-30 04:22 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/76671384837.shtml)
-- 2026-06-30 04:29 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/451981444554.shtml)
-- 2026-06-30 04:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/1288941.shtml)
-- 2026-06-30 04:32 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/532734.shtml)
-- 2026-06-30 04:20 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/2110407.shtml)
-- 2026-06-30 04:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/482677677358.shtml)
-- 2026-06-30 04:22 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/655970331076.shtml)
-- 2026-06-30 04:16 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/3192351.shtml)
-- 2026-06-30 04:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/33127152812.shtml)
-- 2026-06-30 04:23 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/5358202.shtml)
-- 2026-06-30 04:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/9174632.shtml)
+- 2026-06-30 04:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/7342821253.shtml)
+- 2026-06-30 04:47 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/014282.shtml)
+- 2026-06-30 04:35 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/199025.shtml)
+- 2026-06-30 04:47 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/46418.shtml)
+- 2026-06-30 04:40 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/439775658246.shtml)
+- 2026-06-30 04:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/877283635.shtml)
+- 2026-06-30 04:29 - [斛珠夫人](http://www.blog.minike.top/Article/details/84275245574.shtml)
+- 2026-06-30 04:45 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/261967.shtml)
+- 2026-06-30 04:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/453109739.shtml)
+- 2026-06-30 04:44 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/80764.shtml)
+- 2026-06-30 04:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/0519794771.shtml)
+- 2026-06-30 04:42 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/7446016.shtml)
+- 2026-06-30 04:37 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/061625710.shtml)
+- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/130277483.shtml)
+- 2026-06-30 04:33 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/52849959125.shtml)

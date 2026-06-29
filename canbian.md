@@ -1,59 +1,61 @@
-# 意大利驻华大使探访红河哈尼梯田：田垄生韵 文明和鸣
+# 优步拟提高报价竞购Delivery Hero 股东期望每股不低于40欧元
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网红河6月12日电 题：意大利驻华大使探访红河哈尼梯田：田垄生韵 文明和鸣 作者 李梓毓 陆希成 “从梯田到原生态的哈尼古村，古老的农耕传统在这里依然鲜活，并与意大利朗格罗埃洛和蒙菲拉托葡萄园景观展开着一场跨越大陆的对话。”12日，结束在云南为期两天访问的意大利驻华大使安博思(AmbassadorMassimo Ambrosetti)如是总结此行。 6月11日至12日，安博
+在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。 Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。然而，这一报价遭到主要股东拒绝。知情人士透露，优步随后向一位大股东提出每股38
 
 ## 正文
 
-中新网红河6月12日电 题：意大利驻华大使探访红河哈尼梯田：田垄生韵 文明和鸣 作者 李梓毓 陆希成 “从梯田到原生态的哈尼古村，古老的农耕传统在这里依然鲜活，并与意大利朗格罗埃洛和蒙菲拉托葡萄园景观展开着一场跨越大陆的对话。
+在115亿欧元的初步收购要约遭拒后，优步正考虑提高对德国外卖巨头Delivery Hero的收购报价。
 
-”12日，结束在云南为期两天访问的意大利驻华大使安博思(AmbassadorMassimo Ambrosetti)如是总结此行。
+多位股东表示，期望收购价格能够超过每股40欧元，对应公司整体估值约130亿欧元。
 
-6月11日至12日，安博思一行应邀到访云南，出席第10届中国—南亚博览会。
+Delivery Hero上周六发布声明确认，已收到优步提出的每股33欧元的初步收购要约，对公司估值超过100亿欧元。
 
-其间，他与红河哈尼族彝族自治州相关负责人围绕高原特色农业、世界文化遗产保护、葡萄酒经贸及文旅合作等深入交流，并前往元阳县，实地考察世界文化遗产红河哈尼梯田。
+然而，这一报价遭到主要股东拒绝。
 
-11日，考察团抵达元阳时，安博思目光久久停留在泛着微光的田畴间——这是他第一次亲眼见到红河哈尼梯田。
+知情人士透露，优步随后向一位大股东提出每股38欧元的新价码，但仍未被接受。
 
-“今天元阳细雨蒙蒙，梯田在雾中若隐若现，恰如中国古诗所说‘犹抱琵琶半遮面’，朦胧之间更能感受它的独特魅力。
+优步董事会已于上周六召开会议，评估收购进展并讨论是否进一步提高报价。
 
-”安博思说。
+与此同时，优步持续增持Delivery Hero股份。
 
-红河哈尼梯田迄今已有1300多年历史，2013年列入世界遗产名录。
+公司披露，其持股比例已从约7%提升至19.5%，成为Delivery Hero第一大股东，并通过衍生品额外持有5.6%的相关权益。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 04:17 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 04:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 04:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 04:30 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 04:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 04:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 04:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 04:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 04:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 04:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 04:32 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 04:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 04:33 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 04:44 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 04:46 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 04:47 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 04:27 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 04:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 04:28 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 04:32 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 04:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 04:42 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 04:33 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 04:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 04:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/0796666.shtml)
-- 2026-06-30 04:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/87866.shtml)
-- 2026-06-30 04:41 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/772843135705.shtml)
-- 2026-06-30 04:39 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/895575972261.shtml)
-- 2026-06-30 04:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/0157293779.shtml)
-- 2026-06-30 04:17 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/686607122.shtml)
-- 2026-06-30 04:12 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/32916.shtml)
-- 2026-06-30 04:18 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/77839.shtml)
-- 2026-06-30 04:35 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/564742962.shtml)
-- 2026-06-30 04:17 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/309597895.shtml)
-- 2026-06-30 04:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/135042951943.shtml)
-- 2026-06-30 04:23 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/0153763.shtml)
-- 2026-06-30 04:27 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/54955.shtml)
-- 2026-06-30 04:18 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/12109639563.shtml)
-- 2026-06-30 04:26 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/28743.shtml)
+- 2026-06-30 04:46 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/60043652.shtml)
+- 2026-06-30 04:35 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/6422693.shtml)
+- 2026-06-30 04:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/60595342.shtml)
+- 2026-06-30 04:30 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/32029432495.shtml)
+- 2026-06-30 04:26 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/595863336556.shtml)
+- 2026-06-30 04:36 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/94927537836.shtml)
+- 2026-06-30 04:36 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/740717479.shtml)
+- 2026-06-30 04:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/50018358.shtml)
+- 2026-06-30 04:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/07716.shtml)
+- 2026-06-30 04:25 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/67242297485.shtml)
+- 2026-06-30 04:18 - [恋与深空回应争议](https://www.share.minike.top/Article/details/349839789110.shtml)
+- 2026-06-30 04:21 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/7490742.shtml)
+- 2026-06-30 04:23 - [请回答王牌2019](http://www.share.minike.top/Article/details/6050795.shtml)
+- 2026-06-30 04:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/36567761.shtml)
+- 2026-06-30 04:22 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/97647.shtml)

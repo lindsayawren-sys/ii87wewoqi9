@@ -1,58 +1,57 @@
-# 在习近平文化思想引领下文脉长存瑰宝长青
+# 武契奇夫人塔玛拉体验中华文化 提议在塞举办中国服装秀
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-原标题：文脉长存 瑰宝长青——在习近平文化思想引领下文化和自然遗产保护传承利用工作开创新局面 新华社北京6月12日电 题：文脉长存 瑰宝长青——在习近平文化思想引领下文化和自然遗产保护传承利用工作开创新局面 新华社记者徐壮、周玮 锦绣山河间，文化和自然遗产灿若繁星，文明长河奔腾绵延。 站在留住文化根脉、守住民族之魂的战略高度，习近平总书记强调：“世界文化和自然遗产是人类文明发展
+26日下午，陪同塞尔维亚总统武契奇来华进行国事访问的总统夫人塔玛拉，在北京到访新中式服饰品牌“楚和听香CHUYAN”美学空间(下称“美学空间”) ，参与“中国风雅·和美生活”主题文化体验活动。 当天，美学空间精心布置，汇聚衣、书、茶、花、琴、香六大经典国风雅事，将丝路敦煌的壮美与东方生活美学的隽永精妙合璧，塔玛拉一一体验，连连发出赞叹。 活动伊始，塔玛拉在工作人员指引下，提起毛
 
 ## 正文
 
-原标题：文脉长存 瑰宝长青——在习近平文化思想引领下文化和自然遗产保护传承利用工作开创新局面 新华社北京6月12日电 题：文脉长存 瑰宝长青——在习近平文化思想引领下文化和自然遗产保护传承利用工作开创新局面 新华社记者徐壮、周玮 锦绣山河间，文化和自然遗产灿若繁星，文明长河奔腾绵延。
+26日下午，陪同塞尔维亚总统武契奇来华进行国事访问的总统夫人塔玛拉，在北京到访新中式服饰品牌“楚和听香CHUYAN”美学空间(下称“美学空间”) ，参与“中国风雅·和美生活”主题文化体验活动。
 
-站在留住文化根脉、守住民族之魂的战略高度，习近平总书记强调：“世界文化和自然遗产是人类文明发展和自然演进的重要成果，也是促进不同文明交流互鉴的重要载体。
+当天，美学空间精心布置，汇聚衣、书、茶、花、琴、香六大经典国风雅事，将丝路敦煌的壮美与东方生活美学的隽永精妙合璧，塔玛拉一一体验，连连发出赞叹。
 
-保护好、传承好、利用好这些宝贵财富，是我们的共同责任，是人类文明赓续和世界可持续发展的必然要求。
+活动伊始，塔玛拉在工作人员指引下，提起毛笔，一气呵成写下“和”字，并用中文念出，“这正是我们现在所需要的。
 
-” 6月13日是2026年文化和自然遗产日。
+” 当天还上演了一场新中式服装秀，12套兼具传统底蕴与现代创意的新中式服饰，将东方华服化作行走间流动的艺术，向塔玛拉一行全方位展示中华服饰美学创新成果。
 
-从国务院确定2006年起每年6月的第二个星期六为“文化遗产日”，2017年起进一步调整设立为“文化和自然遗产日”，至今已走过20年。
+参观结束后，楚和听香品牌创始人楚艳赠予塔玛拉一件精心设计的新中式外披，里可搭配礼服、旗袍等，适宜在较为正式的社交场合穿着。
 
-岁月流转，辉光日新。
+外披的材质承载着苏州传统的丝绸织造技艺，整体设计则将唐代宝相纹样的雍容华贵与当代简约线条巧妙相融。
 
-在习近平总书记引领关怀下，我们秉持敬畏历史、敬畏文化、敬畏生态之心，像爱惜自己的生命一样保护好文化遗产，像保护眼睛一样保护生态环境，擦亮文化瑰宝、守护自然珍宝。
+整体色彩是淡淡的水绿色，也是中国传统色中非常具有代表性的色彩。
 
-文化和自然遗产在新时代不断焕发新活力、绽放新光彩。
+塔玛拉非常喜欢这件衣服，试穿后，连连发出“Wonderful”“I love it”的赞叹。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 04:35 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 04:23 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 04:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 04:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 04:34 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 04:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 04:17 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 04:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 04:15 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 04:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 04:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 04:44 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 04:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 04:45 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 04:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 04:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 04:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:19 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 04:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 04:27 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:20 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/54951931264.shtml)
-- 2026-06-30 04:26 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/933992.shtml)
-- 2026-06-30 04:27 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/762400.shtml)
-- 2026-06-30 04:38 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/82599160.shtml)
-- 2026-06-30 04:21 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/008111.shtml)
-- 2026-06-30 04:34 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/726958155370.shtml)
-- 2026-06-30 04:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/4338917.shtml)
-- 2026-06-30 04:39 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/86142.shtml)
-- 2026-06-30 04:14 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/93558283.shtml)
-- 2026-06-30 04:32 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/9870049487.shtml)
-- 2026-06-30 04:26 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/176987.shtml)
-- 2026-06-30 04:23 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/0849101448.shtml)
-- 2026-06-30 04:42 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/807454131667.shtml)
-- 2026-06-30 04:12 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/35160707781.shtml)
-- 2026-06-30 04:36 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/696553.shtml)
+- 2026-06-30 04:22 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/74797.shtml)
+- 2026-06-30 04:46 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/24992992744.shtml)
+- 2026-06-30 04:21 - [女心理师](http://www.blog.minike.top/Article/details/04600224131.shtml)
+- 2026-06-30 04:42 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/02746106940.shtml)
+- 2026-06-30 04:46 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4764872.shtml)
+- 2026-06-30 04:31 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/29928595349.shtml)
+- 2026-06-30 04:26 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/39600386673.shtml)
+- 2026-06-30 04:43 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/83638.shtml)
+- 2026-06-30 04:33 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/5233748.shtml)
+- 2026-06-30 04:38 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/213805238.shtml)
+- 2026-06-30 04:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/0876664929.shtml)
+- 2026-06-30 04:44 - [人类...完蛋了...](http://www.share.minike.top/Article/details/81632881527.shtml)
+- 2026-06-30 04:28 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/41949793.shtml)
+- 2026-06-30 04:27 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/1498344.shtml)
+- 2026-06-30 04:32 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/429858126.shtml)

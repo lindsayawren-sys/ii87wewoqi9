@@ -1,60 +1,59 @@
-# 第十三届中国宜昌朝天吼自然水域漂流大赛开赛
+# 打击“招转培”，国家五部门联合发布风险提示
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
+近来，一些不法分子以招聘为名进行引流，变相推销培训课程，诱导求职者支付高额费用，甚至申请贷款参加培训，严重侵害了求职者的合法权益，扰乱了人力资源市场的正常秩序。 据人社部官网近日消息，为帮助求职者有效识别“招转培”“培训贷”等骗局，人力资源社会保障部、中央网信办、教育部、公安部、金融监管总局发布风险提示，提醒广大求职者提高风险防范意识，谨防上当受骗。 典型套路 第一步，发布虚假
 
 ## 正文
 
-美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+近来，一些不法分子以招聘为名进行引流，变相推销培训课程，诱导求职者支付高额费用，甚至申请贷款参加培训，严重侵害了求职者的合法权益，扰乱了人力资源市场的正常秩序。
 
-“世界杯魔咒”失灵了？
+据人社部官网近日消息，为帮助求职者有效识别“招转培”“培训贷”等骗局，人力资源社会保障部、中央网信办、教育部、公安部、金融监管总局发布风险提示，提醒广大求职者提高风险防范意识，谨防上当受骗。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+典型套路 第一步，发布虚假招聘信息进行引流。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+不法分子在招聘网站、社交平台或现场招聘会上发布AI、编程、音视频剪辑等热门岗位，并以“不要求工作经验”“不限专业”“零门槛”“面试即入职”“高薪工作”“稳定兼职”等作为诱饵，吸引求职者投递简历，前往线下面试。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+第二步，刻意贬低求职者能力。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+在面试过程中，则强调“岗位有技能门槛”、求职者“能力不足”“工作经验不足”，打击求职者自信心、制造焦虑，顺势向求职者推荐所谓的“岗前培训”“内部培训”。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
+第三步，诱导求职者支付高额费用或办理贷款参加培训。
 
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
+负责培训的机构以“培训后快速上手”“包就业”“保证收入”“发放国家认可的证书”等话术，伪造的聊天记录、成功案例等虚假信息，诱导求职者参加培训。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 04:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 04:13 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 04:37 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 04:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 04:27 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 04:23 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 04:39 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 04:39 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 04:17 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 04:25 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 04:20 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 04:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 04:39 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 04:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 04:20 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 04:24 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 04:41 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 04:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 04:22 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 04:45 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 04:25 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 04:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 04:35 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 04:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 04:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 04:24 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/36056.shtml)
-- 2026-06-30 04:34 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/239505393409.shtml)
-- 2026-06-30 04:22 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/699281896328.shtml)
-- 2026-06-30 04:14 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/6915093885.shtml)
-- 2026-06-30 04:30 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/389980526.shtml)
-- 2026-06-30 04:15 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/8307509.shtml)
-- 2026-06-30 04:24 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/716919831650.shtml)
-- 2026-06-30 04:18 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/11970019.shtml)
-- 2026-06-30 04:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/447289.shtml)
-- 2026-06-30 04:18 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/68745.shtml)
-- 2026-06-30 04:28 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/40835.shtml)
-- 2026-06-30 04:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/03716095536.shtml)
-- 2026-06-30 04:32 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/217954089.shtml)
-- 2026-06-30 04:36 - [周生如故](https://www.blog.kurohicncr.top/Article/details/68220369009.shtml)
-- 2026-06-30 04:18 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/38646496.shtml)
+- 2026-06-30 04:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/85611980.shtml)
+- 2026-06-30 04:33 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/33691812.shtml)
+- 2026-06-30 04:44 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/17648443.shtml)
+- 2026-06-30 04:21 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/058014740930.shtml)
+- 2026-06-30 04:22 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/4832375190.shtml)
+- 2026-06-30 04:22 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/83278.shtml)
+- 2026-06-30 04:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/15742.shtml)
+- 2026-06-30 04:39 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/2817564539.shtml)
+- 2026-06-30 04:38 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/56981165438.shtml)
+- 2026-06-30 04:36 - [我们的少年时代2](https://www.share.minike.top/Article/details/3795326.shtml)
+- 2026-06-30 04:26 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/5732326225.shtml)
+- 2026-06-30 04:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/1964293.shtml)
+- 2026-06-30 04:19 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/04640077.shtml)
+- 2026-06-30 04:31 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/18590567484.shtml)
+- 2026-06-30 04:29 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/28263.shtml)

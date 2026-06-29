@@ -1,58 +1,59 @@
-# TVB航空职业剧《飞常日志 2》在广州路演
+# 酒价内参5月25日价格发布：飞天茅台下跌3元/瓶
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。 作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品
 
 ## 正文
 
-中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月25日整体微幅回升。
 
-作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈现大湾区互联互通的发展成果。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9942元，较昨日上涨3元，连续两日于低位窄幅整理，次高端品种领涨。
 
-出行便利化是湾区融通最直观的体现。
+市场在持续走弱后进入横盘修复，终端交投情绪平稳，但核心单品涨跌分化依然显著。
 
-TVB艺人高海宁结合自身出行体验表示，香港国际机场联动湾区构建的立体交通体系完善，旅客一下飞机即可换乘各类交通工具通达湾区多个城市，缩减出行耗时，日常往返便捷高效。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-高效便捷的跨境交通网络，不仅便利了旅客出行，更深度激活湾区人才流动活力。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，重返530元上方；习酒君品与青花郎均上涨4元/瓶，后者收复700元整数关口；五粮液普五八代、洋河梦之蓝M6+与水晶剑南春均上涨1元/瓶。
 
-TVB艺人洪永城说：“我在拍戏时发现，有不少来自珠海、东莞等地居民选择前往香港国际机场就业，湾区人才融合持续加深。
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，回落至月内次低位；茅台系飞天茅台与精品茅台均下跌3元/瓶；五粮液1618与青花汾20均下跌1元/瓶，后者回落至月内最低位，近一个月价格重心持续下移。
 
-” 针对跨境中转出行的便民服务，TVB艺人刘颖镟重点介绍“经珠港飞”联程服务，旅客飞抵广东珠海后，乘坐接驳巴士经港珠澳大桥可达香港国际机场，免去香港方面的出入境查验环节，提高通关效率，“这项服务支持双向通行，无论是内地居民出境环游世界，还是海外旅客经香港进入内地城市，都能实现高效中转”。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-在跨境物流领域，湾区联运体系同样实现跨越式升级。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 04:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 04:20 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 04:24 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 04:35 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 04:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 04:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 04:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 04:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 04:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 04:34 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 04:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 04:20 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 04:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 04:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 04:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 04:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 04:31 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 04:47 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 04:30 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 04:42 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 04:42 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 04:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 04:33 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 04:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:24 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/07611.shtml)
-- 2026-06-30 04:37 - [金牌调解](http://www.blog.minike.top/Article/details/163681461.shtml)
-- 2026-06-30 04:15 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/10737.shtml)
-- 2026-06-30 04:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/51914.shtml)
-- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/37005617.shtml)
-- 2026-06-30 04:26 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/900321852.shtml)
-- 2026-06-30 04:26 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/156778711.shtml)
-- 2026-06-30 04:34 - [田曦薇没招了](https://www.blog.minike.top/Article/details/836064.shtml)
-- 2026-06-30 04:41 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/72484593.shtml)
-- 2026-06-30 04:18 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/9702944331.shtml)
-- 2026-06-30 04:18 - [日本16强魔咒](https://www.blog.minike.top/Article/details/16270691.shtml)
-- 2026-06-30 04:16 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/64590.shtml)
-- 2026-06-30 04:27 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/48375735963.shtml)
-- 2026-06-30 04:26 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/915179605.shtml)
-- 2026-06-30 04:35 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/45420487201.shtml)
+- 2026-06-30 04:45 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/59147056792.shtml)
+- 2026-06-30 04:40 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/552651402.shtml)
+- 2026-06-30 04:40 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/2156893995.shtml)
+- 2026-06-30 04:29 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/63932981.shtml)
+- 2026-06-30 04:47 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/165867304179.shtml)
+- 2026-06-30 04:25 - [金刚川](https://www.share.kurohicncr.top/Article/details/2551939.shtml)
+- 2026-06-30 04:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/286735071259.shtml)
+- 2026-06-30 04:37 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/94479.shtml)
+- 2026-06-30 04:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/22026026473.shtml)
+- 2026-06-30 04:35 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/537485543.shtml)
+- 2026-06-30 04:46 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/106466.shtml)
+- 2026-06-30 04:22 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/41781.shtml)
+- 2026-06-30 04:23 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/2638375.shtml)
+- 2026-06-30 04:19 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/304638.shtml)
+- 2026-06-30 04:42 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/1441021.shtml)

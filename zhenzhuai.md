@@ -1,48 +1,56 @@
-# ASIA COMM HOLD发盈喜 预期年度纯利不少于3900万港元
+# 印尼副贸易部长称政府将很快发布大宗商品出口新规的更多细节
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-ASIA COMM HOLD（00104）发布公告，预期本集团将于截至2026年3月31日止年度（本年度）取得纯利不少于3900万港元，较截至2025年3月31日止年度（去年度）取得的纯利约2400万港元大幅增加。预期本集团本年度的整体表现好转乃由于香港投资物业的重估亏损部分被英国投资物业的重估收益所抵销，导致投资物业的公允值亏损有所减少。责任编辑：卢昱君
+据印尼贸易部一位官员称，随着印尼政府着手制定新的集中出口机构的法律和结构，全球市场和主要贸易伙伴有望在几周内看到有关印尼商品出口新政策的最新消息。 贸易部副部长Dyah Roro Esti Widya Putri表示，这个名为“Danantara Sumberdaya Indonesia”的新政府实体正从概念阶段迈向执行阶段。她在周六于苏州举行的亚太经合组织会议间隙接受媒体采访
 
 ## 正文
 
-ASIA COMM HOLD（00104）发布公告，预期本集团将于截至2026年3月31日止年度（本年度）取得纯利不少于3900万港元，较截至2025年3月31日止年度（去年度）取得的纯利约2400万港元大幅增加。
+据印尼贸易部一位官员称，随着印尼政府着手制定新的集中出口机构的法律和结构，全球市场和主要贸易伙伴有望在几周内看到有关印尼商品出口新政策的最新消息。
 
-预期本集团本年度的整体表现好转乃由于香港投资物业的重估亏损部分被英国投资物业的重估收益所抵销，导致投资物业的公允值亏损有所减少。
+贸易部副部长Dyah Roro Esti Widya Putri表示，这个名为“Danantara Sumberdaya Indonesia”的新政府实体正从概念阶段迈向执行阶段。
 
-责任编辑：卢昱君
+她在周六于苏州举行的亚太经合组织会议间隙接受媒体采访时做出此番表态。
+
+Roro表示，“这是个全新的计划，在立法和实体设立方面仍在推进中。
+
+我们将密切关注未来几周的进展。
+
+” 印尼总统普拉博沃上周宣布，政府将直接控制部分印尼最重要商品的出口。
+
+官员此前表示，Danantara Sumberdaya将首先接管棕榈油、动力煤和部分镍产品的出口管理，印尼在这些商品市场中占据主导地位。
+
+虽然关键细节仍在商讨中，但初步的过渡期将从6月1日起开始，过渡期内出口商需要向Danantara Sumberdaya报告这些战略商品的销售情况。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 04:16 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:40 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 04:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 04:22 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 04:35 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 04:37 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 04:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 04:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 04:37 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 04:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 04:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 04:24 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 04:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 04:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 04:44 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 04:22 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 04:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 04:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 04:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 04:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/27064457709.shtml)
-- 2026-06-30 04:13 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/18675583372.shtml)
-- 2026-06-30 04:37 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/844523136384.shtml)
-- 2026-06-30 04:13 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/999171771.shtml)
-- 2026-06-30 04:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/6809874.shtml)
-- 2026-06-30 04:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/61220653.shtml)
-- 2026-06-30 04:16 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/140497767.shtml)
-- 2026-06-30 04:41 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/568208754880.shtml)
-- 2026-06-30 04:39 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/066364248792.shtml)
-- 2026-06-30 04:12 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/4314430.shtml)
-- 2026-06-30 04:31 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/409449.shtml)
-- 2026-06-30 04:13 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/87336236622.shtml)
-- 2026-06-30 04:21 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/223625161.shtml)
-- 2026-06-30 04:22 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/3597800726.shtml)
-- 2026-06-30 04:20 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/0405404477.shtml)
+- 2026-06-30 04:35 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/9224398.shtml)
+- 2026-06-30 04:30 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/991245852.shtml)
+- 2026-06-30 04:25 - [巴西扳平比分](https://www.blog.minike.top/Article/details/31639389919.shtml)
+- 2026-06-30 04:41 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/53531.shtml)
+- 2026-06-30 04:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/74171.shtml)
+- 2026-06-30 04:28 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/24954.shtml)
+- 2026-06-30 04:33 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/369193.shtml)
+- 2026-06-30 04:39 - [千与千寻](http://www.share.minike.top/Article/details/34934.shtml)
+- 2026-06-30 04:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/5673320.shtml)
+- 2026-06-30 04:35 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/01203.shtml)
+- 2026-06-30 04:23 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/1802344176.shtml)
+- 2026-06-30 04:42 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/15961780.shtml)
+- 2026-06-30 04:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/945587621377.shtml)
+- 2026-06-30 04:39 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/308635656892.shtml)
+- 2026-06-30 04:34 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/001358981509.shtml)

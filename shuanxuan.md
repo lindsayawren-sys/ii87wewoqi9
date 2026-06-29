@@ -1,57 +1,57 @@
-# （聚焦海峡论坛）“海峡金融论坛”厦门举行 大陆银行业首个对台金融服务团体标准发布
+# 省州长高端对话：聚焦绿色低碳 共建高质量发展伙伴关系
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网厦门6月12日电 (林永传)12日下午，大陆银行业首个对台金融服务团体标准——《银行业金融机构对台金融服务规范》在厦门发布，两岸财富管理暨资产管理跨业联盟同时揭牌成立。 当天，作为第十八届海峡论坛重要配套活动的“海峡金融论坛·台企发展论坛”在厦门举办。论坛聚焦两岸融合发展示范区建设三周年及“十五五”规划开局关键时点，围绕深化两岸金融合作、提升台企融资服务、促进产业转型升级
+中新网济南5月26日电 (吕妍 李明芮)以“绿色低碳·共生共赢——共建高质量发展伙伴关系”为主题的省州长高端对话5月26日在山东济南举行。中外嘉宾共探绿色能源领域合作愿景，为推动全球绿色发展贡献智慧与方案。 柬埔寨柴桢省省长彭波萨表示，发展清洁能源是守护生态环境、应对全球气候变化挑战的关键举措。该省希望与山东在绿色科技农业、可再生能源开发、绿色园区建设等方面深化合作。“未来，我
 
 ## 正文
 
-中新网厦门6月12日电 (林永传)12日下午，大陆银行业首个对台金融服务团体标准——《银行业金融机构对台金融服务规范》在厦门发布，两岸财富管理暨资产管理跨业联盟同时揭牌成立。
+中新网济南5月26日电 (吕妍 李明芮)以“绿色低碳·共生共赢——共建高质量发展伙伴关系”为主题的省州长高端对话5月26日在山东济南举行。
 
-当天，作为第十八届海峡论坛重要配套活动的“海峡金融论坛·台企发展论坛”在厦门举办。
+中外嘉宾共探绿色能源领域合作愿景，为推动全球绿色发展贡献智慧与方案。
 
-论坛聚焦两岸融合发展示范区建设三周年及“十五五”规划开局关键时点，围绕深化两岸金融合作、提升台企融资服务、促进产业转型升级等，通过主题演讲、圆桌沙龙、会客室连线、项目签约、产品发布等多元形式，促成了一系列深化两岸融合发展重要成果。
+柬埔寨柴桢省省长彭波萨表示，发展清洁能源是守护生态环境、应对全球气候变化挑战的关键举措。
 
-在论坛上发布的《银行业金融机构对台金融服务规范》由厦门银行牵头联合福建海峡银行、厦门国际银行、富邦华一银行等多家单位共同编制，厦门经济特区金融学会发布，是大陆银行业首个对台金融服务团体标准。
+该省希望与山东在绿色科技农业、可再生能源开发、绿色园区建设等方面深化合作。
 
-该标准系统涵盖服务对象、产品体系、服务渠道、宣传推广及权益保障五大维度，致力于推动对台金融服务从“经验化”迈向“标准化”的全新阶段。
+“未来，我们将以试点项目为切入点，搭建双方常态化合作平台，共同助推绿色低碳转型，提升环境治理水平。
 
-同时揭牌成立的两岸财富管理暨资产管理跨业联盟由金圆集团旗下金融机构发起倡议，厦门国际信托、金圆统一证券、圆信永丰基金、富邦华一银行、君龙人寿、厦门长庚医院等机构共同发起，以服务两岸同胞财富管理与资产管理需求为核心，是涵盖大陆台胞台企资产配置、家族信托与财富传承、养老金融与健康保障等场景的一站式服务平台。
+” “在国土开发、工业和农业发展中，我们始终将生态保护列为重要考量。
 
-论坛上还推介了白鹭分台胞金融服务平台。
+”据多哥滨海大区主席科姆兰·埃多介绍，该区积极推进交通领域绿色发展，布局光伏园区建设，大力发展清洁能源，同时规范农业发展标准，打造生态绿色现代农业。
 
-该平台目前已汇集厦门辖区内29家机构的71个金融产品，为台胞提供全方位、一站式线上金融服务。
+“我们期盼与中方伙伴在新能源、交通基建、绿色农业、光伏电站建设等领域开展务实合作，以双边协作助力能源转型与生态可持续发展。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 04:32 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 04:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 04:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 04:36 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 04:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:24 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 04:32 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 04:31 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 04:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 04:26 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 04:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 04:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 04:36 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 04:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 04:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 04:42 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 04:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 04:38 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 04:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 04:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 04:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/64437671394.shtml)
-- 2026-06-30 04:20 - [扬名立万](https://www.share.minike.top/Article/details/0576908339.shtml)
-- 2026-06-30 04:12 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/398809692775.shtml)
-- 2026-06-30 04:15 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/683897708.shtml)
-- 2026-06-30 04:15 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/493370346.shtml)
-- 2026-06-30 04:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/142361.shtml)
-- 2026-06-30 04:38 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/533403751.shtml)
-- 2026-06-30 04:24 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/58482924.shtml)
-- 2026-06-30 04:32 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/5729782404.shtml)
-- 2026-06-30 04:36 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/18948844.shtml)
-- 2026-06-30 04:21 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/486142436.shtml)
-- 2026-06-30 04:14 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/35572.shtml)
-- 2026-06-30 04:26 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/182721.shtml)
-- 2026-06-30 04:33 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/132564940400.shtml)
-- 2026-06-30 04:33 - [沉睡花园](https://www.blog.minike.top/Article/details/130323735.shtml)
+- 2026-06-30 04:27 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/29661232124.shtml)
+- 2026-06-30 04:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/6411408.shtml)
+- 2026-06-30 04:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/600214.shtml)
+- 2026-06-30 04:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/7660104523.shtml)
+- 2026-06-30 04:40 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/73741.shtml)
+- 2026-06-30 04:33 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/288415381.shtml)
+- 2026-06-30 04:22 - [金刚川](http://www.blog.kurohicncr.top/Article/details/717773.shtml)
+- 2026-06-30 04:47 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/196999577.shtml)
+- 2026-06-30 04:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/9066427.shtml)
+- 2026-06-30 04:29 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4461715.shtml)
+- 2026-06-30 04:26 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/67854.shtml)
+- 2026-06-30 04:28 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/816049.shtml)
+- 2026-06-30 04:18 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/31978.shtml)
+- 2026-06-30 04:43 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/5093770.shtml)
+- 2026-06-30 04:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/85701017.shtml)

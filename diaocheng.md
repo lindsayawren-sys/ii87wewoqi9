@@ -1,56 +1,61 @@
-# 贝索斯AI创企Prometheus融资120亿美元，估值达410亿
+# 空客供应链受阻，澳洲航空直飞伦敦、纽约航班计划延后
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-杰夫·贝索斯联合创办的人工智能初创公司Prometheus宣布完成120亿美元B轮融资，公司估值达到410亿美元。本轮融资由贝索斯本人及摩根大通、高盛、贝莱德、DST Global和Arch Venture Partners等机构参投。 这是Prometheus自2025年11月成立以来的第二轮融资，当时该公司以62亿美元的首轮融资启动，如今累计融资已超过180亿美元。贝索斯在
+12 架空客 A350-1000 客机的首架交付时间推迟至 2027 年 4 月 受供应链问题持续影响，空中客车宣布，向澳大利亚澳洲航空交付首批远程客机的计划再度推迟。 这家欧洲航空制造商于周二表示，12 架经过定制改装的 A350-1000 客机，首架交付时间现已延至 2027 年 4 月。 澳洲航空早在 2022 年就宣布向空客订购新款机型，计划开通澳大利亚城市直飞伦敦、纽
 
 ## 正文
 
-杰夫·贝索斯联合创办的人工智能初创公司Prometheus宣布完成120亿美元B轮融资，公司估值达到410亿美元。
+12 架空客 A350-1000 客机的首架交付时间推迟至 2027 年 4 月 受供应链问题持续影响，空中客车宣布，向澳大利亚澳洲航空交付首批远程客机的计划再度推迟。
 
-本轮融资由贝索斯本人及摩根大通、高盛、贝莱德、DST Global和Arch Venture Partners等机构参投。
+这家欧洲航空制造商于周二表示，12 架经过定制改装的 A350-1000 客机，首架交付时间现已延至 2027 年 4 月。
 
-这是Prometheus自2025年11月成立以来的第二轮融资，当时该公司以62亿美元的首轮融资启动，如今累计融资已超过180亿美元。
+澳洲航空早在 2022 年就宣布向空客订购新款机型，计划开通澳大利亚城市直飞伦敦、纽约的超长航线。
 
-贝索斯在2021年卸任亚马逊首席执行官后，此次以联合首席执行官身份重返运营岗位，与斯坦福大学医学院教授、Verily联合创始人Vik Bajaj共同领导该公司。
+该航司最初预计这类航班可在 2025 年底投入运营，此后又将首架飞机交付时间调整为 2026 年底。
 
-Prometheus正在构建所谓“人工通用工程师”——一套旨在将复杂物理产品的设计到制造周期从数年压缩至数月的AI工具。
+空客称，此次交付延期主要由供应链问题导致。
 
-贝索斯在接受采访时表示，这款软件的愿景是让工程师的“梦想-建造循环”速度提升十倍甚至更多。
+受全球供应链瓶颈制约，从客舱座椅到机载卫浴等各类组装零部件供应不畅，空客曾在 2022 年、2024 年及 2025 年三度下调飞机交付目标。
 
-他举例称，喷气发动机的哪怕微小改动都可能耗费十年时间，这正是Prometheus试图解决的核心问题。
+如今，由雷神技术集团旗下普惠公司提供的航空发动机供应短缺，成为空客面临的新难题，不过该公司仍坚持本年度交付目标不变。
 
-与当前主流AI聚焦聊天和代码生成不同，Prometheus专注于“物理AI”领域，目标行业涵盖航空航天、半导体、先进制造和药物发现。
+澳洲航空发言人表示，这批 A350 客机的首架目前已进入喷漆工序，数周内将开展试飞。
 
 ## 相关推荐
 
-- 2026-06-30 04:34 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 04:33 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 04:20 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 04:30 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 04:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 04:33 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 04:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 04:26 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 04:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:26 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 04:18 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 04:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 04:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 04:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 04:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 04:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 04:41 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 04:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 04:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 04:20 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 04:35 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 04:42 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 04:29 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/148492810192.shtml)
-- 2026-06-30 04:16 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/0640522.shtml)
-- 2026-06-30 04:31 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/980712598413.shtml)
-- 2026-06-30 04:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/2637689798.shtml)
-- 2026-06-30 04:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/00709198.shtml)
-- 2026-06-30 04:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/29523.shtml)
-- 2026-06-30 04:12 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/89959632.shtml)
-- 2026-06-30 04:40 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/056446856176.shtml)
-- 2026-06-30 04:24 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/87701292680.shtml)
-- 2026-06-30 04:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/427737341.shtml)
-- 2026-06-30 04:20 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/398420920.shtml)
-- 2026-06-30 04:35 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/577276.shtml)
-- 2026-06-30 04:38 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/5234086297.shtml)
-- 2026-06-30 04:30 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/074406.shtml)
-- 2026-06-30 04:17 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/718782359.shtml)
+- 2026-06-30 04:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/02560.shtml)
+- 2026-06-30 04:25 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/4301267.shtml)
+- 2026-06-30 04:29 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/960262702101.shtml)
+- 2026-06-30 04:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/39588483648.shtml)
+- 2026-06-30 04:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/980896049046.shtml)
+- 2026-06-30 04:36 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/3508430.shtml)
+- 2026-06-30 04:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/0081535973.shtml)
+- 2026-06-30 04:25 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/4997048.shtml)
+- 2026-06-30 04:28 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/425365412.shtml)
+- 2026-06-30 04:25 - [天道](http://www.share.minike.top/Article/details/616673.shtml)
+- 2026-06-30 04:25 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/2253706.shtml)
+- 2026-06-30 04:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/65413621.shtml)
+- 2026-06-30 04:26 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/526530.shtml)
+- 2026-06-30 04:23 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/77315.shtml)
+- 2026-06-30 04:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/5096886965.shtml)

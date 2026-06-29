@@ -1,56 +1,57 @@
-# 你的岗位会被人工智能替代吗？
+# “翻倍基”出现！如何抓住、抓稳牛股？顶级基金三大操盘心法曝光
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-企业应优先通过内部转岗、技能培训、协商调岗的方式安置员工，而不是直接裁员 你的岗位会被人工智能替代吗？ 阅读提示 随着人工智能技术的深度应用，一些重复性高、规则明确的人工岗位正逐步被其替代，用工结构调整，优化人员配置也势在必行。“自从有了数字化设备，工作量少了，奖金也少了，听说随着收费项目改变，这一趋势还会加重。”在一家口腔医疗机构做义齿加工的技师小梁告诉记者，随着口腔医疗数智
+2026年的A股市场，呈现出鲜明的结构性分化特征。 一边是AI算力、光通信等硬科技主线表现亮眼，催生一批超级牛基，广发远见智选A年内收益率达105.61%，为年内首只翻倍的主动权益基金；另一边，不少基民因频繁追涨杀跌、跟风炒作短期热点、看不懂产业发展趋势，拿不住优质基金，陷入“基金涨、账户不涨”的投资困境。 2025年基金年报数据也显示，绝大多数主动权益基金的“本期加权平均净值
 
 ## 正文
 
-企业应优先通过内部转岗、技能培训、协商调岗的方式安置员工，而不是直接裁员 你的岗位会被人工智能替代吗？
+2026年的A股市场，呈现出鲜明的结构性分化特征。
 
-阅读提示 随着人工智能技术的深度应用，一些重复性高、规则明确的人工岗位正逐步被其替代，用工结构调整，优化人员配置也势在必行。
+一边是AI算力、光通信等硬科技主线表现亮眼，催生一批超级牛基，广发远见智选A年内收益率达105.61%，为年内首只翻倍的主动权益基金；另一边，不少基民因频繁追涨杀跌、跟风炒作短期热点、看不懂产业发展趋势，拿不住优质基金，陷入“基金涨、账户不涨”的投资困境。
 
-“自从有了数字化设备，工作量少了，奖金也少了，听说随着收费项目改变，这一趋势还会加重。
+2025年基金年报数据也显示，绝大多数主动权益基金的“本期加权平均净值利润率”低于“本期基金份额净值增长率”，这一数据直观反映出基民整体盈利体验偏弱。
 
-”在一家口腔医疗机构做义齿加工的技师小梁告诉记者，随着口腔医疗数智化的发展，该机构的口腔技师需求量正在“缩减”。
+面对当前极致分化的市场，普通投资者想要破解收益困局，不妨以翻倍基、十年长跑基、稳健基为参照，探寻真正有效的硬核选基与配置之道。
 
-“用人工智能写代码以后，工作效率得到很大提高。
+配置主线紧跟产业趋势 顺势把握产业主线，是结构性行情下获取超额收益的关键。
 
-”在一家通信公司工作的米女士(化名)说，从2024年开始，她的工作就离不开人工智能辅助了。
+作为年内首只翻倍基，广发远见智选A的持仓调仓逻辑，堪称机构精准把握产业轮动的经典范本。
 
-随着人工智能技术的深度应用，一些重复性高、规则明确的人工岗位正逐步被其替代，用工结构调整，优化人员配置也势在必行。
+根据基金定期报告，广发远见智选A在2025年底已重仓布局存储芯片产业链，前十大重仓股中包含佰维存储、江波龙、普冉股份等行业核心企业，精准踩中了存储价格上行的超级产业周期。
 
-用人单位因引入人工智能技术，对相应岗位人员的调整或裁减，是否合法合理？
+进入2026年一季度，基金经理敏锐捕捉到AI产业正从概念炒作阶段向硬件价值兑现阶段演进，及时优化持仓结构，向光通信与算力基础设施赛道倾斜。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 04:22 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 04:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:30 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 04:18 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 04:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 04:24 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 04:20 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 04:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 04:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 04:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 04:32 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 04:47 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 04:35 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 04:19 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 04:34 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 04:28 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 04:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:46 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 04:44 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:40 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/29760117.shtml)
-- 2026-06-30 04:16 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/901272474692.shtml)
-- 2026-06-30 04:17 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/0260690.shtml)
-- 2026-06-30 04:28 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/68256.shtml)
-- 2026-06-30 04:19 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/1294485692.shtml)
-- 2026-06-30 04:17 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/78474.shtml)
-- 2026-06-30 04:35 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/741764945.shtml)
-- 2026-06-30 04:28 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/457263.shtml)
-- 2026-06-30 04:34 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/4376867.shtml)
-- 2026-06-30 04:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/2941312.shtml)
-- 2026-06-30 04:29 - [美股](http://www.blog.kurohicncr.top/Article/details/27098104350.shtml)
-- 2026-06-30 04:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/398113.shtml)
-- 2026-06-30 04:22 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/632752227412.shtml)
-- 2026-06-30 04:27 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/2990951.shtml)
-- 2026-06-30 04:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/32138.shtml)
+- 2026-06-30 04:43 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/26610.shtml)
+- 2026-06-30 04:42 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/48924643412.shtml)
+- 2026-06-30 04:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/539007240749.shtml)
+- 2026-06-30 04:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/39738742.shtml)
+- 2026-06-30 04:33 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/575415494.shtml)
+- 2026-06-30 04:33 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/5043286.shtml)
+- 2026-06-30 04:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/73827.shtml)
+- 2026-06-30 04:46 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/55036262.shtml)
+- 2026-06-30 04:42 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/61903447.shtml)
+- 2026-06-30 04:37 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/0968996.shtml)
+- 2026-06-30 04:26 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/99348.shtml)
+- 2026-06-30 04:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/8604386.shtml)
+- 2026-06-30 04:45 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7569465.shtml)
+- 2026-06-30 04:19 - [千香](https://www.share.kurohicncr.top/Article/details/280012027860.shtml)
+- 2026-06-30 04:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/391989.shtml)

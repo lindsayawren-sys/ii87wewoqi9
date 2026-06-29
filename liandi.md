@@ -1,61 +1,52 @@
-# 内蒙古逾23亿元再融资专项债券将上市 票面利率2.18%
+# 美军袭击消息引发标普500指数期货小幅回落
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特6月12日电 题：内蒙古逾23亿元再融资专项债券将上市 票面利率2.18% 中新网记者 刘文华 深圳证券交易所11日发布通知称，2026年内蒙古自治区政府再融资专项债券(五期)已发行结束，将于6月15日起在该所上市交易。 本期债券为15年期固定利率附息债，证券编码为“566615”，证券简称为“内蒙古2614”，发行总额为23.8419亿元，票面利率为2.18%。
+据报道，美军对伊朗境内目标实施打击，受此影响，美国股指期货小幅走低，西德克萨斯轻质原油价格同步小幅上行。目前伊朗暂无回应，媒体援引美国中央司令部声明称，此次袭击行动较为克制。亚洲市场周二早盘，标普500迷你股指期货开盘约7560点，现报7544点左右。西德克萨斯轻质原油盘中最低触及90.35美元/桶，目前价格升至90.90美元/桶上方。市场整体反应温和，交易员认为，只要美方展现
 
 ## 正文
 
-中新网呼和浩特6月12日电 题：内蒙古逾23亿元再融资专项债券将上市 票面利率2.18% 中新网记者 刘文华 深圳证券交易所11日发布通知称，2026年内蒙古自治区政府再融资专项债券(五期)已发行结束，将于6月15日起在该所上市交易。
+据报道，美军对伊朗境内目标实施打击，受此影响，美国股指期货小幅走低，西德克萨斯轻质原油价格同步小幅上行。
 
-本期债券为15年期固定利率附息债，证券编码为“566615”，证券简称为“内蒙古2614”，发行总额为23.8419亿元，票面利率为2.18%。
+目前伊朗暂无回应，媒体援引美国中央司令部声明称，此次袭击行动较为克制。
 
-作为参照，2026年6月8日财政部发售的储蓄国债3年期利率为1.63%、5年期为1.70%。
+亚洲市场周二早盘，标普500迷你股指期货开盘约7560点，现报7544点左右。
 
-依据相关规定，企业和个人取得的地方政府债券利息，免征企业所得税和个人所得税。
+西德克萨斯轻质原油盘中最低触及90.35美元/桶，目前价格升至90.90美元/桶上方。
 
-远东资信出具的评级报告显示，本期债券信用评级为AAA级，这是国内债券市场最高信用等级。
+市场整体反应温和，交易员认为，只要美方展现出达成协议的意愿，各方就能容忍这类突发扰动。
 
-今年以来，内蒙古政府债券常态化发行。
-
-4月发行的再融资专项债券(四期)同为15年期，发行面值总额为71.7108亿元。
-
-公开数据显示，2025年全国发行地方政府债券10.29万亿元，其中再融资债券达4.93万亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:14 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 04:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 04:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 04:20 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 04:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 04:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 04:17 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 04:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 04:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 04:37 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 04:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 04:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 04:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 04:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 04:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 04:27 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 04:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 04:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 04:27 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 04:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 04:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 04:33 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:42 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 04:34 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 04:19 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:25 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/06575.shtml)
-- 2026-06-30 04:15 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/529053.shtml)
-- 2026-06-30 04:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/47615.shtml)
-- 2026-06-30 04:37 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/847178856.shtml)
-- 2026-06-30 04:13 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/46519642995.shtml)
-- 2026-06-30 04:18 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/3635208735.shtml)
-- 2026-06-30 04:13 - [女心理师](https://www.blog.kurohicncr.top/Article/details/472944761865.shtml)
-- 2026-06-30 04:39 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/527706301889.shtml)
-- 2026-06-30 04:40 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/50645.shtml)
-- 2026-06-30 04:19 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/200772191.shtml)
-- 2026-06-30 04:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/94217.shtml)
-- 2026-06-30 04:35 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/030507275.shtml)
-- 2026-06-30 04:24 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/276992133296.shtml)
-- 2026-06-30 04:27 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/582066843791.shtml)
-- 2026-06-30 04:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/752825200710.shtml)
+- 2026-06-30 04:22 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/5894036333.shtml)
+- 2026-06-30 04:21 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/528477421679.shtml)
+- 2026-06-30 04:47 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/7050918.shtml)
+- 2026-06-30 04:35 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/139020939979.shtml)
+- 2026-06-30 04:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/2104883.shtml)
+- 2026-06-30 04:36 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/097381052.shtml)
+- 2026-06-30 04:41 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/2808360.shtml)
+- 2026-06-30 04:30 - [流金岁月](https://www.blog.minike.top/Article/details/38978.shtml)
+- 2026-06-30 04:30 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/05183.shtml)
+- 2026-06-30 04:32 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/75565.shtml)
+- 2026-06-30 04:21 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/801543615326.shtml)
+- 2026-06-30 04:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/512675663.shtml)
+- 2026-06-30 04:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/09747392.shtml)
+- 2026-06-30 04:31 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/29056323.shtml)
+- 2026-06-30 04:26 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/399460366.shtml)

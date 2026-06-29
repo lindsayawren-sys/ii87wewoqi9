@@ -1,57 +1,49 @@
-# 防范雷雨大风！今天北京将有雷阵雨出没 阵风可达7级以上
+# 《超龄劳动者基本权益保障暂行规定》发布 7月1日起施行
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 今天(6月13日)，北京天空云量较多，大部地区将出现雷阵雨天气，北部可达小到中雨量级，雷雨时阵风可达7级以上。明天，北京以多云天气为主，山区仍需防范分散雷阵雨。 昨天白天，北京大部地区以多云天气为主，最高气温在30℃左右，通州、顺义、平谷、密云、大兴等地出现阵雨或雷阵雨。 北京市气象台预计，今天白天阴有雷阵雨，北部有小到中雨，北转南风2至3级，雷雨时阵风7级以上，
+中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息
 
 ## 正文
 
-中国天气网讯 今天(6月13日)，北京天空云量较多，大部地区将出现雷阵雨天气，北部可达小到中雨量级，雷雨时阵风可达7级以上。
+中新网5月25日电 据人力资源和社会保障部网站消息，日前，人力资源社会保障部会同国家卫生健康委、应急管理部、税务总局、国家医保局联合出台《超龄劳动者基本权益保障暂行规定》(以下简称《暂行规定》)，自2026年7月1日起施行。
 
-明天，北京以多云天气为主，山区仍需防范分散雷阵雨。
-
-昨天白天，北京大部地区以多云天气为主，最高气温在30℃左右，通州、顺义、平谷、密云、大兴等地出现阵雨或雷阵雨。
-
-北京市气象台预计，今天白天阴有雷阵雨，北部有小到中雨，北转南风2至3级，雷雨时阵风7级以上，最高气温27℃；夜间阴，东部有雷阵雨转多云，南转北风1至2级，最低气温20℃。
-
-明天白天，北京多云，山区有分散雷阵雨，北转东风2至3级，最高气温30℃；夜间多云，东转北风2级左右，最低气温22℃。
-
-气象部门提醒，受冷空气影响，今天北京有雷阵雨天气出没，降雨具有间歇性，雨量分布不均，北部可达小到中雨量级，公众外出记得随身携带雨具，注意防雷避雨。
+《暂行规定》是我国首部明确超龄劳动者权益的专门规章，填补了我国现行劳动法律制度的短板，明确了用人单位与超龄劳动者的权利和义务，保障超龄劳动者的劳动报酬、休息休假、劳动安全卫生、工伤保障等合法权益。
 
 ## 相关推荐
 
-- 2026-06-30 04:33 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 04:37 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 04:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 04:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 04:20 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 04:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 04:14 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 04:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 04:23 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 04:21 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 04:40 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 04:29 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 04:27 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 04:14 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 04:46 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 04:24 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 04:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 04:25 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 04:23 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 04:22 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 04:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 04:44 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 04:30 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 04:19 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 04:40 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 04:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 04:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 04:19 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:28 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/86066484048.shtml)
-- 2026-06-30 04:15 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/8458001.shtml)
-- 2026-06-30 04:21 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/8880105.shtml)
-- 2026-06-30 04:23 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/2076003.shtml)
-- 2026-06-30 04:39 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/3780822.shtml)
-- 2026-06-30 04:39 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/88436247.shtml)
-- 2026-06-30 04:13 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/068667169.shtml)
-- 2026-06-30 04:31 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/923819652.shtml)
-- 2026-06-30 04:17 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/50409594221.shtml)
-- 2026-06-30 04:34 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/750367009856.shtml)
-- 2026-06-30 04:19 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/7072128.shtml)
-- 2026-06-30 04:40 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/5825474968.shtml)
-- 2026-06-30 04:36 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/25437.shtml)
-- 2026-06-30 04:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/68121.shtml)
-- 2026-06-30 04:34 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/672005084757.shtml)
+- 2026-06-30 04:38 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/279509359039.shtml)
+- 2026-06-30 04:42 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/8344991.shtml)
+- 2026-06-30 04:47 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/945699548069.shtml)
+- 2026-06-30 04:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/065379668201.shtml)
+- 2026-06-30 04:18 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/18479208446.shtml)
+- 2026-06-30 04:32 - [巴西绝杀日本](http://www.share.minike.top/Article/details/9010485078.shtml)
+- 2026-06-30 04:39 - [人类...完蛋了...](https://www.share.minike.top/Article/details/5047441209.shtml)
+- 2026-06-30 04:26 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/54169.shtml)
+- 2026-06-30 04:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/223924.shtml)
+- 2026-06-30 04:28 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/812976735380.shtml)
+- 2026-06-30 04:24 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/03320253.shtml)
+- 2026-06-30 04:42 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/21996059296.shtml)
+- 2026-06-30 04:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/47180023.shtml)
+- 2026-06-30 04:29 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/302538.shtml)
+- 2026-06-30 04:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/793436.shtml)

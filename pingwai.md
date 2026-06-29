@@ -1,56 +1,60 @@
-# 5月末中国社会融资规模存量458.81万亿元 同比增7.7%
+# 美媒：美伊框架协议“已达成95%”
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 (陶思阅)中国央行12日公布的最新金融数据显示，初步统计，5月末，中国社会融资规模存量为458.81万亿元(人民币，下同)，同比增长7.7%。 其中，对实体经济发放的人民币贷款余额277.4万亿元，同比增长5.5%。从结构看，5月末对实体经济发放的人民币贷款余额占同期社会融资规模存量的60.5%，同比低1.2个百分点。 数据还显示，前5个月社会融资规模增
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿5月25日电美国福克斯新闻频道24日援引一名美国官员的话报道说，美国和伊朗的框架协议目前“已达成95%”，双方在伊朗“核储备”和霍尔木兹海峡问题上达成协议，目前正在就“措辞”进行磋商。 这名未透露姓名的美国官员否认了美国很快与伊朗达成协议的可能性，他说：“我们尚未达成协议，也不会在今天或明天签署
 
 ## 正文
 
-中新社北京6月12日电 (陶思阅)中国央行12日公布的最新金融数据显示，初步统计，5月末，中国社会融资规模存量为458.81万亿元(人民币，下同)，同比增长7.7%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中，对实体经济发放的人民币贷款余额277.4万亿元，同比增长5.5%。
+新华社华盛顿5月25日电美国福克斯新闻频道24日援引一名美国官员的话报道说，美国和伊朗的框架协议目前“已达成95%”，双方在伊朗“核储备”和霍尔木兹海峡问题上达成协议，目前正在就“措辞”进行磋商。
 
-从结构看，5月末对实体经济发放的人民币贷款余额占同期社会融资规模存量的60.5%，同比低1.2个百分点。
+这名未透露姓名的美国官员否认了美国很快与伊朗达成协议的可能性，他说：“我们尚未达成协议，也不会在今天或明天签署协议。
 
-数据还显示，前5个月社会融资规模增量累计为17.48万亿元，比上年同期少1.16万亿元。
+”他推测美国总统特朗普可能给美伊双方谈判代表5到7天时间来达成协议。
 
-其中，对实体经济发放的人民币贷款增加9万亿元，同比少增1.38万亿元。
+这名官员还表示，美国有多种选择，如果美伊双方未能达成协议，美国“可以恢复军事打击”。
 
-中国央行表示，随着经济结构向更加轻型化方向转型，贷款需求自然有所下降。
+特朗普24日在社交媒体发文，称“如果我与伊朗达成协议，那将会是一份好的、合适的协议”。
 
-过去依靠房地产、基建等资金密集型行业拉动信贷快速扩张的模式正在弱化，产业结构向轻资产、科技型、现代服务业迭代升级，经济发展动力更多源于技术进步和全要素生产率提升，对贷款资金的依赖度下降。
+他还说：“目前没人看过它或知道它的内容。
 
-(完)
+它还没有完全谈妥。
 
 ## 相关推荐
 
-- 2026-06-30 04:26 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 04:25 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:32 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 04:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 04:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 04:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 04:26 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 04:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 04:35 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 04:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 04:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 04:20 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 04:29 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 04:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 04:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 04:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 04:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 04:34 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 04:43 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 04:42 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 04:33 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 04:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 04:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 04:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:15 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/167483449453.shtml)
-- 2026-06-30 04:32 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/400236308790.shtml)
-- 2026-06-30 04:34 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/896357454.shtml)
-- 2026-06-30 04:20 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/04461356.shtml)
-- 2026-06-30 04:34 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/0725166401.shtml)
-- 2026-06-30 04:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/0195130144.shtml)
-- 2026-06-30 04:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/689311559752.shtml)
-- 2026-06-30 04:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/5340457.shtml)
-- 2026-06-30 04:26 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/49225.shtml)
-- 2026-06-30 04:25 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/21347.shtml)
-- 2026-06-30 04:34 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/95829929936.shtml)
-- 2026-06-30 04:19 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/94348878.shtml)
-- 2026-06-30 04:22 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/845613.shtml)
-- 2026-06-30 04:23 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/553695434.shtml)
-- 2026-06-30 04:35 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/17509792002.shtml)
+- 2026-06-30 04:23 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/68168.shtml)
+- 2026-06-30 04:18 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/371800173.shtml)
+- 2026-06-30 04:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/2084771914.shtml)
+- 2026-06-30 04:37 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/33953989418.shtml)
+- 2026-06-30 04:34 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/92402241.shtml)
+- 2026-06-30 04:20 - [日本16强魔咒](http://www.blog.minike.top/Article/details/2206058756.shtml)
+- 2026-06-30 04:28 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/1213439013.shtml)
+- 2026-06-30 04:40 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/5684912.shtml)
+- 2026-06-30 04:41 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/0392561494.shtml)
+- 2026-06-30 04:39 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/0584713375.shtml)
+- 2026-06-30 04:29 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/7296074683.shtml)
+- 2026-06-30 04:47 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/7601035.shtml)
+- 2026-06-30 04:21 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/0039489.shtml)
+- 2026-06-30 04:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/775199.shtml)
+- 2026-06-30 04:42 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/9412411162.shtml)

@@ -1,60 +1,56 @@
-# 能源价格冲击下美国5月PPI飙升至6.5%
+# 三大投票结果出炉！网友这次怎么看后市？
 
-> 更新时间：2026-06-30 04:42:03 UTC+8
+> 更新时间：2026-06-30 04:48:02 UTC+8
 
 ## 摘要
 
-美国劳工部周四公布的数据显示，受伊朗冲突引发的能源价格飙升影响，美国5月生产者价格指数同比大幅上涨6.5%，创下自2022年11月以来的最大涨幅。这一数据远超市场预期，显示出批发端通胀压力正在显著升温。 数据显示，5月PPI环比上涨1.1%，同样高于市场预期的0.7%。能源价格成为推动通胀的核心因素，5月能源价格环比上涨10.7%，其中汽油价格单月上涨23.4%，贡献了商品价格
+上周关于纳斯达克、纽约原油、伦敦金的三大投票结果已经正式出炉。在这次投票里，市场情绪其实出现了一个非常明显的信号：大家对科技股依然偏乐观，但对黄金和原油，分歧明显加大。 首先是纳斯达克指数。在“纳斯达克100本周五收盘价”投票中：61%的用户选择了29000-30000点区间，最终成功命中结果。反映出着：市场当前依然认为AI主线并没有结束。即使近期波动加大，资金仍在持续回流AI
 
 ## 正文
 
-美国劳工部周四公布的数据显示，受伊朗冲突引发的能源价格飙升影响，美国5月生产者价格指数同比大幅上涨6.5%，创下自2022年11月以来的最大涨幅。
+上周关于纳斯达克、纽约原油、伦敦金的三大投票结果已经正式出炉。
 
-这一数据远超市场预期，显示出批发端通胀压力正在显著升温。
+在这次投票里，市场情绪其实出现了一个非常明显的信号：大家对科技股依然偏乐观，但对黄金和原油，分歧明显加大。
 
-数据显示，5月PPI环比上涨1.1%，同样高于市场预期的0.7%。
+首先是纳斯达克指数。
 
-能源价格成为推动通胀的核心因素，5月能源价格环比上涨10.7%，其中汽油价格单月上涨23.4%，贡献了商品价格涨幅的一半以上。
+在“纳斯达克100本周五收盘价”投票中：61%的用户选择了29000-30000点区间，最终成功命中结果。
 
-据媒体报道，霍尔木兹海峡持续封锁导致国际油价大幅攀升，船用燃料成本较冲突前上涨近70%，生产成本压力正沿着产业链逐级传导。
+反映出着：市场当前依然认为AI主线并没有结束。
 
-更值得警惕的是，剔除食品、能源和贸易服务的核心PPI同比涨幅从4.4%升至5.1%，创下2022年10月以来新高。
+即使近期波动加大，资金仍在持续回流AI、半导体、科技龙头等热门板块。
 
-这表明通胀压力已从能源领域向外扩散——5月食品价格环比上涨0.6%，核心商品价格上涨0.8%为近三年最大涨幅，运输和仓储服务价格也同步上涨2.6%。
+而原油这边，情绪则明显出现变化。
 
-生产者价格指数被视为消费者通胀的先行指标。
+此前很多人担心：中东局势升级、油价继续暴涨。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 04:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 04:15 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 04:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 04:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 04:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 04:20 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 04:16 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 04:13 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 04:38 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 04:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 04:36 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 04:35 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 04:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 04:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 04:27 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 04:22 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 04:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 04:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 04:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 04:20 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 04:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/39823246.shtml)
-- 2026-06-30 04:39 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/9298724.shtml)
-- 2026-06-30 04:16 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/84074876.shtml)
-- 2026-06-30 04:33 - [日本领先巴西](https://www.share.minike.top/Article/details/3105525296.shtml)
-- 2026-06-30 04:38 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/6116485.shtml)
-- 2026-06-30 04:12 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/55205733192.shtml)
-- 2026-06-30 04:21 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/8871768546.shtml)
-- 2026-06-30 04:24 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/7433315.shtml)
-- 2026-06-30 04:39 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/422587367350.shtml)
-- 2026-06-30 04:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/9690824581.shtml)
-- 2026-06-30 04:20 - [月亮](https://www.share.minike.top/Article/details/162702.shtml)
-- 2026-06-30 04:20 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/0375899180.shtml)
-- 2026-06-30 04:21 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/42701979.shtml)
-- 2026-06-30 04:23 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/23088985882.shtml)
-- 2026-06-30 04:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/71949459848.shtml)
+- 2026-06-30 04:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/079971691118.shtml)
+- 2026-06-30 04:24 - [日本16强魔咒](http://www.blog.minike.top/Article/details/52803901.shtml)
+- 2026-06-30 04:42 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/1152723.shtml)
+- 2026-06-30 04:47 - [流金岁月](http://www.blog.minike.top/Article/details/082766123.shtml)
+- 2026-06-30 04:42 - [《共患难》](https://www.share.kurohicncr.top/Article/details/6287117.shtml)
+- 2026-06-30 04:44 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/104317862687.shtml)
+- 2026-06-30 04:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/80826808851.shtml)
+- 2026-06-30 04:26 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/395871763500.shtml)
+- 2026-06-30 04:18 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/38857.shtml)
+- 2026-06-30 04:25 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/746930405844.shtml)
+- 2026-06-30 04:47 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/611808874.shtml)
+- 2026-06-30 04:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/5110605022.shtml)
+- 2026-06-30 04:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/000849.shtml)
+- 2026-06-30 04:27 - [世界杯](http://www.blog.minike.top/Article/details/895308539.shtml)
+- 2026-06-30 04:29 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/796452055020.shtml)
