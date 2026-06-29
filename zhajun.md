@@ -1,56 +1,59 @@
-# 黄金的“双重夹击”：美伊和谈预期 VS 加息押注骤升，本周PCE或定方向
+# 中国共产党与德国联盟党第十四次政党对话举行
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-来源：汇通网 汇通财经APP讯——周一（5月25日）亚洲早盘时段，金价升至4578美元附近。受美伊谈判取得进展、霍尔木兹海峡有望重新开放的报道影响，美元小幅走弱，黄金因此获得买盘支撑。 白宫回应：距离签署“尚需数天” 市场对美伊再次举行谈判保持谨慎乐观，据沙特媒体24日报道，美伊之间可能达成的初步协议将是一份谅解备忘录，巴基斯坦将在谈判各方无需到场的情况下宣布这份谅解备忘录。之
+新华社北京6月16日电 6月16日，中国共产党与德国联盟党第十四次政党对话在北京举行。中方有关部委、智库、高校代表，德国联盟党议会党团成员等与会。双方围绕“着眼应对世界变局、持续深化中德对话合作”的主题进行深入对话交流。 中共中央对外联络部部长刘海星表示，今年年初，习近平主席会见来华访问的德国总理默茨，达成重要共识，为中德关系发展指明方向。中方愿同德方拓展政党对话的广度和深度，
 
 ## 正文
 
-来源：汇通网 汇通财经APP讯——周一（5月25日）亚洲早盘时段，金价升至4578美元附近。
+新华社北京6月16日电 6月16日，中国共产党与德国联盟党第十四次政党对话在北京举行。
 
-受美伊谈判取得进展、霍尔木兹海峡有望重新开放的报道影响，美元小幅走弱，黄金因此获得买盘支撑。
+中方有关部委、智库、高校代表，德国联盟党议会党团成员等与会。
 
-白宫回应：距离签署“尚需数天” 市场对美伊再次举行谈判保持谨慎乐观，据沙特媒体24日报道，美伊之间可能达成的初步协议将是一份谅解备忘录，巴基斯坦将在谈判各方无需到场的情况下宣布这份谅解备忘录。
+双方围绕“着眼应对世界变局、持续深化中德对话合作”的主题进行深入对话交流。
 
-之后美伊双方将就最终协议进行谈判，下一轮会谈可能在6月5日举行 但美国总统特朗普24日说，美国和伊朗的协议“尚未完全谈妥”，他指责一些不了解情况的人对其“妄加批评”。
+中共中央对外联络部部长刘海星表示，今年年初，习近平主席会见来华访问的德国总理默茨，达成重要共识，为中德关系发展指明方向。
 
-特朗普在社交媒体发文，称“如果我与伊朗达成协议，那将会是一份好的、合适的协议”。
+中方愿同德方拓展政党对话的广度和深度，树立正确的相互认知，积极搭建“政党+”合作平台，不断造福两国人民。
 
-“目前没人看过它或知道它的内容。
+德国联盟党议会党团主席施潘表示，近年来德中关系保持良好发展势头。
 
-它还没有完全谈妥。
-
-所以不要去听那些失败者的话，他们对一件自己根本不了解的事情妄加批评。
+德方赞同自由公平贸易，主张有序竞争，反对贸易战，希望通过坦诚沟通对话，增进相互理解，妥善处理分歧，促进和扩大共同利益。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 07:35 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 07:21 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 07:14 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 07:15 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 07:22 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 07:07 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 07:14 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 07:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 07:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 07:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 07:27 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 07:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 07:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 07:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 07:36 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 07:21 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 07:35 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 07:21 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 07:26 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 07:28 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 07:36 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 07:29 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:30 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/8845354.shtml)
-- 2026-06-30 07:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/455314.shtml)
-- 2026-06-30 07:11 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/7643647.shtml)
-- 2026-06-30 07:21 - [美人鱼](https://www.share.minike.top/Article/details/65927858411.shtml)
-- 2026-06-30 07:14 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/108474459545.shtml)
-- 2026-06-30 07:16 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/00213.shtml)
-- 2026-06-30 07:09 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/823540210.shtml)
-- 2026-06-30 07:11 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/495908595.shtml)
-- 2026-06-30 07:13 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/88505.shtml)
-- 2026-06-30 07:16 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/831001.shtml)
-- 2026-06-30 07:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/436021671115.shtml)
-- 2026-06-30 07:09 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/773828601.shtml)
-- 2026-06-30 07:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/7683768.shtml)
-- 2026-06-30 07:34 - [乔家的儿女](https://www.share.minike.top/Article/details/503176916289.shtml)
-- 2026-06-30 07:27 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/2494709.shtml)
+- 2026-06-30 07:27 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/6609269.shtml)
+- 2026-06-30 07:30 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/7467095.shtml)
+- 2026-06-30 07:24 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/42589748931.shtml)
+- 2026-06-30 07:37 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/04619.shtml)
+- 2026-06-30 07:23 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/165962.shtml)
+- 2026-06-30 07:38 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/550738198980.shtml)
+- 2026-06-30 07:30 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/3482030040.shtml)
+- 2026-06-30 07:36 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/762022.shtml)
+- 2026-06-30 07:27 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/46372.shtml)
+- 2026-06-30 07:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/859536805734.shtml)
+- 2026-06-30 07:30 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/6639314.shtml)
+- 2026-06-30 07:36 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/60072583635.shtml)
+- 2026-06-30 07:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/001890.shtml)
+- 2026-06-30 07:38 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/46012249.shtml)
+- 2026-06-30 07:28 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/917264965.shtml)

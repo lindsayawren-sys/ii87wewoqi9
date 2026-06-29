@@ -1,57 +1,58 @@
-# 航天员朱杨柱再出征 父亲电话成热线
+# 新西兰经济学家下调GDP增长预期
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网南京5月24日电(徐珊珊 许曼婷)神舟二十三号载人飞船将于5月24日23时08分发射，江苏沛县籍航天员朱杨柱担任指令长。消息传回老家，父亲朱耿德的电话就没停过。他打电话给别人报喜，别人也打电话来祝贺。相比三年前，朱耿德这次的心态更加平和，他说：“咱国家航天技术发达，我放心。家里事不要挂念，好好为国家作贡献。”（完）
+新西兰经济研究所在其官网发布本土经济学家的季度综合预测报告。经济学家预计，2025至2026财年国内生产总值年均增速为0.6%。注：3月份调查预测值为0.8%。经济学家预计，2026至2027财年国内生产总值年均增速为1.6%。注：3月份调查预测值为3%。对于截至2027年3月的财年，经济学家认为消费、住宅投资及出口表现将弱于三个月前的预期。私人消费增速预期下调至0.8%，此前
 
 ## 正文
 
-中新网南京5月24日电(徐珊珊 许曼婷)神舟二十三号载人飞船将于5月24日23时08分发射，江苏沛县籍航天员朱杨柱担任指令长。
+新西兰经济研究所在其官网发布本土经济学家的季度综合预测报告。
 
-消息传回老家，父亲朱耿德的电话就没停过。
+经济学家预计，2025至2026财年国内生产总值年均增速为0.6%。
 
-他打电话给别人报喜，别人也打电话来祝贺。
+注：3月份调查预测值为0.8%。
 
-相比三年前，朱耿德这次的心态更加平和，他说：“咱国家航天技术发达，我放心。
+经济学家预计，2026至2027财年国内生产总值年均增速为1.6%。
 
-家里事不要挂念，好好为国家作贡献。
+注：3月份调查预测值为3%。
 
-”（完）
+对于截至2027年3月的财年，经济学家认为消费、住宅投资及出口表现将弱于三个月前的预期。
+
+私人消费增速预期下调至0.8%，此前预期为1.8%；住宅投资增速预期下调至5.1%，此前预期为9%；出口增速预期下调至2.4%，此前预期为3.5%；就业人数增速预期下调至1.3%，此前预期为2.3%。
+
+预计截至2027年3月的财年，居民消费价格指数通胀率为3.3%，此前预期为2.3%。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 07:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:33 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:15 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 07:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 07:09 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 07:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 07:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 07:29 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 07:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 07:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 07:32 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 07:24 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 07:29 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 07:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 07:20 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 07:27 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 07:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 07:20 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 07:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 07:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 07:38 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:41 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 07:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 07:38 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/5465639.shtml)
-- 2026-06-30 07:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/099973.shtml)
-- 2026-06-30 07:31 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/997052594.shtml)
-- 2026-06-30 07:12 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/69080133753.shtml)
-- 2026-06-30 07:21 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/71323.shtml)
-- 2026-06-30 07:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/847082281.shtml)
-- 2026-06-30 07:33 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/1536615793.shtml)
-- 2026-06-30 07:33 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/18843538.shtml)
-- 2026-06-30 07:15 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/459976.shtml)
-- 2026-06-30 07:32 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/840770523.shtml)
-- 2026-06-30 07:17 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/391642.shtml)
-- 2026-06-30 07:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/18465756.shtml)
-- 2026-06-30 07:06 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/47148473499.shtml)
-- 2026-06-30 07:31 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/86776.shtml)
-- 2026-06-30 07:09 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/43977168614.shtml)
+- 2026-06-30 07:24 - [美人鱼](https://www.share.kurohicncr.top/Article/details/2521502387.shtml)
+- 2026-06-30 07:27 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/71442.shtml)
+- 2026-06-30 07:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/8422119.shtml)
+- 2026-06-30 07:22 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/994823804705.shtml)
+- 2026-06-30 07:25 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/1492173348.shtml)
+- 2026-06-30 07:27 - [张凌赫 客串](http://www.share.minike.top/Article/details/23858659060.shtml)
+- 2026-06-30 07:29 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/200837859.shtml)
+- 2026-06-30 07:21 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/95683131486.shtml)
+- 2026-06-30 07:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/597868.shtml)
+- 2026-06-30 07:25 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7055932359.shtml)
+- 2026-06-30 07:35 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/74887.shtml)
+- 2026-06-30 07:18 - [美股](http://www.share.kurohicncr.top/Article/details/2850352666.shtml)
+- 2026-06-30 07:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/8935353.shtml)
+- 2026-06-30 07:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/339111.shtml)
+- 2026-06-30 07:25 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/402453437947.shtml)

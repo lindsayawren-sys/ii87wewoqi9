@@ -1,49 +1,56 @@
-# 日本政府据悉倾向于将食品饮料消费税税率降至1%
+# 中信建投期货：6月15日能化早报
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-据报道，关于为期两年的食品饮料消费税减税问题，日本政府倾向于降至1%而不是零。 日本首相高市早苗最早可能在6月下旬作出最终决定。 据报道，将消费税下调至1%，相较执政党此前承诺考虑降至零，收银系统所需调整的时间可缩短一半。责任编辑：于健 SF069
+PX： 供需面供需双增。亚洲行业负荷环比增加2.0pct至66.1%，仍处五年低位。中国PX行业负荷环比增加1.3pct至77.3%，目前因原料问题导致的PX装置计划外变动尚未显著显现，但仍处偏低水平，后期东营威联石化、福化集团、盛虹等装置后期存检修计划。需求端，PTA计划外检修量预计增多，对PX需求将形成阶段性压制，6-8 月，PX将呈现去库状态。美国总统特朗普当地时间6月1
 
 ## 正文
 
-据报道，关于为期两年的食品饮料消费税减税问题，日本政府倾向于降至1%而不是零。
+PX： 供需面供需双增。
 
-日本首相高市早苗最早可能在6月下旬作出最终决定。
+亚洲行业负荷环比增加2.0pct至66.1%，仍处五年低位。
 
-据报道，将消费税下调至1%，相较执政党此前承诺考虑降至零，收银系统所需调整的时间可缩短一半。
+中国PX行业负荷环比增加1.3pct至77.3%，目前因原料问题导致的PX装置计划外变动尚未显著显现，但仍处偏低水平，后期东营威联石化、福化集团、盛虹等装置后期存检修计划。
 
-责任编辑：于健 SF069
+需求端，PTA计划外检修量预计增多，对PX需求将形成阶段性压制，6-8 月，PX将呈现去库状态。
+
+美国总统特朗普当地时间6月14日宣布，与伊朗的和平协议已正式达成，霍尔木兹海峡现已开放。
+
+据伊朗媒体 15 日报道，伊朗最高国家安全委员会当天凌晨发表声明，正式确认伊美停战谅解备忘录达成。
+
+周一早盘布油跳空低开近4美元至82美元/桶附近，继续下探空间不大，关注80美元/桶关口支撑。
+
+综合来看，冲突达成阶段性停火，油价较难以大幅持续下挫，难以回到冲突前水平，化工品更是如此。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 07:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 07:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 07:10 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 07:29 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 07:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 07:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 07:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 07:18 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 07:24 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 07:21 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 07:25 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 07:12 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 07:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 07:14 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 07:21 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 07:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 07:19 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 07:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 07:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/11696289797.shtml)
-- 2026-06-30 07:28 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/73716369337.shtml)
-- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/73114628.shtml)
-- 2026-06-30 07:24 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/03012420.shtml)
-- 2026-06-30 07:30 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/489482.shtml)
-- 2026-06-30 07:30 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/6425281042.shtml)
-- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/6467358212.shtml)
-- 2026-06-30 07:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/2967498.shtml)
-- 2026-06-30 07:15 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/690045.shtml)
-- 2026-06-30 07:08 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/23392162.shtml)
-- 2026-06-30 07:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/670237709547.shtml)
-- 2026-06-30 07:33 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/74232822.shtml)
-- 2026-06-30 07:30 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/75074673238.shtml)
-- 2026-06-30 07:08 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/981009923804.shtml)
-- 2026-06-30 07:12 - [斗破苍穹](https://www.share.minike.top/Article/details/054317217782.shtml)
+- 2026-06-30 07:33 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/287107261.shtml)
+- 2026-06-30 07:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/36095177780.shtml)
+- 2026-06-30 07:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/55727.shtml)
+- 2026-06-30 07:18 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/54446054.shtml)
+- 2026-06-30 07:32 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/32763145189.shtml)
+- 2026-06-30 07:32 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/901831.shtml)
+- 2026-06-30 07:25 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/782104283689.shtml)
+- 2026-06-30 07:16 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/38235854799.shtml)
+- 2026-06-30 07:20 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/841081326345.shtml)
+- 2026-06-30 07:12 - [天道](http://www.share.minike.top/Article/details/1719946.shtml)
+- 2026-06-30 07:13 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/0771580.shtml)
+- 2026-06-30 07:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/474245148.shtml)
+- 2026-06-30 07:14 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/7848017.shtml)
+- 2026-06-30 07:29 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/468940709.shtml)
+- 2026-06-30 07:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/78427918.shtml)

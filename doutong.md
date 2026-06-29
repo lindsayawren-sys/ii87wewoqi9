@@ -1,56 +1,56 @@
-# 超10万名广东大学生参赛“挑战杯”
+# 印度5月份商品贸易逆差降至282.1亿美元
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网河源5月25日电 (记者 张璐)5月22日至5月24日，第十五届“挑战杯”广东大学生创业计划竞赛终审决赛(简称“赛事”)在广东技术师范大学(河源校区)落幕。 据悉，本届“挑战杯”赛事分为主体赛和专项赛。主体赛事共吸引160所高校、逾10万名大学生参赛，最终遴选出1940件作品晋级省赛，210个优秀项目闯入终审决赛。 华南理工大学捧得“挑战杯”奖杯；广东技术师范大学等25所
+印度政府15日公布的官方数据显示，受全球高能源价格推动石油产品出口增长影响，印度5月份商品贸易逆差小幅收窄至282.1亿美元。该数据略低于此前市场普遍预期。 数据显示，印度5月份商品出口额由上月的435.6亿美元升至452亿美元；商品进口额由上月的71.94亿美元（此前曾创下六个月新高）升至734.1亿美元。尽管印度的整体进口成本维持高位，但石油出口的增长部分抵消了进口额的上升
 
 ## 正文
 
-中新网河源5月25日电 (记者 张璐)5月22日至5月24日，第十五届“挑战杯”广东大学生创业计划竞赛终审决赛(简称“赛事”)在广东技术师范大学(河源校区)落幕。
+印度政府15日公布的官方数据显示，受全球高能源价格推动石油产品出口增长影响，印度5月份商品贸易逆差小幅收窄至282.1亿美元。
 
-据悉，本届“挑战杯”赛事分为主体赛和专项赛。
+该数据略低于此前市场普遍预期。
 
-主体赛事共吸引160所高校、逾10万名大学生参赛，最终遴选出1940件作品晋级省赛，210个优秀项目闯入终审决赛。
+数据显示，印度5月份商品出口额由上月的435.6亿美元升至452亿美元；商品进口额由上月的71.94亿美元（此前曾创下六个月新高）升至734.1亿美元。
 
-华南理工大学捧得“挑战杯”奖杯；广东技术师范大学等25所高校斩获“优胜杯”。
+尽管印度的整体进口成本维持高位，但石油出口的增长部分抵消了进口额的上升，使当月商品贸易逆差额低于路透社此前调查中经济学家预期的287.2亿美元，也低于上月修正后的283.8亿美元。
 
-近年来，共青团广东省委员会搭建青年科创培育平台，推动省级层面设立广东省科技创新战略专项资金，统筹累计投入资金超2亿元，扶持广东省逾万个大学生科研团队开展科技研究。
+在服务贸易方面，印度政府估算，5月份服务出口额为367.6亿美元，服务进口额为190.6亿美元。
 
-在总结交流活动现场，中山大学“呼析”项目团队分享了项目经验。
+两项相抵，当月服务贸易顺差额约为177亿美元。
 
-该团队打造的“呼析”筛查管理方案，以AI多模态分析和脑机接口技术为突破口，构建起“筛查—诊断—治疗—随访”的全周期闭环。
-
-华南理工大学“鉴微知筑”团队以AI技术为“数字工匠”，首创传统建筑修缮方案智能系统，构建起全国660类古建筑标签体系，让每一处木雕、每一幅彩绘都能被精准定位。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 07:13 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 07:07 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 07:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 07:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 07:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 07:31 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 07:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 07:09 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 07:10 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 07:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 07:37 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 07:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 07:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:29 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:36 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 07:24 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 07:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 07:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 07:31 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 07:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 07:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [请回答王牌2019](http://www.share.minike.top/Article/details/375816121488.shtml)
-- 2026-06-30 07:28 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/951245638.shtml)
-- 2026-06-30 07:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/834210841531.shtml)
-- 2026-06-30 07:30 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/57417.shtml)
-- 2026-06-30 07:13 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/365566619.shtml)
-- 2026-06-30 07:34 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/11895677.shtml)
-- 2026-06-30 07:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/766503330.shtml)
-- 2026-06-30 07:31 - [我和我的家乡](http://www.share.minike.top/Article/details/4416789.shtml)
-- 2026-06-30 07:32 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/349378697873.shtml)
-- 2026-06-30 07:10 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/784873936.shtml)
-- 2026-06-30 07:27 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/388928404.shtml)
-- 2026-06-30 07:23 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/611761713398.shtml)
-- 2026-06-30 07:17 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/87974.shtml)
-- 2026-06-30 07:06 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/502841.shtml)
-- 2026-06-30 07:23 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/52723.shtml)
+- 2026-06-30 07:21 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/216061.shtml)
+- 2026-06-30 07:38 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/047431867.shtml)
+- 2026-06-30 07:23 - [《贺子珍》](http://www.blog.minike.top/Article/details/32926559.shtml)
+- 2026-06-30 07:31 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/659474888.shtml)
+- 2026-06-30 07:37 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/52042537.shtml)
+- 2026-06-30 07:32 - [日本进球](http://www.blog.kurohicncr.top/Article/details/90927395.shtml)
+- 2026-06-30 07:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/48973.shtml)
+- 2026-06-30 07:34 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/746189733.shtml)
+- 2026-06-30 07:25 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/157640788.shtml)
+- 2026-06-30 07:38 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/081819276714.shtml)
+- 2026-06-30 07:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/8852766599.shtml)
+- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/9155228516.shtml)
+- 2026-06-30 07:25 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/3903685028.shtml)
+- 2026-06-30 07:14 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/17865.shtml)
+- 2026-06-30 07:26 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/7459383.shtml)

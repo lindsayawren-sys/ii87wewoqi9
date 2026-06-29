@@ -1,57 +1,61 @@
-# 青海格尔木官方：严禁非法穿越无人区、擅自攀登玉珠峰
+# 七国集团峰会在法国开幕 马克龙与特朗普会谈
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。 通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自
+中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。 根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。 特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会
 
 ## 正文
 
-中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。
+中新社巴黎6月15日电（记者李洋）七国集团峰会当地时间15日在法国东部小城埃维昂莱班开幕。
 
-通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自媒体等以营利为目的，非法组织无人区探险旅游；未经青海省体育局审批、无资质无保障，严禁擅自攀登玉珠峰等高海拔雪山；严禁车辆与人员违规进入管控区破坏生态、扰乱管理秩序。
+法国总统马克龙当天与前来参会的美国总统特朗普举行会谈。
 
-通告同时明确法律与安全责任：违规进入高风险区域，相关风险由当事人自行承担；违规者将依法予以警告、罚款、劝离、扣车等处置，情节严重者纳入信用记录；涉嫌犯罪的，追究刑事责任；因非法活动产生的公共救援、生态损毁费用，由当事人及组织者全额承担。
+根据会议议程，会议将主要围绕中东局势、乌克兰问题、经济的平衡、共享和可持续增长以及人工智能等议题展开讨论。
 
-格尔木市官方提示，可可西里、玉珠峰等区域高寒缺氧、地形复杂、通信不畅，救援条件有限。
+巴西、韩国、埃及、印度、肯尼亚和乌克兰等国领导人受邀与会。
 
-旅游旺季来临，呼吁民众与游客敬畏自然、守法出行，共同守护高原生态安全与旅游秩序。
+特朗普当天乘机抵达瑞士日内瓦，从日内瓦转抵埃维昂莱班出席七国集团峰会。
 
-(完)
+与马克龙的会谈是特朗普出席此次峰会期间的首场官方活动。
+
+特朗普尚未确定是否与其他与会领导人举行双边会谈。
+
+马克龙在会谈开始时就美国和伊朗确认就结束战争达成谅解备忘录向特朗普表示祝贺，称这是实现和平的“重要一步”。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 07:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 07:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 07:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 07:21 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 07:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 07:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 07:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 07:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 07:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:20 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 07:35 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 07:33 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 07:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 07:10 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 07:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 07:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 07:15 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 07:16 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 07:20 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 07:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 07:29 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 07:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 07:33 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 07:13 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:26 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 07:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 07:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 07:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/533863027.shtml)
-- 2026-06-30 07:25 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/420655333346.shtml)
-- 2026-06-30 07:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/0546667578.shtml)
-- 2026-06-30 07:16 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/4270978.shtml)
-- 2026-06-30 07:13 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/95999320.shtml)
-- 2026-06-30 07:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/542221474.shtml)
-- 2026-06-30 07:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/34207187.shtml)
-- 2026-06-30 07:13 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/511780.shtml)
-- 2026-06-30 07:13 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/3240457559.shtml)
-- 2026-06-30 07:19 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/770955.shtml)
-- 2026-06-30 07:30 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/736190.shtml)
-- 2026-06-30 07:24 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/851622107457.shtml)
-- 2026-06-30 07:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/4084497.shtml)
-- 2026-06-30 07:13 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/830048500.shtml)
-- 2026-06-30 07:14 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/99178957164.shtml)
+- 2026-06-30 07:23 - [沉睡花园](http://www.blog.minike.top/Article/details/58397788.shtml)
+- 2026-06-30 07:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/62331878531.shtml)
+- 2026-06-30 07:29 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/90471.shtml)
+- 2026-06-30 07:17 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/074846.shtml)
+- 2026-06-30 07:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/3655412.shtml)
+- 2026-06-30 07:34 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/609159.shtml)
+- 2026-06-30 07:24 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/4496268.shtml)
+- 2026-06-30 07:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/90804.shtml)
+- 2026-06-30 07:29 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/18094130620.shtml)
+- 2026-06-30 07:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/7443271020.shtml)
+- 2026-06-30 07:20 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/184612123.shtml)
+- 2026-06-30 07:33 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/167371770676.shtml)
+- 2026-06-30 07:12 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/269376.shtml)
+- 2026-06-30 07:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/15356.shtml)
+- 2026-06-30 07:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/13047062409.shtml)

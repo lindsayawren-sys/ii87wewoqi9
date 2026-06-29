@@ -1,58 +1,61 @@
-# 在美伊谈判之际以色列称加大对真主党打击力度
+# 6月16日热门中概股多数上涨 台积电涨4.12%，拼多多涨2.44%
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-以色列总理本雅明·内塔尼亚胡周一表示，将加大对真主党的的打击力度。当前美国和伊朗正加紧谈判以结束该地区的冲突。 伊朗要求黎巴嫩停止敌对行动，以此作为与美国达成任何旨在重新开放霍尔木兹海峡的和平协议的组成部分。据Axios报道，美国和伊朗之间一项潜在协议的草案，包含结束以色列与伊朗支持的黎巴嫩真主党之间战争的条款。 内塔尼亚胡周六晚间与美国总统唐纳德·特朗普就与伊朗达成的潜在协议
+6月16日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收涨0.39%。 上涨个股（按市值从高到低）： 台积电涨4.12%，拼多多涨2.44%，日月光半导体涨1%，网易涨0.09%，联电涨6.70%，百度涨0.85%，京东涨0.42%，携程涨2%，中通涨0.22%，理想汽车涨0.56%，富途控股涨2.65%，新东方涨0.84%。 下跌个股（按市值从高到低）： 阿里巴巴跌0.
 
 ## 正文
 
-以色列总理本雅明·内塔尼亚胡周一表示，将加大对真主党的的打击力度。
+6月16日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收涨0.39%。
 
-当前美国和伊朗正加紧谈判以结束该地区的冲突。
+上涨个股（按市值从高到低）： 台积电涨4.12%，拼多多涨2.44%，日月光半导体涨1%，网易涨0.09%，联电涨6.70%，百度涨0.85%，京东涨0.42%，携程涨2%，中通涨0.22%，理想汽车涨0.56%，富途控股涨2.65%，新东方涨0.84%。
 
-伊朗要求黎巴嫩停止敌对行动，以此作为与美国达成任何旨在重新开放霍尔木兹海峡的和平协议的组成部分。
+下跌个股（按市值从高到低）： 阿里巴巴跌0.24%，中华电信跌0.22%，贝壳跌1.89%，蔚来跌0.19%，慧荣科技跌1.46%，满帮跌0.36%，哔哩哔哩跌0.06%。
 
-据Axios报道，美国和伊朗之间一项潜在协议的草案，包含结束以色列与伊朗支持的黎巴嫩真主党之间战争的条款。
+美股周一收高。
 
-内塔尼亚胡周六晚间与美国总统唐纳德·特朗普就与伊朗达成的潜在协议进行了交谈，并表示特朗普 “重申了以色列有权应对各个方向上的威胁来捍卫自身安全，包括黎巴嫩”。
+美国总统特朗普表示，霍尔木兹海峡“已经部分开放”，并将于周五（6月19日）全面开放，届时，美国和伊朗将正式签署一份谅解备忘录。
 
-内塔尼亚胡还表示，他和特朗普一致认为，与伊朗达成的最终协议“必须消除核威胁”。
+SpaceX周一再涨超19%，市值超2.5万亿美元。
 
-周一早些时候，以色列国防军宣布对黎巴嫩南部真主党的基础设施目标发动了空袭；在这之前，真主党发射的爆炸性无人机落入以色列境内，一枚射向以色列的火箭也被以色列空军拦截。
+道指涨468.77点，涨幅为0.92%，报51671.03点；纳指涨795.09点，涨幅为3.07%，报26683.94点；标普500指数涨122.83点，涨幅为1.65%，报7554.29点。
 
-据以色列军方在社交媒体上的声明，以军已在黎巴嫩境内袭击了70多个真主党基础设施目标。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 07:24 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 07:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 07:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 07:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 07:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 07:26 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 07:15 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 07:23 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 07:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 07:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 07:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 07:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 07:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 07:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 07:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 07:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 07:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 07:38 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:37 - [齐思钧回复张月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 07:19 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 07:29 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 07:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 07:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:29 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 07:27 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:23 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/80735765726.shtml)
-- 2026-06-30 07:19 - [请回答王牌2019](http://www.blog.minike.top/Article/details/313161498.shtml)
-- 2026-06-30 07:16 - [斛珠夫人](https://www.blog.minike.top/Article/details/9208305.shtml)
-- 2026-06-30 07:07 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/67583978844.shtml)
-- 2026-06-30 07:09 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/13389736336.shtml)
-- 2026-06-30 07:14 - [《共患难》](http://www.share.kurohicncr.top/Article/details/247563473383.shtml)
-- 2026-06-30 07:33 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/34530599449.shtml)
-- 2026-06-30 07:27 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/82271133077.shtml)
-- 2026-06-30 07:16 - [斛珠夫人](https://www.share.minike.top/Article/details/6084062.shtml)
-- 2026-06-30 07:12 - [点球大战](http://www.blog.kurohicncr.top/Article/details/78579030.shtml)
-- 2026-06-30 07:21 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/57027.shtml)
-- 2026-06-30 07:14 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/52609571646.shtml)
-- 2026-06-30 07:29 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/162550914.shtml)
-- 2026-06-30 07:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/1326736769.shtml)
-- 2026-06-30 07:14 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/724188639151.shtml)
+- 2026-06-30 07:37 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/84956925803.shtml)
+- 2026-06-30 07:16 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/5156180.shtml)
+- 2026-06-30 07:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/63191810.shtml)
+- 2026-06-30 07:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/7362589.shtml)
+- 2026-06-30 07:17 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/273986151.shtml)
+- 2026-06-30 07:15 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/565451743.shtml)
+- 2026-06-30 07:39 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/40101123656.shtml)
+- 2026-06-30 07:34 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/2660644.shtml)
+- 2026-06-30 07:16 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/631024973.shtml)
+- 2026-06-30 07:23 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/222784.shtml)
+- 2026-06-30 07:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/9798068220.shtml)
+- 2026-06-30 07:40 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/79961895.shtml)
+- 2026-06-30 07:29 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/413730348.shtml)
+- 2026-06-30 07:13 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/03249.shtml)
+- 2026-06-30 07:35 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/033867292891.shtml)

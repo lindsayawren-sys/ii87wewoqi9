@@ -1,58 +1,60 @@
-# 新易盛大涨5%逆市新高，“算力基建+应用盈利+CPO提速”三重利好共振，机构建议高度重视光模块龙头
+# 金价反弹！能持续吗？
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-5月26日，光模块等海外算力链仍然强势向上，龙头表现亮眼！新易盛逆市大涨超5%续创新高，天孚通信涨超1%，中际旭创逆市飘红。热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内窄幅震荡，资金实时净申购2000万份。 当前，光模块CPO累积多重利好，开源证券表示，在算力应用侧商业闭环加速成形、算力基建侧资本开支持续上修、算力互联
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 短期 对反弹持谨慎乐观态度。当前价位以持有待涨、择机高抛为主，不建议追高。重点关注前期密集成交区4500-4600一线压力。 中期 若后续地缘局势反复引发回调，考虑到美国主观降级的意愿仍然存在，再度探底可能给出新的低吸机会。 今日（6月15日）内盘贵金属板块集体高开高走，沪金盘中涨超4%，为近四个
 
 ## 正文
 
-5月26日，光模块等海外算力链仍然强势向上，龙头表现亮眼！
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 短期 对反弹持谨慎乐观态度。
 
-新易盛逆市大涨超5%续创新高，天孚通信涨超1%，中际旭创逆市飘红。
+当前价位以持有待涨、择机高抛为主，不建议追高。
 
-热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内窄幅震荡，资金实时净申购2000万份。
+重点关注前期密集成交区4500-4600一线压力。
 
-当前，光模块CPO累积多重利好，开源证券表示，在算力应用侧商业闭环加速成形、算力基建侧资本开支持续上修、算力互联侧CPO发展持续提质增速三重逻辑共振下，光互联重要性得到显著抬升，建议高度重视光模块龙头。
+中期 若后续地缘局势反复引发回调，考虑到美国主观降级的意愿仍然存在，再度探底可能给出新的低吸机会。
 
-1、算力基建侧：英伟达业绩扩容趋势明确，资本开支再创新高 英伟达2027Q1业绩显示，公司单季营收816.2亿美元，yoy+85%；净利润583亿美元，yoy+211%。
+今日（6月15日）内盘贵金属板块集体高开高走，沪金盘中涨超4%，为近四个月以来最大涨幅。
 
-随着英伟达业务持续扩张与AI算力资本开支不断加码，国内光通信产业链传统光模块、光模块上游零部件及光器件、CPO环节或成为首要受益方向，相关细分子赛道景气度持续提升。
+金价的矛盾 地缘冲突以来的金价，主要面临着秩序重构的远景与流动性紧缩现实之间的矛盾，其中流动性紧缩不仅代表中观维度因海峡持续封锁、供应链阻断所带来价格上行压力以及对应美联储货币政策的由松至紧的变化，更有着能源进口国、中东地缘国为了稳定本币汇率和金融市场直接以黄金换取流动性的无奈。
 
-2、算力应用侧： Anthropic首次实现盈利， 验证大模型经济盈利闭环 Anthropic预计2026年第二季度预计实现营业利润5.59亿美元，成功扭亏为盈，迎来公司成立以来的首个盈利季度。
+综合作用下，尽管影响因素层级较低，但中短期利空因素的共振效果依然超过了更高层级的长期利多因素支撑，直接造成了此前金价走势持续低迷。
 
-Anthropic Q2的盈利已证明头部玩家具备盈亏平衡的能力，将实质性提振市场对整个AI应用赛道的信心，并进一步从需求端催化AI基建的建设进程。
+逆风消失了吗？
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 07:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 07:07 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:33 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 07:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 07:32 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 07:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 07:22 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 07:33 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 07:33 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 07:23 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 07:28 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 07:18 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 07:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 07:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 07:25 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 07:37 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 07:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 07:14 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 07:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 07:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 07:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:16 - [《共患难》](http://www.share.kurohicncr.top/Article/details/007224143.shtml)
-- 2026-06-30 07:10 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/93570.shtml)
-- 2026-06-30 07:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/60512632.shtml)
-- 2026-06-30 07:08 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/3132563.shtml)
-- 2026-06-30 07:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/75741258.shtml)
-- 2026-06-30 07:33 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/330897.shtml)
-- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/145553180907.shtml)
-- 2026-06-30 07:27 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/2092693504.shtml)
-- 2026-06-30 07:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/2714794843.shtml)
-- 2026-06-30 07:31 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/914633601020.shtml)
-- 2026-06-30 07:07 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/445038050.shtml)
-- 2026-06-30 07:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/126519044799.shtml)
-- 2026-06-30 07:09 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/9655975.shtml)
-- 2026-06-30 07:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/405611933801.shtml)
-- 2026-06-30 07:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8084428.shtml)
+- 2026-06-30 07:35 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/831512666674.shtml)
+- 2026-06-30 07:38 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/364573.shtml)
+- 2026-06-30 07:21 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/039780.shtml)
+- 2026-06-30 07:12 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/26033.shtml)
+- 2026-06-30 07:31 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/849277.shtml)
+- 2026-06-30 07:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/275995303010.shtml)
+- 2026-06-30 07:16 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/451825.shtml)
+- 2026-06-30 07:31 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/48742.shtml)
+- 2026-06-30 07:32 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/829790579118.shtml)
+- 2026-06-30 07:23 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/648354925.shtml)
+- 2026-06-30 07:16 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/86573620.shtml)
+- 2026-06-30 07:37 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/98521112927.shtml)
+- 2026-06-30 07:28 - [我们的少年时代2](http://www.share.minike.top/Article/details/302842.shtml)
+- 2026-06-30 07:34 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/16617563393.shtml)
+- 2026-06-30 07:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/5252407764.shtml)

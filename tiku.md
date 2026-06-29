@@ -1,61 +1,56 @@
-# 哈萨克斯坦首个“人工智能”电影节启动全球征片
+# 上海迪士尼开幕十周年 ，华特迪士尼CEO戴明哲：上迪已成公司最引以为傲的成就之一
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳5月25日电 (记者 单璐)哈萨克斯坦首个以人工智能为主题的国际电影节——阿斯塔纳人工智能电影节将于9月28日至10月1日在阿斯塔纳举行。电影节主办方25日在阿斯塔纳举行新闻发布会，宣布即日起面向全球创作者征集由人工智能生成的短片。 据主办方介绍，本届电影节设有主竞赛单元和开放竞赛单元。主竞赛单元以“值得生活的未来”(The Future Worth Living
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日消息，今日上海迪士尼度假区庆祝开幕十周年。华特迪士尼公司首席执行官戴明哲（Josh D’Amaro）表示：“自开幕伊始，我们便坚信能够打造前所未有的独特体验，让迪士尼故事讲述与中国文化以全新方式深度融合。在迎接超过一亿人次游客之后的今天，上海迪士尼度假区已成为华特迪士尼公司最引以为傲的成就之一。值
 
 ## 正文
 
-中新社阿斯塔纳5月25日电 (记者 单璐)哈萨克斯坦首个以人工智能为主题的国际电影节——阿斯塔纳人工智能电影节将于9月28日至10月1日在阿斯塔纳举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-电影节主办方25日在阿斯塔纳举行新闻发布会，宣布即日起面向全球创作者征集由人工智能生成的短片。
+6月15日消息，今日上海迪士尼度假区庆祝开幕十周年。
 
-据主办方介绍，本届电影节设有主竞赛单元和开放竞赛单元。
+华特迪士尼公司首席执行官戴明哲（Josh D’Amaro）表示：“自开幕伊始，我们便坚信能够打造前所未有的独特体验，让迪士尼故事讲述与中国文化以全新方式深度融合。
 
-主竞赛单元以“值得生活的未来”(The Future Worth Living In)为主题，开放竞赛单元设置最佳导演、最佳视觉语言、最佳故事、最佳创意概念、最佳人物塑造五个奖项。
+在迎接超过一亿人次游客之后的今天，上海迪士尼度假区已成为华特迪士尼公司最引以为傲的成就之一。
 
-电影节总奖金池为100万美元。
+值此度假区盛大开幕十周年之际，我们回顾过往、展望未来，最令我满怀期待的是，一切才刚刚开始。
 
-据介绍，参赛作品须为时长不超过10分钟的人工智能生成短片，人工智能应作为影片核心制作方式，而非仅用于后期增强。
+” 上海申迪（集团）有限公司董事长管韬萍表示：“过去十年，上海迪士尼度假区走过了一段深耕本地市场、共同创造快乐的合作之旅，一段文化交融、文明互鉴的探索之旅，一段带动区域、联动产业的发展之旅。
 
-个人创作者和团队均可报名，申请截至8月15日。
+诚挚感谢合作伙伴华特迪士尼公司，以及所有为项目创意设计和开发运营付出辛勤汗水与智慧的广大建设者和筑梦者。
 
-电影节团队和国际专家将选出25部入围作品，最终获奖作品由国际评审团评定。
+站在新十年的新起点上，申迪集团将持续深化拓展与华特迪士尼公司的合作，依托上海迪士尼度假区的成功，持续将上海国际旅游度假区打造为世界级多日旅游目的地，加快度假区‘多日经济’业态布局，构建更具活力和竞争力的‘文旅+’产业生态体系。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 07:33 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 07:29 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 07:15 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 07:32 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 07:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 07:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 07:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 07:21 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:31 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 07:34 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 07:35 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 07:34 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 07:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 07:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 07:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 07:39 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 07:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 07:35 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 07:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 07:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 07:39 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 07:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/698407032.shtml)
-- 2026-06-30 07:35 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/47864.shtml)
-- 2026-06-30 07:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/19207157.shtml)
-- 2026-06-30 07:24 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/493429090.shtml)
-- 2026-06-30 07:20 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/002778184437.shtml)
-- 2026-06-30 07:17 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/687442518.shtml)
-- 2026-06-30 07:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/050272.shtml)
-- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/322915048262.shtml)
-- 2026-06-30 07:11 - [巴西绝杀日本](http://www.share.minike.top/Article/details/405518.shtml)
-- 2026-06-30 07:27 - [极限挑战第一季](http://www.share.minike.top/Article/details/92995375.shtml)
-- 2026-06-30 07:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/13241804823.shtml)
-- 2026-06-30 07:15 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/386394.shtml)
-- 2026-06-30 07:06 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/7541671767.shtml)
-- 2026-06-30 07:15 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/31786951258.shtml)
-- 2026-06-30 07:20 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/776585.shtml)
+- 2026-06-30 07:30 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/956105796003.shtml)
+- 2026-06-30 07:29 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/9142674.shtml)
+- 2026-06-30 07:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/79909066215.shtml)
+- 2026-06-30 07:18 - [巴拉圭点球大战淘汰德国进16强](https://www.share.kurohicncr.top/Article/details/3189515804.shtml)
+- 2026-06-30 07:33 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/412170.shtml)
+- 2026-06-30 07:36 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/478500.shtml)
+- 2026-06-30 07:12 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/977871595.shtml)
+- 2026-06-30 07:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/2603118.shtml)
+- 2026-06-30 07:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/091194041.shtml)
+- 2026-06-30 07:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/777329381.shtml)
+- 2026-06-30 07:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/0712728014.shtml)
+- 2026-06-30 07:39 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/57871993.shtml)
+- 2026-06-30 07:20 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/0804406.shtml)
+- 2026-06-30 07:16 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/12271718348.shtml)
+- 2026-06-30 07:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/14627934.shtml)

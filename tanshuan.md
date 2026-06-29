@@ -1,56 +1,57 @@
-# 香港高校师生收看神舟二十三号发射直播：期待圆梦归来
+# 遇见小面创始人道歉！8元“夫妻面馆 ”如何赢了港股公司？
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月25日电 (记者 赵静怡)24日晚，搭载神舟二十三号载人飞船的长征二号F遥二十三运载火箭在酒泉卫星发射中心点火发射，航天员黎家盈作为国家面向港澳地区选拔出的中国首位女性载荷专家，随乘组顺利飞向太空。香港科技大学(简称“港科大”)、香港大学(简称“港大”)的师生当晚相聚校园观看直播，见证这意义非凡的历史时刻。 记者在港科大现场看到，直播大屏幕旁展示着黎家盈的卡通形象
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 高远山 刘俊群 “心机商标”过度维权只能靠舆论终结？ 虽迟但到！ 2026年6月15日凌晨，中式面馆第一股“遇见小面”（2408.HK）创始人宋奇在官方渠道发布《致渝见小面的一封信》，就日前起诉河南南阳夫妻店“渝见小面”商标侵权一事正式致歉，并宣布将公司已注册的第35类“渝见小
 
 ## 正文
 
-中新社香港5月25日电 (记者 赵静怡)24日晚，搭载神舟二十三号载人飞船的长征二号F遥二十三运载火箭在酒泉卫星发射中心点火发射，航天员黎家盈作为国家面向港澳地区选拔出的中国首位女性载荷专家，随乘组顺利飞向太空。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-香港科技大学(简称“港科大”)、香港大学(简称“港大”)的师生当晚相聚校园观看直播，见证这意义非凡的历史时刻。
+来源 | 野马财经 作者 | 高远山 刘俊群 “心机商标”过度维权只能靠舆论终结？
 
-记者在港科大现场看到，直播大屏幕旁展示着黎家盈的卡通形象，上面写着暖心寄语：“热烈祝贺香港太空人和港科大载荷双双入驻天宫”。
+虽迟但到！
 
-今年5月11日，天舟十号货运飞船成功发射，搭载的香港科技大学牵头研制的探测载荷“天韵相机”，成为首项登上国家空间站的香港科学载荷，而黎家盈此次在空间站中将会操作“天韵相机”。
+2026年6月15日凌晨，中式面馆第一股“遇见小面”（2408.HK）创始人宋奇在官方渠道发布《致渝见小面的一封信》，就日前起诉河南南阳夫妻店“渝见小面”商标侵权一事正式致歉，并宣布将公司已注册的第35类“渝见小面”商标无偿赠予对方，同时中止与涉事外包律所的合作。
 
-在港科大观看现场，不少师生曾参与“天韵相机”项目，许多人身穿写着“天韵相机”的服装。
+来源：微博 这封迟来的道歉信，将近年备受争议的心机商标注册、企业商标过度维权现象再次推至台前，——中国商标生态圈正面临“大厂霸凌小微企业”与“商家玩文字游戏误导消费者”的双重拷问。
 
-香港科技大学太空科学与技术研究院院长、“天韵相机”项目负责人苏慧接受中新社记者采访时表示，香港第一位航天员升空并有望操作香港研制的仪器展开科研，这充分体现国家对香港深度融入航天发展大局的支持和认可。
+而细思极恐的是——在每天发生的众多商标领域的维权乱象中，只有引起了媒体和公众关注的事件，才能“逆天改命”，而大量没有被看到的乱象，依然在舆论的海面之下“暗流涌动”。
 
-希望黎家盈在太空顺利完成任务、平安归来，把她的故事讲给年轻人听，激励更多香港年轻人投身到科技和工程之中。
+值得关注的是，遇见小面过度维权事件引起创始人表态，是因为本次商标风波曾引发部分消费者退卡抵制。
 
-“服务国家，再攀高峰！
+而且，截至2026年6月股价较发行价跌幅一度接近50%。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 07:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 07:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 07:21 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 07:25 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 07:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 07:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 07:32 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 07:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 07:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 07:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 07:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:25 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 07:19 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 07:24 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 07:37 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:34 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 07:33 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 07:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 07:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 07:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/92350.shtml)
-- 2026-06-30 07:22 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/58172506382.shtml)
-- 2026-06-30 07:22 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/448320.shtml)
-- 2026-06-30 07:12 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/96271.shtml)
-- 2026-06-30 07:11 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/1966048.shtml)
-- 2026-06-30 07:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/214584629.shtml)
-- 2026-06-30 07:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/17217.shtml)
-- 2026-06-30 07:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/570933.shtml)
-- 2026-06-30 07:23 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/975091.shtml)
-- 2026-06-30 07:24 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/40379.shtml)
-- 2026-06-30 07:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/83953437.shtml)
-- 2026-06-30 07:28 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/618586651.shtml)
-- 2026-06-30 07:21 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/039541860735.shtml)
-- 2026-06-30 07:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/7473018.shtml)
-- 2026-06-30 07:35 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/13168.shtml)
+- 2026-06-30 07:41 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/7953801952.shtml)
+- 2026-06-30 07:38 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/27530434801.shtml)
+- 2026-06-30 07:15 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/4011497362.shtml)
+- 2026-06-30 07:26 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/648739111256.shtml)
+- 2026-06-30 07:30 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/020859762.shtml)
+- 2026-06-30 07:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/25900.shtml)
+- 2026-06-30 07:13 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/793952.shtml)
+- 2026-06-30 07:17 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/6245066.shtml)
+- 2026-06-30 07:12 - [媒体：手机测评该挤挤水分了](https://www.blog.minike.top/Article/details/0125288287.shtml)
+- 2026-06-30 07:23 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/73314.shtml)
+- 2026-06-30 07:36 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/759891684054.shtml)
+- 2026-06-30 07:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4292250766.shtml)
+- 2026-06-30 07:41 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/98966226861.shtml)
+- 2026-06-30 07:36 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/08725778.shtml)
+- 2026-06-30 07:22 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/871957.shtml)

@@ -1,56 +1,58 @@
-# 国网英大换帅遇考：证券期货毛利率两连负，Q1增收不增利
+# 国家税务总局：1-5月份全国工业企业销售收入同比增长6.8%
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月20日，国网英大（维权）（600517.SH）正式完成换帅，拥有深厚金融从业背景的俞华军履新上市公司董事长。当前，国网英大正面临复杂的经营局面。尽管2025年业绩激增六成，但2026年一季度公允价值变动收益盈转亏，导致公司增收不增利，现金流亦“失血”，如何稳定盈利增长成为俞华军需直面的问题。 证券之星注
+中新网6月16日电 据国家税务总局网站消息，国家税务总局发票数据显示，1—5月份，全国工业企业销售收入同比增长6.8%，实现较快增长。 装备制造持续发挥“压舱石”作用。1—5月份，装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。其中，计算机通信设备制造、仪器仪表制造、专用设备制造销售收入同比分别增长15.6%、10.5%和8.8%，制造业高端化进
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月16日电 据国家税务总局网站消息，国家税务总局发票数据显示，1—5月份，全国工业企业销售收入同比增长6.8%，实现较快增长。
 
-5月20日，国网英大（维权）（600517.SH）正式完成换帅，拥有深厚金融从业背景的俞华军履新上市公司董事长。
+装备制造持续发挥“压舱石”作用。
 
-当前，国网英大正面临复杂的经营局面。
+1—5月份，装备制造业销售收入同比增长8%，占制造业比重46.8%，持续发挥“压舱石”作用。
 
-尽管2025年业绩激增六成，但2026年一季度公允价值变动收益盈转亏，导致公司增收不增利，现金流亦“失血”，如何稳定盈利增长成为俞华军需直面的问题。
+其中，计算机通信设备制造、仪器仪表制造、专用设备制造销售收入同比分别增长15.6%、10.5%和8.8%，制造业高端化进程持续推进。
 
-证券之星注意到，国网英大“金融+电力装备”双主业盈利分化明显，上海置信电气有限公司（下称“置信电气”）近七成营收贡献净利润不足5%。
+人工智能助推工业智能化发展。
 
-金融板块内部同样冷热不均，信托业务盈利独挑大梁，证券期货业务毛利率仍未转正。
+1—5月份，机器人、智能车载设备制造销售收入同比分别增长27.7%和46.3%，人工智能赋能工业智能化水平持续提升。
 
-目前，国网英大正在推进英大期货有限公司（下称“英大期货”）100%股权的出售事宜。
+同时，高端电子制造加快发展，持续夯实智能制造根基。
 
-不过，换帅未能提振二级市场信心。
+1-5月份，集成电路、光电子器件、半导体器件制造业销售收入同比分别增长57.7%、32.6%和24.4%。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 07:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 07:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:09 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 07:26 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 07:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 07:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 07:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 07:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 07:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 07:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 07:19 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 07:28 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 07:32 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:41 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 07:28 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 07:39 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 07:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 07:21 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 07:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 07:26 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:19 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/5015974.shtml)
-- 2026-06-30 07:25 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/05124.shtml)
-- 2026-06-30 07:24 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/6692171600.shtml)
-- 2026-06-30 07:31 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/6462160200.shtml)
-- 2026-06-30 07:35 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/63138.shtml)
-- 2026-06-30 07:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/582155423.shtml)
-- 2026-06-30 07:06 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/7742203780.shtml)
-- 2026-06-30 07:26 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/018447597.shtml)
-- 2026-06-30 07:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/46039178.shtml)
-- 2026-06-30 07:29 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/63416174.shtml)
-- 2026-06-30 07:06 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/217758769.shtml)
-- 2026-06-30 07:14 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/19027.shtml)
-- 2026-06-30 07:12 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/13726.shtml)
-- 2026-06-30 07:10 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/501823990.shtml)
-- 2026-06-30 07:21 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/751533255849.shtml)
+- 2026-06-30 07:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/36093.shtml)
+- 2026-06-30 07:37 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/7654696800.shtml)
+- 2026-06-30 07:35 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/129811496.shtml)
+- 2026-06-30 07:28 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/142158618559.shtml)
+- 2026-06-30 07:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/393660.shtml)
+- 2026-06-30 07:15 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/629155690948.shtml)
+- 2026-06-30 07:38 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/83942107212.shtml)
+- 2026-06-30 07:36 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/66105648223.shtml)
+- 2026-06-30 07:13 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/45162007276.shtml)
+- 2026-06-30 07:24 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/39122992.shtml)
+- 2026-06-30 07:35 - [一生一世](http://www.blog.minike.top/Article/details/046291105.shtml)
+- 2026-06-30 07:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/4875770839.shtml)
+- 2026-06-30 07:16 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/647246445.shtml)
+- 2026-06-30 07:22 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/07258109502.shtml)
+- 2026-06-30 07:17 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/348784.shtml)

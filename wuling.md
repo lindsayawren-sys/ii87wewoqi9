@@ -1,56 +1,44 @@
-# 记者探访瑞金医院360°旋转束治疗室
+# 九大重点行业启动节能降碳改造攻坚行动
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 12:29 来源：中国新闻网 世界上最先进的360°旋转束治疗室是什么样的？它是怎样给患者治疗的？ 记者5月24日探访上海交通大学医学院附属瑞金医院肿瘤质子中心了解到，刚刚启用的360°旋转束治疗室里重达93吨的旋转机架可360°无死角转动，配合治疗室内的CBCT(锥形束CT)三维影像引导系统，可在更多角度下实施治疗，并进行三维图像重建与配准，
+发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年05月25日 12:29 来源：中国新闻网 世界上最先进的360°旋转束治疗室是什么样的？
-
-它是怎样给患者治疗的？
-
-记者5月24日探访上海交通大学医学院附属瑞金医院肿瘤质子中心了解到，刚刚启用的360°旋转束治疗室里重达93吨的旋转机架可360°无死角转动，配合治疗室内的CBCT(锥形束CT)三维影像引导系统，可在更多角度下实施治疗，并进行三维图像重建与配准，实现了“机架动、床不动”的治疗模式。
-
-此次启用的国产360°旋转束治疗室是继2022年获批的180°旋转束与固定束治疗室之后的重大技术升级。
-
-在治疗过程中，医生无需移动患者体位，即可灵活选择最佳入射角度进行精准打击，从而最大限度地保护垂体、视神经、耳蜗等关键器官，显著降低远期毒副反应；同时，治疗流程的优化使得单次治疗时间缩短了约30%，极大地提升了患者的治疗体验和效率。
-
-随着360°旋转束治疗室正式启用，固定束、180°旋转束和360°旋转束等不同治疗配置，将为临床制定个体化治疗方案提供更多条件，也将进一步提升治疗效率和适应症覆盖能力。
-
-(陈静 制作 王嘉怡） 责任编辑：【刘欢】
+发布时间：2026年06月16日 09:25 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 07:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 07:28 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:28 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 07:20 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 07:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 07:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 07:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 07:07 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 07:07 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 07:16 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 07:18 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 07:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 07:27 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 07:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 07:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 07:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 07:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 07:15 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 07:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/67495.shtml)
-- 2026-06-30 07:32 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/85604233712.shtml)
-- 2026-06-30 07:22 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/91650542.shtml)
-- 2026-06-30 07:13 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/064500698042.shtml)
-- 2026-06-30 07:29 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/6025456.shtml)
-- 2026-06-30 07:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/5660030.shtml)
-- 2026-06-30 07:15 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/77819529.shtml)
-- 2026-06-30 07:12 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/716718381.shtml)
-- 2026-06-30 07:35 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/67798.shtml)
-- 2026-06-30 07:22 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/7892091.shtml)
-- 2026-06-30 07:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/19323459.shtml)
-- 2026-06-30 07:08 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/568060505393.shtml)
-- 2026-06-30 07:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/900885.shtml)
-- 2026-06-30 07:22 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/54251.shtml)
-- 2026-06-30 07:14 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/90839709.shtml)
+- 2026-06-30 07:26 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/59111606.shtml)
+- 2026-06-30 07:40 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/9672561832.shtml)
+- 2026-06-30 07:39 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/6124182.shtml)
+- 2026-06-30 07:29 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/4800877932.shtml)
+- 2026-06-30 07:13 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/0362926.shtml)
+- 2026-06-30 07:30 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/218502.shtml)
+- 2026-06-30 07:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/227829271.shtml)
+- 2026-06-30 07:17 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/1762483.shtml)
+- 2026-06-30 07:15 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/947228485766.shtml)
+- 2026-06-30 07:14 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/550968.shtml)
+- 2026-06-30 07:21 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/53785.shtml)
+- 2026-06-30 07:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/3944257677.shtml)
+- 2026-06-30 07:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/644110398179.shtml)
+- 2026-06-30 07:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/739603.shtml)
+- 2026-06-30 07:24 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/472622482910.shtml)

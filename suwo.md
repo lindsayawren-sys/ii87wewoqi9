@@ -1,57 +1,61 @@
-# 天普股份（605255）投资者索赔案持续推进，中装建设（002822）索赔案再获得法院立案
+# 山西千年壁画，启示何在？
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，天普股份（维权）（605255）涉嫌虚假陈述引发的投资者索赔案还在持续推进。（许峰律师专栏） 2026年1月9日，证监会官微发布信息称，近期，天普股份股票价格异常波动，市场高度关注，证监会已对天普股份股票交易异常波动公告涉嫌重大遗漏立案调查。 许峰律师认为，暂定在2025年12月30日买入天普股份股票的投资者，目前可准备发起索赔，具体索赔
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。 现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？如何挑战传统历史叙事？ 王志俊：最具代表
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，天普股份（维权）（605255）涉嫌虚假陈述引发的投资者索赔案还在持续推进。
+中新社记者 杨杰英 在中国历史的长卷中，山西是一部记录民族融合的“地下史书”。
 
-（许峰律师专栏） 2026年1月9日，证监会官微发布信息称，近期，天普股份股票价格异常波动，市场高度关注，证监会已对天普股份股票交易异常波动公告涉嫌重大遗漏立案调查。
+从魏晋南北朝到宋辽金元，跨越千年，这片农耕与游牧文明交汇的土地，用墓葬壁画无声镌刻了多民族交往交流交融的鲜活历程。
 
-许峰律师认为，暂定在2025年12月30日买入天普股份股票的投资者，目前可准备发起索赔，具体索赔条件将根据证监会调查进展调整。
+近期，中新社“东西问”就此专访山西大学美术学院教授王志俊。
 
-（天普股份维权入口） 除了天普股份投资者索赔案持续推进，2026年5月22日，许峰律师代理的中装建设（002822）投资者索赔案再获得深圳市中级人民法院立案。
+现将访谈实录摘要如下： 中新社记者：在山西墓葬壁画中，哪一类图像最直观体现了多民族共存？
 
-许峰律师提示，深圳中院此前已对中装建设投资者索赔作出判决，投资者获得一审胜诉。
+如何挑战传统历史叙事？
 
-律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+王志俊：最具代表性的场景，当属山西忻州九原岗北朝壁画墓的墓道壁画。
 
-2025年4月19日，中装建设公告收到《行政处罚决定书》，经查明，中装建设存在以下违法事实： 中装建设及其子公司深圳市中装市政园林工程有限公司将部分内部承包项目按照自营项目进行核算，导致少记成本、虚增利润。
+西壁是气势恢宏的《狩猎图》：骑士策马奔腾，弯弓射猎，队伍中可见深目高鼻的中亚人形象与身着鲜卑服饰者共同驰骋，充满草原“尚武”精神。
 
-2017年至2021年，中装建设虚增利润金额分别为1，833.44万元、1，292.45万元、4，398.64万元、1，302.19万元、1，610.39万元，分别占中装建设当期披露利润总额的9.06%、5.26%、14.74%、3.91%、8.88%，导致公司2017年年度报告、2018年年度报告、2019年年度报告、2020年年度报告、2021年年度报告虚假记载。
+然而，仅一壁之隔的北壁，却绘有一座结构严谨、斗拱清晰的汉式庑殿顶门楼，代表着中原高度的礼制建筑成就。
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 07:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:26 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 07:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 07:17 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 07:10 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 07:08 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 07:10 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:14 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 07:32 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 07:32 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 07:24 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 07:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 07:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 07:15 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 07:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 07:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 07:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 07:32 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 07:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 07:25 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 07:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 07:23 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 07:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 07:32 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/835568793955.shtml)
-- 2026-06-30 07:31 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/07020611.shtml)
-- 2026-06-30 07:34 - [高质量发展看新疆](http://www.share.minike.top/Article/details/02705.shtml)
-- 2026-06-30 07:35 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3072699.shtml)
-- 2026-06-30 07:14 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/377202166.shtml)
-- 2026-06-30 07:13 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/03261811001.shtml)
-- 2026-06-30 07:28 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/16193.shtml)
-- 2026-06-30 07:10 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/32222.shtml)
-- 2026-06-30 07:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/166954398.shtml)
-- 2026-06-30 07:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/9812361.shtml)
-- 2026-06-30 07:31 - [一见倾心](http://www.share.kurohicncr.top/Article/details/827336.shtml)
-- 2026-06-30 07:17 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/2430767009.shtml)
-- 2026-06-30 07:24 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/4782015.shtml)
-- 2026-06-30 07:19 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/821437107.shtml)
-- 2026-06-30 07:23 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/69617.shtml)
+- 2026-06-30 07:15 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/60701502346.shtml)
+- 2026-06-30 07:22 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/381929.shtml)
+- 2026-06-30 07:20 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/684905269901.shtml)
+- 2026-06-30 07:23 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/262007576159.shtml)
+- 2026-06-30 07:24 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/618389503.shtml)
+- 2026-06-30 07:29 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/96548054.shtml)
+- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/728725.shtml)
+- 2026-06-30 07:27 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/031171559742.shtml)
+- 2026-06-30 07:41 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/696894560426.shtml)
+- 2026-06-30 07:36 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/24902.shtml)
+- 2026-06-30 07:39 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/6980845091.shtml)
+- 2026-06-30 07:30 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/32927070.shtml)
+- 2026-06-30 07:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/7406181264.shtml)
+- 2026-06-30 07:31 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/130192.shtml)
+- 2026-06-30 07:26 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/27102.shtml)

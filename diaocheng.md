@@ -1,51 +1,58 @@
-# 日本关东地区发生地震 多地有震感
+# 跨界磷化铟引关注，宿迁联盛回复问询：意向合作方无相关专利，不存在配合减持情形
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网5月24日电 据日本广播协会(NHK)报道，当地时间24日15时8分许，日本茨城县近海发生4级地震，震源深度50千米。 据报道，茨城县水户市观测到震度3级的明显震感，此外，福岛县、栃木县和千叶县等多地也有不同程度震感。 此次地震没有引发海啸。
+登录新浪财经APP 搜索【信披】查看更多考评等级 记者|张宝莲 编辑|陈旭 6月9日，主营精细化工材料的宿迁联盛（SH603065，股价13.40元，总市值56.14亿元）收到上交所下发的《关于对宿迁联盛科技股份有限公司有关对外投资事项的问询函》。 前一日，公司宣布拟与自然人朱蓉辉及汇智光芯人工智能科技（苏州）有限公司（以下简称汇智光芯）共同出资设立合资公司，进军化合物半导体磷
 
 ## 正文
 
-中新网5月24日电 据日本广播协会(NHK)报道，当地时间24日15时8分许，日本茨城县近海发生4级地震，震源深度50千米。
+登录新浪财经APP 搜索【信披】查看更多考评等级 记者|张宝莲 编辑|陈旭 6月9日，主营精细化工材料的宿迁联盛（SH603065，股价13.40元，总市值56.14亿元）收到上交所下发的《关于对宿迁联盛科技股份有限公司有关对外投资事项的问询函》。
 
-据报道，茨城县水户市观测到震度3级的明显震感，此外，福岛县、栃木县和千叶县等多地也有不同程度震感。
+前一日，公司宣布拟与自然人朱蓉辉及汇智光芯人工智能科技（苏州）有限公司（以下简称汇智光芯）共同出资设立合资公司，进军化合物半导体磷化铟衬底领域。
 
-此次地震没有引发海啸。
+磷化铟是光通信产业链的核心衬底材料，随着AI算力需求爆发，高速光模块对磷化铟基光芯片的需求持续增长。
+
+公司股价于公告前异动，连续3个交易日收盘价涨幅偏离值累计超过20%。
+
+对此，交易所询问是否存在内幕消息泄露，公司对外投资的合资公司是否具备开展磷化铟衬底研发和生产销售业务所需的资金、能力和条件等。
+
+6月13日，宿迁联盛回复问询函。
+
+意向合作方汇智光芯截至2026年3月31日的净资产为-2.09万元，处于资不抵债状态，且目前合作各方均无磷化铟相关专利，核心技术人员也尚未签署正式聘用协议。
+
+经公司自查，本次对外投资事项不存在内幕信息提前泄露的情形。
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 07:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 07:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 07:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 07:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:31 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 07:28 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 07:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 07:17 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 07:13 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 07:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 07:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 07:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 07:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 07:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 07:36 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 07:12 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 07:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 07:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 07:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 07:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:15 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 07:27 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 07:38 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 07:23 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/99400876.shtml)
-- 2026-06-30 07:27 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/071547243948.shtml)
-- 2026-06-30 07:08 - [流金岁月](http://www.share.minike.top/Article/details/4002084776.shtml)
-- 2026-06-30 07:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/77610498.shtml)
-- 2026-06-30 07:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/847965.shtml)
-- 2026-06-30 07:12 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/92394590.shtml)
-- 2026-06-30 07:27 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/77073243594.shtml)
-- 2026-06-30 07:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/53586.shtml)
-- 2026-06-30 07:07 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/7956314.shtml)
-- 2026-06-30 07:07 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/510882719.shtml)
-- 2026-06-30 07:16 - [起风了](http://www.blog.kurohicncr.top/Article/details/50710.shtml)
-- 2026-06-30 07:33 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/59559099.shtml)
-- 2026-06-30 07:31 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/855407.shtml)
-- 2026-06-30 07:33 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/663447199180.shtml)
-- 2026-06-30 07:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/3343558023.shtml)
+- 2026-06-30 07:38 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/86513.shtml)
+- 2026-06-30 07:16 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/6162715855.shtml)
+- 2026-06-30 07:18 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/71345.shtml)
+- 2026-06-30 07:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/8484025174.shtml)
+- 2026-06-30 07:12 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/1631007877.shtml)
+- 2026-06-30 07:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/309466987.shtml)
+- 2026-06-30 07:41 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/99930.shtml)
+- 2026-06-30 07:36 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/6918491.shtml)
+- 2026-06-30 07:33 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/0475157.shtml)
+- 2026-06-30 07:24 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/36465.shtml)
+- 2026-06-30 07:17 - [这一刀 会很帅](https://www.share.minike.top/Article/details/54525.shtml)
+- 2026-06-30 07:39 - [金牌调解](https://www.share.minike.top/Article/details/06883785.shtml)
+- 2026-06-30 07:12 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/17590383.shtml)
+- 2026-06-30 07:30 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/4087215.shtml)
+- 2026-06-30 07:28 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/55886775.shtml)

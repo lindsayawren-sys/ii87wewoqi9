@@ -1,61 +1,59 @@
-# “黄金再跌也不能买了！” 金价崩跌“刺破”暴富梦，投资者崩溃！金店：优惠了咋没人抢了？
+# “投资中国”德国企业圆桌会在杜塞尔多夫举行
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《BUG》栏目 张奥 据纽约黄金期货数据显示，最近3个月，金价累计跌幅超13%，相当于抹去了2026年绝大部分涨幅。 国内的投资者坐不住了，“黄金要不要抄底”“黄金再跌也不能买”等话题引起广泛讨论。 如今国内的投资者呈现明显对立面。一方对黄金走势感到绝望，认为“金价仍会跌跌不休”“最失败的投资就是黄
+中新网柏林6月15日电 杜塞尔多夫消息：“投资中国”德国企业圆桌会近日在杜塞尔多夫举行。中国商务部副部长兼国际贸易谈判副代表凌激主持，中国驻杜塞尔多夫总领事余勇出席并致辞。拜耳、宝马、大众、汉高、缆普、欧绿保、默克、敦豪以及德中经济联合会、德国中小企业联合会等近40家企业和商协会代表参会。中国银行作金融服务推介，山西省商务厅、湖南省驻德招商代表作投资推介。凌激表示，中德互为重要
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网柏林6月15日电 杜塞尔多夫消息：“投资中国”德国企业圆桌会近日在杜塞尔多夫举行。
 
-文 | 《BUG》栏目 张奥 据纽约黄金期货数据显示，最近3个月，金价累计跌幅超13%，相当于抹去了2026年绝大部分涨幅。
+中国商务部副部长兼国际贸易谈判副代表凌激主持，中国驻杜塞尔多夫总领事余勇出席并致辞。
 
-国内的投资者坐不住了，“黄金要不要抄底”“黄金再跌也不能买”等话题引起广泛讨论。
+拜耳、宝马、大众、汉高、缆普、欧绿保、默克、敦豪以及德中经济联合会、德国中小企业联合会等近40家企业和商协会代表参会。
 
-如今国内的投资者呈现明显对立面。
+中国银行作金融服务推介，山西省商务厅、湖南省驻德招商代表作投资推介。
 
-一方对黄金走势感到绝望，认为“金价仍会跌跌不休”“最失败的投资就是黄金”。
+凌激表示，中德互为重要贸易投资伙伴，两国拥有深厚的合作基础和广泛的共同利益。
 
-另一方则相互打气，认为“现在是抄底的最佳时机”。
+“十五五”期间，中国将继续坚定不移推进高水平对外开放，以完备的产业体系、活跃的创新生态和高素质的人才供给，为包括德企在内的外资企业在华发展提供新动能。
 
-此轮金价下跌也让上市公司们“摸不着头脑”。
+希望德企坚定对华投资信心，以实际行动维护中德、中欧经贸关系稳定发展。
 
-对于未来走势，莱绅通灵直言：“没办法预测金价，整个珠宝甚至消费板块都处于资金流出的状态”；老凤祥则透露，金价在下跌震荡阶段，线下门店消费者的购买意愿并未显著增强，“这段时间内，消费者肯定会持观望态度。
+与会企业和商协会代表表示，中国是德企最重要的战略市场和创新策源地之一，中德企业相向而行、相互成就的局面来之不易，深化合作需要搭建桥梁，而不是制造壁垒。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 07:33 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 07:16 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 07:12 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 07:07 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 07:23 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 07:27 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 07:07 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 07:07 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 07:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 07:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 07:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 07:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 07:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 07:12 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 07:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 07:20 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 07:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 07:41 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 07:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 07:28 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 07:30 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 07:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 07:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 07:26 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 07:34 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 07:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 07:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [爱很美味](http://www.share.minike.top/Article/details/83226.shtml)
-- 2026-06-30 07:31 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/345913187484.shtml)
-- 2026-06-30 07:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/87709.shtml)
-- 2026-06-30 07:28 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/155485.shtml)
-- 2026-06-30 07:10 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/40612.shtml)
-- 2026-06-30 07:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/7583011545.shtml)
-- 2026-06-30 07:23 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/49411883.shtml)
-- 2026-06-30 07:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/4391565.shtml)
-- 2026-06-30 07:06 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/63339812236.shtml)
-- 2026-06-30 07:30 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/0667006923.shtml)
-- 2026-06-30 07:07 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/8835337.shtml)
-- 2026-06-30 07:27 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/698269699.shtml)
-- 2026-06-30 07:21 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/5507111922.shtml)
-- 2026-06-30 07:28 - [女心理师](http://www.share.kurohicncr.top/Article/details/17588.shtml)
-- 2026-06-30 07:26 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/871376183938.shtml)
+- 2026-06-30 07:13 - [金刚川](http://www.share.kurohicncr.top/Article/details/2425173.shtml)
+- 2026-06-30 07:12 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/392338892.shtml)
+- 2026-06-30 07:24 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/663926786.shtml)
+- 2026-06-30 07:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0280443430.shtml)
+- 2026-06-30 07:12 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/77343365644.shtml)
+- 2026-06-30 07:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/7278820.shtml)
+- 2026-06-30 07:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/94881.shtml)
+- 2026-06-30 07:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/038216072398.shtml)
+- 2026-06-30 07:24 - [点球大战](https://www.blog.kurohicncr.top/Article/details/32031.shtml)
+- 2026-06-30 07:32 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/2465370.shtml)
+- 2026-06-30 07:40 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/2622183939.shtml)
+- 2026-06-30 07:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/0166343998.shtml)
+- 2026-06-30 07:23 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/26109.shtml)
+- 2026-06-30 07:32 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/40134136612.shtml)
+- 2026-06-30 07:20 - [内马尔替补](http://www.blog.minike.top/Article/details/584381.shtml)

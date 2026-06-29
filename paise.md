@@ -1,51 +1,47 @@
-# 广西柳州震后安置点设特色课 助受灾孩童健康安全生活
+# 浙江湖州：看龙舟逛市集 共度江南端午
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 18:14 来源：中国新闻网 5月24日，广西柳州职业技术大学受灾群众安置点内，学校为受灾儿童开设植物染、木工等特色课程。此前柳州市柳南区发生多次地震，5月20日至21日，该校累计安置受灾群众1300余名，含115名中小学生、7名学龄前儿童。依托职业教育资源，学校打造“6+N”特色课程体系，涵盖心理团辅、安全技能、科普美育、体育研学等内容，让安
+发布时间：2026年06月15日 10:50 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年05月24日 18:14 来源：中国新闻网 5月24日，广西柳州职业技术大学受灾群众安置点内，学校为受灾儿童开设植物染、木工等特色课程。
-
-此前柳州市柳南区发生多次地震，5月20日至21日，该校累计安置受灾群众1300余名，含115名中小学生、7名学龄前儿童。
-
-依托职业教育资源，学校打造“6+N”特色课程体系，涵盖心理团辅、安全技能、科普美育、体育研学等内容，让安置点儿童有人看护，健康安全生活。
-
-(陈梅 制作 王佳琪) 责任编辑：【王凯】
+发布时间：2026年06月15日 10:50 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 07:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 07:12 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 07:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 07:35 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 07:12 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 07:29 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 07:08 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 07:18 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 07:18 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 07:32 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 07:36 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 07:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 07:39 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 07:12 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:20 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 07:30 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 07:34 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 07:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 07:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 07:15 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 07:32 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 07:36 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/7815177.shtml)
-- 2026-06-30 07:24 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/439276.shtml)
-- 2026-06-30 07:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/915360104.shtml)
-- 2026-06-30 07:32 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/198581931926.shtml)
-- 2026-06-30 07:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/62289.shtml)
-- 2026-06-30 07:06 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/59278152.shtml)
-- 2026-06-30 07:34 - [《共患难》](https://www.share.kurohicncr.top/Article/details/32695.shtml)
-- 2026-06-30 07:27 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/484018.shtml)
-- 2026-06-30 07:28 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/7299201.shtml)
-- 2026-06-30 07:27 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/10550508356.shtml)
-- 2026-06-30 07:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/0618928357.shtml)
-- 2026-06-30 07:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/258659.shtml)
-- 2026-06-30 07:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/4514992.shtml)
-- 2026-06-30 07:23 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/10888044454.shtml)
-- 2026-06-30 07:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/62989.shtml)
+- 2026-06-30 07:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/42934146.shtml)
+- 2026-06-30 07:17 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/518471.shtml)
+- 2026-06-30 07:34 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/6712876.shtml)
+- 2026-06-30 07:20 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/83861225142.shtml)
+- 2026-06-30 07:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/49647630.shtml)
+- 2026-06-30 07:35 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/102802775297.shtml)
+- 2026-06-30 07:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/1564320.shtml)
+- 2026-06-30 07:12 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/3461920422.shtml)
+- 2026-06-30 07:38 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/396172836.shtml)
+- 2026-06-30 07:30 - [女心理师](http://www.blog.minike.top/Article/details/99279916313.shtml)
+- 2026-06-30 07:15 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/0879517769.shtml)
+- 2026-06-30 07:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/2911760600.shtml)
+- 2026-06-30 07:24 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/28238050578.shtml)
+- 2026-06-30 07:28 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/802594285.shtml)
+- 2026-06-30 07:21 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/661817781.shtml)

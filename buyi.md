@@ -1,57 +1,60 @@
-# 湖南江华：壮乡群众欢度“牛王节”
+# 中方：越来越多外企选择在中国大市场“健身房”中强筋健骨
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月25日电 (黄春华 张雨)5月24日(农历四月初八)，湖南江华瑶族自治县小圩壮族乡迎来传统佳节“牛王节”。当天，一场集民俗传承、文旅体验、民生服务于一体的盛大节庆活动在此上演，吸引近万名游客与各族群众共赴盛会。 当天9时18分，清塘村牛王广场上，庄严的“牛王加封”典礼如期举行。欢快的敬牛舞中，乡贤为“牛王”披红挂彩；随后盛大的巡游队伍穿行村庄，所到之处欢声笑语，各
+中新网北京6月16日电 (记者 李京泽 谢雁冰)中国外交部发言人林剑16日主持例行记者会。 有记者提问：根据美中贸易全国委员会近期发布的报告，80%的受访美企认为在华运营对其提升全球竞争力“非常重要”或“重要”。此前，中国德国商会发布的创新调查报告也显示，为加快创新速度并降低成本，德国汽车企业在中国本土进行研发的比例显著提升。这反映出，政治层面的对华“去风险”“不公平竞争”等叙
 
 ## 正文
 
-中新网长沙5月25日电 (黄春华 张雨)5月24日(农历四月初八)，湖南江华瑶族自治县小圩壮族乡迎来传统佳节“牛王节”。
+中新网北京6月16日电 (记者 李京泽 谢雁冰)中国外交部发言人林剑16日主持例行记者会。
 
-当天，一场集民俗传承、文旅体验、民生服务于一体的盛大节庆活动在此上演，吸引近万名游客与各族群众共赴盛会。
+有记者提问：根据美中贸易全国委员会近期发布的报告，80%的受访美企认为在华运营对其提升全球竞争力“非常重要”或“重要”。
 
-当天9时18分，清塘村牛王广场上，庄严的“牛王加封”典礼如期举行。
+此前，中国德国商会发布的创新调查报告也显示，为加快创新速度并降低成本，德国汽车企业在中国本土进行研发的比例显著提升。
 
-欢快的敬牛舞中，乡贤为“牛王”披红挂彩；随后盛大的巡游队伍穿行村庄，所到之处欢声笑语，各族群众共同祈求风调雨顺、五谷丰登。
+这反映出，政治层面的对华“去风险”“不公平竞争”等叙事，对外国企业决策的影响似乎有限。
 
-“牛韵风华”民俗展演将现场氛围推向高潮。
+请问发言人对此有何评论？
 
-壮族牛王舞、传统歌舞与瑶族风情表演轮番登台，生动勾勒出汉、瑶、壮各族同胞和谐共生、亲如一家的美好画卷。
+林剑：加强对华合作是机遇还是风险，作为市场主体的企业最有发言权。
 
-文化广场上，“福牛盛宴”壮家“八大碗”开席，游客与村民围坐共餐，在美食香韵中庆祝春耕圆满收官。
+是寻求保护主义，还是主动拥抱竞争、实现创新发展，企业也用实际行动作出了选择。
 
-清塘村“大草原”上，“牛王争霸”拔河比赛激战正酣，19个村的代表队轮番角逐，呐喊助威声此起彼伏。
+中国完备的产业体系、丰富的应用场景、高素质的人才储备、持续优化的政策环境，为各国企业提供了创新的沃土。
 
 ## 相关推荐
 
-- 2026-06-30 07:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 07:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 07:21 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 07:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 07:28 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 07:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 07:07 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 07:29 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:16 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 07:13 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 07:08 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 07:32 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 07:34 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 07:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 07:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 07:23 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 07:40 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 07:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 07:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 07:40 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 07:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 07:19 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:25 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 07:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 07:26 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/55389214959.shtml)
-- 2026-06-30 07:18 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/933335886401.shtml)
-- 2026-06-30 07:31 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/054123.shtml)
-- 2026-06-30 07:22 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/941354.shtml)
-- 2026-06-30 07:11 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/21749357.shtml)
-- 2026-06-30 07:14 - [刘念回应](http://www.share.kurohicncr.top/Article/details/362525910228.shtml)
-- 2026-06-30 07:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/0233807.shtml)
-- 2026-06-30 07:30 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/25035.shtml)
-- 2026-06-30 07:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/1211659.shtml)
-- 2026-06-30 07:17 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/340174.shtml)
-- 2026-06-30 07:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/41622307632.shtml)
-- 2026-06-30 07:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/5478504.shtml)
-- 2026-06-30 07:31 - [日本领先巴西](http://www.blog.minike.top/Article/details/892026845489.shtml)
-- 2026-06-30 07:18 - [急先锋](http://www.blog.minike.top/Article/details/9568288.shtml)
-- 2026-06-30 07:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/3286949.shtml)
+- 2026-06-30 07:29 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/44298.shtml)
+- 2026-06-30 07:38 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/2812833.shtml)
+- 2026-06-30 07:23 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/79121344432.shtml)
+- 2026-06-30 07:14 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/27955562.shtml)
+- 2026-06-30 07:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/49114247915.shtml)
+- 2026-06-30 07:24 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/039144841845.shtml)
+- 2026-06-30 07:29 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/045283340.shtml)
+- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/60360398.shtml)
+- 2026-06-30 07:29 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/84235059723.shtml)
+- 2026-06-30 07:40 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/6069434603.shtml)
+- 2026-06-30 07:24 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/9966428095.shtml)
+- 2026-06-30 07:36 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/1668156.shtml)
+- 2026-06-30 07:17 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/3571017.shtml)
+- 2026-06-30 07:30 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/968639.shtml)
+- 2026-06-30 07:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/38415782649.shtml)

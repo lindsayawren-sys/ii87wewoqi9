@@ -1,60 +1,57 @@
-# 心理疗愈需求攀升，职场“心防线”如何筑牢？
+# （机遇澳门）澳门招商局主席：让企业“引得进、留得住、发展好”
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-热线电话来电增多、减压门诊一号难求……心理“工伤”引职场人“自救” 心理疗愈需求攀升，职场“心防线”如何筑牢？ 阅读提示 职业节奏加快、职场压力多元，心理健康逐渐成为职场人关注的热点议题。当下，越来越多职场人主动借助线上社群、专业门诊开展心理疏导与自我调节。社会认知提升、心理资源扩容为情绪纾解提供了支撑，而从根源上守护职场心理健康，离不开完善的制度兜底、企业人文关怀与劳动者合法
+中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。 当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。他指出，特区政府正围绕“1+4”经济适度多元发展策略
 
 ## 正文
 
-热线电话来电增多、减压门诊一号难求……心理“工伤”引职场人“自救” 心理疗愈需求攀升，职场“心防线”如何筑牢？
+中新网澳门6月15日电 (记者 郑嘉伟)澳门特区政府招商投资促进局(简称“澳门招商局”)主席谢永强15日表示，澳门正持续增强对优质企业的吸引力与黏性，让企业不仅“引得进”，更“留得住、发展好”，为澳门经济适度多元发展注入持久动力。
 
-阅读提示 职业节奏加快、职场压力多元，心理健康逐渐成为职场人关注的热点议题。
+当日，谢永强在中国与葡语国家商贸合作服务平台综合体接受“机遇澳门”主题采访活动专访时作上述表述。
 
-当下，越来越多职场人主动借助线上社群、专业门诊开展心理疏导与自我调节。
+他指出，特区政府正围绕“1+4”经济适度多元发展策略，构建“机制赋能、平台支撑、政策保障”三位一体的引才引企体系。
 
-社会认知提升、心理资源扩容为情绪纾解提供了支撑，而从根源上守护职场心理健康，离不开完善的制度兜底、企业人文关怀与劳动者合法权益的坚实保障。
+谢永强介绍，澳门招商局在中国内地设有6个代表处，近年通过与葡萄牙、西班牙等地顾问团队合作拓展海外商业网络。
 
-“早上去上班的路上，越靠近公司就越感觉压抑，有时坐在工位喘不上来气。
+以投资者“一站式”服务为抓手，贯穿项目事前政策解读、事中跨部门协调注册及牌照申领、事后商业配对全过程，特设投资委员会统筹审批绿色通道。
 
-”5月17日正值周末，本应好好休息的雨霏到凌晨两点都无法入睡，内心的焦虑让她在社交平台发出这样一段文字。
+据悉，2025年，“一站式”服务跟进286个投资项目，创造就业1611个，近五成属“1+4”重点产业；同年依托会展平台组织2200余场商务洽谈，促成240多份合作签约，推动148家葡萄牙、巴西、印尼等地企业提交投资立项，近三成已完成公司设立。
 
-没过多久，留言陆陆续续出现：“去医院看看吧，听专业医生的”“你需要好好休息了”“这是职场焦虑，太有责任心的人就容易这样”……雨霏没想到，这么多人有类似的经历，更没想到自己应该去看医生。
+谢永强表示，平台支撑方面，招商局通过“中葡商贸导航”服务，发挥“精准联络人”作用，已促成中国500强企业在巴西、安哥拉投建生产基地，以及全国前十粮油企业采购巴西大宗商品等标志性项目。
 
-随着大众对身心健康的认知不断升级，职场心理健康逐渐成为社会关注的热点议题。
+他还指出，通过产业基金、科技园区、人才政策、首店计划等多维政策工具的协同发力，澳门正持续增强对国际高端人才与优质企业的吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 07:28 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 07:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 07:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 07:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 07:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 07:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 07:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 07:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 07:34 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 07:16 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 07:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 07:27 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 07:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 07:16 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 07:22 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 07:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 07:22 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 07:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 07:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 07:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 07:29 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 07:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/581712665672.shtml)
-- 2026-06-30 07:15 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/95541.shtml)
-- 2026-06-30 07:32 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/8104585606.shtml)
-- 2026-06-30 07:16 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/602453.shtml)
-- 2026-06-30 07:22 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/5279020891.shtml)
-- 2026-06-30 07:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/809337.shtml)
-- 2026-06-30 07:24 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/800632959394.shtml)
-- 2026-06-30 07:15 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/534092427.shtml)
-- 2026-06-30 07:18 - [请回答王牌2019](https://www.share.minike.top/Article/details/042626088.shtml)
-- 2026-06-30 07:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/122643.shtml)
-- 2026-06-30 07:18 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/43472470972.shtml)
-- 2026-06-30 07:32 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/75094297071.shtml)
-- 2026-06-30 07:25 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/204446620.shtml)
-- 2026-06-30 07:14 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/31549401.shtml)
-- 2026-06-30 07:10 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/9825028097.shtml)
+- 2026-06-30 07:28 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/660674.shtml)
+- 2026-06-30 07:27 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/4475351.shtml)
+- 2026-06-30 07:41 - [扫黑风暴](http://www.share.minike.top/Article/details/749433.shtml)
+- 2026-06-30 07:28 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/5008256159.shtml)
+- 2026-06-30 07:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/1710550256.shtml)
+- 2026-06-30 07:16 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/75263648800.shtml)
+- 2026-06-30 07:38 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/9897765063.shtml)
+- 2026-06-30 07:27 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/22408251544.shtml)
+- 2026-06-30 07:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/6594161.shtml)
+- 2026-06-30 07:24 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/3868755.shtml)
+- 2026-06-30 07:17 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/68854.shtml)
+- 2026-06-30 07:14 - [点球大战](http://www.blog.minike.top/Article/details/6708831924.shtml)
+- 2026-06-30 07:16 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/29910548270.shtml)
+- 2026-06-30 07:19 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/058598.shtml)
+- 2026-06-30 07:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/09848551062.shtml)

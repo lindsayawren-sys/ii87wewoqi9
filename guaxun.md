@@ -1,58 +1,47 @@
-# 蹦床女将刘洁莹：代表中国香港“冲击更高分”
+# 大洼恒丰村镇银行获批解散 全部业务由盘锦银行承接
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新社香港5月26日电 题：蹦床女将刘洁莹：代表中国香港“冲击更高分” 中新社记者 魏华都 距离2026年日本爱知-名古屋亚运会不到4个月，中国香港蹦床女子选手刘洁莹已经锁定个人赛资格。这是她于2023年杭州亚运会以唯一女将身份代表中国香港出战蹦床比赛后，第二次踏上亚运会征程。 数日前，刘洁莹在第七届亚洲蹦床锦标赛个人项目中跻身前16名，取得亚运会入场券，但她对自己的发挥并不满
+6月15日金融一线消息，辽宁金融监管局发布批复，同意解散大洼恒丰村镇银行股份有限公司。你行全部业务、资产、债权债务、机构网点、人员以及其他各项权利义务由盘锦银行股份有限公司承接。 责任编辑：秦艺
 
 ## 正文
 
-中新社香港5月26日电 题：蹦床女将刘洁莹：代表中国香港“冲击更高分” 中新社记者 魏华都 距离2026年日本爱知-名古屋亚运会不到4个月，中国香港蹦床女子选手刘洁莹已经锁定个人赛资格。
+6月15日金融一线消息，辽宁金融监管局发布批复，同意解散大洼恒丰村镇银行股份有限公司。
 
-这是她于2023年杭州亚运会以唯一女将身份代表中国香港出战蹦床比赛后，第二次踏上亚运会征程。
+你行全部业务、资产、债权债务、机构网点、人员以及其他各项权利义务由盘锦银行股份有限公司承接。
 
-数日前，刘洁莹在第七届亚洲蹦床锦标赛个人项目中跻身前16名，取得亚运会入场券，但她对自己的发挥并不满意。
-
-她接受中新社记者专访时坦言，在比赛中出现失误，未能完成原计划的难度动作，“回去一定会继续多训练”。
-
-语气里没有纠结与气馁，只有一种习惯性的笃定。
-
-刘洁莹与蹦床的缘分，始于一个朴素的理由。
-
-她8岁接触竞技体操，之后转为艺术体操，最后在一张蹦床上停了下来。
-
-“我喜欢翻腾和旋转。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 07:33 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 07:32 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 07:25 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 07:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 07:20 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 07:29 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 07:21 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 07:28 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 07:23 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 07:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 07:33 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 07:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 07:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 07:37 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:22 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:21 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:41 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 07:23 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 07:22 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 07:34 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/5820418.shtml)
-- 2026-06-30 07:16 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/39728.shtml)
-- 2026-06-30 07:36 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/223926.shtml)
-- 2026-06-30 07:08 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/250540.shtml)
-- 2026-06-30 07:18 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/44192316.shtml)
-- 2026-06-30 07:12 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/92487149.shtml)
-- 2026-06-30 07:22 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/21509.shtml)
-- 2026-06-30 07:07 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/4053722599.shtml)
-- 2026-06-30 07:12 - [起风了](https://www.share.kurohicncr.top/Article/details/245211.shtml)
-- 2026-06-30 07:20 - [青春环游记第三季](https://www.blog.minike.top/Article/details/718123413477.shtml)
-- 2026-06-30 07:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/768432561884.shtml)
-- 2026-06-30 07:09 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/82204.shtml)
-- 2026-06-30 07:19 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/01824.shtml)
-- 2026-06-30 07:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/147269.shtml)
-- 2026-06-30 07:27 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/45385776538.shtml)
+- 2026-06-30 07:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/390743.shtml)
+- 2026-06-30 07:16 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/58668014636.shtml)
+- 2026-06-30 07:23 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/59169.shtml)
+- 2026-06-30 07:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/29043.shtml)
+- 2026-06-30 07:15 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/2960788.shtml)
+- 2026-06-30 07:27 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/0485977965.shtml)
+- 2026-06-30 07:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/444029820.shtml)
+- 2026-06-30 07:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/573860177638.shtml)
+- 2026-06-30 07:24 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/24045.shtml)
+- 2026-06-30 07:31 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/758785811.shtml)
+- 2026-06-30 07:23 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/32055252.shtml)
+- 2026-06-30 07:16 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/93649180.shtml)
+- 2026-06-30 07:28 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/5671288.shtml)
+- 2026-06-30 07:28 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/757161.shtml)
+- 2026-06-30 07:21 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/65707309.shtml)

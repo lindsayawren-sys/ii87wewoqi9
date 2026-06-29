@@ -1,61 +1,59 @@
-# 中国外交部谈“赛考斯”：相信中美两国人民将续写更多友好故事
+# 香港特区政府财库局局长许正宇：香港三招助内地企业出海
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 (记者 黄钰钦 张素)中国外交部发言人毛宁25日主持例行记者会。 有记者提问：近日，扎根毛乌素沙地治沙造林的全国劳动模范殷玉珍，通过网络寻找当年曾提供捐助的美国友人“赛考斯”。时隔多年，两人得以在“线上重逢”，网友纷纷为跨越国界的善举和情谊点赞。请问发言人对此有何评论？ 毛宁：20多年前，在中国任教的美国教师萨科尔斯基筹集5000美元，帮助殷玉珍夫妇治沙
+中新社杭州6月15日电 (鲍梦妮)“港浙两地的资源高度互补、产业高度契合，可以说是实体产业与国际金融的‘黄金组合’。”6月15日，“香港金融产业助力内地企业扬帆出海”交流午餐会在浙江杭州举办，香港特别行政区政府财经事务及库务局局长许正宇在致辞时表示。浙江是民营经济、数字经济大省，也是先进制造业的高地。香港的优势在于国际金融、跨境投融资服务、国际专业服务、全球规则对接，可精准匹配
 
 ## 正文
 
-中新网北京5月25日电 (记者 黄钰钦 张素)中国外交部发言人毛宁25日主持例行记者会。
+中新社杭州6月15日电 (鲍梦妮)“港浙两地的资源高度互补、产业高度契合，可以说是实体产业与国际金融的‘黄金组合’。
 
-有记者提问：近日，扎根毛乌素沙地治沙造林的全国劳动模范殷玉珍，通过网络寻找当年曾提供捐助的美国友人“赛考斯”。
+”6月15日，“香港金融产业助力内地企业扬帆出海”交流午餐会在浙江杭州举办，香港特别行政区政府财经事务及库务局局长许正宇在致辞时表示。
 
-时隔多年，两人得以在“线上重逢”，网友纷纷为跨越国界的善举和情谊点赞。
+浙江是民营经济、数字经济大省，也是先进制造业的高地。
 
-请问发言人对此有何评论？
+香港的优势在于国际金融、跨境投融资服务、国际专业服务、全球规则对接，可精准匹配浙江企业出海的核心需求。
 
-毛宁：20多年前，在中国任教的美国教师萨科尔斯基筹集5000美元，帮助殷玉珍夫妇治沙造林，如今这笔善款已化作5万多棵大树。
+许正宇认为，接下来，香港可从三方面推动内地企业出海。
 
-这段跨国情谊，是中美民间友好交往的生动缩影。
+首先，发挥“金融+”优势，双向赋能新质生产力建设。
 
-正如习近平主席指出，中美关系的故事是由人民书写的。
+浙江的数字经济、绿色低碳、节能环保项目，可依托香港获国际认可的绿色标准认证制度、多元绿色融资工具、成熟及持续发展的数字贸易融资基建，对接全球可持续发展投资资本。
 
-相信两国人民将续写更多友好故事，不断为中美关系注入源头活水。
+同时，香港领先的金融科技应用、跨境合规服务、国际商业规则咨询能力，也可全方位协助浙江企业加速数字化与绿色转型。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 07:35 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 07:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 07:32 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 07:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 07:15 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 07:15 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 07:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 07:24 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 07:13 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 07:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 07:32 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 07:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 07:10 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 07:23 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 07:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 07:14 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 07:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 07:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 07:41 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 07:27 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 07:24 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 07:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 07:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 07:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 07:18 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/18963608.shtml)
-- 2026-06-30 07:31 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/951122890.shtml)
-- 2026-06-30 07:25 - [德国淘汰](http://www.share.kurohicncr.top/Article/details/8839463054.shtml)
-- 2026-06-30 07:21 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/7865196.shtml)
-- 2026-06-30 07:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/6833285495.shtml)
-- 2026-06-30 07:14 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/41947.shtml)
-- 2026-06-30 07:29 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/76616039.shtml)
-- 2026-06-30 07:23 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/63433334.shtml)
-- 2026-06-30 07:35 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/4018398037.shtml)
-- 2026-06-30 07:19 - [张凌赫 客串](https://www.share.minike.top/Article/details/97208.shtml)
-- 2026-06-30 07:27 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/527359923.shtml)
-- 2026-06-30 07:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/520278538.shtml)
-- 2026-06-30 07:25 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/0879482.shtml)
-- 2026-06-30 07:10 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/39458480.shtml)
-- 2026-06-30 07:29 - [巴西绝杀](https://www.blog.minike.top/Article/details/8476864.shtml)
+- 2026-06-30 07:24 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/115818605156.shtml)
+- 2026-06-30 07:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/70263309490.shtml)
+- 2026-06-30 07:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/4205279.shtml)
+- 2026-06-30 07:28 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/85427528970.shtml)
+- 2026-06-30 07:25 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/270659159.shtml)
+- 2026-06-30 07:35 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/27327462133.shtml)
+- 2026-06-30 07:12 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/6648556.shtml)
+- 2026-06-30 07:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/169009.shtml)
+- 2026-06-30 07:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/148673.shtml)
+- 2026-06-30 07:41 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/31842010.shtml)
+- 2026-06-30 07:31 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/72784.shtml)
+- 2026-06-30 07:18 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/82987717088.shtml)
+- 2026-06-30 07:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/0741091288.shtml)
+- 2026-06-30 07:30 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/572694570757.shtml)
+- 2026-06-30 07:29 - [蔚来车主罚站](http://www.share.minike.top/Article/details/869657420.shtml)

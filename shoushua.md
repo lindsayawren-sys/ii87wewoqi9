@@ -1,61 +1,61 @@
-# 北京“超现场”走进深圳文博会 让好戏“走”出剧场
+# 抗衰“神药”，还有多远？
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月25日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举办。在北京市委宣传部、北京市广电局、北京市经济和信息化局指导下，中联超清携ULive“超现场”系列创新成果亮相北京展区，现场展示适配“超现场”应用的广电级BT.2020广色域高色准超高清LED显示系统，以前沿视听科技赋能文化传播。 “足不出城就能沉浸式欣赏顶级舞台演出，观感具有冲击力。
+中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。这样的结果，总会点燃人们对抗衰“神药”的想象。 今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。2025年2月，一款名为LOY-002的
 
 ## 正文
 
-中新网深圳5月25日电 (记者 蔡敏婕)第二十二届中国(深圳)国际文化产业博览交易会正在深圳举办。
+中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。
 
-在北京市委宣传部、北京市广电局、北京市经济和信息化局指导下，中联超清携ULive“超现场”系列创新成果亮相北京展区，现场展示适配“超现场”应用的广电级BT.2020广色域高色准超高清LED显示系统，以前沿视听科技赋能文化传播。
+这样的结果，总会点燃人们对抗衰“神药”的想象。
 
-“足不出城就能沉浸式欣赏顶级舞台演出，观感具有冲击力。
+今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。
 
-”现场观众给出好评。
+2025年2月，一款名为LOY-002的候选药物获得美国食品药品监督管理局(FDA)兽医中心确认，对延长老年犬寿命“具有合理、有效性预期”。
 
-据介绍，“超现场”新模式化解优质演艺资源地域分布不均、线下演出落地成本高昂等难题，为各地基层剧场引进顶尖文艺内容开辟新路径。
+针对人类，一批被认为具有潜力的抗衰老药物靶点与候选分子也正逐渐显现。
 
-自2024年起，北京市委宣传部、市广电局、市经信局等多部门联合指导并在企业实践下，北京搭建起完备的“超现场”数字视听技术体系。
+“但截至目前，还没有任何一种药物有确凿证据，能延缓人类衰老。
 
-该模式依托超高清拍摄、编码、传输、放映全链条技术，可将线下演出、大型活动实时制作成高标准数字内容，同步推送至全国多地场馆，让异地观众沉浸式共享现场盛况。
+”中南大学衰老与老年疾病研究所所长刘幼硕对《中国新闻周刊》介绍，很多人希望通过吃药替代健康生活方式，但从动物实验到人体有效，还有相当长的距离。
 
-北京也先后出台《北京市超高清视听先锋行动计划(2024-2026)》《北京市关于加快培育“超现场”产业生态的若干措施》以完善顶层设计，促使北京“超现场”业务版图已覆盖全国31个省区市，辐射70余家专业剧院、200多家影院，累计完成超400场同步直播活动，惠及民众超12万人次，业务边界也不断拓宽，从经典舞台艺术逐步延伸至影视盛典、体育赛事等多元场景。
+“打捆”干预 随着年龄增长，越来越多与衰老相关的疾病会陆续出现。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 07:06 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 07:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 07:21 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 07:16 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 07:22 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 07:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 07:13 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 07:20 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 07:35 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 07:22 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 07:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 07:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 07:14 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:26 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 07:16 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 07:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 07:30 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 07:28 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 07:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 07:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 07:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 07:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 07:20 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 07:36 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:41 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 07:41 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 07:31 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 07:13 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/11018590.shtml)
-- 2026-06-30 07:31 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/00389477.shtml)
-- 2026-06-30 07:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/969114624.shtml)
-- 2026-06-30 07:26 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/0851359028.shtml)
-- 2026-06-30 07:10 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2879335562.shtml)
-- 2026-06-30 07:07 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/7665073043.shtml)
-- 2026-06-30 07:10 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/354593.shtml)
-- 2026-06-30 07:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/22763360.shtml)
-- 2026-06-30 07:10 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/51419365378.shtml)
-- 2026-06-30 07:30 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/1388211186.shtml)
-- 2026-06-30 07:31 - [沙丘](http://www.blog.kurohicncr.top/Article/details/917441953.shtml)
-- 2026-06-30 07:34 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/08733318.shtml)
-- 2026-06-30 07:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/2975409.shtml)
-- 2026-06-30 07:28 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/4014386.shtml)
-- 2026-06-30 07:28 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/981122524.shtml)
+- 2026-06-30 07:19 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/537446909894.shtml)
+- 2026-06-30 07:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/25626338792.shtml)
+- 2026-06-30 07:29 - [沙丘](https://www.blog.kurohicncr.top/Article/details/27518580.shtml)
+- 2026-06-30 07:27 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/4567827.shtml)
+- 2026-06-30 07:40 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/410224.shtml)
+- 2026-06-30 07:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/3576661.shtml)
+- 2026-06-30 07:35 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/388222749.shtml)
+- 2026-06-30 07:41 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/0460126340.shtml)
+- 2026-06-30 07:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/78344751726.shtml)
+- 2026-06-30 07:41 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/272750720595.shtml)
+- 2026-06-30 07:18 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/87563.shtml)
+- 2026-06-30 07:37 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/001554850.shtml)
+- 2026-06-30 07:29 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/165671.shtml)
+- 2026-06-30 07:37 - [斗破苍穹](https://www.blog.minike.top/Article/details/7143984.shtml)
+- 2026-06-30 07:21 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/65196476.shtml)

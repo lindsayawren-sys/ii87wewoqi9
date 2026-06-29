@@ -1,47 +1,55 @@
-# DMF 二甲基甲酰胺商品报价动态（2026-05-24）
+# 海地帮派暴力今年已致至少2300人死亡
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 山东北鲁恒升化工有限公司 山东 山东省 3600元/吨 (文章来源：生意社)责任编辑：陈平
+中新社北京6月16日电 日内瓦消息：当地时间6月15日，联合国人权事务高级专员沃尔克·图尔克透露，最新数据显示，今年以来帮派暴力已造成海地至少2300人死亡、至少1100人受伤，以及近百起绑架事件。 综合欧洲新闻网等媒体消息，沃尔克·图尔克敦促海地当局“迅速采取行动，加强司法部门打击有罪不罚现象，并追究暴力犯罪者责任。” 图尔克还表示，当前局势迫切需要多国参与的“镇压海地黑帮部
 
 ## 正文
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 山东北鲁恒升化工有限公司 山东 山东省 3600元/吨 (文章来源：生意社)责任编辑：陈平
+中新社北京6月16日电 日内瓦消息：当地时间6月15日，联合国人权事务高级专员沃尔克·图尔克透露，最新数据显示，今年以来帮派暴力已造成海地至少2300人死亡、至少1100人受伤，以及近百起绑架事件。
+
+综合欧洲新闻网等媒体消息，沃尔克·图尔克敦促海地当局“迅速采取行动，加强司法部门打击有罪不罚现象，并追究暴力犯罪者责任。
+
+” 图尔克还表示，当前局势迫切需要多国参与的“镇压海地黑帮部队”出面，以帮助维持海地国内社会的正常运转，且该部队“必须按照国际人权法运作”。
+
+联合国安理会2025年通过第2793号决议，决定将部署在海地的多国安全支助团转化为“镇压海地黑帮部队”，并成立为该部队提供后勤支持的联合国海地支助办事处。
+
+近年来，海地深陷帮派暴力、政治动荡和经济危机困扰，境内流离失所者已达约150万人，其中妇女和女童占比过半，全国约半数人口面临严重的粮食不安全状况。
+
+5月11日，海地政府表示，由于安全局势恶化，海地无法于8月按期举行总统选举。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 07:31 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 07:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 07:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 07:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 07:22 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 07:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 07:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 07:19 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 07:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 07:16 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 07:10 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 07:35 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 07:16 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 07:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 07:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 07:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 07:16 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 07:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 07:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 07:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 07:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 07:37 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:30 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/290665764.shtml)
-- 2026-06-30 07:25 - [电影后室值得看吗](https://www.share.minike.top/Article/details/68576026935.shtml)
-- 2026-06-30 07:18 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/180583444910.shtml)
-- 2026-06-30 07:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/97106814634.shtml)
-- 2026-06-30 07:26 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/5120050282.shtml)
-- 2026-06-30 07:11 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/992038107555.shtml)
-- 2026-06-30 07:25 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/561882388290.shtml)
-- 2026-06-30 07:16 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/83079222.shtml)
-- 2026-06-30 07:24 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/15355506.shtml)
-- 2026-06-30 07:23 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/60604364.shtml)
-- 2026-06-30 07:18 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/6202441817.shtml)
-- 2026-06-30 07:26 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/87951.shtml)
-- 2026-06-30 07:20 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/8963652027.shtml)
-- 2026-06-30 07:29 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/906995331.shtml)
-- 2026-06-30 07:15 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/7144197.shtml)
+- 2026-06-30 07:25 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/864491679.shtml)
+- 2026-06-30 07:22 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/0719106783.shtml)
+- 2026-06-30 07:36 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/8031423738.shtml)
+- 2026-06-30 07:40 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/06182.shtml)
+- 2026-06-30 07:28 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/886837010.shtml)
+- 2026-06-30 07:12 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/267142801741.shtml)
+- 2026-06-30 07:31 - [德国巴拉圭 折磨](http://www.blog.minike.top/Article/details/23382.shtml)
+- 2026-06-30 07:13 - [媒体：手机测评该挤挤水分了](https://www.blog.minike.top/Article/details/58012837.shtml)
+- 2026-06-30 07:29 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/19688317.shtml)
+- 2026-06-30 07:31 - [第一炉香](http://www.share.kurohicncr.top/Article/details/049600772240.shtml)
+- 2026-06-30 07:36 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/023103378.shtml)
+- 2026-06-30 07:16 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/81253185200.shtml)
+- 2026-06-30 07:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/7985842583.shtml)
+- 2026-06-30 07:20 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/0432047878.shtml)
+- 2026-06-30 07:40 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/84570.shtml)

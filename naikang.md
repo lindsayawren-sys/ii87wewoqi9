@@ -1,50 +1,60 @@
-# 长鑫IPO明天上会，603986放量上涨
+# 操盘必读：影响股市利好或利空消息_2026年6月15日_财经新闻
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-5月26日午后，存储龙头兆易创新（603986）放量上涨，成交额超330亿元。 国内DRAM芯片龙头长鑫科技将于明日（5月27日）上会。兆易创新是长鑫科技DRAM产品的核心采购方之一，2026年全年关联采购额度预计高达57.11亿元。此外，兆易创新持有长鑫科技1.8%股份，兆易创新董事长朱一明目前兼任长鑫科技董事长。
+宏观新闻 1、王沪宁表示，“十五五”时期，深化两岸融合发展、建设两岸融合发展示范区迎来广阔发展机遇和前景。要支持福建探索两岸融合发展新机制新路径新模式，推动两岸融合发展实现更高质量、更深层次、更广领域的融合，进一步发挥两岸融合发展示范区引领带动作用。 2、人民银行发布公告称，将在15日以固定数量、利率招标、多重价位中标方式开展6000亿元买断式逆回购操作，期限为6个月（183天
 
 ## 正文
 
-5月26日午后，存储龙头兆易创新（603986）放量上涨，成交额超330亿元。
+宏观新闻 1、王沪宁表示，“十五五”时期，深化两岸融合发展、建设两岸融合发展示范区迎来广阔发展机遇和前景。
 
-国内DRAM芯片龙头长鑫科技将于明日（5月27日）上会。
+要支持福建探索两岸融合发展新机制新路径新模式，推动两岸融合发展实现更高质量、更深层次、更广领域的融合，进一步发挥两岸融合发展示范区引领带动作用。
 
-兆易创新是长鑫科技DRAM产品的核心采购方之一，2026年全年关联采购额度预计高达57.11亿元。
+2、人民银行发布公告称，将在15日以固定数量、利率招标、多重价位中标方式开展6000亿元买断式逆回购操作，期限为6个月（183天）。
 
-此外，兆易创新持有长鑫科技1.8%股份，兆易创新董事长朱一明目前兼任长鑫科技董事长。
+鉴于该期限品种当月有6000亿元到期量，本次6个月期买断式逆回购操作为等量续作。
+
+3、初步统计，2026年5月末社会融资规模存量为458.81万亿元，同比增长7.7%。
+
+2026年前五个月社会融资规模增量累计为17.48万亿元，比上年同期少1.16万亿元。
+
+前五个月人民币贷款增加9.11万亿元。
+
+5月末，广义货币（M2）余额353.67万亿元，同比增长8.6%。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 07:17 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 07:10 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:15 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 07:11 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 07:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 07:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 07:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 07:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 07:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 07:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 07:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 07:12 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 07:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 07:35 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 07:39 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 07:13 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 07:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 07:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 07:35 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 07:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 07:34 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 07:16 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 07:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 07:38 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 07:36 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/31643804820.shtml)
-- 2026-06-30 07:32 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/6298929.shtml)
-- 2026-06-30 07:06 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/706563578690.shtml)
-- 2026-06-30 07:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/717228202.shtml)
-- 2026-06-30 07:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/48527.shtml)
-- 2026-06-30 07:07 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/031016.shtml)
-- 2026-06-30 07:26 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/3439777.shtml)
-- 2026-06-30 07:24 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/31988847.shtml)
-- 2026-06-30 07:12 - [小娘惹](https://www.share.kurohicncr.top/Article/details/77836329480.shtml)
-- 2026-06-30 07:35 - [绘画区你赢了](http://www.share.minike.top/Article/details/63530910117.shtml)
-- 2026-06-30 07:19 - [郑钦文温网三连败西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/39487163177.shtml)
-- 2026-06-30 07:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/9608361.shtml)
-- 2026-06-30 07:23 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/339556079977.shtml)
-- 2026-06-30 07:29 - [点球大战](https://www.share.kurohicncr.top/Article/details/804800149.shtml)
-- 2026-06-30 07:23 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/62222.shtml)
+- 2026-06-30 07:31 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/8976460.shtml)
+- 2026-06-30 07:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/42031970.shtml)
+- 2026-06-30 07:41 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/62475.shtml)
+- 2026-06-30 07:22 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/0804310961.shtml)
+- 2026-06-30 07:36 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/976808.shtml)
+- 2026-06-30 07:13 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/17812923381.shtml)
+- 2026-06-30 07:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/16230487.shtml)
+- 2026-06-30 07:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/8644012636.shtml)
+- 2026-06-30 07:30 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/23672655901.shtml)
+- 2026-06-30 07:24 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/161798878.shtml)
+- 2026-06-30 07:34 - [我和我的家乡](https://www.blog.minike.top/Article/details/09254.shtml)
+- 2026-06-30 07:28 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/46019776142.shtml)
+- 2026-06-30 07:14 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/24501.shtml)
+- 2026-06-30 07:25 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/5625157.shtml)
+- 2026-06-30 07:22 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/17949157767.shtml)

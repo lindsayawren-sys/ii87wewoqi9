@@ -1,58 +1,60 @@
-# 哈塞特：结束伊朗战争或为美联储降息创造空间
+# （投资中国）诺和诺德将在天津追加投资提升产能
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-美国白宫首席经济顾问凯文・哈塞特表示，他相信油价最终回落将为美联储降息创造空间。 哈塞特说，白宫预计一旦与伊朗达成协议，能源价格将下跌。特朗普在社交媒体上发文称，与德黑兰的谈判“正以有序、建设性的方式推进”。 “再次强调，我们预计一旦达成协议，能源价格将暴跌。”哈塞特说，“届时，美联储将有充足空间采取正确行动、下调利率。” 他强调尊重美联储的独立性，并对凯文・沃什表示赞赏。沃什
+中新社天津6月15日电 (记者 周亚强)全球知名的丹麦生物制药企业诺和诺德15日宣布，将向位于天津的战略生产基地追加投资2亿元(人民币，下同)，用于提升1.5毫升畅充注射笔组装产能。 此次追加投资系诺和诺德全球高管团队访华期间公布。项目建成后，将显著提高相关产品的产能与供应效率，以满足中国患者日益多元化的用药需求。 诺和诺德全球生产与供应执行副总裁梅凯思表示，天津生产厂是公司全
 
 ## 正文
 
-美国白宫首席经济顾问凯文・哈塞特表示，他相信油价最终回落将为美联储降息创造空间。
+中新社天津6月15日电 (记者 周亚强)全球知名的丹麦生物制药企业诺和诺德15日宣布，将向位于天津的战略生产基地追加投资2亿元(人民币，下同)，用于提升1.5毫升畅充注射笔组装产能。
 
-哈塞特说，白宫预计一旦与伊朗达成协议，能源价格将下跌。
+此次追加投资系诺和诺德全球高管团队访华期间公布。
 
-特朗普在社交媒体上发文称，与德黑兰的谈判“正以有序、建设性的方式推进”。
+项目建成后，将显著提高相关产品的产能与供应效率，以满足中国患者日益多元化的用药需求。
 
-“再次强调，我们预计一旦达成协议，能源价格将暴跌。
+诺和诺德全球生产与供应执行副总裁梅凯思表示，天津生产厂是公司全球供应体系的重要支点，此次投资进一步强化了在华制造能力，体现了诺和诺德深耕中国、长期发展的承诺。
 
-”哈塞特说，“届时，美联储将有充足空间采取正确行动、下调利率。
+天津生产厂是诺和诺德全球战略性生产基地之一，面向中国及其他国家供应注射器械及制剂成品，生产过程严格遵循国际最高监管标准和质量体系。
 
-” 他强调尊重美联储的独立性，并对凯文・沃什表示赞赏。
+此次追加投资涉及的畅充装置是该公司研发的一项重要创新，具备针头细小、注射阻力低、剂量显示清晰及注射完成提示音等特点，采用预填充便携设计，有助于改善患者用药体验和治疗依从性。
 
-沃什于上周五宣誓就任美联储主席；特朗普称希望他“完全独立”“按自己的判断行事”。
+自1994年进入中国市场以来，诺和诺德已形成以北京为研发引擎、天津为生产引擎、上海为商业运营和创新引擎的布局。
 
-伊朗封锁霍尔木兹海峡导致美国燃油价格飙升，这对特朗普及其共和党在11月中期选举中的政治风险日益上升。
+自2003年至今，该企业在华累计投资超过170亿元。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 07:07 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 07:08 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 07:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 07:06 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 07:31 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 07:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 07:09 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 07:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 07:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 07:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 07:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 07:39 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 07:36 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 07:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 07:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 07:16 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 07:20 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 07:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 07:15 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:40 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 07:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 07:13 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/4378331899.shtml)
-- 2026-06-30 07:31 - [我和我的家乡](https://www.blog.minike.top/Article/details/4176566.shtml)
-- 2026-06-30 07:19 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/800265520.shtml)
-- 2026-06-30 07:25 - [日本反击率先破门](https://www.share.minike.top/Article/details/57238095475.shtml)
-- 2026-06-30 07:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/092859422.shtml)
-- 2026-06-30 07:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/07585.shtml)
-- 2026-06-30 07:33 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/5822767971.shtml)
-- 2026-06-30 07:13 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/56409.shtml)
-- 2026-06-30 07:27 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/21900009.shtml)
-- 2026-06-30 07:17 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/85045096039.shtml)
-- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/99350631.shtml)
-- 2026-06-30 07:22 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/32595936354.shtml)
-- 2026-06-30 07:19 - [点菜也要教吗](http://www.share.minike.top/Article/details/4447327962.shtml)
-- 2026-06-30 07:09 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/47453334.shtml)
-- 2026-06-30 07:25 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/064014330457.shtml)
+- 2026-06-30 07:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/516119458.shtml)
+- 2026-06-30 07:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/01919.shtml)
+- 2026-06-30 07:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/552306221312.shtml)
+- 2026-06-30 07:34 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/052981.shtml)
+- 2026-06-30 07:28 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/790413.shtml)
+- 2026-06-30 07:15 - [流金岁月](http://www.blog.minike.top/Article/details/324946302316.shtml)
+- 2026-06-30 07:28 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/92610093218.shtml)
+- 2026-06-30 07:15 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/294528199.shtml)
+- 2026-06-30 07:12 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/911883538.shtml)
+- 2026-06-30 07:41 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/92093.shtml)
+- 2026-06-30 07:32 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/177120577.shtml)
+- 2026-06-30 07:25 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/50308776.shtml)
+- 2026-06-30 07:19 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/74204562993.shtml)
+- 2026-06-30 07:40 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/670867.shtml)
+- 2026-06-30 07:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/06801378.shtml)

@@ -1,48 +1,57 @@
-# 2026年1-4月我国企业在共建“一带一路”国家非金融类直接投资855.5亿元
+# 前5个月铁路客货运量多项指标创新高
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网5月26日电 据商务部网站消息，2026年1-4月，我国企业在共建“一带一路”国家非金融类直接投资855.5亿元人民币，同比下降7%(以美元计为123.5亿美元，下降3.6%)。 对外承包工程方面，我国企业在共建“一带一路”国家新签承包工程合同额4973亿元人民币，同比增长6.8%(以美元计为717.9亿美元，增长10.7%)；完成营业额3187.2亿元人民币，增长16%
+央视网消息(新闻联播)：记者从国铁集团获悉，今年1至5月，铁路客货运量稳步增长，多项指标均创历史新高。 今年前5个月，受元旦、春节、清明及“五一”等假期带动，铁路客流量大幅增长，全国铁路累计发送旅客19.69亿人次。其中，5月1日当天发送旅客2484.4万人次，客流总量和单日旅客发送量均创历史新高。 多部门联合推动铁旅融合发展，激发境内及跨境旅游市场活力。前5个月，全国铁路发送
 
 ## 正文
 
-中新网5月26日电 据商务部网站消息，2026年1-4月，我国企业在共建“一带一路”国家非金融类直接投资855.5亿元人民币，同比下降7%(以美元计为123.5亿美元，下降3.6%)。
+央视网消息(新闻联播)：记者从国铁集团获悉，今年1至5月，铁路客货运量稳步增长，多项指标均创历史新高。
 
-对外承包工程方面，我国企业在共建“一带一路”国家新签承包工程合同额4973亿元人民币，同比增长6.8%(以美元计为717.9亿美元，增长10.7%)；完成营业额3187.2亿元人民币，增长16%(以美元计为460.1亿美元，增长20.3%)。
+今年前5个月，受元旦、春节、清明及“五一”等假期带动，铁路客流量大幅增长，全国铁路累计发送旅客19.69亿人次。
+
+其中，5月1日当天发送旅客2484.4万人次，客流总量和单日旅客发送量均创历史新高。
+
+多部门联合推动铁旅融合发展，激发境内及跨境旅游市场活力。
+
+前5个月，全国铁路发送外籍旅客1002.4万人次，同比增长35.5%。
+
+5月份以来，中老铁路跨境列车趟趟爆满。
+
+前5个月，全国铁路累计开行旅游列车1400列，比去年同期增加770列，有效服务旅游经济发展。
+
+前5个月，国家铁路累计发送货物16.7亿吨，日均装车数量同比增长2.8%。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 07:34 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 07:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 07:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 07:16 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 07:08 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:25 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 07:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 07:09 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 07:14 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:08 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 07:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 07:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 07:10 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 07:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 07:27 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 07:18 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 07:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 07:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 07:22 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 07:22 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 07:18 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:31 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 07:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 07:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/73744.shtml)
-- 2026-06-30 07:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/939528545977.shtml)
-- 2026-06-30 07:21 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/0757369.shtml)
-- 2026-06-30 07:32 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/777141.shtml)
-- 2026-06-30 07:06 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/7327904.shtml)
-- 2026-06-30 07:26 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/50930557.shtml)
-- 2026-06-30 07:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/1556593.shtml)
-- 2026-06-30 07:32 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/446932661.shtml)
-- 2026-06-30 07:31 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/95846972463.shtml)
-- 2026-06-30 07:22 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/957146826.shtml)
-- 2026-06-30 07:18 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5445830913.shtml)
-- 2026-06-30 07:29 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/8211082.shtml)
-- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3214151.shtml)
-- 2026-06-30 07:06 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/8258419159.shtml)
-- 2026-06-30 07:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/03661.shtml)
+- 2026-06-30 07:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/8104387164.shtml)
+- 2026-06-30 07:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/824113417.shtml)
+- 2026-06-30 07:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/7810503.shtml)
+- 2026-06-30 07:33 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/02493.shtml)
+- 2026-06-30 07:15 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/9144751092.shtml)
+- 2026-06-30 07:25 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/672429777694.shtml)
+- 2026-06-30 07:15 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/15728742218.shtml)
+- 2026-06-30 07:34 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/3414335.shtml)
+- 2026-06-30 07:13 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/71475071.shtml)
+- 2026-06-30 07:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2402324.shtml)
+- 2026-06-30 07:15 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/327260990866.shtml)
+- 2026-06-30 07:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/530679229.shtml)
+- 2026-06-30 07:35 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/204967389.shtml)
+- 2026-06-30 07:23 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/6143673.shtml)
+- 2026-06-30 07:25 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/29738922.shtml)

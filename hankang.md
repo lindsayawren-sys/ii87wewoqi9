@@ -1,60 +1,57 @@
-# 美债收益率“假摔”还是“真跌”？地缘缓和 vs 结构性压力
+# 荔枝“小年”如何破局？广东茂名，“荔”挽狂澜！
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周二（5月26日），受美伊谈判进展提振风险偏好，美债收益率全线回落。10年期美债收益率下跌近5个基点至4.507%，30年期美债收益率下跌约3个基点至5.033%。 然而，上周市场刚经历了一场极致的加息重定价——30年期美债收益率一度触及5.2%，为2007年以来最高；10年期一度逼近4.7%。2年期美债收益率仍稳定在4.1%上方，远高于美联储3.50%-3
+今年全国荔枝预计产量约231万吨，较去年减产约37%，广东是全国荔枝种植第一大省，产量缩减近四成。其中，“桂味”“糯米糍”等品种受“大小年”现象叠加暖冬影响，产能仅为去年的5%左右，产地价格上涨约4倍，零售价较去年上涨5倍以上。记者走访广东深圳、茂名等地了解到，减产导致部分品种货源紧缺，销售期缩短，而“妃子笑”“白糖罂”等早熟品种受影响较小，价格相对平稳。 荔枝“小年”部分品种
 
 ## 正文
 
-汇通财经APP讯——周二（5月26日），受美伊谈判进展提振风险偏好，美债收益率全线回落。
+今年全国荔枝预计产量约231万吨，较去年减产约37%，广东是全国荔枝种植第一大省，产量缩减近四成。
 
-10年期美债收益率下跌近5个基点至4.507%，30年期美债收益率下跌约3个基点至5.033%。
+其中，“桂味”“糯米糍”等品种受“大小年”现象叠加暖冬影响，产能仅为去年的5%左右，产地价格上涨约4倍，零售价较去年上涨5倍以上。
 
-然而，上周市场刚经历了一场极致的加息重定价——30年期美债收益率一度触及5.2%，为2007年以来最高；10年期一度逼近4.7%。
+记者走访广东深圳、茂名等地了解到，减产导致部分品种货源紧缺，销售期缩短，而“妃子笑”“白糖罂”等早熟品种受影响较小，价格相对平稳。
 
-2年期美债收益率仍稳定在4.1%上方，远高于美联储3.50%-3.75%目标区间的上沿，表明市场仍在对加息进行定价。
+荔枝“小年”部分品种减产 有单无货、价格上浮 广东深圳的西丽果场是当地知名的传统荔枝种植园。
 
-债券义警“威胁”：若美联储不收紧，他们将代劳 Yardeni Research的埃德·亚德尼警告称，“债券义警”正在集结：如果美联储不主动收紧信贷条件，他们将通过抛售债券推高收益率来“维持经济秩序”。
+往年6月中旬，山头上早已挤满了前来采摘的消费者，但今年枝头挂果稀少，果园里比较安静。
 
-亚德尼预测，新任主席沃什可能被迫在7月加息以建立市场信誉，若对通胀信号反应迟缓，可能引发更大市场动荡。
+果场负责人介绍，这就是典型的荔枝“大小年”现象。
 
-但他也提出“沃什悖论”——沃什上任初期采取鹰派立场反而可能通过抑制长端收益率，意外降低抵押贷款利率、减轻企业融资压力，从而成就白宫的经济目标。
+大年超负荷挂果，大量消耗树体养分，下一年自然进入恢复期，就会出现花少、果少的小年局面。
 
-摩根大通CEO杰米·戴蒙的警告更为直接。
+2025年是达到历史峰值的荔枝大年，再叠加暖冬气温偏高，不利于果树开花，今年“桂味”“糯米糍”等荔枝品种挂果偏少。
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:20 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 07:08 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 07:31 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 07:32 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:34 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 07:07 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 07:33 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 07:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 07:07 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 07:28 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 07:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 07:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 07:13 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 07:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 07:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 07:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:29 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 07:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 07:12 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 07:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 07:19 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 07:39 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 07:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 07:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/83531898852.shtml)
-- 2026-06-30 07:06 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/243777569902.shtml)
-- 2026-06-30 07:16 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/901612368664.shtml)
-- 2026-06-30 07:10 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/19433221784.shtml)
-- 2026-06-30 07:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/198130.shtml)
-- 2026-06-30 07:24 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/945838.shtml)
-- 2026-06-30 07:13 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/22008784965.shtml)
-- 2026-06-30 07:29 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/57428605.shtml)
-- 2026-06-30 07:31 - [极限挑战第一季](https://www.share.minike.top/Article/details/4754125.shtml)
-- 2026-06-30 07:11 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/38166.shtml)
-- 2026-06-30 07:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/63376.shtml)
-- 2026-06-30 07:23 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/687230958007.shtml)
-- 2026-06-30 07:09 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/48058.shtml)
-- 2026-06-30 07:10 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/38234.shtml)
-- 2026-06-30 07:23 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/06136.shtml)
+- 2026-06-30 07:32 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/611655040567.shtml)
+- 2026-06-30 07:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/3231295.shtml)
+- 2026-06-30 07:30 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/591281866883.shtml)
+- 2026-06-30 07:39 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/95118762183.shtml)
+- 2026-06-30 07:41 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/217646927.shtml)
+- 2026-06-30 07:35 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/5695568227.shtml)
+- 2026-06-30 07:35 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/693153365167.shtml)
+- 2026-06-30 07:16 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/45257174877.shtml)
+- 2026-06-30 07:15 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/7257686074.shtml)
+- 2026-06-30 07:24 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/03980201944.shtml)
+- 2026-06-30 07:34 - [日本淘汰](https://www.share.minike.top/Article/details/0981025.shtml)
+- 2026-06-30 07:21 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/2819085.shtml)
+- 2026-06-30 07:32 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/4374075485.shtml)
+- 2026-06-30 07:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/166184524.shtml)
+- 2026-06-30 07:38 - [绘画区你赢了](https://www.blog.minike.top/Article/details/2611767.shtml)

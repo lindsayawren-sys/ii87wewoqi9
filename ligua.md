@@ -1,60 +1,59 @@
-# 清退类固收产品？宜人智科紧急回应
+# 601696，2连涨停！超50万手买单封板！券商股，突然全线拉升！
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-近期，市场出现关于“头部助贷机构良性清退类固收产品”的相关讨论，5月25日，宜人智科就此发布声明称：公司作为独立运营的上市公司主体，与其他业务板块分属独立的业务体系，运营管理完全隔离，彼此经营独立、互不影响。宜人智科未开展任何财富管理类相关业务。 近日，市场有消息称，宜人智科母公司宜信正对旗下类固收产品进行“良性清退”。截至5月22日美东时间收盘，宜人智科（YRD.N）股价大跌
+专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日，A股三大指数集体高开。 盘面上，贵金属、航空机场、航运港口、有色金属、元件、半导体等板块开盘活跃；煤炭、石油石化、银行、房地产开发、旅游景区等板块开盘走低。 券商股拉升，中银证券（601696）涨停走出2连板、超50万手买单封死涨停，华安证券触及涨停，
 
 ## 正文
 
-近期，市场出现关于“头部助贷机构良性清退类固收产品”的相关讨论，5月25日，宜人智科就此发布声明称：公司作为独立运营的上市公司主体，与其他业务板块分属独立的业务体系，运营管理完全隔离，彼此经营独立、互不影响。
+专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-宜人智科未开展任何财富管理类相关业务。
+6月15日，A股三大指数集体高开。
 
-近日，市场有消息称，宜人智科母公司宜信正对旗下类固收产品进行“良性清退”。
+盘面上，贵金属、航空机场、航运港口、有色金属、元件、半导体等板块开盘活跃；煤炭、石油石化、银行、房地产开发、旅游景区等板块开盘走低。
 
-截至5月22日美东时间收盘，宜人智科（YRD.N）股价大跌14.44%，收于1.6美元，市值1.4亿美元。
+券商股拉升，中银证券（601696）涨停走出2连板、超50万手买单封死涨停，华安证券触及涨停，长江证券、财达证券、广发证券、国金证券跟涨。
 
-5月25日，中国证券报·中证金牛座记者以媒体身份致电宜信客服采访产品清退相关问题，截至发稿前未获得有效反馈信息。
+上交所披露数据显示，2026年5月A股新开户数为276.53万户，同比增长77.76%，环比增长11%。
 
-据了解，宜信成立于2006年，总部设立在北京，业务覆盖普惠金融、财富管理等板块，旗下拥有美股上市公司宜人智科与非上市的宜信财富等主体。
+港股方面，恒生指数和恒生科技指数飘红。
 
-宜人智科，原名宜人金科，自2024年6月，品牌升级为为宜人智科，其前身为宜人贷，于2015年12月18日登陆纽约证券交易所。
+截至发稿，智谱涨逾40%，建滔积层板、紫金矿业涨超7%，腾讯控股、泡泡玛特、小米集团等涨超1%。
 
-责任编辑：秦艺
+铜箔概念走强 盘初，铜箔概念走强，逸豪新材“20cm”2连板，方邦股份、铜冠铜箔、泰金新能、德福科技等涨幅靠前。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:23 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 07:24 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 07:10 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 07:32 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 07:15 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 07:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 07:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 07:13 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 07:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 07:16 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 07:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 07:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 07:12 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 07:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 07:35 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 07:27 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 07:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 07:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 07:16 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 07:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 07:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 07:32 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:24 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 07:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 07:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/979575523.shtml)
-- 2026-06-30 07:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/9966989837.shtml)
-- 2026-06-30 07:26 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/4964223.shtml)
-- 2026-06-30 07:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/75212.shtml)
-- 2026-06-30 07:09 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/11931892504.shtml)
-- 2026-06-30 07:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/2664366.shtml)
-- 2026-06-30 07:24 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/31556404814.shtml)
-- 2026-06-30 07:25 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/5489873326.shtml)
-- 2026-06-30 07:07 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/9989504.shtml)
-- 2026-06-30 07:30 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/682771.shtml)
-- 2026-06-30 07:25 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/82669.shtml)
-- 2026-06-30 07:23 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/368336709635.shtml)
-- 2026-06-30 07:24 - [齐思钧回复张月](http://www.blog.minike.top/Article/details/33909.shtml)
-- 2026-06-30 07:22 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/26082.shtml)
-- 2026-06-30 07:08 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/434819835405.shtml)
+- 2026-06-30 07:22 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/59730893.shtml)
+- 2026-06-30 07:29 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/27320999.shtml)
+- 2026-06-30 07:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/99340.shtml)
+- 2026-06-30 07:28 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/09576913836.shtml)
+- 2026-06-30 07:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/165747938.shtml)
+- 2026-06-30 07:15 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/88424297.shtml)
+- 2026-06-30 07:15 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/70036140.shtml)
+- 2026-06-30 07:28 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/823967.shtml)
+- 2026-06-30 07:14 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/21543814270.shtml)
+- 2026-06-30 07:31 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/54843278.shtml)
+- 2026-06-30 07:39 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/28962.shtml)
+- 2026-06-30 07:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/624032731.shtml)
+- 2026-06-30 07:30 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/994878.shtml)
+- 2026-06-30 07:37 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/680747148700.shtml)
+- 2026-06-30 07:34 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/4814595.shtml)

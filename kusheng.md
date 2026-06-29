@@ -1,57 +1,43 @@
-# AI如何赋能基金投研？华泰柏瑞基金“一司一省一高校”走进百年南开
+# 新疆天山南北进入夏季牲畜转场高峰期
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-当AI从概念走向生产力，基金行业的“人机协同”时代已经到来。从海量信息的自动处理，到财报与纪要的智能摘要，再到行业数据的实时跟踪——人工智能正在悄然重塑基金投研的工作方式。未来的基金从业者应如何与AI共处？这也是广大学子的共同关切。 2026年5月21日，由中国证券投资基金业协会指导，华泰柏瑞基金联袂南开大学商学院等机构联合主办的“一司一省一高校”投教暨反诈防非专项活动正式走进
+发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-当AI从概念走向生产力，基金行业的“人机协同”时代已经到来。
-
-从海量信息的自动处理，到财报与纪要的智能摘要，再到行业数据的实时跟踪——人工智能正在悄然重塑基金投研的工作方式。
-
-未来的基金从业者应如何与AI共处？
-
-这也是广大学子的共同关切。
-
-2026年5月21日，由中国证券投资基金业协会指导，华泰柏瑞基金联袂南开大学商学院等机构联合主办的“一司一省一高校”投教暨反诈防非专项活动正式走进百年南开。
-
-活动以“告白青春·投资未来”为主题，围绕AI如何赋能投资研究展开深度交流，以专业视角为青年学子带来前沿的AI赋能投研分享。
-
-作为主动拥抱科技变革的先行者，华泰柏瑞基金正将AI深度融入投资研究的每一个环节。
-
-活动当日，华泰柏瑞基金研究员曾懿之作为主讲嘉宾，以《人工智能如何赋能未来投资研究》为主题，向在场学子深入剖析了AI技术如何重塑传统投研范式，全面展示了人工智能在主动投研领域的落地实践。
+发布时间：2026年06月15日 16:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 07:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 07:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 07:27 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 07:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 07:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 07:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 07:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 07:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:21 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 07:16 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 07:15 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 07:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 07:28 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 07:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 07:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 07:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 07:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 07:39 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 07:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:15 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/898608168.shtml)
-- 2026-06-30 07:15 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/45698.shtml)
-- 2026-06-30 07:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/54618345584.shtml)
-- 2026-06-30 07:35 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/39666717.shtml)
-- 2026-06-30 07:32 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/72177.shtml)
-- 2026-06-30 07:19 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/183798842545.shtml)
-- 2026-06-30 07:28 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/210687305097.shtml)
-- 2026-06-30 07:21 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/160143901306.shtml)
-- 2026-06-30 07:09 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/83333663.shtml)
-- 2026-06-30 07:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/312042110505.shtml)
-- 2026-06-30 07:13 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/2975382.shtml)
-- 2026-06-30 07:20 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/721456.shtml)
-- 2026-06-30 07:13 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/007575163234.shtml)
-- 2026-06-30 07:22 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/478118978808.shtml)
-- 2026-06-30 07:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/182061.shtml)
+- 2026-06-30 07:39 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/48663.shtml)
+- 2026-06-30 07:21 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/61773341994.shtml)
+- 2026-06-30 07:38 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/275037355015.shtml)
+- 2026-06-30 07:21 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/80902.shtml)
+- 2026-06-30 07:28 - [日本进球](http://www.blog.kurohicncr.top/Article/details/0837219853.shtml)
+- 2026-06-30 07:20 - [刘念回应](https://www.blog.minike.top/Article/details/154987773.shtml)
+- 2026-06-30 07:34 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/0894423.shtml)
+- 2026-06-30 07:28 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/32883221973.shtml)
+- 2026-06-30 07:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/50842374356.shtml)
+- 2026-06-30 07:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/69033962394.shtml)
+- 2026-06-30 07:16 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/781807.shtml)
+- 2026-06-30 07:32 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/318789081705.shtml)
+- 2026-06-30 07:12 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/52210424.shtml)
+- 2026-06-30 07:34 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/8552922.shtml)
+- 2026-06-30 07:35 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/93705046945.shtml)

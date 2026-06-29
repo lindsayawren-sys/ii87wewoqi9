@@ -1,56 +1,49 @@
-# 评论：救灾中坚守的基层干部，不该被一副耳环“定义”
+# 上海：截至一季度末科技创新和技术改造贷款签约金额1490亿元
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月25日电 (记者 刘双双 杨华峰)连日来，湖南石门县遭遇强降雨，超10万人受灾，引发社会各界高度关注。在断路断网、物资紧缺的救灾一线，石门县壶瓶山镇龙池河村党支部书记向金元因一对普通金耳环，被部分网友盯上，发出“2两黄金应该摘了拍”“金耳环捐了就更加感动了”等质疑。“没时间(上网)，我的工作(时间)现在是24小时都不够(用)。我不会去理会那些(评论)。我觉得我实实
+6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。 会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信
 
 ## 正文
 
-中新网长沙5月25日电 (记者 刘双双 杨华峰)连日来，湖南石门县遭遇强降雨，超10万人受灾，引发社会各界高度关注。
+6月15日金融一线消息，近日，人民银行上海总部、市发展改革委、市财政局、市经济信息化委、市科委、市住房城乡建设管理委、市交通委、市农业农村委、市水务局、市应急管理局、市国资委等十一部门联合召开上海市科技创新和技术改造贷款工作推进会。
 
-在断路断网、物资紧缺的救灾一线，石门县壶瓶山镇龙池河村党支部书记向金元因一对普通金耳环，被部分网友盯上，发出“2两黄金应该摘了拍”“金耳环捐了就更加感动了”等质疑。
+会议指出，自科技创新和技术改造再贷款政策实施以来，人民银行上海总部与上海市相关部门紧密合作，引导在沪金融机构加强名单内企业和项目的融资对接，推动信贷落地投放，政策实施取得阶段性成效。
 
-“没时间(上网)，我的工作(时间)现在是24小时都不够(用)。
+截至2026年一季度末，上海市科技创新和技术改造贷款签约金额1490亿元，贷款余额676亿元，较上年同期翻了一番。
 
-我不会去理会那些(评论)。
-
-我觉得我实实在在地去做了，只要我的老百姓肯定我，我的老百姓认同我就可以了。
-
-”面对争议，向金元25日接受中新网记者采访时坦然而笃定。
-
-事实上，从5月17日晚接到指令起，向金元便扎在村里，扛着900多人的安危，没日没夜地奔波。
-
-“电也没有，网也没有，看到村部设施成了这个样子，眼泪止不住。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 07:10 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 07:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 07:15 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 07:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 07:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 07:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 07:10 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 07:30 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 07:28 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 07:39 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 07:25 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 07:24 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 07:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 07:41 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 07:28 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 07:19 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 07:35 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 07:21 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 07:28 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/988081097.shtml)
-- 2026-06-30 07:26 - [送你一朵小红花](https://www.share.minike.top/Article/details/579840335.shtml)
-- 2026-06-30 07:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/96217.shtml)
-- 2026-06-30 07:18 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/88495906.shtml)
-- 2026-06-30 07:10 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/9511762271.shtml)
-- 2026-06-30 07:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/526716735.shtml)
-- 2026-06-30 07:12 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/926016945671.shtml)
-- 2026-06-30 07:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/0782845441.shtml)
-- 2026-06-30 07:28 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/27535462.shtml)
-- 2026-06-30 07:33 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/03770140169.shtml)
-- 2026-06-30 07:32 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/158730195.shtml)
-- 2026-06-30 07:25 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/302325348343.shtml)
-- 2026-06-30 07:29 - [明星大侦探第一季](http://www.share.minike.top/Article/details/402464.shtml)
-- 2026-06-30 07:22 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/044950973.shtml)
-- 2026-06-30 07:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/69156.shtml)
+- 2026-06-30 07:19 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/0528836.shtml)
+- 2026-06-30 07:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/50347526418.shtml)
+- 2026-06-30 07:33 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/454729049.shtml)
+- 2026-06-30 07:25 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/2797447.shtml)
+- 2026-06-30 07:20 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/301255203677.shtml)
+- 2026-06-30 07:38 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/15808310779.shtml)
+- 2026-06-30 07:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/01262266600.shtml)
+- 2026-06-30 07:21 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/425868220.shtml)
+- 2026-06-30 07:14 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/15900330.shtml)
+- 2026-06-30 07:28 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/275877285.shtml)
+- 2026-06-30 07:26 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/108412663.shtml)
+- 2026-06-30 07:19 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/37492381958.shtml)
+- 2026-06-30 07:41 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/92425011923.shtml)
+- 2026-06-30 07:35 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/51267.shtml)
+- 2026-06-30 07:20 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/00540.shtml)

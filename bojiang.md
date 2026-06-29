@@ -1,60 +1,57 @@
-# 广药白云山：李小军首份成绩单即面临四季度亏损、现金难覆短债，200亿应收款高悬，国际化成色不足
+# （乡村行·看振兴）福建宁化：小箬叶激活林下经济 粽叶飘香“钱”景可期
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-来源：九号观察 作者 | 跳跳 2026年4月底，广州白云山医药集团股份有限公司（600332.SH，以下简称“白云山”）同时发布了2025年年报与2026年一季报。这也是李小军2025年初出任白云山董事长以来交出的第一份成绩单。 从表面看，这家南派中药巨头依然维持着增长态势：2025年全年营收同比增长3.55%，归母净利润同比增长5.21%。然而，细看这份看似稳健的财报，暴露
+中新网福建宁化6月16日电 (雷露微 陈玉婕)夏日时节，福建省宁化县安远镇箬竹林，箬竹长势喜人，箬叶(粽叶)繁茂。清晨，村民走进林间，挑选叶片宽厚、品相完好的鲜叶，熟练采摘、整齐叠放。采摘粽叶门槛低、不与农时冲突，已成为当地群众增收的重要渠道。 宁化县是南方重点林区县，气候温润，林下土质肥沃疏松，非常适宜箬竹生长，安远、水茜、河龙等北部山区乡镇野生箬竹储量最为集中。本地箬叶叶片
 
 ## 正文
 
-来源：九号观察 作者 | 跳跳 2026年4月底，广州白云山医药集团股份有限公司（600332.SH，以下简称“白云山”）同时发布了2025年年报与2026年一季报。
+中新网福建宁化6月16日电 (雷露微 陈玉婕)夏日时节，福建省宁化县安远镇箬竹林，箬竹长势喜人，箬叶(粽叶)繁茂。
 
-这也是李小军2025年初出任白云山董事长以来交出的第一份成绩单。
+清晨，村民走进林间，挑选叶片宽厚、品相完好的鲜叶，熟练采摘、整齐叠放。
 
-从表面看，这家南派中药巨头依然维持着增长态势：2025年全年营收同比增长3.55%，归母净利润同比增长5.21%。
+采摘粽叶门槛低、不与农时冲突，已成为当地群众增收的重要渠道。
 
-然而，细看这份看似稳健的财报，暴露出的却是另一番景象：连续两年出现第四季度亏损且亏损额度扩大、核心高毛利业务全线萎缩、经营现金流出现大额净流出、短期债务激增以致在手现金无法覆盖的窘境，这些“扎心”的事实正在戳破白云山“规模增长”的泡沫。
+宁化县是南方重点林区县，气候温润，林下土质肥沃疏松，非常适宜箬竹生长，安远、水茜、河龙等北部山区乡镇野生箬竹储量最为集中。
 
-李小军董事长面临的恐怕还不止于眼下的困难，这不再是简单的业绩波动，而是由运营效率不佳与债务结构失衡共同造成的困局，在业务层面的一些问题恐怕还要影响一阵子。
+本地箬叶叶片宽大、质地柔韧、清香耐煮，品质优势突出，市场认可度高。
 
-1 盈利“虚胖”：净利润增长靠“抠”和“投”， 连续两年四季度亏损 2025年，在新任董事长李小军的领导下，白云山实现营业收入776.56亿元，归母净利润29.83亿元，同比增长5.21%。
+自20世纪90年代起，安远镇逐步形成成熟的粽叶收购、外销流通体系，培育了一批本地购销商户，区域性集散市场日趋稳定。
 
-然而，这一增长并没有看起来那么坚实。
+目前，安远镇年箬叶交易量60多万公斤，为当地群众带来稳定的经济收益。
 
-从季度来看，白云山的盈利的季度分布极不健康。
+每年农历四月至七月是箬叶采收旺季。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 07:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 07:18 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 07:08 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 07:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 07:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 07:23 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 07:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 07:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 07:30 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 07:14 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 07:22 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 07:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 07:16 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 07:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 07:20 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 07:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 07:29 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 07:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 07:37 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 07:29 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 07:34 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 07:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:07 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/212049067.shtml)
-- 2026-06-30 07:27 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/795994.shtml)
-- 2026-06-30 07:17 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/304792581.shtml)
-- 2026-06-30 07:27 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/33526358.shtml)
-- 2026-06-30 07:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/043264565.shtml)
-- 2026-06-30 07:25 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/4775715096.shtml)
-- 2026-06-30 07:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/29268115.shtml)
-- 2026-06-30 07:12 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/8303304.shtml)
-- 2026-06-30 07:30 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/32739.shtml)
-- 2026-06-30 07:20 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/75826344.shtml)
-- 2026-06-30 07:12 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/15375748.shtml)
-- 2026-06-30 07:09 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/93523282.shtml)
-- 2026-06-30 07:18 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/267904805940.shtml)
-- 2026-06-30 07:22 - [扫黑风暴](http://www.blog.minike.top/Article/details/00818197.shtml)
-- 2026-06-30 07:14 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/928729335.shtml)
+- 2026-06-30 07:24 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/58639372.shtml)
+- 2026-06-30 07:34 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/9905209.shtml)
+- 2026-06-30 07:15 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/679290561.shtml)
+- 2026-06-30 07:39 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/37524078.shtml)
+- 2026-06-30 07:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/123501571.shtml)
+- 2026-06-30 07:24 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/559836.shtml)
+- 2026-06-30 07:35 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/69385694.shtml)
+- 2026-06-30 07:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/65948.shtml)
+- 2026-06-30 07:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/15369650.shtml)
+- 2026-06-30 07:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/14543636483.shtml)
+- 2026-06-30 07:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/4517238117.shtml)
+- 2026-06-30 07:33 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/744713107.shtml)
+- 2026-06-30 07:32 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/177794397042.shtml)
+- 2026-06-30 07:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/254054153296.shtml)
+- 2026-06-30 07:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/9574465947.shtml)

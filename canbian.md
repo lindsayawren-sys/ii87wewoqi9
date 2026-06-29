@@ -1,58 +1,61 @@
-# 高油价冲击持续，美伊框架协议“达成95%”，特朗普：进展顺利
+# 鲍师傅9.9元标价暗藏玄机，消费前“瞄一眼”帮你避开这些坑
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-美伊可能达成的框架协议正牵动全球资本市场的神经。 “与伊朗的谈判进展顺利！”美国总统特朗普25日在社交媒体上发文这样形容美伊谈判进展。他还说，如果达不成协议，“那就回到前线，回到交火状态，但规模会比以往更大”。 据新华社援引福克斯新闻频道24日报道，一名美国官员透露，这份事关地缘政治大变局的协议目前“已达成95%”，双方在伊朗“核储备”和霍尔木兹海峡问题上达成协议，目前正在就“
+近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。 这种“大价小字”的标价方式，并非鲍师傅一家独有。从零食连锁店到生鲜超市
 
 ## 正文
 
-美伊可能达成的框架协议正牵动全球资本市场的神经。
+近日，网红糕点品牌鲍师傅因“小字标价”问题被推上舆论风口。
 
-“与伊朗的谈判进展顺利！
+不少消费者反映，店内的蛋挞标注“9.9元”，实际仅为单个售价，而货架上常规一盒摆放两个，整盒购买需支付近20元；奶油号角标价11.5元，结账时才发现只是单根的价格。
 
-”美国总统特朗普25日在社交媒体上发文这样形容美伊谈判进展。
+品牌将单品价格用大号字体突出展示，计价单位却用极小字体标注，被网友戏称为“标价刺客”。
 
-他还说，如果达不成协议，“那就回到前线，回到交火状态，但规模会比以往更大”。
+这种“大价小字”的标价方式，并非鲍师傅一家独有。
 
-据新华社援引福克斯新闻频道24日报道，一名美国官员透露，这份事关地缘政治大变局的协议目前“已达成95%”，双方在伊朗“核储备”和霍尔木兹海峡问题上达成协议，目前正在就“措辞”进行磋商。
+从零食连锁店到生鲜超市，从餐饮门店到线上电商，“价格误导”已经成为消费场景中最常见的套路之一。
 
-尽管伊朗外交部发言人巴加埃随后表示，“这并不意味着即将签署协议”，伊朗总统佩泽希齐扬25日也表示，伊朗不会屈服于外部压力和“过分要求”，但资本市场已率先反应，7月交货的纽约轻质原油与伦敦布伦特原油期货价格双双下跌超过5%。
+消费者在快速决策时，往往只注意到醒目的数字，而忽略了旁边被刻意弱化的计量单位。
 
-全球经济分析公司BCA Research策略师马语书在接受第一财经记者专访时称，中东局势已成为影响当前美国政府多方面决策的一个关键变量。
+除了价格误导，生活中还有哪些常见的消费陷阱？
 
-在他看来，地缘政治冲突对美国国内宏观经济造成了长期的结构性通胀压力，如果局势的持续时间超出市场预期，那么作为执政党的共和党在中期选举选票端面临的逆风和选民反弹将会放大。
+一是“先涨后降”。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 07:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 07:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 07:07 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 07:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 07:28 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 07:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 07:16 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:30 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 07:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:32 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:20 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 07:36 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 07:23 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 07:34 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:40 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:22 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 07:17 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 07:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 07:12 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 07:12 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 07:22 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:37 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 07:38 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/5642426.shtml)
-- 2026-06-30 07:26 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/617673000240.shtml)
-- 2026-06-30 07:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/585034.shtml)
-- 2026-06-30 07:17 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/36342.shtml)
-- 2026-06-30 07:12 - [爱很美味](http://www.share.kurohicncr.top/Article/details/79750848.shtml)
-- 2026-06-30 07:16 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/548723.shtml)
-- 2026-06-30 07:10 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/69874400633.shtml)
-- 2026-06-30 07:11 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/355502.shtml)
-- 2026-06-30 07:21 - [急先锋](http://www.blog.kurohicncr.top/Article/details/270467637.shtml)
-- 2026-06-30 07:35 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/28055474637.shtml)
-- 2026-06-30 07:31 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/62418.shtml)
-- 2026-06-30 07:06 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/118606126173.shtml)
-- 2026-06-30 07:24 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/95403.shtml)
-- 2026-06-30 07:21 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/5415633716.shtml)
-- 2026-06-30 07:15 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/6308395.shtml)
+- 2026-06-30 07:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/96257.shtml)
+- 2026-06-30 07:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/91889386.shtml)
+- 2026-06-30 07:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/3848878864.shtml)
+- 2026-06-30 07:22 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/29023.shtml)
+- 2026-06-30 07:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/7721605753.shtml)
+- 2026-06-30 07:21 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/70085095240.shtml)
+- 2026-06-30 07:18 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/398087423.shtml)
+- 2026-06-30 07:20 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2073136045.shtml)
+- 2026-06-30 07:40 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/8581544.shtml)
+- 2026-06-30 07:36 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/872775961422.shtml)
+- 2026-06-30 07:15 - [我们的少年时代2](https://www.share.minike.top/Article/details/08784407.shtml)
+- 2026-06-30 07:38 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/62029659890.shtml)
+- 2026-06-30 07:15 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/765572.shtml)
+- 2026-06-30 07:21 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/732983033.shtml)
+- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/431936.shtml)

@@ -1,58 +1,48 @@
-# 中芯国际龙虎榜数据（5月25日）
+# 高盛：颐海国际目标价微降至19港元 维持“买入”评级
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-5月25日中芯国际（688981）收盘价156.00元，收盘上涨18.78%，全天换手率12.61%，振幅15.88%，成交额372.54亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交61.46亿元， 其中，买入成交额为36.29亿元，卖出成交额为25.17亿元，合计净买入11.12亿元。具体来看，今
+高盛发布研报称，颐海国际（01579）近期股价回调13%，相信是由于市场对原材料成本及非经营性项目波动过份担忧，强调公司基本面实力及增长可见性依然稳健，今年首五个月第三方业务维持强劲双位数增长，维持该股“买入”评级，目标价则由19.1港元微降至19港元。 该行预期颐海国际2026年全年核心经营溢利将增长17%，计及政府补贴减少及人民币升值带来的汇兑损失后，全年净利润预计同比增长
 
 ## 正文
 
-5月25日中芯国际（688981）收盘价156.00元，收盘上涨18.78%，全天换手率12.61%，振幅15.88%，成交额372.54亿元。
+高盛发布研报称，颐海国际（01579）近期股价回调13%，相信是由于市场对原材料成本及非经营性项目波动过份担忧，强调公司基本面实力及增长可见性依然稳健，今年首五个月第三方业务维持强劲双位数增长，维持该股“买入”评级，目标价则由19.1港元微降至19港元。
 
-科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
+该行预期颐海国际2026年全年核心经营溢利将增长17%，计及政府补贴减少及人民币升值带来的汇兑损失后，全年净利润预计同比增长10%至9.43亿元人民币。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交61.46亿元， 其中，买入成交额为36.29亿元，卖出成交额为25.17亿元，合计净买入11.12亿元。
-
-具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买二，买入金额分别为68086.48万元，营业部合计买入29.48亿元。
-
-卖出营业部中，卖出金额居首的是瑞银证券有限责任公司上海花园石桥路证券营业部，卖出金额为88201.64万元。
-
-买卖金额相抵，机构专用席位今日净买入该股6.81亿元。
-
-资金流向方面，该股今日全天主力资金净流入37.94亿元。
-
-（数据宝）中芯国际5月25日龙虎榜注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 07:11 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 07:33 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 07:10 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 07:14 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 07:16 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:10 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 07:30 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 07:35 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 07:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 07:06 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 07:15 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 07:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:32 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 07:12 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 07:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 07:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 07:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 07:19 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 07:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 07:14 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 07:20 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/282351.shtml)
-- 2026-06-30 07:26 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/5237418.shtml)
-- 2026-06-30 07:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/563244264.shtml)
-- 2026-06-30 07:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/638865.shtml)
-- 2026-06-30 07:24 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/5521588317.shtml)
-- 2026-06-30 07:21 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/1487716063.shtml)
-- 2026-06-30 07:30 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/61755.shtml)
-- 2026-06-30 07:20 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/30521.shtml)
-- 2026-06-30 07:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/59237633906.shtml)
-- 2026-06-30 07:11 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/618553573.shtml)
-- 2026-06-30 07:25 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/911636739293.shtml)
-- 2026-06-30 07:21 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/195268914.shtml)
-- 2026-06-30 07:26 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/022831423.shtml)
-- 2026-06-30 07:08 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/67062.shtml)
-- 2026-06-30 07:12 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/3125440.shtml)
+- 2026-06-30 07:14 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/612777.shtml)
+- 2026-06-30 07:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/34989.shtml)
+- 2026-06-30 07:39 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/265054874364.shtml)
+- 2026-06-30 07:31 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/378283468.shtml)
+- 2026-06-30 07:30 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/822940.shtml)
+- 2026-06-30 07:28 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/564060.shtml)
+- 2026-06-30 07:30 - [《贺子珍》](http://www.blog.minike.top/Article/details/4348880063.shtml)
+- 2026-06-30 07:34 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/005410.shtml)
+- 2026-06-30 07:36 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/055904.shtml)
+- 2026-06-30 07:16 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/969342.shtml)
+- 2026-06-30 07:35 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/7988372585.shtml)
+- 2026-06-30 07:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/599637800236.shtml)
+- 2026-06-30 07:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/952306443466.shtml)
+- 2026-06-30 07:14 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/8887500608.shtml)
+- 2026-06-30 07:41 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/309002672892.shtml)

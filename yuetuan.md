@@ -1,56 +1,56 @@
-# 日本一载169人客机起飞后发现轮胎爆裂 紧急降落
+# 超3万股东“踩雷”！这家公司突遭立案，内控危机爆发
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网5月26日电 据日本共同社报道，当地时间25日下午，从日本东京羽田机场飞往福冈的天马航空第19次航班在起飞后发现轮胎故障，随后返航并在羽田机场紧急着陆。 报道称，该航班于25日下午3点过后从羽田机场起飞，下午5点05分前后，飞机发布紧急事态宣言，并在约50分钟后着陆。据国土交通省东京机场事务所透露，发现该飞机有1条轮胎爆裂。受相关检查作业影响，羽田机场C跑道一度关闭。 该
+登录新浪财经APP 搜索【信披】查看更多考评等级 继“披星戴帽”之后，曾经的广西糖业龙头*ST广糖（维权）（000911）再遭重创。 2026年6月12日，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。 受此消息及此前曝出的会计差错影响，投资者亏损严重，维权索赔已正式启动。 一、曾进行会计差错 此次被立案并
 
 ## 正文
 
-中新网5月26日电 据日本共同社报道，当地时间25日下午，从日本东京羽田机场飞往福冈的天马航空第19次航班在起飞后发现轮胎故障，随后返航并在羽田机场紧急着陆。
+登录新浪财经APP 搜索【信披】查看更多考评等级 继“披星戴帽”之后，曾经的广西糖业龙头*ST广糖（维权）（000911）再遭重创。
 
-报道称，该航班于25日下午3点过后从羽田机场起飞，下午5点05分前后，飞机发布紧急事态宣言，并在约50分钟后着陆。
+2026年6月12日，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
 
-据国土交通省东京机场事务所透露，发现该飞机有1条轮胎爆裂。
+受此消息及此前曝出的会计差错影响，投资者亏损严重，维权索赔已正式启动。
 
-受相关检查作业影响，羽田机场C跑道一度关闭。
+一、曾进行会计差错 此次被立案并非毫无预警。
 
-该航班机型为波音737，机上乘客和机组人员共169人，目前未确认有人受伤。
+就在不久前的2026年4月29日，*ST广糖曾发布《关于前期会计差错更正及追溯调整的公告》。
 
-日本国土交通省正在调查事故详细情况。
+公司在内部核查中发现，子公司开展的物流仓储业务存在营业收入及营业成本跨期确认问题，导致2023年至2025年的多个财报数据失真。
+
+这一会计差错直接影响巨大，具体来看：2023年归母净利润由更正前的2754.53万元大幅缩水至738.99万元；2024年归母净利润由2733.87万元调减至822.06万元；2025年三季报甚至出现了盈亏性质的变化。
+
+值得注意的是会计差错更正已表明公司披露的财务数据存在虚假记载。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 07:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 07:28 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 07:21 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 07:09 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 07:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 07:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 07:18 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 07:31 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 07:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 07:10 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:30 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 07:23 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 07:09 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 07:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 07:18 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 07:28 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 07:29 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:26 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 07:32 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 07:33 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 07:33 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 07:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 07:25 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/772033367.shtml)
-- 2026-06-30 07:28 - [美人鱼](http://www.share.minike.top/Article/details/718171.shtml)
-- 2026-06-30 07:11 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/1811997298.shtml)
-- 2026-06-30 07:28 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/0996421851.shtml)
-- 2026-06-30 07:25 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/4857802757.shtml)
-- 2026-06-30 07:06 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/99009.shtml)
-- 2026-06-30 07:32 - [点球大战](https://www.share.minike.top/Article/details/806066.shtml)
-- 2026-06-30 07:32 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/03480.shtml)
-- 2026-06-30 07:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/96993183.shtml)
-- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/560697661.shtml)
-- 2026-06-30 07:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/642888141.shtml)
-- 2026-06-30 07:21 - [一生一世](http://www.share.kurohicncr.top/Article/details/00922.shtml)
-- 2026-06-30 07:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/19178402.shtml)
-- 2026-06-30 07:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/98935358.shtml)
-- 2026-06-30 07:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/6244841467.shtml)
+- 2026-06-30 07:13 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/865333.shtml)
+- 2026-06-30 07:31 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/196861.shtml)
+- 2026-06-30 07:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/3340754253.shtml)
+- 2026-06-30 07:14 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/50597036.shtml)
+- 2026-06-30 07:17 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/84633467.shtml)
+- 2026-06-30 07:30 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/53605.shtml)
+- 2026-06-30 07:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/47717325262.shtml)
+- 2026-06-30 07:18 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/85232337054.shtml)
+- 2026-06-30 07:35 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/0883500.shtml)
+- 2026-06-30 07:40 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/57050449.shtml)
+- 2026-06-30 07:12 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/9954335047.shtml)
+- 2026-06-30 07:22 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/94180120.shtml)
+- 2026-06-30 07:20 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/6518144446.shtml)
+- 2026-06-30 07:20 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/8835400.shtml)
+- 2026-06-30 07:17 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/7663567.shtml)

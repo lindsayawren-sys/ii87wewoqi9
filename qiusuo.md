@@ -1,61 +1,57 @@
-# 国兰亮相切尔西花展斩获多个奖项 “君子之风”吸引世界目光
+# 江苏泰州一恐龙科普乐园开园 解锁亲子微度假新场景
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月24日电 (记者 陈静)与世界其他地方的兰花不同，国兰，其叶狭窄细长，潇洒飘逸；花序直立，花色淡雅，花姿秀美，香气馥郁。 刚刚参展英国皇家园艺学会(RHS)切尔西花展(下称：切尔西花展)归来的上海辰山植物园团队方面24日接受记者采访表示，国兰亮相有着“园艺界奥斯卡”之称的切尔西花展，斩获4项国际大奖，打破了西方对兰花“艳丽奇葩”的单一审美滤镜，让西方园艺界对中国园
+发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步
 
 ## 正文
 
-中新网上海5月24日电 (记者 陈静)与世界其他地方的兰花不同，国兰，其叶狭窄细长，潇洒飘逸；花序直立，花色淡雅，花姿秀美，香气馥郁。
+发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。
 
-刚刚参展英国皇家园艺学会(RHS)切尔西花展(下称：切尔西花展)归来的上海辰山植物园团队方面24日接受记者采访表示，国兰亮相有着“园艺界奥斯卡”之称的切尔西花展，斩获4项国际大奖，打破了西方对兰花“艳丽奇葩”的单一审美滤镜，让西方园艺界对中国园艺有了新的认知。
+6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。
 
-据悉，这是上海辰山植物园组团参加切尔西花展首度获奖。
+这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步丰富当地文旅产品供给。
 
-今年(2026年)是上海辰山植物园成立16周年。
+不同于常规亲子乐园偏重单一游乐的模式，园区主打“科普为本、沉浸赋能、游乐为辅”的差异化体验。
 
-在刚刚结束的切尔西花展上，上海辰山植物园联合相关方面选送了一批国兰，包括蕙兰传统经典品种(关顶、金岙素)；特色食药用兰科植物，如天麻、铁皮石斛等；自主选育的白及新品种参展。
+乐园依托原创恐龙IP搭建全场景游玩空间，规划无动力游乐设施、原生态田园休闲区及专属亲子互动演艺，同时推出恐龙玩偶情景互动、IP人偶主题巡游、沉浸式实景剧情互动等环节，让不同年龄段的孩子都能深度参与。
 
-据此，此次参展切尔西花展，参展团队不仅展出兰花，还同步发布三份学术报告，与世界分享中国兰花科研、保护、产业的完整方案。
+此外，园区增设科普研学板块，打造恐龙化石标本、岩石专题静态展区。
 
-切尔西花展结束后，上海辰山植物园的全部参展兰花将无偿捐赠给英国皇家植物园(邱园)和马瑟斯基金会，用于后续科学研究、保育展示与科普教育，推动兰科植物资源全球协同保育与中英双方学术合作。
+展区以实物展品搭配通俗讲解，直观展现史前恐龙生存环境，普及生物演化知识，满足游客探秘史前生物、开展研学实践的需求。
 
-据介绍，中国兰花展区的“中国兰花——美丽与保护”主题区以中国南方喀斯特原生山野为灵感，复刻野生兰花原生境。
+(记者 葛勇） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 07:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 07:21 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 07:11 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 07:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 07:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 07:28 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 07:27 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 07:16 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 07:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 07:28 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 07:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 07:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 07:35 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 07:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 07:19 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 07:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 07:29 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 07:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 07:17 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 07:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 07:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 07:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 07:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/03747.shtml)
-- 2026-06-30 07:25 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/7102098.shtml)
-- 2026-06-30 07:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2001758.shtml)
-- 2026-06-30 07:28 - [斛珠夫人](https://www.share.minike.top/Article/details/7016879.shtml)
-- 2026-06-30 07:19 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/7085404497.shtml)
-- 2026-06-30 07:33 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/31249593829.shtml)
-- 2026-06-30 07:24 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/36696793214.shtml)
-- 2026-06-30 07:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/790116453.shtml)
-- 2026-06-30 07:26 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/5109116598.shtml)
-- 2026-06-30 07:24 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/07374.shtml)
-- 2026-06-30 07:13 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/004109986017.shtml)
-- 2026-06-30 07:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/61064135117.shtml)
-- 2026-06-30 07:07 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/3932286.shtml)
-- 2026-06-30 07:35 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/418881.shtml)
-- 2026-06-30 07:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/196303.shtml)
+- 2026-06-30 07:31 - [沙丘](https://www.blog.minike.top/Article/details/80505427808.shtml)
+- 2026-06-30 07:41 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/03973.shtml)
+- 2026-06-30 07:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/1537079699.shtml)
+- 2026-06-30 07:37 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/35121630255.shtml)
+- 2026-06-30 07:14 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/74920680185.shtml)
+- 2026-06-30 07:35 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/7047198.shtml)
+- 2026-06-30 07:35 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/3535294035.shtml)
+- 2026-06-30 07:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/0253844.shtml)
+- 2026-06-30 07:33 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/94673266370.shtml)
+- 2026-06-30 07:23 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/33276910.shtml)
+- 2026-06-30 07:38 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/003558497.shtml)
+- 2026-06-30 07:17 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/551494759080.shtml)
+- 2026-06-30 07:34 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/30214.shtml)
+- 2026-06-30 07:38 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/133896.shtml)
+- 2026-06-30 07:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/1721476.shtml)

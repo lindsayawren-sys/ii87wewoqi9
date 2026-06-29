@@ -1,60 +1,60 @@
-# 规模站上7000亿，四川银行少了10户股东
+# 网购竟能借假退货“薅”现金“羊毛”，保险还能扛住吗
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-来源：银瑞社 作者：许淑敏 2025年，四川银行的关键词是“变革”。 从董事长、行长履新，副行长队伍扩容，高管团队持续焕新，再到“闪电”入主长城华西银行，四川银行资产规模再上一个台阶。 大家都在好奇，四川银行变得怎么样了。 四川银行管理层，大变样。 2025年，四川银行将帅齐换，郑晔接任林罡成为董事长，引领着整体的发展方向，而新行长王波成为得力的助手。 要论变化最多的，还是四川
+每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。 《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。 每经记者获得的截图显示，一位消费者对在某购物平台购买的已签
 
 ## 正文
 
-来源：银瑞社 作者：许淑敏 2025年，四川银行的关键词是“变革”。
+每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。
 
-从董事长、行长履新，副行长队伍扩容，高管团队持续焕新，再到“闪电”入主长城华西银行，四川银行资产规模再上一个台阶。
+”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。
 
-大家都在好奇，四川银行变得怎么样了。
+《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。
 
-四川银行管理层，大变样。
+不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。
 
-2025年，四川银行将帅齐换，郑晔接任林罡成为董事长，引领着整体的发展方向，而新行长王波成为得力的助手。
+每经记者获得的截图显示，一位消费者对在某购物平台购买的已签收商品申请退货后，弹出了协商留用商品可以获得退款补贴的选择框，该服务由某保险公司提供。
 
-要论变化最多的，还是四川银行的副行长们。
+此类保险产品的设计初衷是什么？
 
-2025年底，刘小波、席代金拟任四川银行副行长。
+目前承保盈利情况如何？
 
-2026年5月，刘小波、席代金任职资格获批复。
+对于通过协商留用获得现金的“薅羊毛”行为，业内如何看待？
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 07:21 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 07:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 07:20 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 07:20 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 07:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 07:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 07:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 07:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 07:12 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 07:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 07:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 07:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 07:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 07:28 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 07:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 07:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 07:27 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 07:30 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:35 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 07:37 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 07:39 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 07:30 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 07:40 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 07:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 07:14 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/401732.shtml)
-- 2026-06-30 07:34 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/50986682.shtml)
-- 2026-06-30 07:14 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/09506971445.shtml)
-- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/581386851457.shtml)
-- 2026-06-30 07:32 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/22007341280.shtml)
-- 2026-06-30 07:18 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/611068.shtml)
-- 2026-06-30 07:30 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/499112.shtml)
-- 2026-06-30 07:34 - [这一刀 会很帅](https://www.share.minike.top/Article/details/43350.shtml)
-- 2026-06-30 07:24 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/4117797386.shtml)
-- 2026-06-30 07:12 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/8832196857.shtml)
-- 2026-06-30 07:20 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/496316817.shtml)
-- 2026-06-30 07:31 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/8257722.shtml)
-- 2026-06-30 07:32 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/083383.shtml)
-- 2026-06-30 07:20 - [速度与激情9](http://www.share.minike.top/Article/details/131577.shtml)
-- 2026-06-30 07:32 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/719176990668.shtml)
+- 2026-06-30 07:21 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/0194156252.shtml)
+- 2026-06-30 07:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/8176778997.shtml)
+- 2026-06-30 07:12 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/03553582455.shtml)
+- 2026-06-30 07:29 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/052752644786.shtml)
+- 2026-06-30 07:14 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/6190621.shtml)
+- 2026-06-30 07:27 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/877429.shtml)
+- 2026-06-30 07:23 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/12744874.shtml)
+- 2026-06-30 07:28 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/90296182498.shtml)
+- 2026-06-30 07:23 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/940575512.shtml)
+- 2026-06-30 07:12 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/06838401.shtml)
+- 2026-06-30 07:19 - [扫黑风暴](https://www.share.minike.top/Article/details/86551.shtml)
+- 2026-06-30 07:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/66261.shtml)
+- 2026-06-30 07:37 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/94336129643.shtml)
+- 2026-06-30 07:25 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/23061930689.shtml)
+- 2026-06-30 07:13 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/6252441.shtml)

@@ -1,50 +1,52 @@
-# 应急管理部针对安徽启动国家地质灾害四级应急响应
+# 智谱早盘涨超6% 公司已推出最新一代旗舰模型GLM-5.2
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 (记者 郭超凯 陈溯)据气象部门预测，5月24日至27日，安徽南部有大暴雨到特大暴雨，应急管理部和自然资源部开展联合会商研判，安徽南部局地发生地质灾害的风险较高。根据《国家突发地质灾害应急预案》及有关规定，应急管理部于5月24日19时30分针对安徽启动国家地质灾害四级应急响应。应急管理部要求，相关地区要密切监视雨情汛情和地质灾害灾情险情，落实部门协同联动
+智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。 6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。预计该模型将助益公司后续开放平台及API业务的调用量提升。麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订
 
 ## 正文
 
-中新网北京5月25日电 (记者 郭超凯 陈溯)据气象部门预测，5月24日至27日，安徽南部有大暴雨到特大暴雨，应急管理部和自然资源部开展联合会商研判，安徽南部局地发生地质灾害的风险较高。
+智谱（02513）早盘涨近7%，截至发稿，股价上涨6.18%，现报1547港元，成交额10.69亿港元。
 
-根据《国家突发地质灾害应急预案》及有关规定，应急管理部于5月24日19时30分针对安徽启动国家地质灾害四级应急响应。
+6月15日，智谱发布公告，公司已推出最新一代旗舰模型GLM-5.2，模型提供达到1M的长上下文，并在长程任务中继续保持领先，将遵循MIT协议开源。
 
-应急管理部要求，相关地区要密切监视雨情汛情和地质灾害灾情险情，落实部门协同联动工作机制，压实地方防范应对主体责任，加强会商研判和预警响应联动，预置前置救援力量、物资、装备，强化巡查排查和监测预警，果断组织转移避险，切实做好地质灾害防范应对工作。
+预计该模型将助益公司后续开放平台及API业务的调用量提升。
 
-同时，应急管理部继续维持湖南、广东、广西、湖北、贵州、四川、重庆七省(区、市)地质灾害四级应急响应。
+麦格理认为，智谱推出GLM-5.2带来正面影响，可能加强该公司在随后订阅计划中的定价能力，这应会继续推动强劲的年度经常性收入增长势头。
 
-(完)
+中金指出，根据该行和众多开发者测评，GLM-5.2整体编程能力相较GLM-5.1均有明显进步，在具备优势的后端领域多项测评任务已可以对标Claude Opus 4.6；前端任务的审美、精细度和可控性也有明显提高，综合编程能力继续稳居国产模型第一，也是国模首个真实能力达到Opus 4.6的模型，并逐步拉开和其他国产模型的差距。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 07:33 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 07:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:26 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 07:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 07:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 07:11 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 07:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 07:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 07:32 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 07:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 07:13 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 07:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 07:28 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 07:14 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 07:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 07:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 07:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 07:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/8311392.shtml)
-- 2026-06-30 07:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/28143456398.shtml)
-- 2026-06-30 07:32 - [小娘惹](https://www.share.minike.top/Article/details/57247013.shtml)
-- 2026-06-30 07:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/2927323042.shtml)
-- 2026-06-30 07:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/3534408704.shtml)
-- 2026-06-30 07:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/795444.shtml)
-- 2026-06-30 07:20 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/723174.shtml)
-- 2026-06-30 07:13 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/73123653734.shtml)
-- 2026-06-30 07:16 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/194341244.shtml)
-- 2026-06-30 07:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/00575059713.shtml)
-- 2026-06-30 07:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/24165718.shtml)
-- 2026-06-30 07:33 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/195492611.shtml)
-- 2026-06-30 07:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/109495503.shtml)
-- 2026-06-30 07:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/86236517745.shtml)
-- 2026-06-30 07:08 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9762976.shtml)
+- 2026-06-30 07:35 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/730363.shtml)
+- 2026-06-30 07:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/079512.shtml)
+- 2026-06-30 07:41 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/7940569821.shtml)
+- 2026-06-30 07:13 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/7477938.shtml)
+- 2026-06-30 07:33 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/26780702.shtml)
+- 2026-06-30 07:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/77612848.shtml)
+- 2026-06-30 07:14 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/46773.shtml)
+- 2026-06-30 07:35 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/9877527555.shtml)
+- 2026-06-30 07:28 - [急先锋](http://www.share.minike.top/Article/details/30386116.shtml)
+- 2026-06-30 07:21 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/785937.shtml)
+- 2026-06-30 07:23 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/3182638.shtml)
+- 2026-06-30 07:27 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/297830175.shtml)
+- 2026-06-30 07:34 - [金牌调解](https://www.share.kurohicncr.top/Article/details/00034094.shtml)
+- 2026-06-30 07:40 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/97075.shtml)
+- 2026-06-30 07:39 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/240145743691.shtml)

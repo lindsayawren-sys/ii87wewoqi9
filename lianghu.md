@@ -1,59 +1,60 @@
-# 高盛、巴克莱等警告：即使伊朗冲突结束 收益率仍将居高不下
+# 国家统计局：5月份国民经济运行总体平稳、向新向优
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-尽管人们对中东冲突引发的通货膨胀忧心忡忡，但种种迹象表明，其他因素对较长期借贷成本的影响同样巨大。 在美国，所谓的实质收益率（也就是扣除通胀因素后的公债收益率），近期成为带动美债走高的主要力量，显示债券投资人担心的不只是油价上涨造成的通胀压力。 其他罪魁祸首包括：本已庞大的公共债务负担似乎将加剧；AI投资热潮带来的负面影响；以及美联储等央行将升息而非降息的可能性升高。 包括彭博
+中新网6月16日电 据国家统计局网站消息，5月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。一、工业生产加快，装备制造业和高技术制造业较
 
 ## 正文
 
-尽管人们对中东冲突引发的通货膨胀忧心忡忡，但种种迹象表明，其他因素对较长期借贷成本的影响同样巨大。
+中新网6月16日电 据国家统计局网站消息，5月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。
 
-在美国，所谓的实质收益率（也就是扣除通胀因素后的公债收益率），近期成为带动美债走高的主要力量，显示债券投资人担心的不只是油价上涨造成的通胀压力。
+一、工业生产加快，装备制造业和高技术制造业较快增长 5月份，全国规模以上工业增加值同比增长4.5%，比上月加快0.4个百分点；环比增长0.40%。
 
-其他罪魁祸首包括：本已庞大的公共债务负担似乎将加剧；AI投资热潮带来的负面影响；以及美联储等央行将升息而非降息的可能性升高。
+分三大门类看，采矿业增加值同比增长2.3%，制造业增长4.4%，电力、热力、燃气及水生产和供应业增长7.6%。
 
-包括彭博的一份分析，以及ING Bank NV、高盛和巴克莱银行的策略师异口同声认定：因油价攀升而水涨船高的通胀即使降温，长天期收益率的涨势近期恐怕也不会完全逆转。
+装备制造业增加值同比增长9.5%，高技术制造业增加值增长15.1%，分别比上月加快1.2和2.3个百分点。
 
-换句话说，即便中东冲突结束，市场借贷成本仍可能维持在多年高点附近，持续对政府财政与整体经济形成压力。
+分经济类型看，国有控股企业增加值同比增长3.7%；股份制企业增长5.2%，外商及港澳台投资企业增长1.9%；私营企业增长2.7%。
 
-巴克莱银行美国通胀策略主管Jonathan Hill表示，如果说全球长天期债券遭抛售完全是因为通胀忧虑，其实与市场对中长期通胀风险的定价并不一致。
+分产品看，3D打印设备、锂离子电池、工业机器人产品产量同比分别增长54.4%、40.0%、27.9%。
 
-真正推升实质利率的可能是债务增加、更高的中性利率以及AI之间的交互影响。
+1—5月份，全国规模以上工业增加值同比增长5.4%。
 
-所谓中性利率是指既不刺激经济也不减缓经济的利率水准。
+5月份，制造业采购经理指数为50.0%，企业生产经营活动预期指数为53.9%。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:16 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 07:12 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 07:21 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 07:31 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 07:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 07:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 07:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 07:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 07:33 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 07:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 07:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 07:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 07:21 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 07:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 07:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 07:24 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 07:37 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 07:23 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 07:32 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 07:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 07:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:17 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 07:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:32 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 07:31 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/051885144.shtml)
-- 2026-06-30 07:28 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/42265671.shtml)
-- 2026-06-30 07:10 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/736670.shtml)
-- 2026-06-30 07:11 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/93269094994.shtml)
-- 2026-06-30 07:21 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/982167385.shtml)
-- 2026-06-30 07:29 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/936262.shtml)
-- 2026-06-30 07:29 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/41837023207.shtml)
-- 2026-06-30 07:20 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/81633721995.shtml)
-- 2026-06-30 07:20 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/33222619386.shtml)
-- 2026-06-30 07:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/95637803360.shtml)
-- 2026-06-30 07:11 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/27303357701.shtml)
-- 2026-06-30 07:32 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/6550351673.shtml)
-- 2026-06-30 07:06 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/390877.shtml)
-- 2026-06-30 07:21 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/82477.shtml)
-- 2026-06-30 07:17 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/635550354.shtml)
+- 2026-06-30 07:32 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/596762725199.shtml)
+- 2026-06-30 07:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/2160466127.shtml)
+- 2026-06-30 07:37 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6588188.shtml)
+- 2026-06-30 07:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/384613.shtml)
+- 2026-06-30 07:35 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/184279198.shtml)
+- 2026-06-30 07:34 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/83672912.shtml)
+- 2026-06-30 07:32 - [田中碧失误](http://www.share.minike.top/Article/details/3248708.shtml)
+- 2026-06-30 07:23 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/6309696.shtml)
+- 2026-06-30 07:38 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/092676993.shtml)
+- 2026-06-30 07:21 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/472368174832.shtml)
+- 2026-06-30 07:28 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/2283101921.shtml)
+- 2026-06-30 07:25 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/36962.shtml)
+- 2026-06-30 07:14 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/590086.shtml)
+- 2026-06-30 07:34 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/945204490.shtml)
+- 2026-06-30 07:13 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/15334694793.shtml)

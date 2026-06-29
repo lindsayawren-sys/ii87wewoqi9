@@ -1,58 +1,57 @@
-# 黄连素是“躺瘦神药”？医生提醒
+# BCG新书《银行转型2035》：首度定义“智能体银行”演进路线图
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-黄连素是“躺瘦神药”？ 近期，一款家庭常备止泻药——盐酸小檗碱(俗称黄连素)在网络上意外走红。不少博主叫它“植物司美格鲁肽”，宣称其能够轻松减重、燃脂控糖，引得众多爱美和减重人士跟风囤药。 对此，黑龙江省医院副主任药师马明明在接受科技日报记者采访时提醒，黄连素是治疗肠道感染的药物，而非减肥药，其减重效果十分有限，长期盲目服用还会带来多重健康风险。 黄连素是大众熟知的非处方药品，
+在人工智能加速重塑金融业格局的背景下，波士顿咨询公司（BCG）近日发布《银行转型2035：迈向智能体银行的范式跃迁》。该书由BCG全球资深合伙人何大勇、全球合伙人谭彦及BCG全球智库顾问孙中东联合撰写，围绕银行业AI转型的战略方向、组织重塑和落地路径，首度提出 “智能体银行（Agent Bank）”。 银行业迈向Bank 4.0时代 《银行转型2035》指出，银行业正经历从数字
 
 ## 正文
 
-黄连素是“躺瘦神药”？
+在人工智能加速重塑金融业格局的背景下，波士顿咨询公司（BCG）近日发布《银行转型2035：迈向智能体银行的范式跃迁》。
 
-近期，一款家庭常备止泻药——盐酸小檗碱(俗称黄连素)在网络上意外走红。
+该书由BCG全球资深合伙人何大勇、全球合伙人谭彦及BCG全球智库顾问孙中东联合撰写，围绕银行业AI转型的战略方向、组织重塑和落地路径，首度提出 “智能体银行（Agent Bank）”。
 
-不少博主叫它“植物司美格鲁肽”，宣称其能够轻松减重、燃脂控糖，引得众多爱美和减重人士跟风囤药。
+银行业迈向Bank 4.0时代 《银行转型2035》指出，银行业正经历从数字化向智能化的关键跃迁。
 
-对此，黑龙江省医院副主任药师马明明在接受科技日报记者采访时提醒，黄连素是治疗肠道感染的药物，而非减肥药，其减重效果十分有限，长期盲目服用还会带来多重健康风险。
+过去依赖网点覆盖和牌照壁垒构筑的竞争优势持续弱化，银行服务正逐步演变为“流动的算法”。
 
-黄连素是大众熟知的非处方药品，适应症仅为肠道感染、细菌性痢疾等，主要作用是抑菌、止泻，是家庭药箱中的常备药，但它从未获批用于减肥或调节代谢。
+当前，中国银行业普遍面临“低利率、低息差、高风险、强内卷”等挑战，传统增长模式难以持续。
 
-“网传黄连素能减肥，是夸大了其微弱的辅助作用。
+与此同时，大模型与智能体（Agent）技术快速成熟，为银行业创造了新的发展机遇。
 
-”马明明解释道。
+书中提出，商业银行已经历Bank 1.0、Bank 2.0和Bank 3.0三个发展阶段：从解决金融服务“可得性”，到提升“便捷性”，再到强化“连接深度”。
 
-部分科学研究显示，黄连素可能对肠道菌群有一定调节作用，可轻度抑制糖分和脂肪吸收，并可能改善胰岛素抵抗。
+而即将到来的Bank 4.0——“智能体银行” ，将进一步实现银行服务的智慧化与自主化。
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 07:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 07:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 07:19 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 07:17 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 07:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 07:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 07:24 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 07:22 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 07:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 07:06 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 07:36 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 07:23 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 07:32 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 07:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 07:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 07:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 07:12 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 07:26 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 07:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 07:23 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 07:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/4396119883.shtml)
-- 2026-06-30 07:11 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/9243090.shtml)
-- 2026-06-30 07:10 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/174848243644.shtml)
-- 2026-06-30 07:25 - [女心理师](https://www.share.minike.top/Article/details/218698668314.shtml)
-- 2026-06-30 07:21 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/6901807916.shtml)
-- 2026-06-30 07:35 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/30575776.shtml)
-- 2026-06-30 07:31 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/314938766.shtml)
-- 2026-06-30 07:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/5365690.shtml)
-- 2026-06-30 07:22 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/0391212989.shtml)
-- 2026-06-30 07:23 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/1694786.shtml)
-- 2026-06-30 07:20 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/864866.shtml)
-- 2026-06-30 07:18 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/696474.shtml)
-- 2026-06-30 07:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/31273463018.shtml)
-- 2026-06-30 07:22 - [森保一 保守](https://www.share.minike.top/Article/details/3902103266.shtml)
-- 2026-06-30 07:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/813139524491.shtml)
+- 2026-06-30 07:32 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/45211397.shtml)
+- 2026-06-30 07:26 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/636097337.shtml)
+- 2026-06-30 07:35 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/437064089.shtml)
+- 2026-06-30 07:13 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/3176729.shtml)
+- 2026-06-30 07:12 - [一见倾心](http://www.blog.minike.top/Article/details/037492693868.shtml)
+- 2026-06-30 07:17 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/0950593646.shtml)
+- 2026-06-30 07:21 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/4611043.shtml)
+- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/7763992801.shtml)
+- 2026-06-30 07:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/24201927.shtml)
+- 2026-06-30 07:33 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/35364.shtml)
+- 2026-06-30 07:24 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2742153447.shtml)
+- 2026-06-30 07:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/61039.shtml)
+- 2026-06-30 07:39 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/044807.shtml)
+- 2026-06-30 07:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/503020.shtml)
+- 2026-06-30 07:14 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/00197324.shtml)

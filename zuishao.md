@@ -1,57 +1,60 @@
-# 新华社评论员：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展
+# 韩正出席第七届跨国公司领导人青岛峰会开幕式并致辞
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月24日电 题：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展 新华社评论员 国之交在于民相亲，人民的深厚友谊是国家关系发展的力量源泉。中俄元首会晤期间，着眼于推动中俄关系实现更高质量发展，习近平主席提出推进更高质量民心相通，厚植两国世代友好根基。中俄关系已经迈上新起点，要立足赓续世代友好，加强教育、文化、电影、旅游、体育等人文交流合作，不断增进人民相知相亲
+新华社青岛6月16日电 国家副主席韩正16日上午在山东青岛出席第七届跨国公司领导人青岛峰会开幕式并致辞。 韩正表示，习近平主席高度重视跨国公司在华发展，多次充分肯定外资企业在参与中国改革开放和现代化建设中发挥的重要作用。中国持续推进高质量发展，扩大高水平对外开放，成为世界经济增长的稳定器和动力源，也为跨国公司发展提供了广阔舞台。中国坚定不移支持跨国公司在华投资兴业、蓬勃健康发展
 
 ## 正文
 
-新华社北京5月24日电 题：让友谊之路越走越宽——三论推动中俄关系实现更高质量发展 新华社评论员 国之交在于民相亲，人民的深厚友谊是国家关系发展的力量源泉。
+新华社青岛6月16日电 国家副主席韩正16日上午在山东青岛出席第七届跨国公司领导人青岛峰会开幕式并致辞。
 
-中俄元首会晤期间，着眼于推动中俄关系实现更高质量发展，习近平主席提出推进更高质量民心相通，厚植两国世代友好根基。
+韩正表示，习近平主席高度重视跨国公司在华发展，多次充分肯定外资企业在参与中国改革开放和现代化建设中发挥的重要作用。
 
-中俄关系已经迈上新起点，要立足赓续世代友好，加强教育、文化、电影、旅游、体育等人文交流合作，不断增进人民相知相亲，夯实两国友好的社会民意基础。
+中国持续推进高质量发展，扩大高水平对外开放，成为世界经济增长的稳定器和动力源，也为跨国公司发展提供了广阔舞台。
 
-70多年来，无论两国关系经历何种变化，人民的友谊始终坚如磐石。
+中国坚定不移支持跨国公司在华投资兴业、蓬勃健康发展，共同创造合作共赢的美好未来。
 
-人文合作是中俄双边关系中重要的民意根基与精神纽带，通过教育互通、文化互融、青年互动，深化双方民众认同，为政治互信、经贸协作筑牢社会基础。
+韩正提出4点建议，一是共享中国消费大市场，希望跨国公司加大在华投资布局，提供优质的商品和服务，不断拓展新的发展空间。
 
-中俄连续举办国家级主题年活动，“中俄文化年”深化了文明交流互鉴，丰富了两国民众精神文化生活；中俄互免签证政策实施，助力两国人员往来更加活跃；中俄双向留学规模已逾8万人，中俄语言交流热度持续升温；青年人文交流富有活力、精彩纷呈……随着中俄关系高水平发展，两国人文交往不断密切，民心纽带越拉越紧。
+二是共抓产业升级新机遇，希望跨国公司深化在华产业合作，共同增强全球竞争力。
 
-习近平主席深刻指出，教育是国与国之间连接民心、传承友谊的重要桥梁，是功在当代、利在千秋的崇高事业。
+三是共筑创新合作新生态，希望跨国公司充分利用中国创新资源，携手打造更具韧性、更具活力、更具竞争力的创新发展新生态。
 
-会晤期间，习近平主席同普京总统共同出席“中俄教育年”开幕式。
+四是共创开放合作新局面，希望跨国公司继续从客观经济规律出发，坚定维护开放合作的国际经济环境，共同维护全球产业链供应链稳定。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 07:24 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 07:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 07:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 07:35 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 07:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 07:10 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 07:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 07:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 07:27 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 07:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 07:25 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 07:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 07:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 07:29 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:38 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 07:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 07:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 07:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 07:22 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 07:36 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 07:40 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 07:22 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 07:39 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/3687328.shtml)
-- 2026-06-30 07:31 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/9365561115.shtml)
-- 2026-06-30 07:15 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/8972357.shtml)
-- 2026-06-30 07:13 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/658475.shtml)
-- 2026-06-30 07:13 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/70159908.shtml)
-- 2026-06-30 07:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/2575901086.shtml)
-- 2026-06-30 07:11 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/2506224308.shtml)
-- 2026-06-30 07:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/25466599101.shtml)
-- 2026-06-30 07:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/719007.shtml)
-- 2026-06-30 07:34 - [我们的少年时代2](http://www.share.minike.top/Article/details/0634318479.shtml)
-- 2026-06-30 07:10 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/3861689250.shtml)
-- 2026-06-30 07:19 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/958666.shtml)
-- 2026-06-30 07:17 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6102274.shtml)
-- 2026-06-30 07:06 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/698415093850.shtml)
-- 2026-06-30 07:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/96876522.shtml)
+- 2026-06-30 07:39 - [勇敢的心第二部](https://www.share.minike.top/Article/details/78259580906.shtml)
+- 2026-06-30 07:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/86207526.shtml)
+- 2026-06-30 07:35 - [周生如故](http://www.share.minike.top/Article/details/666832.shtml)
+- 2026-06-30 07:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/7793794165.shtml)
+- 2026-06-30 07:17 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/8195884780.shtml)
+- 2026-06-30 07:16 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/49268967.shtml)
+- 2026-06-30 07:19 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/740410023751.shtml)
+- 2026-06-30 07:17 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/43023016608.shtml)
+- 2026-06-30 07:27 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/500148462.shtml)
+- 2026-06-30 07:36 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/42410.shtml)
+- 2026-06-30 07:37 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/68108.shtml)
+- 2026-06-30 07:27 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/99831.shtml)
+- 2026-06-30 07:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/498890017.shtml)
+- 2026-06-30 07:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/806187941.shtml)
+- 2026-06-30 07:13 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/4253251.shtml)

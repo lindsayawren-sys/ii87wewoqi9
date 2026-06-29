@@ -1,56 +1,57 @@
-# 欧洲央行施纳贝尔：即便美伊达成协议 欧洲央行仍应在6月加息
+# 以色列国防军：在黎巴嫩南部截获多枚真主党火箭弹
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-新华财经北京5月26日电 欧洲央行执委施纳贝尔表示，即便当前与伊朗的和平谈判最终达成协议，欧洲央行仍应在6月加息，因为这场冲突持续时间已远超预期，高能源价格也正向更广泛经济领域传导。 欧洲央行过去一年一直维持利率不变，但上月曾就加息展开讨论，原因是能源成本急剧攀升推动通胀大幅超出2%的目标，多名政策制定者已发出行动必要性的信号。 施纳贝尔表示：“鉴于当前冲击的规模和持续性，从目
+以色列国防军称，真主党向正在黎巴嫩南部作战的以军士兵发射多枚火箭弹，以色列空军予以拦截。 周一早些时候发生多起事件，真主党向在黎巴嫩南部作战的以军士兵发射一枚反坦克导弹和多枚迫击炮弹。 未报告有人员受伤。 当天发生的四起不同事件中，以军士兵发现多名武装分子乘车接近以军士兵，构成迫在眉睫的威胁。 以色列空军对所有威胁目标实施了打击。责任编辑：丁文武
 
 ## 正文
 
-新华财经北京5月26日电 欧洲央行执委施纳贝尔表示，即便当前与伊朗的和平谈判最终达成协议，欧洲央行仍应在6月加息，因为这场冲突持续时间已远超预期，高能源价格也正向更广泛经济领域传导。
+以色列国防军称，真主党向正在黎巴嫩南部作战的以军士兵发射多枚火箭弹，以色列空军予以拦截。
 
-欧洲央行过去一年一直维持利率不变，但上月曾就加息展开讨论，原因是能源成本急剧攀升推动通胀大幅超出2%的目标，多名政策制定者已发出行动必要性的信号。
+周一早些时候发生多起事件，真主党向在黎巴嫩南部作战的以军士兵发射一枚反坦克导弹和多枚迫击炮弹。
 
-施纳贝尔表示：“鉴于当前冲击的规模和持续性，从目前来看，我认为6月加息将是必要的。
+未报告有人员受伤。
 
-”“即便战争今天结束，能源基础设施和全球供应链也已经遭受了大量损害，货币政策作出反应是必要的。
+当天发生的四起不同事件中，以军士兵发现多名武装分子乘车接近以军士兵，构成迫在眉睫的威胁。
 
-从持续性来看，形势实际上已超出我们的不利情景预设，该情景假设油价将迅速正常化。
+以色列空军对所有威胁目标实施了打击。
 
-” 施纳贝尔还表示，一些第二轮效应可能已经开始显现，多项调查已发出相关信号。
-
-她说：“我们正越来越多地看到这场冲击正在向消费篮子的其他部分蔓延。
-
-” 编辑：马萌伟 责任编辑：郭建
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 07:22 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 07:27 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 07:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 07:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 07:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 07:15 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 07:34 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 07:06 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 07:15 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 07:16 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 07:30 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 07:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 07:33 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 07:31 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 07:27 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 07:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 07:38 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:17 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 07:18 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 07:24 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 07:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 07:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 07:26 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [田中碧失误](https://www.blog.minike.top/Article/details/5801489.shtml)
-- 2026-06-30 07:23 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/059115684.shtml)
-- 2026-06-30 07:27 - [世界杯](http://www.share.minike.top/Article/details/93929.shtml)
-- 2026-06-30 07:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/122742119.shtml)
-- 2026-06-30 07:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/837987.shtml)
-- 2026-06-30 07:26 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/1485438.shtml)
-- 2026-06-30 07:11 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4443664025.shtml)
-- 2026-06-30 07:17 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/1854198.shtml)
-- 2026-06-30 07:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/28261.shtml)
-- 2026-06-30 07:31 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/65326795582.shtml)
-- 2026-06-30 07:20 - [我们的少年时代2](https://www.share.minike.top/Article/details/4845983707.shtml)
-- 2026-06-30 07:32 - [流金岁月](https://www.share.minike.top/Article/details/7033617.shtml)
-- 2026-06-30 07:09 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/92663533.shtml)
-- 2026-06-30 07:06 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/535942339846.shtml)
-- 2026-06-30 07:28 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/52318.shtml)
+- 2026-06-30 07:19 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/16036312682.shtml)
+- 2026-06-30 07:37 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/485631740315.shtml)
+- 2026-06-30 07:38 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/60656719948.shtml)
+- 2026-06-30 07:32 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/95922.shtml)
+- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/16653446227.shtml)
+- 2026-06-30 07:22 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/3396624628.shtml)
+- 2026-06-30 07:12 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/1542521487.shtml)
+- 2026-06-30 07:35 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/017005164.shtml)
+- 2026-06-30 07:22 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/4696611335.shtml)
+- 2026-06-30 07:12 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/75211.shtml)
+- 2026-06-30 07:27 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/66209358322.shtml)
+- 2026-06-30 07:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/96749.shtml)
+- 2026-06-30 07:21 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/481963759761.shtml)
+- 2026-06-30 07:29 - [巴西绝杀日本](https://www.share.minike.top/Article/details/596584.shtml)
+- 2026-06-30 07:35 - [美股](https://www.blog.kurohicncr.top/Article/details/43496448525.shtml)

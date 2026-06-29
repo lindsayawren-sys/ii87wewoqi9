@@ -1,57 +1,60 @@
-# 美军打击伊朗加剧和平协议不确定性，布伦特原油上涨2%
+# 敏昂莱再访华：读懂中缅“胞波”情谊的密码
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-周二，美军对伊朗实施军事打击后，布伦特原油期货涨幅超2%。由于结束战争、重开霍尔木兹海峡的协议仍悬而未决，市场持续处于紧张状态。 格林尼治标准时间06：30，布伦特原油期货（LCOc1）上涨2.36美元（涨幅2.5%），报每桶98.50美元；前一交易日收盘曾大跌7%。 美国西德克萨斯中质原油（WTI，CLc1）报每桶91.95美元，较周一收盘价微涨，但较周五收盘价下跌4.65美
+原标题：【中国网评】敏昂莱再访华：读懂中缅“胞波”情谊的密码 中国网评论员 乐水 应国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。这是他今年4月当选总统后的首次访华。去年秋季，敏昂莱曾以缅甸代总统身份来华出席2025年上海合作组织峰会和纪念中国人民抗日战争暨世界反法西斯战争胜利80周年活动。不到一年时间，他两度踏上中国土地，如此频密的高层互动，不仅凸
 
 ## 正文
 
-周二，美军对伊朗实施军事打击后，布伦特原油期货涨幅超2%。
+原标题：【中国网评】敏昂莱再访华：读懂中缅“胞波”情谊的密码 中国网评论员 乐水 应国家主席习近平邀请，缅甸总统敏昂莱于6月15日至19日对中国进行国事访问。
 
-由于结束战争、重开霍尔木兹海峡的协议仍悬而未决，市场持续处于紧张状态。
+这是他今年4月当选总统后的首次访华。
 
-格林尼治标准时间06：30，布伦特原油期货（LCOc1）上涨2.36美元（涨幅2.5%），报每桶98.50美元；前一交易日收盘曾大跌7%。
+去年秋季，敏昂莱曾以缅甸代总统身份来华出席2025年上海合作组织峰会和纪念中国人民抗日战争暨世界反法西斯战争胜利80周年活动。
 
-美国西德克萨斯中质原油（WTI，CLc1）报每桶91.95美元，较周一收盘价微涨，但较周五收盘价下跌4.65美元（跌幅4.8%）。
+不到一年时间，他两度踏上中国土地，如此频密的高层互动，不仅凸显了缅方对发展中缅关系的高度重视，也预示着两国间历久弥新的“胞波情谊”将在新的时代背景下再续新篇。
 
-周一适逢美国阵亡将士纪念日假期，市场无结算。
+“胞波”一词系缅语“兄弟”之音译。
 
-在线交易平台Moomoo澳大利亚首席执行官表示，尽管隔夜市场因和平协议预期上涨，但美军打击伊朗南部、以色列袭击真主党，推动布伦特油价走强，并扩大了与WTI的价差。
+中缅这份手足之情有着深厚的历史积淀。
 
-美国国务卿周二称，与伊朗谈判达成协议可能“需要数日”，打消了市场对冲突立即结束的预期。
+两国山水相连，边界线绵延两千多公里，民间友好往来自古代骡马古道便从未中断。
 
-此前一日，美军在伊朗南部实施了美方所称的“防御性打击”。
+特别是在第二次世界大战期间，中缅同为世界反法西斯战争东方战场的重要组成部分。
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 07:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 07:18 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 07:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 07:23 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 07:06 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 07:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 07:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 07:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 07:14 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 07:09 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 07:14 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 07:13 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 07:29 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 07:40 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 07:24 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 07:22 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 07:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 07:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 07:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 07:29 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/95197540.shtml)
-- 2026-06-30 07:26 - [女心理师](http://www.blog.minike.top/Article/details/272634329.shtml)
-- 2026-06-30 07:32 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/93646271.shtml)
-- 2026-06-30 07:13 - [女心理师](http://www.blog.kurohicncr.top/Article/details/449600035595.shtml)
-- 2026-06-30 07:15 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/71145610804.shtml)
-- 2026-06-30 07:29 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/94286398686.shtml)
-- 2026-06-30 07:24 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/5601393.shtml)
-- 2026-06-30 07:24 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/7575503.shtml)
-- 2026-06-30 07:13 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/44564.shtml)
-- 2026-06-30 07:25 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/0462027536.shtml)
-- 2026-06-30 07:14 - [周生如故](https://www.share.kurohicncr.top/Article/details/34648170.shtml)
-- 2026-06-30 07:32 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/45960.shtml)
-- 2026-06-30 07:09 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/93192.shtml)
-- 2026-06-30 07:28 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/80262.shtml)
-- 2026-06-30 07:12 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/109523140.shtml)
+- 2026-06-30 07:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/886672481.shtml)
+- 2026-06-30 07:36 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/050244.shtml)
+- 2026-06-30 07:21 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/088316.shtml)
+- 2026-06-30 07:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/52889.shtml)
+- 2026-06-30 07:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/12099.shtml)
+- 2026-06-30 07:39 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/50476536562.shtml)
+- 2026-06-30 07:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/113495066.shtml)
+- 2026-06-30 07:27 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/90064.shtml)
+- 2026-06-30 07:17 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/49108848768.shtml)
+- 2026-06-30 07:24 - [扫黑风暴](https://www.share.minike.top/Article/details/9754079.shtml)
+- 2026-06-30 07:37 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/806698.shtml)
+- 2026-06-30 07:21 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/540276.shtml)
+- 2026-06-30 07:15 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/403717297569.shtml)
+- 2026-06-30 07:26 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/84971197.shtml)
+- 2026-06-30 07:38 - [我们的少年时代2](http://www.share.minike.top/Article/details/667656337443.shtml)

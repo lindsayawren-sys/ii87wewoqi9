@@ -1,45 +1,57 @@
-# 武汉市气象台发布暴雨红色预警信号
+# 第十八届海峡论坛在福建举行——深化融合发展 增进同胞福祉
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网5月24日电 据中央气象台网站消息，武汉市气象台2026年5月24日10时11分发布暴雨红色预警信号：过去1小时蔡甸消泗、经开湘口已出现30-60毫米降水，预计未来3小时，经开、蔡甸、江夏部分街道(乡镇)仍将有40-70毫米降水，累计雨量将达到100毫米以上，城乡积涝、地质灾害、中小河流风险极高，请特别加强防范。防御指南： 1.政府及相关部门按照职责做好防暴雨应急和抢险工
+人民日报 本报记者 张 烁 钟自炜 夏日鹭岛，万物并秀；海峡潮涌，乡音情深。6月13日，第十八届海峡论坛大会在福建厦门举行。近期，本届海峡论坛各项活动密集开展。 习近平总书记深刻指出，无论国际形势、台海局势如何变化，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。本届海峡论坛坚持“民间性、草根性、广泛性”定位，延续“扩大民间交流、深化融合发展”主题
 
 ## 正文
 
-中新网5月24日电 据中央气象台网站消息，武汉市气象台2026年5月24日10时11分发布暴雨红色预警信号：过去1小时蔡甸消泗、经开湘口已出现30-60毫米降水，预计未来3小时，经开、蔡甸、江夏部分街道(乡镇)仍将有40-70毫米降水，累计雨量将达到100毫米以上，城乡积涝、地质灾害、中小河流风险极高，请特别加强防范。
+人民日报 本报记者 张 烁 钟自炜 夏日鹭岛，万物并秀；海峡潮涌，乡音情深。
 
-防御指南： 1.政府及相关部门按照职责做好防暴雨应急和抢险工作； 2.停止集会、停课、停业(除特殊行业外)； 3.做好山洪、滑坡、泥石流等灾害的防御和抢险工作。
+6月13日，第十八届海峡论坛大会在福建厦门举行。
+
+近期，本届海峡论坛各项活动密集开展。
+
+习近平总书记深刻指出，无论国际形势、台海局势如何变化，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。
+
+本届海峡论坛坚持“民间性、草根性、广泛性”定位，延续“扩大民间交流、深化融合发展”主题，设置了基层交流、青年交流、文化交流、经济交流4大板块58项活动。
+
+在这场民间交流盛会上，两岸同胞厚植情谊、增进福祉，越走越近、越走越亲。
+
+同根同源 血脉相连 在福建厦门有一个板桥，在台湾新北也有一个板桥。
+
+“两岸同名同根，地名同源、宗亲同源。
 
 ## 相关推荐
 
-- 2026-06-30 07:35 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 07:20 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 07:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 07:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 07:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 07:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 07:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 07:16 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 07:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 07:32 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 07:12 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 07:29 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 07:35 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 07:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 07:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 07:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 07:36 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 07:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 07:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 07:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/6334377.shtml)
-- 2026-06-30 07:26 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/70181620.shtml)
-- 2026-06-30 07:28 - [美股](https://www.share.minike.top/Article/details/32853.shtml)
-- 2026-06-30 07:10 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/519388517.shtml)
-- 2026-06-30 07:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/76721815.shtml)
-- 2026-06-30 07:24 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/07790936.shtml)
-- 2026-06-30 07:22 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/2644657.shtml)
-- 2026-06-30 07:28 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/218510536.shtml)
-- 2026-06-30 07:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/51975978.shtml)
-- 2026-06-30 07:14 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/627093962838.shtml)
-- 2026-06-30 07:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/0114649.shtml)
-- 2026-06-30 07:35 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/80949273.shtml)
-- 2026-06-30 07:27 - [绘画区你赢了](https://www.blog.minike.top/Article/details/51538499.shtml)
-- 2026-06-30 07:35 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/8082374.shtml)
-- 2026-06-30 07:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/77957440316.shtml)
+- 2026-06-30 07:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/989272345.shtml)
+- 2026-06-30 07:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/560500064.shtml)
+- 2026-06-30 07:24 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/326040525.shtml)
+- 2026-06-30 07:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/0193369364.shtml)
+- 2026-06-30 07:12 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/53544372.shtml)
+- 2026-06-30 07:39 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/7573803.shtml)
+- 2026-06-30 07:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/491887198.shtml)
+- 2026-06-30 07:15 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/1437414961.shtml)
+- 2026-06-30 07:15 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/82133.shtml)
+- 2026-06-30 07:33 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/05509828028.shtml)
+- 2026-06-30 07:27 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/048665.shtml)
+- 2026-06-30 07:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/6398214297.shtml)
+- 2026-06-30 07:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/48369085.shtml)
+- 2026-06-30 07:26 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/072027.shtml)
+- 2026-06-30 07:42 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/7469872377.shtml)

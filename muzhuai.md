@@ -1,61 +1,58 @@
-# 全国首单分布式清洁能源资产机构间REITs扩募获深圳证券交易所受理
+# 公安部网安局公布10起网络谣言违法犯罪典型案例
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-5月26日金融一线消息，碧澄能源首单分布式清洁能源资产机构间REITs扩募——“兴证基实-碧澄能发新能源持有型不动产资产支持专项计划（碳中和）2026年第一次扩募并新购入基础设施项目”，于5月25日正式获得深圳证券交易所受理。这是碧澄能源继2025年底实现首单设立之后，工商业分布式光伏行业机构间REITs的首单扩募申报。 扩募正在成为市场检验REITs底层资产质量的重要标尺。目
+新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。 这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。 在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。经查，网传信息均为虚构，属地公安机关已对
 
 ## 正文
 
-5月26日金融一线消息，碧澄能源首单分布式清洁能源资产机构间REITs扩募——“兴证基实-碧澄能发新能源持有型不动产资产支持专项计划（碳中和）2026年第一次扩募并新购入基础设施项目”，于5月25日正式获得深圳证券交易所受理。
+新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。
 
-这是碧澄能源继2025年底实现首单设立之后，工商业分布式光伏行业机构间REITs的首单扩募申报。
+这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。
 
-扩募正在成为市场检验REITs底层资产质量的重要标尺。
+在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。
 
-目前，REITs市场处于从资产发行走向资本循环，从“量”的跨越进入“质”的检验阶段。
+经查，网传信息均为虚构，属地公安机关已对张某作出行政处罚。
 
-首发是起点，扩募才是REITs真正“活起来”的标志。
+在付某、邓某某、黄某某等6人虚构事实案中，6人为安徽宿州当地驾校培训行业从业人员，为博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发“安徽宿州2026年驾考新增项目”等谣言扩散，干扰驾校正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
 
-持续扩募，意味着原始权益人碧澄能源不仅具备资产开发能力，更拥有持续的资产运营与注入能力。
+对这类散布网络谣言违法犯罪行为，全国公安网安部门将持续加大打击整治力度，全力维护清朗网络空间与社会秩序。
 
-在新能源REITs产品扩募案例较为稀缺的背景下，碧澄能源此次扩募获受理更具行业意义。
-
-就资产端而言，碧澄能源首单机构间REITs底层光伏电站资产的稳健业绩为本次扩募提供了收益基础，扩募注入的新资产延续了同样的运营逻辑。
+网警提示，广大网民要恪守网络言行底线，坚持不信谣、不传谣、不造谣，切勿为博取流量虚构事实，共同维护清朗有序的网络环境。
 
 ## 相关推荐
 
-- 2026-06-30 07:28 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 07:25 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 07:33 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 07:30 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 07:11 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 07:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 07:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 07:09 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 07:25 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 07:06 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 07:25 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 07:32 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 07:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 07:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 07:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 07:31 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 07:22 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 07:12 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 07:18 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 07:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:38 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 07:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 07:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 07:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 07:30 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 07:29 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/7794273634.shtml)
-- 2026-06-30 07:11 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/321305369.shtml)
-- 2026-06-30 07:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/1449768.shtml)
-- 2026-06-30 07:18 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/501838460.shtml)
-- 2026-06-30 07:06 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/70103.shtml)
-- 2026-06-30 07:12 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/9294028.shtml)
-- 2026-06-30 07:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/210694983.shtml)
-- 2026-06-30 07:19 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/9959572761.shtml)
-- 2026-06-30 07:26 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/12585.shtml)
-- 2026-06-30 07:11 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/72184108379.shtml)
-- 2026-06-30 07:22 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/928519285.shtml)
-- 2026-06-30 07:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/375120.shtml)
-- 2026-06-30 07:25 - [三星投资计划](http://www.blog.minike.top/Article/details/756712922868.shtml)
-- 2026-06-30 07:07 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/46617.shtml)
-- 2026-06-30 07:27 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/62474.shtml)
+- 2026-06-30 07:37 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/64649.shtml)
+- 2026-06-30 07:29 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/549239370.shtml)
+- 2026-06-30 07:20 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/3371893.shtml)
+- 2026-06-30 07:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/827227.shtml)
+- 2026-06-30 07:23 - [金刚川](https://www.blog.kurohicncr.top/Article/details/1812661961.shtml)
+- 2026-06-30 07:23 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/46933400973.shtml)
+- 2026-06-30 07:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/42295587.shtml)
+- 2026-06-30 07:34 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/504839212693.shtml)
+- 2026-06-30 07:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/54999067.shtml)
+- 2026-06-30 07:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/5710697.shtml)
+- 2026-06-30 07:27 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/55421525325.shtml)
+- 2026-06-30 07:29 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/92537.shtml)
+- 2026-06-30 07:26 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/591566766.shtml)
+- 2026-06-30 07:12 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/155633277.shtml)
+- 2026-06-30 07:19 - [田中碧失误](http://www.blog.minike.top/Article/details/90647933.shtml)

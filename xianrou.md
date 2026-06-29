@@ -1,53 +1,59 @@
-# 光大证券：剑桥科技首次覆盖给予“买入”评级 光模块业务迎来拐点
+# 沃伦参议员致信特朗普，质询政府是否计划上调社保法定退休年龄
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-光大证券发布研报称，预测剑桥科技（06166）26-28年归母净利润分别为20.72亿、33.33亿、52.59亿元人民币，同比增长686%、61%、58%。公司2026年5月22日股价142.7港元对应26-28年21x、13x、8x PE，低于可比公司PE均值。基于：1）公司800G光模块已向核心客户批量发货；1.6T完成客户送样，有望于26年内量产；2）公司马来西亚工厂扩
+核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。 周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。 沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推
 
 ## 正文
 
-光大证券发布研报称，预测剑桥科技（06166）26-28年归母净利润分别为20.72亿、33.33亿、52.59亿元人民币，同比增长686%、61%、58%。
+核心要点 马萨诸塞州民主党联邦参议员伊丽莎白・沃伦要求特朗普政府澄清其对于上调社保退休年龄的立场。
 
-公司2026年5月22日股价142.7港元对应26-28年21x、13x、8x PE，低于可比公司PE均值。
+周日晚间，沃伦致信特朗普总统，援引美国社会保障局最新受托人报告数据。
 
-基于：1）公司800G光模块已向核心客户批量发货；1.6T完成客户送样，有望于26年内量产；2）公司马来西亚工厂扩产顺利，并成功通过大客户认证，叠加公司绑定上游光芯片等核心物料供应商，产能、原材料瓶颈均有改善；3）前沿光通信技术研发持续开展，与头部公司差距有望持续缩小。
+报告最新预测显示，用于发放养老金的社保信托基金将在 2032 年末耗尽，距今仅剩六年多时间；如果国会议员届时未出台补救法案，养老金仅能发放原有标准的 78%。
 
-该行认为公司具备一定的标的稀缺性和溢价空间，首次覆盖，给予剑桥科技“买入”评级。
+沃伦在信中写道：“共和党历来屡次尝试提高退休年龄、推动社保私有化或是削减养老金福利。
 
-责任编辑：卢昱君
+如今部分国会共和党议员提出，上调退休年龄、对养老金实施收入核查是解决社保资金缺口的‘良方’。
+
+” 多位专家表示，调整社保领取年龄门槛，本质等同于削减退休人员福利。
+
+白宫暂未就沃伦的信函对外作出回应。
+
+上周有媒体问及本届政府社保改革规划，包括是否考虑上调退休年龄时，白宫发言人莉兹・休斯顿通过邮件表态：“特朗普总统将始终维护并强化社保体系。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 07:20 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 07:13 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 07:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 07:23 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 07:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 07:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 07:22 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:07 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 07:32 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 07:10 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 07:23 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 07:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 07:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 07:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 07:36 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 07:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 07:13 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 07:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 07:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 07:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 07:17 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 07:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 07:36 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 07:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:12 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/333428.shtml)
-- 2026-06-30 07:25 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/9417379245.shtml)
-- 2026-06-30 07:22 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/33130807.shtml)
-- 2026-06-30 07:11 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/1750392.shtml)
-- 2026-06-30 07:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/1511042.shtml)
-- 2026-06-30 07:20 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/443084184679.shtml)
-- 2026-06-30 07:17 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/635930.shtml)
-- 2026-06-30 07:25 - [青春环游记第三季](https://www.share.minike.top/Article/details/383759519977.shtml)
-- 2026-06-30 07:35 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/79624.shtml)
-- 2026-06-30 07:14 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/8635772.shtml)
-- 2026-06-30 07:26 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/8656006.shtml)
-- 2026-06-30 07:09 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/77802.shtml)
-- 2026-06-30 07:25 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/5267392104.shtml)
-- 2026-06-30 07:21 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/2181075477.shtml)
-- 2026-06-30 07:28 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/917043720276.shtml)
+- 2026-06-30 07:41 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/8100569.shtml)
+- 2026-06-30 07:30 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/706977312791.shtml)
+- 2026-06-30 07:37 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/1032484592.shtml)
+- 2026-06-30 07:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/49760.shtml)
+- 2026-06-30 07:41 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/205583467.shtml)
+- 2026-06-30 07:18 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/786510812648.shtml)
+- 2026-06-30 07:32 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/959291.shtml)
+- 2026-06-30 07:22 - [森保一 保守](http://www.blog.minike.top/Article/details/091121018355.shtml)
+- 2026-06-30 07:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/063255.shtml)
+- 2026-06-30 07:28 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/94225871.shtml)
+- 2026-06-30 07:18 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/07220187.shtml)
+- 2026-06-30 07:16 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/7865549.shtml)
+- 2026-06-30 07:29 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/98740081666.shtml)
+- 2026-06-30 07:18 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/17827534255.shtml)
+- 2026-06-30 07:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/691790.shtml)

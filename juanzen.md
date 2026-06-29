@@ -1,52 +1,47 @@
-# 皇家马德里足球俱乐部前队长桑奇斯获聘“滇超”顾问
+# 澳门政发局局长张作文：首季GDP增7.1%
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 14:04 来源：中国新闻网 5月23日，“皇马五鹰”之一马诺洛·桑奇斯亮相昆明市体育场，获聘云南省城市足球联赛(简称“滇超”)顾问。当日恰逢他61岁生日，现场观众向桑奇斯致以生日祝福。 云南省和昆明市相关负责人向桑奇斯颁发了聘书和纪念品，桑奇斯向赛事赠送签名球衣、签名足球，随后他为“滇超”第十四轮开球。 作为全国首个零碳足球联赛，“滇超”覆盖
+发布时间：2026年06月16日 08:49 来源：中国新闻网 6月15日，在“机遇澳门”主题采访中，澳门特区政府政策研究和区域发展局局长张作文向媒体记者表示，今年以来澳门发展势头良好，第一季度本地生产总值增长7.1%，来澳游客增长11%，经济适度多元发展，各项工作有序推进。(记者 陈子彦 制作 徐妙巧) 责任编辑：【黄钰涵】
 
 ## 正文
 
-发布时间：2026年05月24日 14:04 来源：中国新闻网 5月23日，“皇马五鹰”之一马诺洛·桑奇斯亮相昆明市体育场，获聘云南省城市足球联赛(简称“滇超”)顾问。
+发布时间：2026年06月16日 08:49 来源：中国新闻网 6月15日，在“机遇澳门”主题采访中，澳门特区政府政策研究和区域发展局局长张作文向媒体记者表示，今年以来澳门发展势头良好，第一季度本地生产总值增长7.1%，来澳游客增长11%，经济适度多元发展，各项工作有序推进。
 
-当日恰逢他61岁生日，现场观众向桑奇斯致以生日祝福。
-
-云南省和昆明市相关负责人向桑奇斯颁发了聘书和纪念品，桑奇斯向赛事赠送签名球衣、签名足球，随后他为“滇超”第十四轮开球。
-
-作为全国首个零碳足球联赛，“滇超”覆盖云南16州(市)，共128场比赛，是云南史上规模最大的省级足球赛事。
-
-(陈晨） 责任编辑：【王凯】
+(记者 陈子彦 制作 徐妙巧) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 07:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 07:12 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 07:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 07:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 07:08 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 07:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 07:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 07:23 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 07:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 07:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 07:10 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 07:13 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 07:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 07:41 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 07:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 07:30 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 07:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 07:34 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 07:13 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:38 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 07:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 07:34 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/56012343689.shtml)
-- 2026-06-30 07:19 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/18319314.shtml)
-- 2026-06-30 07:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/010938859342.shtml)
-- 2026-06-30 07:27 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/379719683668.shtml)
-- 2026-06-30 07:07 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/9816148087.shtml)
-- 2026-06-30 07:34 - [逃狱兄弟](http://www.blog.minike.top/Article/details/69306.shtml)
-- 2026-06-30 07:07 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/03903377.shtml)
-- 2026-06-30 07:10 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/342152248533.shtml)
-- 2026-06-30 07:22 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/21323584105.shtml)
-- 2026-06-30 07:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/423338.shtml)
-- 2026-06-30 07:30 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/143447636.shtml)
-- 2026-06-30 07:32 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/969433.shtml)
-- 2026-06-30 07:35 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/70008.shtml)
-- 2026-06-30 07:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/2768774169.shtml)
-- 2026-06-30 07:32 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/48633214457.shtml)
+- 2026-06-30 07:17 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/2597877.shtml)
+- 2026-06-30 07:40 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/240251140803.shtml)
+- 2026-06-30 07:26 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/0406956253.shtml)
+- 2026-06-30 07:29 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/2037335.shtml)
+- 2026-06-30 07:34 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/23709812431.shtml)
+- 2026-06-30 07:33 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/37661466371.shtml)
+- 2026-06-30 07:28 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/8921034.shtml)
+- 2026-06-30 07:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/958906786926.shtml)
+- 2026-06-30 07:21 - [极限挑战第一季](http://www.share.minike.top/Article/details/4074705239.shtml)
+- 2026-06-30 07:18 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/720692.shtml)
+- 2026-06-30 07:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/86656250.shtml)
+- 2026-06-30 07:14 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/2704523.shtml)
+- 2026-06-30 07:21 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/78721058.shtml)
+- 2026-06-30 07:41 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/190279.shtml)
+- 2026-06-30 07:20 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/87375549084.shtml)

@@ -1,54 +1,60 @@
-# 精锋医疗-B早盘涨近12% 获纳入恒生综合指数 有望进入港股通名单
+# 四川雅江多名工作人员向河道丢弃垃圾？官方回应
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-精锋医疗-B（02675）早盘涨超11%，截至发稿，股价上涨11.91%，现报59.65港元，成交额3145.18万港元。 5月22日，恒生指数系列季度检讨结果出炉，其中精锋医疗获纳入恒生综合指数。变动将于2026年6月5日收市后实施并于2026年6月8日起生效，届时沪深交易所会相应调整港股通可投资标的范围。精锋医疗有可能被调入港股通，因其满足了包括市值、流动性等在内的一系列标
+清理垃圾变“垃圾入江” 雅江回应：批评教育，已整改完成 日前，一名游客发视频反映，甘孜州雅江县一河道内，一名工作人员用木棍将岸边垃圾拨入雅砻江，质疑该处理方式是否合适。6月14日，雅江县水利局(县总河长办公室)工作人员就这起“向雅砻江丢弃垃圾”事件回应华西都市报、封面新闻记者，称此事已处理并整改完成。 在该游客所发视频的评论区，自称该辖区负责人的网友也进行了回复：“感谢游客热心
 
 ## 正文
 
-精锋医疗-B（02675）早盘涨超11%，截至发稿，股价上涨11.91%，现报59.65港元，成交额3145.18万港元。
+清理垃圾变“垃圾入江” 雅江回应：批评教育，已整改完成 日前，一名游客发视频反映，甘孜州雅江县一河道内，一名工作人员用木棍将岸边垃圾拨入雅砻江，质疑该处理方式是否合适。
 
-5月22日，恒生指数系列季度检讨结果出炉，其中精锋医疗获纳入恒生综合指数。
+6月14日，雅江县水利局(县总河长办公室)工作人员就这起“向雅砻江丢弃垃圾”事件回应华西都市报、封面新闻记者，称此事已处理并整改完成。
 
-变动将于2026年6月5日收市后实施并于2026年6月8日起生效，届时沪深交易所会相应调整港股通可投资标的范围。
+在该游客所发视频的评论区，自称该辖区负责人的网友也进行了回复：“感谢游客热心监督，我们迅速落实整改、从严约束作业人员，并对该名人员进行了批评教育。
 
-精锋医疗有可能被调入港股通，因其满足了包括市值、流动性等在内的一系列标准。
+现持续整改中。
 
-据悉，精锋医疗锚定全球化布局战略，已形成覆盖多孔腔镜手术机器人、单孔腔镜手术机器人及远程手术系统和支气管镜机器人的产品与技术体系，推出了全球唯一的多孔+单孔+远程 三合一产品，并持续探索手术机器人在精准微创、远程医疗、跨区域医疗协同等场景中的应用价值。
+” 男子将垃圾往河水里赶“这般处理合适吗？
 
-责任编辑：卢昱君
+” “雅江县处理垃圾的方式好特别啊，把垃圾往河道里赶。
+
+”日前，有游客发视频称，雅江县一河道内，多名手拿工具的工作人员在清理河道垃圾，这本来是一件好事，当地也在沿江干流开展“践行河长制，争当‘河小青’”的河道垃圾集中清理志愿服务活动，可他却对眼前看到的一幕感到不解：一名黑衣工作人员用木棍将岸边垃圾往河水里面拨，看起来是想让垃圾顺水往下游漂走。
+
+“如此这般处理垃圾真的合适吗？
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 07:07 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 07:14 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:19 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 07:08 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 07:30 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 07:26 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 07:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 07:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 07:11 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 07:07 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 07:17 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 07:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 07:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 07:39 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 07:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 07:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 07:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 07:32 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 07:35 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 07:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:38 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:39 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/41844380997.shtml)
-- 2026-06-30 07:15 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/7584556.shtml)
-- 2026-06-30 07:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/13849350884.shtml)
-- 2026-06-30 07:21 - [速度与激情9](https://www.share.minike.top/Article/details/130371505228.shtml)
-- 2026-06-30 07:14 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/3558913.shtml)
-- 2026-06-30 07:32 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/61651293295.shtml)
-- 2026-06-30 07:35 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/842421.shtml)
-- 2026-06-30 07:31 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/8055241154.shtml)
-- 2026-06-30 07:26 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/455574787432.shtml)
-- 2026-06-30 07:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/434776.shtml)
-- 2026-06-30 07:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/681561545.shtml)
-- 2026-06-30 07:22 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/358570790.shtml)
-- 2026-06-30 07:29 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/135590675042.shtml)
-- 2026-06-30 07:12 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/65636.shtml)
-- 2026-06-30 07:13 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/700703457.shtml)
+- 2026-06-30 07:40 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/51432965.shtml)
+- 2026-06-30 07:13 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/637720263317.shtml)
+- 2026-06-30 07:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/905361461.shtml)
+- 2026-06-30 07:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/872065100672.shtml)
+- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/28380.shtml)
+- 2026-06-30 07:24 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/68912.shtml)
+- 2026-06-30 07:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/12781920078.shtml)
+- 2026-06-30 07:34 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/13510929.shtml)
+- 2026-06-30 07:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/79332.shtml)
+- 2026-06-30 07:18 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/82006697.shtml)
+- 2026-06-30 07:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/84516.shtml)
+- 2026-06-30 07:29 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/45860.shtml)
+- 2026-06-30 07:33 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/181146911611.shtml)
+- 2026-06-30 07:31 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/46087038.shtml)
+- 2026-06-30 07:33 - [我们的少年时代2](https://www.share.minike.top/Article/details/1349099.shtml)

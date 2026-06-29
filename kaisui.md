@@ -1,59 +1,52 @@
-# 今年首个！中国电信集团级大规模光缆集采来了
+# 美国还在说“不”，中国风电已经领跑
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-光通信企业的新机会。5月25日，中国电信发布公告，宣布启动室外光缆、引入光缆、一级干线光缆，以及干线光缆接头盒等产品集中采购项目集中资格预审，这是今年运营商集团层面的首个大规模光缆集采项目，备受关注。据公告，此次中国电信采购的产品主要面向2026-2027年度各项光纤光缆建设工程，但并未公布具体采购数量，仅表示实际采购数量及型号以本次集中资格预审范围内的各单项工程为准。具体而言
+发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。《纽约时报》刊文直言，中国大力投资风电正在获得回报。西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占
 
 ## 正文
 
-光通信企业的新机会。
+发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。
 
-5月25日，中国电信发布公告，宣布启动室外光缆、引入光缆、一级干线光缆，以及干线光缆接头盒等产品集中采购项目集中资格预审，这是今年运营商集团层面的首个大规模光缆集采项目，备受关注。
+2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。
 
-据公告，此次中国电信采购的产品主要面向2026-2027年度各项光纤光缆建设工程，但并未公布具体采购数量，仅表示实际采购数量及型号以本次集中资格预审范围内的各单项工程为准。
+《纽约时报》刊文直言，中国大力投资风电正在获得回报。
 
-具体而言，在室外光缆方面，中国电信采购的主要是GYTA、GYTS、GYDTA、GYDXTW等类型光缆；引入光缆方面，中国电信采购的主要是蝶形引入光缆、圆形引入光缆、隐形光缆、室内外引入光缆等类型光缆；一级干线光缆方面，中国电信采购的主要是G.654.E、G.652.D类型光缆产品；干线光缆接头盒方面，中国电信采购的主要是帽式光缆接头盒、卧式光缆接头盒类型产品。
+西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占全球市场60%以上，它们正在让清洁电力变得触手可及。
 
-中国电信集团层面的室外光缆、引入光缆产品集采通常每年进行一次，但是2025年中国电信宣布启动相关产品集采后，并未实际落地，原因未知。
-
-这也导致中国电信各省市分公司于2025年底至今，陆续进行了室外光缆、引入光缆等产品的应急采购，以满足各地区光缆建设需求。
-
-不过，2025年10月，中国电信2025—2026年度一级干线光缆及接头盒集中采购项目成功落地，干线光缆标包由长飞光纤、中天科技、烽火通信和亨通光电分享，干线光缆接头盒标包由通鼎宽带获得。
-
-制图：高超
+责任编辑：【张舰元】
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 07:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:13 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 07:33 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 07:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:33 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 07:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 07:08 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 07:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 07:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 07:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 07:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 07:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 07:31 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 07:15 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 07:14 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 07:42 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 07:14 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 07:30 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 07:34 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 07:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 07:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 07:12 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8441177.shtml)
-- 2026-06-30 07:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/206427356964.shtml)
-- 2026-06-30 07:07 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/251628284277.shtml)
-- 2026-06-30 07:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/91866.shtml)
-- 2026-06-30 07:15 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/2789409404.shtml)
-- 2026-06-30 07:26 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/14216183.shtml)
-- 2026-06-30 07:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/68996272538.shtml)
-- 2026-06-30 07:10 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/84585.shtml)
-- 2026-06-30 07:32 - [流金岁月](https://www.share.kurohicncr.top/Article/details/1851828432.shtml)
-- 2026-06-30 07:28 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/089165.shtml)
-- 2026-06-30 07:34 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/73320192.shtml)
-- 2026-06-30 07:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/4609497.shtml)
-- 2026-06-30 07:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/511069925569.shtml)
-- 2026-06-30 07:09 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/65639.shtml)
-- 2026-06-30 07:21 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/188776963.shtml)
+- 2026-06-30 07:19 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/0479682.shtml)
+- 2026-06-30 07:17 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/09185823.shtml)
+- 2026-06-30 07:27 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/31080.shtml)
+- 2026-06-30 07:16 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/52382.shtml)
+- 2026-06-30 07:19 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/4226955597.shtml)
+- 2026-06-30 07:31 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/56985.shtml)
+- 2026-06-30 07:16 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/585262.shtml)
+- 2026-06-30 07:32 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/75077.shtml)
+- 2026-06-30 07:21 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/22410281.shtml)
+- 2026-06-30 07:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/427136.shtml)
+- 2026-06-30 07:22 - [日本进球](https://www.blog.kurohicncr.top/Article/details/393883400.shtml)
+- 2026-06-30 07:26 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/5671576497.shtml)
+- 2026-06-30 07:29 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/355035.shtml)
+- 2026-06-30 07:17 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/937446119918.shtml)
+- 2026-06-30 07:30 - [巴拉圭进球](https://www.share.minike.top/Article/details/323563.shtml)

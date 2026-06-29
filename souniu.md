@@ -1,61 +1,57 @@
-# 外交部介绍巴基斯坦总理夏巴兹此访三大亮点
+# 美国股市：美伊临时协议提振风险偏好 纳斯达克100指数大涨3.1%
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月26日电 (记者 谢雁冰)中国外交部发言人毛宁26日主持例行记者会。 有记者提问：我们注意到，巴基斯坦总理夏巴兹刚刚结束访华，发言人能否进一步介绍访问情况及此访主要成果和亮点？ 毛宁：巴基斯坦总理夏巴兹于5月23日至26日对中国进行正式访问。这是中巴建交75周年之际，两国间的一次重要高层交往，是对中巴特殊友好关系的巩固和提升。这次访问有三大亮点： 一是元首外交领航
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。SpaceX股价上涨20%，进一步提振市场风险偏好。 以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。 费城半导体指数上涨5.4%，触及纪录高点。 芯片股和人工智能概念股普遍走高，美光科技上涨1
 
 ## 正文
 
-中新网北京5月26日电 (记者 谢雁冰)中国外交部发言人毛宁26日主持例行记者会。
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。
 
-有记者提问：我们注意到，巴基斯坦总理夏巴兹刚刚结束访华，发言人能否进一步介绍访问情况及此访主要成果和亮点？
+SpaceX股价上涨20%，进一步提振市场风险偏好。
 
-毛宁：巴基斯坦总理夏巴兹于5月23日至26日对中国进行正式访问。
+以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。
 
-这是中巴建交75周年之际，两国间的一次重要高层交往，是对中巴特殊友好关系的巩固和提升。
+费城半导体指数上涨5.4%，触及纪录高点。
 
-这次访问有三大亮点： 一是元首外交领航，彰显中巴关系的战略性。
+芯片股和人工智能概念股普遍走高，美光科技上涨11%，闪迪上涨6.5%。
 
-中巴建交75年来，两国相互理解、相互信任、相互支持，锻造了牢不可破的传统友谊。
+美国和伊朗官员定于6月19日在瑞士正式签署协议。
 
-访问期间，习近平主席同夏巴兹总理深入沟通，两国领导人一致同意深化中巴全天候战略合作伙伴关系，加快构建更加紧密的中巴命运共同体，坚定支持彼此维护核心利益，为中巴关系提供政治引领，注入强劲动力。
+双方尚未公布协议文本，预计最棘手的问题将留待后续阶段处理。
 
-二是务实合作支撑，彰显中巴关系的互利性。
+RBC美国股票策略研究主管Lori Calvasina周一在报告中写道，“在接下来的几周里，我们将密切关注外界对美联储、利率和通胀预期的调整情况”，因为股市估值泡沫有所消退，但谈不上特别有吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 07:07 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 07:18 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 07:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 07:11 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 07:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 07:07 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 07:35 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 07:30 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 07:29 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 07:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 07:31 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 07:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 07:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 07:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 07:12 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 07:25 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 07:13 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 07:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:19 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 07:37 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 07:23 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 07:14 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 07:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:41 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/685825629.shtml)
-- 2026-06-30 07:22 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/51184.shtml)
-- 2026-06-30 07:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/76650981.shtml)
-- 2026-06-30 07:15 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/8073674.shtml)
-- 2026-06-30 07:22 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/7742662656.shtml)
-- 2026-06-30 07:24 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/440828.shtml)
-- 2026-06-30 07:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/706455838541.shtml)
-- 2026-06-30 07:15 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/39689.shtml)
-- 2026-06-30 07:25 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/54490863.shtml)
-- 2026-06-30 07:31 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/192383.shtml)
-- 2026-06-30 07:15 - [毒液2](http://www.share.minike.top/Article/details/6635793.shtml)
-- 2026-06-30 07:12 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/68813096.shtml)
-- 2026-06-30 07:12 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/7803346.shtml)
-- 2026-06-30 07:06 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/575708.shtml)
-- 2026-06-30 07:20 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/261638622232.shtml)
+- 2026-06-30 07:26 - [一生一世](https://www.share.kurohicncr.top/Article/details/108855735676.shtml)
+- 2026-06-30 07:26 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/75002.shtml)
+- 2026-06-30 07:22 - [金牌调解](http://www.share.kurohicncr.top/Article/details/3034287.shtml)
+- 2026-06-30 07:22 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/143331483775.shtml)
+- 2026-06-30 07:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/15919021398.shtml)
+- 2026-06-30 07:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/8601082561.shtml)
+- 2026-06-30 07:34 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/752572.shtml)
+- 2026-06-30 07:38 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/123457248.shtml)
+- 2026-06-30 07:19 - [世界杯](http://www.blog.minike.top/Article/details/62449165.shtml)
+- 2026-06-30 07:19 - [爱很美味](https://www.share.minike.top/Article/details/528916.shtml)
+- 2026-06-30 07:13 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/8856397256.shtml)
+- 2026-06-30 07:40 - [速度与激情9](http://www.blog.minike.top/Article/details/8271862400.shtml)
+- 2026-06-30 07:29 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/88704529388.shtml)
+- 2026-06-30 07:33 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/8276172.shtml)
+- 2026-06-30 07:18 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/185158501591.shtml)

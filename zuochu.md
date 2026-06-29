@@ -1,59 +1,61 @@
-# 韩正同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会
+# 城堡证券：利率上升将对风险资产构成挑战 美联储最快可能9月加息
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月25日电 5月25日，国家副主席韩正在北京同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会并发表致辞。 韩正表示，2015年4月，习近平主席对巴基斯坦进行历史性国事访问，将中巴关系提升为全天候战略合作伙伴关系，为两国关系发展擘画了蓝图。今天，习近平主席同夏巴兹总理举行了富有成果的会见，为两国关系发展作出新的战略指引。中国和巴基斯坦是山水相连、命运与共的好朋友
+城堡证券表示，随着美联储逐步接近新一轮加息周期，加之投资者对人工智能造成经济影响的判断变得更加审慎，风险资产可能面临动荡。 该公司欧洲、中东和非洲固定收益销售主管Nohshad Shah表示，当前市场环境类似于世纪之交的互联网泡沫以及20世纪70年代由石油推动的通胀冲击的结合体。 Shah写道，在上述两个时期，高利率都扮演了重要角色。21世纪初，美联储收紧政策、油价上涨以及经济
 
 ## 正文
 
-新华社北京5月25日电 5月25日，国家副主席韩正在北京同巴基斯坦总理夏巴兹共同出席庆祝中巴建交75周年招待会并发表致辞。
+城堡证券表示，随着美联储逐步接近新一轮加息周期，加之投资者对人工智能造成经济影响的判断变得更加审慎，风险资产可能面临动荡。
 
-韩正表示，2015年4月，习近平主席对巴基斯坦进行历史性国事访问，将中巴关系提升为全天候战略合作伙伴关系，为两国关系发展擘画了蓝图。
+该公司欧洲、中东和非洲固定收益销售主管Nohshad Shah表示，当前市场环境类似于世纪之交的互联网泡沫以及20世纪70年代由石油推动的通胀冲击的结合体。
 
-今天，习近平主席同夏巴兹总理举行了富有成果的会见，为两国关系发展作出新的战略指引。
+Shah写道，在上述两个时期，高利率都扮演了重要角色。
 
-中国和巴基斯坦是山水相连、命运与共的好朋友，中巴传统友谊由两国老一辈领导人亲手缔造。
+21世纪初，美联储收紧政策、油价上涨以及经济增长放缓共同刺破了互联网股票泡沫。
 
-建交75年来，中巴两国始终相互尊重、相互信任、相互支持、守望相助，成为不同制度、不同文化国家友好交往、互利共赢的典范。
+20世纪70年代，能源价格飙升和通胀加速限制了美联储支持经济增长的能力，并引发股市的长期熊市。
 
-韩正指出，当前，世界百年变局加速演进，国际形势变乱交织。
+他表示：“这些时期带来的有益启示是，当长期增长逻辑依然具有吸引力，但宏观环境开始不利于股市叙事时，市场往往最为脆弱。
 
-外部环境越是复杂，中巴越要坚定站在一起。
+” Shah指出，如今顽固高企的通胀、持续走强的劳动力市场以及高油价表明美联储最快可能于9月加息。
 
-中方愿同巴方认真落实两国领导人达成的重要共识，以庆祝建交75周年为契机，赓续传统友谊，加强战略沟通，深化务实合作，在各自现代化进程中携手前行，加快构建新时代更加紧密的中巴命运共同体，为两国人民带来更多福祉，为地区和平、稳定、繁荣贡献力量。
+与此同时，投资者正越来越仔细地审视，人工智能应用是否广泛到足够支撑部分企业当前极高的盈利预期。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 07:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 07:07 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 07:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 07:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 07:09 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 07:21 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 07:13 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 07:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 07:11 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 07:33 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 07:13 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 07:18 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 07:20 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 07:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 07:39 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 07:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:22 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 07:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 07:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 07:36 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 07:19 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:17 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 07:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 07:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 07:22 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 07:37 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/0228899757.shtml)
-- 2026-06-30 07:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/583019.shtml)
-- 2026-06-30 07:22 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/999968.shtml)
-- 2026-06-30 07:17 - [请回答王牌2019](http://www.blog.minike.top/Article/details/20083.shtml)
-- 2026-06-30 07:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/5331867.shtml)
-- 2026-06-30 07:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/27830608430.shtml)
-- 2026-06-30 07:07 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/68558.shtml)
-- 2026-06-30 07:12 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/187651601.shtml)
-- 2026-06-30 07:30 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/41937362.shtml)
-- 2026-06-30 07:09 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/8838883.shtml)
-- 2026-06-30 07:19 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/854782580.shtml)
-- 2026-06-30 07:23 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/1327918.shtml)
-- 2026-06-30 07:35 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/23467635731.shtml)
-- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/1366642.shtml)
-- 2026-06-30 07:26 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/91322.shtml)
+- 2026-06-30 07:34 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/98345020037.shtml)
+- 2026-06-30 07:25 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/35963788.shtml)
+- 2026-06-30 07:32 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/4355653944.shtml)
+- 2026-06-30 07:20 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/89172589792.shtml)
+- 2026-06-30 07:12 - [千香](https://www.blog.kurohicncr.top/Article/details/983865732410.shtml)
+- 2026-06-30 07:21 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/032145659.shtml)
+- 2026-06-30 07:20 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/362928.shtml)
+- 2026-06-30 07:23 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/9060847.shtml)
+- 2026-06-30 07:20 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/326558873446.shtml)
+- 2026-06-30 07:38 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/872850.shtml)
+- 2026-06-30 07:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/569038.shtml)
+- 2026-06-30 07:32 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/22722021.shtml)
+- 2026-06-30 07:29 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/197012.shtml)
+- 2026-06-30 07:18 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/90528209155.shtml)
+- 2026-06-30 07:12 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/33708.shtml)

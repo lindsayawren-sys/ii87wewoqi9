@@ -1,59 +1,57 @@
-# 蘑菇中有“新蛋白”（科技瞭望）
+# 中方：将同各成员国一道将上合组织打造成共同发展繁荣的可靠依托
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-很多人熟悉蘑菇，却并不了解其菌丝体。 如果把蘑菇比作植物的果实，那么菌丝体就是它庞大的地下根系。它负责吸收营养、运输能量。现在科学家正试图把这张“地下生命网络”，变成人类未来的新蛋白来源。 近日，中国农业科学院农产品加工研究所食品生物制造创新团队发表最新研究，平菇菌丝体蛋白在营养组成、消化效率以及加工性能等方面，展现出优于大豆蛋白和酵母蛋白的潜力。 换句话说，它不仅蛋白质量高，
+中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。 有记者提问：今天是上海合作组织成立25周年。中方如何评价上合组织发展成就？中方为组织发展作出哪些突出贡献？ 林剑：2001年6月15日，上海合作组织成立。经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。25年来，上合组织成员国始终秉持“上海精神”，
 
 ## 正文
 
-很多人熟悉蘑菇，却并不了解其菌丝体。
+中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。
 
-如果把蘑菇比作植物的果实，那么菌丝体就是它庞大的地下根系。
+有记者提问：今天是上海合作组织成立25周年。
 
-它负责吸收营养、运输能量。
+中方如何评价上合组织发展成就？
 
-现在科学家正试图把这张“地下生命网络”，变成人类未来的新蛋白来源。
+中方为组织发展作出哪些突出贡献？
 
-近日，中国农业科学院农产品加工研究所食品生物制造创新团队发表最新研究，平菇菌丝体蛋白在营养组成、消化效率以及加工性能等方面，展现出优于大豆蛋白和酵母蛋白的潜力。
+林剑：2001年6月15日，上海合作组织成立。
 
-换句话说，它不仅蛋白质量高，而且更容易被人体吸收。
+经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。
 
-这让一种过去鲜少被关注的“蘑菇根系”，开始站上未来食品产业的风口。
+25年来，上合组织成员国始终秉持“上海精神”，坚持团结协作，不断深化政治、安全、经济、人文领域合作，打造和巩固本地区安全屏障、合作桥梁、友好纽带，成功探索出一条新型区域合作的道路，树立了新型国际关系典范。
 
-“菌丝蛋白”为何走进视野 如今，健身、减脂、延缓衰老等需求激发了人们对于高蛋白食物的关注。
+中国将上合组织视作周边外交优先方向。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 07:13 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 07:29 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 07:09 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 07:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 07:09 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 07:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 07:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 07:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 07:18 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 07:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 07:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 07:23 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 07:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 07:27 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 07:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 07:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 07:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 07:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:14 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/41711858253.shtml)
-- 2026-06-30 07:28 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/089835699468.shtml)
-- 2026-06-30 07:22 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/559837412327.shtml)
-- 2026-06-30 07:24 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/08867717.shtml)
-- 2026-06-30 07:23 - [美股](https://www.blog.minike.top/Article/details/986522401.shtml)
-- 2026-06-30 07:31 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/219300913.shtml)
-- 2026-06-30 07:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/715667937.shtml)
-- 2026-06-30 07:22 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/822795439.shtml)
-- 2026-06-30 07:27 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/81423055.shtml)
-- 2026-06-30 07:28 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/0854873482.shtml)
-- 2026-06-30 07:24 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/09195.shtml)
-- 2026-06-30 07:31 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/65750781115.shtml)
-- 2026-06-30 07:24 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/873981233.shtml)
-- 2026-06-30 07:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/861877.shtml)
-- 2026-06-30 07:23 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/425002.shtml)
+- 2026-06-30 07:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/84348.shtml)
+- 2026-06-30 07:37 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/60203.shtml)
+- 2026-06-30 07:33 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/07209709.shtml)
+- 2026-06-30 07:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/13091747.shtml)
+- 2026-06-30 07:37 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/586169667549.shtml)
+- 2026-06-30 07:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/4314837522.shtml)
+- 2026-06-30 07:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/25759422864.shtml)
+- 2026-06-30 07:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/2021910.shtml)
+- 2026-06-30 07:22 - [一见倾心](https://www.share.kurohicncr.top/Article/details/888095.shtml)
+- 2026-06-30 07:17 - [急先锋](http://www.blog.minike.top/Article/details/584568562.shtml)
+- 2026-06-30 07:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/930604.shtml)
+- 2026-06-30 07:28 - [巴西绝杀日本](https://www.share.minike.top/Article/details/1591269833.shtml)
+- 2026-06-30 07:33 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/868689237.shtml)
+- 2026-06-30 07:31 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/571337.shtml)
+- 2026-06-30 07:19 - [董卿父亲报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/760700590962.shtml)

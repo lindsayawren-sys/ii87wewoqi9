@@ -1,60 +1,59 @@
-# “十四五”浙江高新技术产业总产值年均增长13%
+# 总体质量安全状况良好 端午节前粽子专项抽检情况发布
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月24日电(鲍梦妮)5月24日，2026年度浙江省“全国科技活动周”在杭州举行。现场，浙江省科技信息研究院党委书记、院长俞锋华发布《2026年暨“十四五”浙江省高新技术产业发展报告》(下称《报告》)。 《报告》显示，浙江省高新技术产业总产值从2020年的4.28万亿元提升至2025年的7.87万亿元，年均增长13%；增加值占规上工业比重从59.61%提升至69.1%
+中新网6月15日电 据“市说新语”微信公众号消息，为切实保障端午节期间食品安全，营造安全放心的节日消费环境，市场监管总局在全国范围组织开展粽子专项抽检。抽检结果显示，粽子总体质量安全状况良好。 本次专项抽检覆盖全国31个省(区、市)，在超市、糕点店、批发市场、餐馆等重点经营场所，及美团、淘宝、京东等网络平台，随机抽检粽子及原材料糯米1167批次，涵盖五芳斋、三全、思念、北京稻香
 
 ## 正文
 
-中新网杭州5月24日电(鲍梦妮)5月24日，2026年度浙江省“全国科技活动周”在杭州举行。
+中新网6月15日电 据“市说新语”微信公众号消息，为切实保障端午节期间食品安全，营造安全放心的节日消费环境，市场监管总局在全国范围组织开展粽子专项抽检。
 
-现场，浙江省科技信息研究院党委书记、院长俞锋华发布《2026年暨“十四五”浙江省高新技术产业发展报告》(下称《报告》)。
+抽检结果显示，粽子总体质量安全状况良好。
 
-《报告》显示，浙江省高新技术产业总产值从2020年的4.28万亿元提升至2025年的7.87万亿元，年均增长13%；增加值占规上工业比重从59.61%提升至69.1%，进一步确立了在该省工业结构中的核心主导地位。
+本次专项抽检覆盖全国31个省(区、市)，在超市、糕点店、批发市场、餐馆等重点经营场所，及美团、淘宝、京东等网络平台，随机抽检粽子及原材料糯米1167批次，涵盖五芳斋、三全、思念、北京稻香村、元祖、知味观等流通范围广、市场销售量大的品牌。
 
-产业规模持续扩大的同时，其产业效益亦显著提升。
+检验项目紧盯群众关心的防腐剂、甜味剂、着色剂等食品添加剂，金黄色葡萄球菌、菌落总数、大肠菌群等微生物指标以及过氧化值等质量指标。
 
-该省高新技术产业销售产值从2020年的4.16万亿元提升至2025年的7.66万亿元，利税占规上工业比重从65.9%提升至71.8%，成为带动工业效益提升的主导力量。
+同时，针对原料糯米检验铅、镉、黄曲霉毒素B1等各类污染物和真菌毒素项目。
 
-此外，浙江高新技术产业研发强度从2020年的3.87%提升到2025年的4.25%。
+检出1批次餐饮自制的粽子超范围使用甜味剂糖精钠，糯米未检出不合格样品。
 
-新产品产值占规上工业比重由81%提高至86.5%。
-
-该省高新技术产业创新投入和产出持续保持稳步提升。
+针对本次抽检发现的不合格样品，市场监管总局已督促属地监管部门开展核查处置，压实食品生产经营者主体责任，全力守护节日期间人民群众“舌尖上的安全”。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 07:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 07:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 07:15 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 07:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 07:28 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 07:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:33 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 07:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 07:21 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 07:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 07:31 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 07:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 07:35 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 07:22 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 07:41 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 07:35 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 07:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 07:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 07:21 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 07:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 07:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 07:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 07:28 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 07:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 07:32 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/3013156.shtml)
-- 2026-06-30 07:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/96297.shtml)
-- 2026-06-30 07:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/4355012.shtml)
-- 2026-06-30 07:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/85896345923.shtml)
-- 2026-06-30 07:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/165080870.shtml)
-- 2026-06-30 07:22 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/191325966.shtml)
-- 2026-06-30 07:27 - [这一刀 会很帅](http://www.share.minike.top/Article/details/62287935402.shtml)
-- 2026-06-30 07:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/67140.shtml)
-- 2026-06-30 07:27 - [森保一 保守](http://www.share.minike.top/Article/details/86989.shtml)
-- 2026-06-30 07:16 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/57557.shtml)
-- 2026-06-30 07:35 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/810811.shtml)
-- 2026-06-30 07:15 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/1767503401.shtml)
-- 2026-06-30 07:21 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/805447.shtml)
-- 2026-06-30 07:19 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/1666953922.shtml)
-- 2026-06-30 07:33 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/737950.shtml)
+- 2026-06-30 07:20 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/66769.shtml)
+- 2026-06-30 07:24 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/7746601260.shtml)
+- 2026-06-30 07:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/83305908.shtml)
+- 2026-06-30 07:20 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/06699785.shtml)
+- 2026-06-30 07:31 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/14271.shtml)
+- 2026-06-30 07:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/8331127.shtml)
+- 2026-06-30 07:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/9459600.shtml)
+- 2026-06-30 07:28 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/956939604199.shtml)
+- 2026-06-30 07:25 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/76335.shtml)
+- 2026-06-30 07:29 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/71284.shtml)
+- 2026-06-30 07:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/7765982.shtml)
+- 2026-06-30 07:35 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/77875545302.shtml)
+- 2026-06-30 07:30 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/34367089.shtml)
+- 2026-06-30 07:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/957005.shtml)
+- 2026-06-30 07:33 - [一生一世](https://www.share.kurohicncr.top/Article/details/67980534014.shtml)

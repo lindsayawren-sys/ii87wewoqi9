@@ -1,57 +1,45 @@
-# 美团、腾讯参投！机器人公司天机智能完成10亿元融资
+# 上海：苏州河城市龙舟邀请赛举行
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-5月25日，天机机器人公众号发布消息称，广东天机智能系统有限公司（下称天机智能）于近日正式完成10亿元B轮及B+轮融资，投后估值近百亿。 据介绍，本轮融资由高瓴创投、美团战投联合领投，腾讯、高榕创投、光合创投、纪源资本等联合跟投，高鹄资本担任独家财务顾问。本轮融资将主要用于技术研发、大规模量产，及全球销售网络建设。 天机智能成立于2015年5月19日，注册资本约为1.8亿元，法
+发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-5月25日，天机机器人公众号发布消息称，广东天机智能系统有限公司（下称天机智能）于近日正式完成10亿元B轮及B+轮融资，投后估值近百亿。
-
-据介绍，本轮融资由高瓴创投、美团战投联合领投，腾讯、高榕创投、光合创投、纪源资本等联合跟投，高鹄资本担任独家财务顾问。
-
-本轮融资将主要用于技术研发、大规模量产，及全球销售网络建设。
-
-天机智能成立于2015年5月19日，注册资本约为1.8亿元，法定代表人为陈曦。
-
-该公司由深圳市长盈精密技术股份有限公司持股27%，CLH 142（HK）Limited持股19.7212%，陈曦持股15.225%等。
-
-该公司以机器人及控制系统为核心，聚焦机器人产品及应用，具有中小负载全类型机器人产品矩阵，自研天机Fusion控制系统。
-
-该公司自称，是全球首家自研MEMS关节扭矩传感器并应用于机器人关节的具身智能公司。
-
-据官网数据，截止2022年底，使用天机产品的客户超800余家，在线稳定运行机器人超10000台套。
+发布时间：2026年06月16日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 07:28 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:34 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:16 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 07:17 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 07:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 07:32 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 07:26 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 07:21 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 07:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 07:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 07:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 07:30 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 07:15 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 07:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 07:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 07:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 07:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 07:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:30 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 07:21 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:38 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 07:41 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/870700.shtml)
-- 2026-06-30 07:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/75055.shtml)
-- 2026-06-30 07:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/728480410.shtml)
-- 2026-06-30 07:23 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/9228776.shtml)
-- 2026-06-30 07:31 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/578322842822.shtml)
-- 2026-06-30 07:17 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/64669375938.shtml)
-- 2026-06-30 07:34 - [齐思钧回复张月](http://www.share.minike.top/Article/details/24296711931.shtml)
-- 2026-06-30 07:31 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/7770071.shtml)
-- 2026-06-30 07:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/561711799552.shtml)
-- 2026-06-30 07:12 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/119324.shtml)
-- 2026-06-30 07:26 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/486508.shtml)
-- 2026-06-30 07:20 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/7391215749.shtml)
-- 2026-06-30 07:29 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/223753496667.shtml)
-- 2026-06-30 07:35 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/332989.shtml)
-- 2026-06-30 07:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/27787849642.shtml)
+- 2026-06-30 07:24 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/65514931.shtml)
+- 2026-06-30 07:36 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/90502.shtml)
+- 2026-06-30 07:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/23366115931.shtml)
+- 2026-06-30 07:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/283050.shtml)
+- 2026-06-30 07:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/914840717217.shtml)
+- 2026-06-30 07:38 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/24143183.shtml)
+- 2026-06-30 07:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/7978020.shtml)
+- 2026-06-30 07:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/83637489.shtml)
+- 2026-06-30 07:32 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/0495315.shtml)
+- 2026-06-30 07:12 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/819984784027.shtml)
+- 2026-06-30 07:30 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/7856990.shtml)
+- 2026-06-30 07:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/50578505674.shtml)
+- 2026-06-30 07:12 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/806457698276.shtml)
+- 2026-06-30 07:24 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/0558561224.shtml)
+- 2026-06-30 07:38 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7906243.shtml)

@@ -1,59 +1,57 @@
-# 第三届中国经贸论坛在剑桥大学举行
+# IMF总裁：能源供应恢复需要时间 仍对中东战争的影响“高度警惕”
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-中新网伦敦5月26日电 (欧阳开宇 卢映荷)围绕“中国企业出海、人工智能、金融科技”等前沿领域话题，第三届中国经贸论坛日前在剑桥大学嘉治商学院举行。 近年来中国企业出海英国成果斐然。奇瑞的一款混合动力车在登陆英国一年左右的时间，已经成为英国汽车月度销售冠军；比亚迪已经成为英国市场电动车的最大品牌，位居今年前4个月电动车销量榜首。在车企之外，京东英国线上零售平台已经正式推出，与亚
+国际货币基金组织（IMF）表示，尽管美国和伊朗宣布达成协议重新开放霍尔木兹海峡，但能源供应恢复需要时间，因此该组织仍对中东战争给全球经济带来的影响保持“高度警惕”。 国际货币基金组织总裁格奥尔基耶娃在周一发表的一篇博客文章中写道：“全球经济迄今经受住了冲击，这令人安心。但不能自满。”她表示，“大宗商品价格、通胀及通胀预期，以及金融状况都受到了影响”，但“尚未达到显示全球经济放缓
 
 ## 正文
 
-中新网伦敦5月26日电 (欧阳开宇 卢映荷)围绕“中国企业出海、人工智能、金融科技”等前沿领域话题，第三届中国经贸论坛日前在剑桥大学嘉治商学院举行。
+国际货币基金组织（IMF）表示，尽管美国和伊朗宣布达成协议重新开放霍尔木兹海峡，但能源供应恢复需要时间，因此该组织仍对中东战争给全球经济带来的影响保持“高度警惕”。
 
-近年来中国企业出海英国成果斐然。
+国际货币基金组织总裁格奥尔基耶娃在周一发表的一篇博客文章中写道：“全球经济迄今经受住了冲击，这令人安心。
 
-奇瑞的一款混合动力车在登陆英国一年左右的时间，已经成为英国汽车月度销售冠军；比亚迪已经成为英国市场电动车的最大品牌，位居今年前4个月电动车销量榜首。
+但不能自满。
 
-在车企之外，京东英国线上零售平台已经正式推出，与亚马逊等外国传统零售平台开始正式竞争。
+”她表示，“大宗商品价格、通胀及通胀预期，以及金融状况都受到了影响”，但“尚未达到显示全球经济放缓的程度”。
 
-在此次剑桥中国经贸论坛上，来自比亚迪、小米、奇瑞、京东的欧洲高管，分享了中国企业出海的宝贵经验。
+在美国和以色列三个多月前联手袭击伊朗引发战争之后，美国和伊朗称已达成一项临时和平协议，将重新开放霍尔木兹海峡。
 
-比亚迪欧洲汽车销售事业部市场与公共关系总监彭莹莹结合比亚迪在欧洲的出海经验指出，中国企业出海需要坚持长期战略，不能图快和追求短期速成。
+该协议的完整细节尚不清楚。
 
-“我们来这里不仅是为了卖产品，更是为了树立能与本地消费者建立真正情感连接与信任的品牌。
+格奥尔基耶娃表示，对全球经济而言，过去几个月能源短缺造成的影响，得到了技术进步的缓冲。
 
-我们必须时刻思考如何实现本土化，并为当地社区做出贡献。
+她特别提到，对人工智能和数据中心的投资发挥了作用。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 07:21 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 07:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 07:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 07:32 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 07:35 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 07:29 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 07:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 07:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 07:31 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 07:24 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 07:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 07:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 07:22 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 07:16 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 07:39 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 07:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 07:24 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 07:16 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 07:34 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/569585043276.shtml)
-- 2026-06-30 07:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/309381167.shtml)
-- 2026-06-30 07:21 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/91505.shtml)
-- 2026-06-30 07:08 - [逃狱兄弟](https://www.blog.minike.top/Article/details/6096089.shtml)
-- 2026-06-30 07:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/9240142508.shtml)
-- 2026-06-30 07:25 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/77488972740.shtml)
-- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/12350.shtml)
-- 2026-06-30 07:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/810263291237.shtml)
-- 2026-06-30 07:15 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/57669744.shtml)
-- 2026-06-30 07:33 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/227880.shtml)
-- 2026-06-30 07:29 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/95729.shtml)
-- 2026-06-30 07:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/3787625.shtml)
-- 2026-06-30 07:08 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/65299564.shtml)
-- 2026-06-30 07:25 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/62886222.shtml)
-- 2026-06-30 07:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/8499952425.shtml)
+- 2026-06-30 07:37 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/3532775.shtml)
+- 2026-06-30 07:32 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/874679.shtml)
+- 2026-06-30 07:30 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/29719.shtml)
+- 2026-06-30 07:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/2970441153.shtml)
+- 2026-06-30 07:31 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/58515229.shtml)
+- 2026-06-30 07:27 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/736973950887.shtml)
+- 2026-06-30 07:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/61439928.shtml)
+- 2026-06-30 07:12 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/07829294933.shtml)
+- 2026-06-30 07:28 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/0625009.shtml)
+- 2026-06-30 07:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/49330678.shtml)
+- 2026-06-30 07:15 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/189319704208.shtml)
+- 2026-06-30 07:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/5215703832.shtml)
+- 2026-06-30 07:31 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/1592208.shtml)
+- 2026-06-30 07:21 - [送你一朵小红花](http://www.blog.minike.top/Article/details/112726.shtml)
+- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/10295056.shtml)

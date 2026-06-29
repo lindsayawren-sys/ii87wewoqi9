@@ -1,58 +1,57 @@
-# 600745，控股股东100%持股突遭冻结
+# 中国驻东京旅游办事处参加“2026石川中国节”
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月25日晚间，*ST闻泰（600745）公告称，公司于近日收到中国证券登记结算有限责任公司上海分公司系统通知，获悉公司控股股东闻天下科技集团有限公司（以下简称“闻天下”）所持有的公司股票存在被冻结的情况。 公告显示，闻天下共计持有*ST闻泰1.54亿股左右，占公司总股本的12.37%；本次被司法冻结的股份数量为1.54亿股左右
+中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。 活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。为增强互动、拉近与当地民众的距离，展台还设置了
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月25日晚间，*ST闻泰（600745）公告称，公司于近日收到中国证券登记结算有限责任公司上海分公司系统通知，获悉公司控股股东闻天下科技集团有限公司（以下简称“闻天下”）所持有的公司股票存在被冻结的情况。
+中新网东京6月15日电 6月13日至14日，由“2026石川中国节”执行委员会主办、中国驻东京旅游办事处等单位支持的“2026石川中国节”在日本石川县金泽市成功举办。
 
-公告显示，闻天下共计持有*ST闻泰1.54亿股左右，占公司总股本的12.37%；本次被司法冻结的股份数量为1.54亿股左右，占其所持有公司股份数量比例100%。
+活动期间，中国驻东京旅游办事处的展台成为本届“石川中国节”上一道亮丽的风景线。
 
-上述股份冻结起始日为今年5月22日，冻结到期日为2029年5月21日，冻结申请人为西藏自治区拉萨市中级人民法院，冻结原因为司法冻结。
+一本本精美的中国旅游图册在展台上铺展开来，将中国的壮丽山河、历史遗迹与世界遗产娓娓道来。
 
-以5月25日收盘价计算，上述被冻结的*ST闻泰股份合计市值约为26.2亿元。
+为增强互动、拉近与当地民众的距离，展台还设置了以熊猫周边为奖品的趣味抽奖，吸引男女老少纷纷排队一试身手。
 
-*ST闻泰表示，截至公告披露日，上述股东除本次冻结外，不存在股份被冻结的其他情况，累计被冻结股份即为本次冻结数量1.54亿股左右，占其所持有公司股份数量比例100%，占公司总股本的12.37%。
+工作人员细致地向当地日本民众介绍赴华旅游30天免签政策及最新的文旅相关资讯，耐心解答每一位咨询者的疑问。
 
-*ST闻泰公告显示，本次司法冻结系控股股东闻天下、实际控制人张学政与姜照柏之间的合同纠纷仲裁案所引发。
+整个活动期间，展台前始终人头攒动，体现出当地民众对“中国之旅”的向往与热情。
 
-姜照柏向西藏自治区拉萨市中级人民法院申请了财产保全，西藏自治区拉萨市中级人民法院根据申请冻结了闻天下持有的*ST闻泰股份。
+“中国节”系列品牌活动自2017年起在日本举办，是一项知名度高、影响力广泛的中日文化交流活动，旨在“向日本民众介绍中国，增进两国人民的相互理解及友好交流”。
 
-具体来看，仲裁申请人为姜照柏（系公司原股东西藏风格投资管理有限公司、西藏富恒投资管理有限公司、上海鹏欣智澎投资中心（有限合伙）的实际控制人），被申请人为张学政和闻天下，张学政和闻天下已就相关合同向姜照柏提出反仲裁请求。
+此次活动首次走进石川县，缘于2024年日本能登半岛地震期间，不少中国企业与在日华侨华人向当地给予支援，使双方的交流与合作关系由此不断深化。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:06 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 07:21 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 07:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 07:26 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 07:10 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 07:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 07:36 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 07:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 07:23 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 07:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 07:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 07:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 07:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 07:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 07:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 07:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 07:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/884041.shtml)
-- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/776374.shtml)
-- 2026-06-30 07:11 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/744968.shtml)
-- 2026-06-30 07:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/001324.shtml)
-- 2026-06-30 07:08 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/01754.shtml)
-- 2026-06-30 07:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8438746556.shtml)
-- 2026-06-30 07:25 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/6675885759.shtml)
-- 2026-06-30 07:31 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/02898.shtml)
-- 2026-06-30 07:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/153039043111.shtml)
-- 2026-06-30 07:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/30062979068.shtml)
-- 2026-06-30 07:13 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/89461.shtml)
-- 2026-06-30 07:35 - [这一刀 会很帅](https://www.share.minike.top/Article/details/548266.shtml)
-- 2026-06-30 07:32 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/21714.shtml)
-- 2026-06-30 07:28 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/956541.shtml)
-- 2026-06-30 07:21 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/55182.shtml)
+- 2026-06-30 07:17 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/44962072655.shtml)
+- 2026-06-30 07:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/631721433723.shtml)
+- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/963708.shtml)
+- 2026-06-30 07:24 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/0088363280.shtml)
+- 2026-06-30 07:23 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/847424857226.shtml)
+- 2026-06-30 07:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/93125.shtml)
+- 2026-06-30 07:18 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/14141.shtml)
+- 2026-06-30 07:34 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/7408989375.shtml)
+- 2026-06-30 07:23 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/006873.shtml)
+- 2026-06-30 07:22 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/8501643.shtml)
+- 2026-06-30 07:20 - [人类...完蛋了...](http://www.share.minike.top/Article/details/81696.shtml)
+- 2026-06-30 07:24 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/009347511.shtml)
+- 2026-06-30 07:19 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/686230.shtml)
+- 2026-06-30 07:30 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/923842314760.shtml)
+- 2026-06-30 07:41 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/69907898547.shtml)

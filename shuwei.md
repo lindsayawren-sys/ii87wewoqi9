@@ -1,50 +1,56 @@
-# “Z世代”秦岭创业记：山水之间玩转大漆慢生活
+# 蒙古国总理乌其尔勒会见王毅
 
-> 更新时间：2026-06-30 07:36:02 UTC+8
+> 更新时间：2026-06-30 07:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 17:08 来源：中国新闻网 西安青年高裕华深耕漆艺创作，专注传统大漆工艺。几年前，她离开城市，来到秦岭山下的小栗峪村创业，将漆艺手作与身心疗愈相结合。 高裕华称，大漆制作工序烦琐，周期很长，一件作品需要数月才能完成。繁复重复的工序易使人产生疲惫感，因此她在漆艺教学体验中，加入身心疗愈环节，形成独特的体验模式。 记者 党田野 西安报道 责任编辑
+2026年6月15日，蒙古国总理乌其尔勒在乌兰巴托会见中共中央政治局委员、外交部长王毅。 乌其尔勒表示，同中国睦邻友好、加强合作是蒙古国外交的首要方针。蒙中两国始终尊重彼此独立、主权和领土完整，尊重各自选择的发展道路。蒙方坚定恪守一个中国原则，认为台湾、涉疆、涉藏、涉港问题都是中国内政，中华人民共和国政府是代表全中国的唯一合法政府，不支持“台湾独立”。蒙方愿同中方共同落实好两国
 
 ## 正文
 
-发布时间：2026年05月25日 17:08 来源：中国新闻网 西安青年高裕华深耕漆艺创作，专注传统大漆工艺。
+2026年6月15日，蒙古国总理乌其尔勒在乌兰巴托会见中共中央政治局委员、外交部长王毅。
 
-几年前，她离开城市，来到秦岭山下的小栗峪村创业，将漆艺手作与身心疗愈相结合。
+乌其尔勒表示，同中国睦邻友好、加强合作是蒙古国外交的首要方针。
 
-高裕华称，大漆制作工序烦琐，周期很长，一件作品需要数月才能完成。
+蒙中两国始终尊重彼此独立、主权和领土完整，尊重各自选择的发展道路。
 
-繁复重复的工序易使人产生疲惫感，因此她在漆艺教学体验中，加入身心疗愈环节，形成独特的体验模式。
+蒙方坚定恪守一个中国原则，认为台湾、涉疆、涉藏、涉港问题都是中国内政，中华人民共和国政府是代表全中国的唯一合法政府，不支持“台湾独立”。
 
-记者 党田野 西安报道 责任编辑：【罗攀】
+蒙方愿同中方共同落实好两国元首达成的重要共识，密切高层交往、巩固政治互信，加强互联互通，积极推进“三位一体”合作协议和重大项目建设，推动两国全面战略伙伴关系不断向前发展。
+
+中国是蒙古国最重要的经贸伙伴，今年两国贸易有望实现200亿美元的目标，希望双方采取更多贸易便利化措施，推动贸易结构多元化，加强口岸、铁路等互联互通及基础设施、矿业合作。
+
+蒙方高度重视中国企业关切，愿为中国企业来蒙投资提供更加友好和法治化的营商环境。
+
+王毅表示，中蒙山水相连、命运与共，是永远的邻居，睦邻友好、团结合作、共创未来是双方唯一正确选择。
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 07:16 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 07:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 07:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 07:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 07:10 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 07:10 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 07:32 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 07:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 07:14 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 07:17 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 07:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 07:20 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 07:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 07:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 07:27 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 07:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/085867203.shtml)
-- 2026-06-30 07:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/07417789.shtml)
-- 2026-06-30 07:08 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/301205877311.shtml)
-- 2026-06-30 07:29 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/351906.shtml)
-- 2026-06-30 07:31 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/697953593461.shtml)
-- 2026-06-30 07:15 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/89186553.shtml)
-- 2026-06-30 07:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/69479.shtml)
-- 2026-06-30 07:18 - [金刚川](https://www.share.kurohicncr.top/Article/details/597542.shtml)
-- 2026-06-30 07:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/952972536.shtml)
-- 2026-06-30 07:16 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/9151340846.shtml)
-- 2026-06-30 07:11 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/966256206550.shtml)
-- 2026-06-30 07:27 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/62046769.shtml)
-- 2026-06-30 07:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/559892.shtml)
-- 2026-06-30 07:13 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/64929772378.shtml)
-- 2026-06-30 07:21 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/4292434.shtml)
+- 2026-06-30 07:19 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/3017527523.shtml)
+- 2026-06-30 07:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/237674335.shtml)
+- 2026-06-30 07:24 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/559326577.shtml)
+- 2026-06-30 07:28 - [齐思钧回复张月](http://www.blog.minike.top/Article/details/73532935439.shtml)
+- 2026-06-30 07:41 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/91816913.shtml)
+- 2026-06-30 07:30 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/96485296.shtml)
+- 2026-06-30 07:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/271298.shtml)
+- 2026-06-30 07:31 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/661016971.shtml)
+- 2026-06-30 07:40 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/469515.shtml)
+- 2026-06-30 07:13 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/472092602.shtml)
+- 2026-06-30 07:32 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/13723.shtml)
+- 2026-06-30 07:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/5633596501.shtml)
+- 2026-06-30 07:30 - [爱很美味](http://www.share.minike.top/Article/details/0510558217.shtml)
+- 2026-06-30 07:12 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/90311.shtml)
+- 2026-06-30 07:34 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/3910465525.shtml)
