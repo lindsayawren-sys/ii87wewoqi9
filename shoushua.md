@@ -1,61 +1,44 @@
-# 奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%
+# 在高原腹地，直击新疆军区某团装甲步兵连考核现场
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。奇瑞集团芜湖埃科泰克动力总成有限公司副总经理张志福出席并演讲。 张志福谈到，当前汽车市场发展速度极快，同时技术同质化趋势也越来越明显。在这样的背景下，如何在满足用户需求的基础上实现技术突破，是
+发布时间：2026年06月15日 12:04 来源：中国新闻网 在装甲步兵连进攻战斗考核现场，考核以装甲步兵班进攻、防御战斗为背景，穿插进行接敌运动等实战化科目，全面检验官兵们在陌生环境下指挥决策、快速反应、组织协同等综合实战能力。(作者：石瑾光 孙阳 鸿彬 张行 易晖 坤鹏) 责任编辑：【魏聪聪】
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+发布时间：2026年06月15日 12:04 来源：中国新闻网 在装甲步兵连进攻战斗考核现场，考核以装甲步兵班进攻、防御战斗为背景，穿插进行接敌运动等实战化科目，全面检验官兵们在陌生环境下指挥决策、快速反应、组织协同等综合实战能力。
 
-奇瑞集团芜湖埃科泰克动力总成有限公司副总经理张志福出席并演讲。
-
-张志福谈到，当前汽车市场发展速度极快，同时技术同质化趋势也越来越明显。
-
-在这样的背景下，如何在满足用户需求的基础上实现技术突破，是行业共同思考的问题。
-
-目前主流混动架构、混动变速箱（单档、多档）都趋于同质化，发动机也普遍朝着高效化方向升级，大多在传统架构上进行优化探索，对此，奇瑞形成了自己的思路与方案。
-
-从市场格局来看，中国新能源汽车渗透率已位居全球首位，电动化全球化发展趋势不可逆转。
-
-“我们更关注的是，未来混动、增程（REV）、油电混动（HEV）等仍搭载发动机的车型，市场份额会如何演变。
-
-” 他指出，从混动架构分布来看，串并联与增程架构已成为绝对主流，市场占比超过97%。
+(作者：石瑾光 孙阳 鸿彬 张行 易晖 坤鹏) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 00:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 00:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 00:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 00:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 00:06 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 00:29 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 00:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 00:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 00:24 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 00:26 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 00:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 00:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:20 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 00:06 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 00:11 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 00:28 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 00:10 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 00:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 00:13 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 00:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 00:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 00:33 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [一见倾心](http://www.share.minike.top/Article/details/633226462905.shtml)
-- 2026-06-30 00:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/20114921.shtml)
-- 2026-06-30 00:26 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/8536249.shtml)
-- 2026-06-30 00:29 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/83205.shtml)
-- 2026-06-30 00:22 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/976479390217.shtml)
-- 2026-06-30 00:00 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/530712847216.shtml)
-- 2026-06-30 00:04 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/9029938959.shtml)
-- 2026-06-30 00:12 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/53865838.shtml)
-- 2026-06-30 00:11 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/979198.shtml)
-- 2026-06-30 00:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/314914.shtml)
-- 2026-06-30 00:09 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/604280658.shtml)
-- 2026-06-30 00:12 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/7823253867.shtml)
-- 2026-06-30 00:03 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/8989199.shtml)
-- 2026-06-30 00:16 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/4292500.shtml)
-- 2026-06-30 00:29 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/931235.shtml)
+- 2026-06-30 00:16 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/5554737.shtml)
+- 2026-06-30 00:12 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/848832456.shtml)
+- 2026-06-30 00:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/3360414679.shtml)
+- 2026-06-30 00:07 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/94863286.shtml)
+- 2026-06-30 00:33 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/36694080.shtml)
+- 2026-06-30 00:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/347079.shtml)
+- 2026-06-30 00:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/322106492.shtml)
+- 2026-06-30 00:21 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/2067778473.shtml)
+- 2026-06-30 00:24 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/3846610979.shtml)
+- 2026-06-30 00:31 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/494253277598.shtml)
+- 2026-06-30 00:07 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/17576372849.shtml)
+- 2026-06-30 00:32 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/4863269.shtml)
+- 2026-06-30 00:33 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/38613428.shtml)
+- 2026-06-30 00:11 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/05528116.shtml)
+- 2026-06-30 00:27 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/552725.shtml)

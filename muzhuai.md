@@ -1,59 +1,57 @@
-# 周光涛：AI正推动汽车从“功能载体”向“原生AI智能体”演进
+# AI硬件再度疯狂，港股硬科技霸气领涨！规模最大港股通信息技术ETF华宝（159131）大涨逾6% ，全市场涨幅第一
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。联通智网科技车辆智能网联研究院院长、智能网联科学家周光涛出席并演讲。 周光涛指出，AI原生时代的到来正推动汽车从“功能载体”向“原生AI智能体”演进，而这一变革离不开“云网深度融合”的新型基础
+6月15日午后，港股硬科技持续领涨全市场。智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。 消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mytho
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+6月15日午后，港股硬科技持续领涨全市场。
 
-联通智网科技车辆智能网联研究院院长、智能网联科学家周光涛出席并演讲。
+智谱涨超35%，建滔积层板、建滔集团、壁仞科技、英诺赛科、华虹宏力等多股涨超10%。
 
-周光涛指出，AI原生时代的到来正推动汽车从“功能载体”向“原生AI智能体”演进，而这一变革离不开“云网深度融合”的新型基础设施支撑。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，现涨6.47%，涨幅高居全市场ETF第一，实时成交额超14亿元。
 
-他认为，AI与汽车的融合并非简单的功能迭代，而是带来三大根本性变革：汽车成为“原生AI智能体”、服务从“一次性售卖”到“长期运营”、智能从“单车智能”到“群智协同”。
+消息面上，北京时间6月9日，Anthropic发布迄今最强模型Claude Fable 5与Mythos 5，在软件工程、知识工作、视觉、科学研究等几乎所有基准测试中全面领先。
 
-周光涛指出，当前车端算力面临“生命周期短、场景适配难”的困境，车辆出厂时固化的算力难以支撑未来5-10年的应用升级，而不同场景（如城市道路、停车场、高速）对算力的需求差异巨大。
+仅三天后（6月12日），美国政府以国家安全为由下达出口管制指令，要求暂停所有外籍人士对这两款模型的访问权限。
 
-周光涛强调，数据是AI智能体的“燃料”，但当前行业面临“数据质量低、流通难、应用散”的问题。
+Anthropic因无法按国籍精准区分用户，最终选择全球全量下线。
 
-他还表示，AI原生时代的智能汽车竞争，本质是“基础设施+生态”的竞争。
+仅隔一天（6月13日），智谱AI宣布旗下最强开源模型GLM-5.2全量开放，开放时间“17：21”精准对应美方禁令发出的美东时间，形成了一次精心策划的战略性回应。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+广发证券 明确指出，本次事件的核心影响不在于两款模型的短期下线，而在于海外前沿模型服务的不确定性进一步上升。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 00:08 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 00:22 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 00:28 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 00:28 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:07 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 00:29 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 00:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 00:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 00:25 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 00:02 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 00:00 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 00:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 00:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 00:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 00:32 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 00:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 00:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 00:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 00:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:32 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 00:30 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 00:22 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/1304447.shtml)
-- 2026-06-30 00:26 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/9162108.shtml)
-- 2026-06-30 00:22 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/338658533.shtml)
-- 2026-06-30 00:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/782586090939.shtml)
-- 2026-06-30 00:03 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/6537664.shtml)
-- 2026-06-30 00:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/66074132.shtml)
-- 2026-06-30 00:24 - [东方风云榜](http://www.share.minike.top/Article/details/248472039718.shtml)
-- 2026-06-30 00:20 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/6936731328.shtml)
-- 2026-06-30 00:10 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/195976.shtml)
-- 2026-06-30 00:11 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/35037194270.shtml)
-- 2026-06-30 00:24 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/258946383.shtml)
-- 2026-06-30 00:18 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/347835.shtml)
-- 2026-06-30 00:06 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/041340953868.shtml)
-- 2026-06-30 00:20 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/59669841.shtml)
-- 2026-06-30 00:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/764649.shtml)
+- 2026-06-30 00:25 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/39804081076.shtml)
+- 2026-06-30 00:27 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2029558.shtml)
+- 2026-06-30 00:24 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/204628083.shtml)
+- 2026-06-30 00:25 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/143102.shtml)
+- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/7988297661.shtml)
+- 2026-06-30 00:23 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/387846.shtml)
+- 2026-06-30 00:25 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/86274466.shtml)
+- 2026-06-30 00:18 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/768640.shtml)
+- 2026-06-30 00:18 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/53173550700.shtml)
+- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0411202757.shtml)
+- 2026-06-30 00:30 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/9600381.shtml)
+- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/7976896.shtml)
+- 2026-06-30 00:14 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/57266.shtml)
+- 2026-06-30 00:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/3026697.shtml)
+- 2026-06-30 00:09 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/388287162.shtml)

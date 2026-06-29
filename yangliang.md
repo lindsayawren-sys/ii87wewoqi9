@@ -1,58 +1,52 @@
-# 国家统计局：2026年3月份工业生产者出厂价格同比由降转涨 环比涨幅扩大
+# 美国还在说“不”，中国风电已经领跑
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年3月份，全国工业生产者出厂价格同比由上月下降0.9%转为上涨0.5%；环比上涨1.0%，涨幅比上月扩大0.6个百分点。工业生产者购进价格同比由上月下降0.7%转为上涨0.8%；环比上涨1.2%，涨幅比上月扩大0.5个百分点。一季度，工业生产者出厂价格比上年同期下降0.6%，工业生产者购进价格下降0
+发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。《纽约时报》刊文直言，中国大力投资风电正在获得回报。西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月15日 11:17 来源：三里河 眼下，全球有一个鲜明的对比，美国在叫停风电开发，但中国却正御风前行、默默领跑全球风电赛道。
 
-2026年3月份，全国工业生产者出厂价格同比由上月下降0.9%转为上涨0.5%；环比上涨1.0%，涨幅比上月扩大0.6个百分点。
+2025年，中国风电新增装机容量1.2亿千瓦，是世界其他地区总和的三倍，风机出口量大幅攀升。
 
-工业生产者购进价格同比由上月下降0.7%转为上涨0.8%；环比上涨1.2%，涨幅比上月扩大0.5个百分点。
+《纽约时报》刊文直言，中国大力投资风电正在获得回报。
 
-一季度，工业生产者出厂价格比上年同期下降0.6%，工业生产者购进价格下降0.5%。
+西方政客习惯将中国新能源定义为“威胁”，但全球南方正在说另一种语言：中国供应的风电已占全球市场60%以上，它们正在让清洁电力变得触手可及。
 
-一、工业生产者价格同比变动情况 3月份，工业生产者出厂价格中，生产资料价格上涨1.0%，影响工业生产者出厂价格总水平上涨约0.81个百分点。
-
-其中，采掘工业价格上涨2.0%，原材料工业价格上涨1.1%，加工工业价格上涨0.9%。
-
-生活资料价格下降1.3%，影响工业生产者出厂价格总水平下降约0.28个百分点。
-
-其中，食品价格下降1.7%，衣着价格下降1.1%，一般日用品价格下降1.4%，耐用消费品价格下降1.0%。
+责任编辑：【张舰元】
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 00:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 00:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 00:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 00:11 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 00:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 00:07 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 00:01 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 00:11 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 00:21 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 00:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 00:26 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 00:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 00:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 00:08 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 00:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 00:14 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 00:09 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 00:17 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 00:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 00:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 00:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [金刚川](http://www.share.minike.top/Article/details/56108.shtml)
-- 2026-06-30 00:15 - [田曦薇没招了](https://www.blog.minike.top/Article/details/216093.shtml)
-- 2026-06-30 00:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/2387045862.shtml)
-- 2026-06-30 00:20 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/04181.shtml)
-- 2026-06-30 00:06 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/57898437314.shtml)
-- 2026-06-30 00:25 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/07466462995.shtml)
-- 2026-06-30 00:11 - [炽夏](https://www.blog.kurohicncr.top/Article/details/84125.shtml)
-- 2026-06-30 00:14 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/146326582.shtml)
-- 2026-06-30 00:10 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/273191839159.shtml)
-- 2026-06-30 00:12 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/17034.shtml)
-- 2026-06-30 00:04 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/534148.shtml)
-- 2026-06-30 00:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/0928383205.shtml)
-- 2026-06-30 00:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/33271765.shtml)
-- 2026-06-30 00:20 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/537950.shtml)
-- 2026-06-30 00:07 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/1031858.shtml)
+- 2026-06-30 00:25 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/427259941.shtml)
+- 2026-06-30 00:06 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/664522672.shtml)
+- 2026-06-30 00:14 - [张凌赫 客串](http://www.blog.minike.top/Article/details/92118.shtml)
+- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/79249553582.shtml)
+- 2026-06-30 00:20 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/8725150.shtml)
+- 2026-06-30 00:24 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/21799.shtml)
+- 2026-06-30 00:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/988717070323.shtml)
+- 2026-06-30 00:08 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/2025265320.shtml)
+- 2026-06-30 00:26 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/185946753569.shtml)
+- 2026-06-30 00:09 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/37349.shtml)
+- 2026-06-30 00:17 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/6453663.shtml)
+- 2026-06-30 00:33 - [东方风云榜直播](http://www.share.minike.top/Article/details/776953.shtml)
+- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/72806347879.shtml)
+- 2026-06-30 00:24 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/473623729302.shtml)
+- 2026-06-30 00:35 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/9327953671.shtml)

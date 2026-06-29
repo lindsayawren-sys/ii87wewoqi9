@@ -1,61 +1,59 @@
-# 从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席
+# 精准施策盘活薄差储量 大庆油田杏南开发区攻克三类油层开发难题
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新社石家庄4月12日电 题：从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席 作者 王夏菲 翟羽佳 “我专程从天津赶来，就想亲眼看看这件两千多年前的‘香薰机’。”春暖花开时节，“90后”香薰爱好者郭修雯走进河北博物院，在错金铜博山炉前久久驻足，仿佛看到了袅袅青烟升起，与古人的“松弛时刻”隔空相遇。 这件让她专程奔赴的文物出土于河北保定满城汉墓，是汉代颇具代表性的香薰器物
+中新网大庆6月15日电 (裴宇)萨Ⅱ组差层阶段采出程度7.79%，超数值模拟1.88个百分点；区块采收率提升6.31个百分点，整体阶段采出程度达到32.08%。15日，记者从大庆油田获悉，一组实打实的数据，见证大庆油田杏南开发区攻克三类油层差层开发难题的显著成效。 杏南开发区经过长年开采，主力优质油层潜力日渐枯竭，稳产压力逐年加大。辖区内萨Ⅱ组差层储层条件差、渗透率低、层间差异
 
 ## 正文
 
-中新社石家庄4月12日电 题：从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席 作者 王夏菲 翟羽佳 “我专程从天津赶来，就想亲眼看看这件两千多年前的‘香薰机’。
+中新网大庆6月15日电 (裴宇)萨Ⅱ组差层阶段采出程度7.79%，超数值模拟1.88个百分点；区块采收率提升6.31个百分点，整体阶段采出程度达到32.08%。
 
-”春暖花开时节，“90后”香薰爱好者郭修雯走进河北博物院，在错金铜博山炉前久久驻足，仿佛看到了袅袅青烟升起，与古人的“松弛时刻”隔空相遇。
+15日，记者从大庆油田获悉，一组实打实的数据，见证大庆油田杏南开发区攻克三类油层差层开发难题的显著成效。
 
-这件让她专程奔赴的文物出土于河北保定满城汉墓，是汉代颇具代表性的香薰器物。
+杏南开发区经过长年开采，主力优质油层潜力日渐枯竭，稳产压力逐年加大。
 
-“汉代时，博山炉早已走进贵族阶层的生活，不仅能熏衣净室，更能借一缕青烟、一抹幽香，为人们营造出静谧松弛的意境，成为古人安放情绪的重要载体。
+辖区内萨Ⅱ组差层储层条件差、渗透率低、层间差异明显，过去注入压力提不上来，油层吸水能力弱，大量地下储量始终难以动用，一直是制约区块采收率提升的棘手难题。
 
-”河北博物院文博馆员吴丹丹称。
+大庆油田采油五厂第七作业区技术管理室主任白玉果告诉记者：“这些薄差层先天底子弱，简单注水根本带不动油，粗放开采只会加剧层间矛盾，想要唤醒沉睡储量，必须在注采两端下细功夫，搭配针对性压裂改造措施。
 
-“博山炉的盛行，离不开汉代香料的革新。
+” 针对地层实际情况，技术团队量身打造综合治理方案。
 
-”吴丹丹说，随着丝绸之路的开辟，乳香、龙脑香等树脂类香料源源不断传入中原，这类香料需要通过炭火缓慢阴燃才能让香气层层释放，而博山炉的构造恰好完美适配这一需求，让熏香从简单的气味扩散变成了一场可看、可闻、可感的“沉浸式体验”。
+注水端精细分层调配水量，循序渐进抬高注入压力，疏通地下渗流通道；采油端同步优化生产制度，平衡各层产出差异。
 
-跨越两千多年，青烟未散，中国人对“香气寄情”的需求从未改变。
+对渗流阻力大、储层堵塞严重的油井精准实施压裂作业，拓宽流体流动空间，一井一策补齐储层短板。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 00:13 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 00:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 00:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 00:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 00:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 00:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 00:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 00:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 00:19 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 00:25 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 00:14 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:27 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 00:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 00:16 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 00:25 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 00:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 00:34 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 00:29 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 00:35 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 00:12 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 00:33 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 00:14 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 00:35 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 00:12 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/565271464.shtml)
-- 2026-06-30 00:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/099474.shtml)
-- 2026-06-30 00:18 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/670775.shtml)
-- 2026-06-30 00:02 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/339419964.shtml)
-- 2026-06-30 00:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/772014.shtml)
-- 2026-06-30 00:06 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/2648963540.shtml)
-- 2026-06-30 00:01 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/94452.shtml)
-- 2026-06-30 00:25 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/47489209626.shtml)
-- 2026-06-30 00:19 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/67292405364.shtml)
-- 2026-06-30 00:02 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/963820.shtml)
-- 2026-06-30 00:08 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/4048196.shtml)
-- 2026-06-30 00:22 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/38400653.shtml)
-- 2026-06-30 00:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/34633.shtml)
-- 2026-06-30 00:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/42342405.shtml)
-- 2026-06-30 00:22 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/7822371983.shtml)
+- 2026-06-30 00:19 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/8419159.shtml)
+- 2026-06-30 00:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/2398679.shtml)
+- 2026-06-30 00:31 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/795202157.shtml)
+- 2026-06-30 00:07 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/49796726.shtml)
+- 2026-06-30 00:27 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/03441.shtml)
+- 2026-06-30 00:29 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/3812942.shtml)
+- 2026-06-30 00:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/518540257.shtml)
+- 2026-06-30 00:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/235688690.shtml)
+- 2026-06-30 00:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/8263795148.shtml)
+- 2026-06-30 00:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/39376797.shtml)
+- 2026-06-30 00:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/028372544491.shtml)
+- 2026-06-30 00:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/20758.shtml)
+- 2026-06-30 00:13 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/228496086.shtml)
+- 2026-06-30 00:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/02384.shtml)
+- 2026-06-30 00:30 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/70841480.shtml)

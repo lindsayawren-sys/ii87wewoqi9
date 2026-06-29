@@ -1,61 +1,58 @@
-# 极氪徐云：中国豪华汽车品牌应“靠技术立标准、靠创新赢市场”，而非靠价格换市场
+# 新疆自贸试验区首批联动创新区建设提速
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。极氪整车研究院院长徐云出席并演讲。 徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。她特别提到，超过80%的用户都来自BBA、保时捷、路虎等
+中新网乌鲁木齐6月12日电 (胡嘉琛)今年以来，中国(新疆)自由贸易试验区首批联动创新区共提出300多条改革创新举措，以“3+5”的开放新格局助力新疆高水平对外开放和高质量发展。 记者12日从新疆维吾尔自治区人民政府新闻办公室召开的新闻发布会获得上述消息。 2025年12月，自治区人民政府批复在博尔塔拉蒙古自治州、昌吉回族自治州、巴音郭楞蒙古自治州、阿克苏地区、石河子市设立首批
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网乌鲁木齐6月12日电 (胡嘉琛)今年以来，中国(新疆)自由贸易试验区首批联动创新区共提出300多条改革创新举措，以“3+5”的开放新格局助力新疆高水平对外开放和高质量发展。
 
-极氪整车研究院院长徐云出席并演讲。
+记者12日从新疆维吾尔自治区人民政府新闻办公室召开的新闻发布会获得上述消息。
 
-徐云介绍到，极氪9X已经连续5个月蝉联50万级大型SUV的销量冠军，单车成交均价已经超过了53万元。
+2025年12月，自治区人民政府批复在博尔塔拉蒙古自治州、昌吉回族自治州、巴音郭楞蒙古自治州、阿克苏地区、石河子市设立首批中国(新疆)自由贸易试验区联动创新区。
 
-她特别提到，超过80%的用户都来自BBA、保时捷、路虎等传统豪华品牌。
+据新疆商务厅党组成员、一级巡视员祝贺香介绍，首批联动创新区重点围绕产业高质量发展、物流枢纽建设、跨境经贸交流合作等方面，制定“一区一方案”，立足自身优势开展差异化探索。
 
-“用户用真金白银认可了极氪的技术实力。
+她表示，首批联动创新区着力打造制度创新成果复制推广先行区、开放型特色产业协同发展区，从而服务新疆经济社会高质量发展和国家向西开放战略的实施。
 
-” 同时，她提到，极氪9X在海外市场也很受欢迎，甚至出现了客户主动加价提车的现象。
+据悉，首批联动创新区将率先推广应用中国(新疆)自由贸易试验区的改革创新成果，推动改革红利向更大范围延伸释放，推动形成自贸试验区引领、各联动创新区承接、资源共享优势互补的产业发展新格局。
 
-这些用户也同样来自于BBA等奢牌，还有劳斯莱斯、宾利的一些用户。
-
-“他们本来就是对汽车领先技术的爱好者或者追逐者，9X可以给他们带来全新的产品体验和动力体验。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 00:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 00:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 00:09 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:02 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 00:24 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 00:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 00:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 00:09 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 00:27 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 00:20 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 00:13 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 00:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 00:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 00:32 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 00:26 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 00:16 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 00:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 00:06 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 00:18 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 00:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 00:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 00:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 00:35 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 00:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 00:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 00:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/07851575.shtml)
-- 2026-06-30 00:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/4652163159.shtml)
-- 2026-06-30 00:00 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/575031306471.shtml)
-- 2026-06-30 00:27 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/3110714.shtml)
-- 2026-06-30 00:11 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/058747.shtml)
-- 2026-06-30 00:04 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/1564232449.shtml)
-- 2026-06-30 00:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/811710.shtml)
-- 2026-06-30 00:16 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9800054319.shtml)
-- 2026-06-30 00:28 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/536278.shtml)
-- 2026-06-30 00:25 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/932191.shtml)
-- 2026-06-30 00:20 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/72678.shtml)
-- 2026-06-30 00:22 - [速度与激情9](https://www.share.minike.top/Article/details/80629908160.shtml)
-- 2026-06-30 00:04 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/653967422.shtml)
-- 2026-06-30 00:21 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/262499.shtml)
-- 2026-06-30 00:00 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/999271794.shtml)
+- 2026-06-30 00:33 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/93828297.shtml)
+- 2026-06-30 00:09 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/693867.shtml)
+- 2026-06-30 00:28 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/13130827.shtml)
+- 2026-06-30 00:17 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/50196766.shtml)
+- 2026-06-30 00:33 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/567530.shtml)
+- 2026-06-30 00:23 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/4981806060.shtml)
+- 2026-06-30 00:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/542106.shtml)
+- 2026-06-30 00:07 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/008874.shtml)
+- 2026-06-30 00:22 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/44863903.shtml)
+- 2026-06-30 00:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/60676068422.shtml)
+- 2026-06-30 00:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/05300518374.shtml)
+- 2026-06-30 00:31 - [女心理师](https://www.blog.kurohicncr.top/Article/details/84094.shtml)
+- 2026-06-30 00:27 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/38808796546.shtml)
+- 2026-06-30 00:16 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/41230241.shtml)
+- 2026-06-30 00:20 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/644679.shtml)

@@ -1,61 +1,60 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月10日_财经新闻
+# 2026年海峡两岸能源电力融合发展论坛在厦门举行
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 影响股市利好与利空消息 宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。记者提问称，美国总统特朗普表示，任何向伊朗提供军事武器的国家，其向美国出售的“任何及所有商品”将被“立即征收50%关税”，并称该措施“立即生效”“不设任何排除或豁免”。毛宁表示，中方的立场非常明确，关税战没有赢家。 2、商务部4月9日举行例行新闻发布会
+中新网厦门6月15日电 (彭莉芳)14日，2026年海峡两岸能源电力融合发展论坛在厦门举行。来自海峡两岸能源电力领域的专家学者齐聚一堂，围绕“加快新型电力系统建设 电亮两岸绿色能源未来”主题，开展学术交流与技术研讨，分享实践成果，融合两岸在能源电力技术方面的经验与优势，助力海峡两岸能源电力共同发展。 本次论坛由福建省科学技术协会指导，中国电机工程学会、国网福建省电力有限公司、台
 
 ## 正文
 
-专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 影响股市利好与利空消息 宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。
+中新网厦门6月15日电 (彭莉芳)14日，2026年海峡两岸能源电力融合发展论坛在厦门举行。
 
-记者提问称，美国总统特朗普表示，任何向伊朗提供军事武器的国家，其向美国出售的“任何及所有商品”将被“立即征收50%关税”，并称该措施“立即生效”“不设任何排除或豁免”。
+来自海峡两岸能源电力领域的专家学者齐聚一堂，围绕“加快新型电力系统建设 电亮两岸绿色能源未来”主题，开展学术交流与技术研讨，分享实践成果，融合两岸在能源电力技术方面的经验与优势，助力海峡两岸能源电力共同发展。
 
-毛宁表示，中方的立场非常明确，关税战没有赢家。
+本次论坛由福建省科学技术协会指导，中国电机工程学会、国网福建省电力有限公司、台湾电力发展协会、台湾百博智库协会主办，福建省电机工程学会、福建省水力和清洁能源发电工程学会、国网厦门供电公司承办。
 
-2、商务部4月9日举行例行新闻发布会。
+福建省科协党组成员、一级巡视员林学理说，面对绿色低碳转型的全球共识，两岸在新能源、智能电网、储能技术等能源电力领域具有广阔的合作前景。
 
-有记者问，有报道称，美国贸易代表格里尔表示将与北京方面展开工作层对话，是否会对继续延迟稀土出口管制有任何讨论和计划？
+本次论坛将进一步推动两岸能源电力科技社团、科研机构与电力企业建立常态化对接机制，携手加快构建闽台科技共同体，共同为实现海峡两岸能源电力绿色、低碳、协调、可持续发展贡献智慧和力量。
 
-发言人何亚东回应表示，根据中美吉隆坡经贸磋商共识，中方2025年10月9日公布的相关出口管制等措施，暂停实施至2026年11月10日。
+台湾电力发展协会理事长萧金益说，两岸在能源电力技术、智能电网建设、储能应用等领域，均具备扎实的技术积累与亮眼成果。
 
-中美双方将通过经贸磋商机制就各自关切持续保持沟通。
+两岸若能进一步深化能源电力领域交流、推进技术标准互通，不仅能助力两岸绿色能源产业降本增效，更能在区域能源转型过程中实现优势互补。
 
-3、有消息人士称，伊朗方面已告知谈判斡旋方巴基斯坦，在黎巴嫩实现停火之前，伊方代表团不会参加与美国的和谈。
+台湾百博智库协会理事长曹民和表示，面对高比例新能源并网、电网安全稳定运行等共同课题，两岸电力行业有着天然的合作基础与广阔的协作空间。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 00:18 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 00:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 00:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 00:29 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 00:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 00:15 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 00:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 00:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 00:14 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 00:04 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 00:02 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 00:20 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 00:14 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 00:13 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 00:14 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 00:08 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 00:31 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 00:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 00:08 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 00:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 00:07 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 00:10 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 00:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 00:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 00:32 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 00:10 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 00:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 00:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/539194271993.shtml)
-- 2026-06-30 00:14 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/46221471972.shtml)
-- 2026-06-30 00:22 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/24207774.shtml)
-- 2026-06-30 00:17 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/129380293350.shtml)
-- 2026-06-30 00:12 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/905367162400.shtml)
-- 2026-06-30 00:12 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/642773.shtml)
-- 2026-06-30 00:07 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/553458374750.shtml)
-- 2026-06-30 00:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/405952315.shtml)
-- 2026-06-30 00:15 - [恋与深空 巧合](http://www.share.minike.top/Article/details/360489.shtml)
-- 2026-06-30 00:24 - [一生一世](https://www.blog.kurohicncr.top/Article/details/779155592470.shtml)
-- 2026-06-30 00:29 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/757983699816.shtml)
-- 2026-06-30 00:28 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/529568690830.shtml)
-- 2026-06-30 00:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/9212513.shtml)
-- 2026-06-30 00:06 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/4709421.shtml)
-- 2026-06-30 00:27 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/990730382561.shtml)
+- 2026-06-30 00:19 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/77500658618.shtml)
+- 2026-06-30 00:10 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/47709896.shtml)
+- 2026-06-30 00:07 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/493584519044.shtml)
+- 2026-06-30 00:10 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/9152111.shtml)
+- 2026-06-30 00:29 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/2220990272.shtml)
+- 2026-06-30 00:34 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/993888154.shtml)
+- 2026-06-30 00:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/04325213.shtml)
+- 2026-06-30 00:34 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/647026326917.shtml)
+- 2026-06-30 00:28 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/052746.shtml)
+- 2026-06-30 00:25 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4851687.shtml)
+- 2026-06-30 00:16 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/91852950.shtml)
+- 2026-06-30 00:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/788326552.shtml)
+- 2026-06-30 00:30 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/178036286056.shtml)
+- 2026-06-30 00:20 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/34696534.shtml)
+- 2026-06-30 00:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/3514378.shtml)

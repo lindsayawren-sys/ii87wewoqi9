@@ -1,56 +1,60 @@
-# 凯盛新能盘中一度涨超19% 玻璃基板成AI算力封装新赛道
+# 《给阿嬷的情书》在港举办首映礼 主创团队：期待香江“家己人”收获别样共鸣
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-凯盛新能（01108）盘中一度涨超19%，高见4.42港元，公司A股涨停。截至发稿，股价上涨8.63%，现报4.03港元，成交额1.35亿港元。 根据半导体产业纵横报道，玻璃基板行业正经历从技术验证向早期量产的关键转折，2026年有望成为玻璃基板小批量商业化出货的节点。据证券时报·数据宝统计，A股市场上合计有22只玻璃基板概念股。其中，凯盛新能等个股机构一致预测今明两年净利增速
+发布时间：2026年06月13日 20:28 来源：中国新闻网 近期中国内地口碑票房双收的现象级影片《给阿嬷的情书》，将于6月18日正式登陆港澳院线。影片香港首映礼12日在香港尖沙咀举行，主创团队现身，与观众分享创作历程与香江情缘。 无明星加持、全潮汕方言，《给阿嬷的情书》用一封封泛黄侨批，串联起跨越山海、历经半生的守候故事。香港曾是侨批流转的重要枢纽，早在开埠之初，大批潮汕人
 
 ## 正文
 
-凯盛新能（01108）盘中一度涨超19%，高见4.42港元，公司A股涨停。
+发布时间：2026年06月13日 20:28 来源：中国新闻网 近期中国内地口碑票房双收的现象级影片《给阿嬷的情书》，将于6月18日正式登陆港澳院线。
 
-截至发稿，股价上涨8.63%，现报4.03港元，成交额1.35亿港元。
+影片香港首映礼12日在香港尖沙咀举行，主创团队现身，与观众分享创作历程与香江情缘。
 
-根据半导体产业纵横报道，玻璃基板行业正经历从技术验证向早期量产的关键转折，2026年有望成为玻璃基板小批量商业化出货的节点。
+无明星加持、全潮汕方言，《给阿嬷的情书》用一封封泛黄侨批，串联起跨越山海、历经半生的守候故事。
 
-据证券时报·数据宝统计，A股市场上合计有22只玻璃基板概念股。
+香港曾是侨批流转的重要枢纽，早在开埠之初，大批潮汕人就乘坐红头船来到香港落地扎根。
 
-其中，凯盛新能等个股机构一致预测今明两年净利增速均超100%。
+如今，大约每6名港人中就有1名祖籍潮汕。
 
-责任编辑：卢昱君
+这份深厚联结也让影片勾起了不少人的儿时回忆与情感共鸣。
+
+“江海万里，心中念你，便不觉遥远。
+
+”不少人表示，影片不仅是一代人的集体记忆，更映照出中国人的重情重义与家国情怀。
 
 ## 相关推荐
 
-- 2026-06-30 00:07 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 00:12 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 00:11 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 00:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 00:13 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 00:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 00:04 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 00:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 00:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:07 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 00:22 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 00:25 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 00:18 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 00:10 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 00:17 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 00:13 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 00:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 00:06 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 00:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 00:17 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 00:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 00:25 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 00:19 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 00:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 00:15 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 00:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 00:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/62509777.shtml)
-- 2026-06-30 00:11 - [房价什么时候能涨](https://www.share.minike.top/Article/details/0204547626.shtml)
-- 2026-06-30 00:28 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/60642624534.shtml)
-- 2026-06-30 00:28 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/779639947.shtml)
-- 2026-06-30 00:12 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/0011508.shtml)
-- 2026-06-30 00:24 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/75792.shtml)
-- 2026-06-30 00:03 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/0262294793.shtml)
-- 2026-06-30 00:27 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/72871177943.shtml)
-- 2026-06-30 00:27 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8688364298.shtml)
-- 2026-06-30 00:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/154948373798.shtml)
-- 2026-06-30 00:12 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/9438039.shtml)
-- 2026-06-30 00:23 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/1881884914.shtml)
-- 2026-06-30 00:27 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/2241766021.shtml)
-- 2026-06-30 00:03 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/5555258217.shtml)
-- 2026-06-30 00:09 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/645086192.shtml)
+- 2026-06-30 00:20 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/13567.shtml)
+- 2026-06-30 00:06 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/624688341.shtml)
+- 2026-06-30 00:11 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/4791233377.shtml)
+- 2026-06-30 00:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/52288.shtml)
+- 2026-06-30 00:27 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/795782.shtml)
+- 2026-06-30 00:07 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/2561941438.shtml)
+- 2026-06-30 00:24 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/756206220.shtml)
+- 2026-06-30 00:14 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/31414090.shtml)
+- 2026-06-30 00:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/5445994.shtml)
+- 2026-06-30 00:17 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/56395654974.shtml)
+- 2026-06-30 00:27 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/509552254.shtml)
+- 2026-06-30 00:08 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/1798096.shtml)
+- 2026-06-30 00:35 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/34398268.shtml)
+- 2026-06-30 00:28 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/682170268490.shtml)
+- 2026-06-30 00:16 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/769425561.shtml)

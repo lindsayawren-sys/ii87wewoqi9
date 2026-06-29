@@ -1,46 +1,53 @@
-# 汇聚科技于4月10日发行6.6万股
+# 法尔斯通讯社：伊朗对美伊协议的最终决定仍在进行审查
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-汇聚科技（01729）发布公告，于2026年4月10日，该公司发行6.6万股。责任编辑：卢昱君
+据半官方的法尔斯通讯社援引一位接近伊朗谈判团队的知情人士报道，伊朗尚未宣布其与美国可能签署谅解备忘录的最终决定。 这位不愿透露姓名的消息人士称，目前正在对拟议协议的政治、法律和技术层面进行审查。 当局正在对该协议进行详细评估。责任编辑：陈钰嘉
 
 ## 正文
 
-汇聚科技（01729）发布公告，于2026年4月10日，该公司发行6.6万股。
+据半官方的法尔斯通讯社援引一位接近伊朗谈判团队的知情人士报道，伊朗尚未宣布其与美国可能签署谅解备忘录的最终决定。
 
-责任编辑：卢昱君
+这位不愿透露姓名的消息人士称，目前正在对拟议协议的政治、法律和技术层面进行审查。
+
+当局正在对该协议进行详细评估。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 00:05 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:17 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 00:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 00:12 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 00:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 00:11 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 00:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 00:23 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 00:14 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 00:20 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 00:30 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 00:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 00:07 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 00:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 00:14 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 00:19 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 00:08 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 00:23 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 00:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 00:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 00:10 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 00:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 00:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 00:07 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 00:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/51729048851.shtml)
-- 2026-06-30 00:07 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/486273.shtml)
-- 2026-06-30 00:01 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/9365033.shtml)
-- 2026-06-30 00:29 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/26512468.shtml)
-- 2026-06-30 00:04 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/686273367.shtml)
-- 2026-06-30 00:29 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/14064.shtml)
-- 2026-06-30 00:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/595653.shtml)
-- 2026-06-30 00:08 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/915582.shtml)
-- 2026-06-30 00:13 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/49665612603.shtml)
-- 2026-06-30 00:10 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/139455336.shtml)
-- 2026-06-30 00:06 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/243536790.shtml)
-- 2026-06-30 00:29 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/246249060233.shtml)
-- 2026-06-30 00:25 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/6859578631.shtml)
-- 2026-06-30 00:23 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/776834122558.shtml)
-- 2026-06-30 00:08 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/271975624.shtml)
+- 2026-06-30 00:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/2584406541.shtml)
+- 2026-06-30 00:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/59652207572.shtml)
+- 2026-06-30 00:25 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/34747421.shtml)
+- 2026-06-30 00:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/8770058580.shtml)
+- 2026-06-30 00:08 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/8020297995.shtml)
+- 2026-06-30 00:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/255832242.shtml)
+- 2026-06-30 00:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/49356883599.shtml)
+- 2026-06-30 00:06 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/094750573544.shtml)
+- 2026-06-30 00:11 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/957602.shtml)
+- 2026-06-30 00:07 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/288540.shtml)
+- 2026-06-30 00:34 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/72320.shtml)
+- 2026-06-30 00:28 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/104951.shtml)
+- 2026-06-30 00:28 - [一生一世](http://www.blog.minike.top/Article/details/45433207.shtml)
+- 2026-06-30 00:13 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/21364925597.shtml)
+- 2026-06-30 00:34 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/414509902.shtml)

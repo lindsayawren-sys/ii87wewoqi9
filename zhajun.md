@@ -1,59 +1,59 @@
-# 特朗普发文提振股价后，迈克尔・伯里称仍在做空帕兰提尔
+# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。 这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。 “我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 1
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
 
 ## 正文
 
-核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
 
-这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。
+《宣言》的达成，将发展权正式确立为一项人权。
 
-伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。
+《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
 
-“我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 19 日到期、行权价 100 美元的看跌期权。
+在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
 
-我今日不会卖出这些期权，” 伯里写道。
+气候变化是人类当前面临的最严峻挑战之一。
 
-伯里发表评论前，特朗普周五在 Truth Social 称赞帕兰提尔，推动该股从日内低点回升。
+联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
 
-尽管如此，该股本周仍预计下跌约 13%，2026 年以来累计跌幅约 28%。
+据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
 
-特朗普写道：“帕兰提尔技术公司（PLTR）已被证明拥有强大的作战能力与装备。
+在此背景下，“气候正义”概念正从边缘走向全球核心议程。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 00:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 00:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 00:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 00:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 00:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 00:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 00:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 00:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 00:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 00:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 00:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 00:01 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 00:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 00:09 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 00:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 00:29 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 00:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 00:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 00:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 00:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:22 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 00:21 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 00:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/833161835.shtml)
-- 2026-06-30 00:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/60131802016.shtml)
-- 2026-06-30 00:10 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/28541363.shtml)
-- 2026-06-30 00:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/892304352165.shtml)
-- 2026-06-30 00:24 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/4505224736.shtml)
-- 2026-06-30 00:28 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/45226598.shtml)
-- 2026-06-30 00:00 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/42124.shtml)
-- 2026-06-30 00:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/0410192.shtml)
-- 2026-06-30 00:09 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/208142.shtml)
-- 2026-06-30 00:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/56220.shtml)
-- 2026-06-30 00:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/849491638.shtml)
-- 2026-06-30 00:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/838610003227.shtml)
-- 2026-06-30 00:08 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/1505969116.shtml)
-- 2026-06-30 00:15 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/002590642253.shtml)
-- 2026-06-30 00:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/69150449.shtml)
+- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/1277133833.shtml)
+- 2026-06-30 00:07 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/81623620.shtml)
+- 2026-06-30 00:32 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/88239766978.shtml)
+- 2026-06-30 00:30 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/7356598710.shtml)
+- 2026-06-30 00:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/755334003.shtml)
+- 2026-06-30 00:32 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/850713.shtml)
+- 2026-06-30 00:24 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/5674711.shtml)
+- 2026-06-30 00:21 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/15061.shtml)
+- 2026-06-30 00:08 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/37920750.shtml)
+- 2026-06-30 00:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/783105.shtml)
+- 2026-06-30 00:34 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/163745834127.shtml)
+- 2026-06-30 00:31 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/99501814453.shtml)
+- 2026-06-30 00:11 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/035686668380.shtml)
+- 2026-06-30 00:33 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/38328236.shtml)
+- 2026-06-30 00:32 - [炽夏](https://www.blog.kurohicncr.top/Article/details/11550.shtml)

@@ -1,57 +1,56 @@
-# 去产能速度偏慢，猪价跌破10元每公斤
+# 未来五年，投资五万亿元升级这张网
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-据农业农村部监测，4月10日，全国农产品批发市场猪肉平均价格为14.62元/公斤，与上周五（4月3日）的15.15元/公斤相比，下降3.5%。本周的平均价格为14.92元/公斤，与上周15.34元/公斤的均价相比，下降2.7%。 本周国内生猪周均价环比下跌。据中国养猪网的数据，4月10日，生猪（外三元）价格为9.18元/公斤，与上周五（4月3日）的10.13元/公斤相比，下降9
+近日，国务院常务会议审议通过《城市更新“十五五”规划》，为“十五五”时期城市地下管网的建设改造，提供了“任务书”和“路线图”。 “十五五”期间，全国将建设改造地下管网约77万公里，带动投资约5万亿元，最终撬动GDP约7.5万亿—10万亿元，年均带动就业岗位约280万个，全方位提升城市运行安全与综合韧性。 这77万公里包括：城镇燃气管网约20万公里、排水管网约17.5万公里、供水
 
 ## 正文
 
-据农业农村部监测，4月10日，全国农产品批发市场猪肉平均价格为14.62元/公斤，与上周五（4月3日）的15.15元/公斤相比，下降3.5%。
+近日，国务院常务会议审议通过《城市更新“十五五”规划》，为“十五五”时期城市地下管网的建设改造，提供了“任务书”和“路线图”。
 
-本周的平均价格为14.92元/公斤，与上周15.34元/公斤的均价相比，下降2.7%。
+“十五五”期间，全国将建设改造地下管网约77万公里，带动投资约5万亿元，最终撬动GDP约7.5万亿—10万亿元，年均带动就业岗位约280万个，全方位提升城市运行安全与综合韧性。
 
-本周国内生猪周均价环比下跌。
+这77万公里包括：城镇燃气管网约20万公里、排水管网约17.5万公里、供水管网约17.5万公里、污水管网约10万公里、供热管网约12万公里。
 
-据中国养猪网的数据，4月10日，生猪（外三元）价格为9.18元/公斤，与上周五（4月3日）的10.13元/公斤相比，下降9.4%。
+这张“看不见”的网，如何焕新升级？
 
-从一周均价来看，本周生猪均价为9.47元/公斤，与上周10.1元/公斤的均价相比，下降6.2%。
+地下“金钟罩”守护城市动脉 在广州，地铁11号线投用仅一年多，单日最高客流量已突破90万人次。
 
-本周全国生猪交易均重微跌。
+而在其出入口旁不远处，另一个入口通向的是广州另外一条地下大动脉——环城地下综合管廊。
 
-卓创资讯监测全国生猪平均交易体重为125.27公斤，环比跌0.46%。
+这条管廊与地铁11号线同步规划建设，走向大体一致。
 
-本周分省份交易均重整体下滑。
+全长45.7公里的环城管廊，串联起29座变电站、7座自来水厂以及多个通信枢纽，是目前全国唯一位于城市核心区的环形地下管廊。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 00:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 00:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 00:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 00:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 00:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 00:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 00:26 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 00:03 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 00:01 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 00:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 00:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 00:34 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 00:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 00:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 00:31 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 00:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 00:17 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 00:12 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 00:26 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/474515701.shtml)
-- 2026-06-30 00:18 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/753176.shtml)
-- 2026-06-30 00:29 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/2754165.shtml)
-- 2026-06-30 00:22 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/813898052.shtml)
-- 2026-06-30 00:02 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/60243.shtml)
-- 2026-06-30 00:07 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/5449730176.shtml)
-- 2026-06-30 00:22 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/65913.shtml)
-- 2026-06-30 00:22 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/116063227202.shtml)
-- 2026-06-30 00:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/77894.shtml)
-- 2026-06-30 00:23 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/03181.shtml)
-- 2026-06-30 00:00 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/419893.shtml)
-- 2026-06-30 00:26 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/2553136520.shtml)
-- 2026-06-30 00:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/12355357.shtml)
-- 2026-06-30 00:24 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/239033.shtml)
-- 2026-06-30 00:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/0330503128.shtml)
+- 2026-06-30 00:15 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/588397040435.shtml)
+- 2026-06-30 00:27 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/79472.shtml)
+- 2026-06-30 00:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/842650948074.shtml)
+- 2026-06-30 00:17 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/1485195.shtml)
+- 2026-06-30 00:27 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/52254.shtml)
+- 2026-06-30 00:31 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/05093241.shtml)
+- 2026-06-30 00:21 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/1964356.shtml)
+- 2026-06-30 00:22 - [第一炉香](http://www.share.minike.top/Article/details/993512266.shtml)
+- 2026-06-30 00:09 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/46053253.shtml)
+- 2026-06-30 00:20 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/2234405.shtml)
+- 2026-06-30 00:32 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/4553226.shtml)
+- 2026-06-30 00:14 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/349998.shtml)
+- 2026-06-30 00:29 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/13118226.shtml)
+- 2026-06-30 00:18 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/144104013188.shtml)
+- 2026-06-30 00:16 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/68301168066.shtml)

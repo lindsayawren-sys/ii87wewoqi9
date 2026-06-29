@@ -1,46 +1,58 @@
-# 缅甸成立新一届国防与安全委员会
+# 重庆代表团首次参加全英中华端午龙舟会
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-4月10日，缅甸总统府发布公告，根据宪法相关规定，成立新一届国家国防与安全委员会，委员会由总统敏昂莱领导。(总台记者 林曦)
+中新网曼彻斯特6月13日电 (记者 欧阳开宇)2026全英中华端午龙舟会13日至14日在英国曼彻斯特举行。重庆代表团首次亮相，在国际龙舟竞技舞台上展示重庆城市形象和巴渝文化魅力。 全英中华端午龙舟会自2012年创办以来，已发展成为英国乃至欧洲最具影响力的中华传统文化品牌活动之一，每年吸引来自英国各地的参赛队伍、文化机构和公众广泛参与。赛事不仅包含专业龙舟竞赛，还设有中华文化展演
 
 ## 正文
 
-4月10日，缅甸总统府发布公告，根据宪法相关规定，成立新一届国家国防与安全委员会，委员会由总统敏昂莱领导。
+中新网曼彻斯特6月13日电 (记者 欧阳开宇)2026全英中华端午龙舟会13日至14日在英国曼彻斯特举行。
 
-(总台记者 林曦)
+重庆代表团首次亮相，在国际龙舟竞技舞台上展示重庆城市形象和巴渝文化魅力。
+
+全英中华端午龙舟会自2012年创办以来，已发展成为英国乃至欧洲最具影响力的中华传统文化品牌活动之一，每年吸引来自英国各地的参赛队伍、文化机构和公众广泛参与。
+
+赛事不仅包含专业龙舟竞赛，还设有中华文化展演、艺术体验、美食市集等丰富内容，成为中英民间文化交流的重要平台。
+
+值得一提的是，此次重庆代表团成员构成丰富多元，既有长期在英国发展的华人企业家和青年学者，也有英国出生的华裔青年以及热爱中国文化的英国友人。
+
+大家因龙舟结缘、因重庆相聚，共同组成了一支跨越国籍、职业与文化背景的队伍，生动展现了重庆开放包容的城市气质以及中英民间友好交流的深厚情谊。
+
+作为中国西部唯一的直辖市，重庆依山而建、两江环抱，以独特的山水城市景观闻名世界。
+
+近年来，重庆凭借洪崖洞、长江索道、磁器口古镇、武隆喀斯特世界自然遗产、大足石刻世界文化遗产等特色文旅资源持续“出圈”，成为国际游客关注的热门旅游目的地。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 00:26 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 00:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 00:13 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 00:24 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 00:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 00:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 00:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 00:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 00:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 00:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 00:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 00:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 00:35 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 00:31 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 00:15 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 00:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 00:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 00:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 00:30 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 00:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 00:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 00:06 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 00:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/577189528957.shtml)
-- 2026-06-30 00:22 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/55137829849.shtml)
-- 2026-06-30 00:14 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/65296867443.shtml)
-- 2026-06-30 00:29 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/44104642.shtml)
-- 2026-06-30 00:02 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/4128727001.shtml)
-- 2026-06-30 00:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/6156037326.shtml)
-- 2026-06-30 00:28 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/49429657.shtml)
-- 2026-06-30 00:02 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/5651293.shtml)
-- 2026-06-30 00:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/962969458101.shtml)
-- 2026-06-30 00:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/0472028.shtml)
-- 2026-06-30 00:06 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/242393.shtml)
-- 2026-06-30 00:11 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/92331.shtml)
-- 2026-06-30 00:27 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/66644013144.shtml)
-- 2026-06-30 00:27 - [金刚川](https://www.share.kurohicncr.top/Article/details/04839574.shtml)
-- 2026-06-30 00:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/012606.shtml)
+- 2026-06-30 00:10 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/208969.shtml)
+- 2026-06-30 00:20 - [时光音乐会](http://www.blog.minike.top/Article/details/514375673.shtml)
+- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/67670.shtml)
+- 2026-06-30 00:15 - [世界杯](http://www.blog.kurohicncr.top/Article/details/98650743.shtml)
+- 2026-06-30 00:15 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/957085193462.shtml)
+- 2026-06-30 00:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/414291.shtml)
+- 2026-06-30 00:32 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/4316042362.shtml)
+- 2026-06-30 00:29 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/192302736240.shtml)
+- 2026-06-30 00:07 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/2884764080.shtml)
+- 2026-06-30 00:19 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/5248588289.shtml)
+- 2026-06-30 00:19 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/19308026264.shtml)
+- 2026-06-30 00:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/670190110221.shtml)
+- 2026-06-30 00:30 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/247921039174.shtml)
+- 2026-06-30 00:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/26842.shtml)
+- 2026-06-30 00:14 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/71664.shtml)

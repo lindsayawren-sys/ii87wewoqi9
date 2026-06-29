@@ -1,57 +1,58 @@
-# 2026世界牡丹大会中国工笔牡丹画产业发展论坛在山东巨野开幕
+# 6位科学家获第二届Wiley新锐科学家奖 中国学者破解蝗虫聚群成灾百年难题
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网山东巨野4月9日电 (李明芮 祁建月)2026世界牡丹大会中国工笔牡丹画产业发展论坛4月9日在山东省菏泽市巨野县召开，来自全国各地的书画名家，相关行业协会的知名专家、教授等围绕创意设计与版权保护赋能巨野工笔牡丹画等深入研讨，为产业发展建言献策。 菏泽市委常委、宣传部部长曹临表示，本次论坛是一个推动文化“两创”、促进交流合作、凝聚发展共识的优质平台，汇聚了国内外书画艺术领域
+中新网北京6月12日电 近日，威立(Wiley)第二届Wiley Star Scientist Award(Wiley新锐科学家奖)颁奖典礼在北京举行，6位青年科学家获得奖项。 颁奖典礼上，Wiley全球副总裁兼中国区总裁张莫依回顾了本届奖项的评选历程，并对各位获奖人和入围奖获得者致以诚挚的祝贺。中国科学院文献情报中心计量与评价部主任杨立英就本次奖项的遴选维度与评价体系进行了系
 
 ## 正文
 
-中新网山东巨野4月9日电 (李明芮 祁建月)2026世界牡丹大会中国工笔牡丹画产业发展论坛4月9日在山东省菏泽市巨野县召开，来自全国各地的书画名家，相关行业协会的知名专家、教授等围绕创意设计与版权保护赋能巨野工笔牡丹画等深入研讨，为产业发展建言献策。
+中新网北京6月12日电 近日，威立(Wiley)第二届Wiley Star Scientist Award(Wiley新锐科学家奖)颁奖典礼在北京举行，6位青年科学家获得奖项。
 
-菏泽市委常委、宣传部部长曹临表示，本次论坛是一个推动文化“两创”、促进交流合作、凝聚发展共识的优质平台，汇聚了国内外书画艺术领域众多资深专家、行业翘楚，希望与会嘉宾为工笔牡丹画产业发展提供更多宝贵经验和智力支持。
+颁奖典礼上，Wiley全球副总裁兼中国区总裁张莫依回顾了本届奖项的评选历程，并对各位获奖人和入围奖获得者致以诚挚的祝贺。
 
-“我们将继续强化政策保障，推动全市牡丹产业与书画产业深度融合、协同发力，持续擦亮‘中国牡丹之都’金字招牌，让巨野工笔牡丹画这朵艺术之花绽放更耀眼的光彩。
+中国科学院文献情报中心计量与评价部主任杨立英就本次奖项的遴选维度与评价体系进行了系统介绍，北京大学心血管研究所所长董尔丹作为奖项评审专家委员会代表发言，详细阐释了奖项的评审机制与标准。
 
-” 据巨野县委书记楚德勤介绍，近年来，巨野县依托中国农民绘画之乡、工笔画之乡优势，坚持“塑品牌、育人才、拓市场”，设立专项资金，推进提质升级，成功举办四届产业发展论坛，推动书画产业不断做大做强。
+中国科学院动物研究所、研究员郭晓娇是本届奖项获奖者之一，她的研究方向是蝗虫群聚成灾机理与防控。
 
-全国各大画廊、画店销售的纯手绘工笔牡丹画，80%以上出自巨野。
+飞蝗过境，寸草不生，作为农业大国，蝗虫对农田的惊扰和侵害不容忽视。
 
-书画产业从业人员突破2.8万人，年创作作品150余万幅，综合产值突破45亿元人民币，实现了“一画兴家、一画兴村、一画兴县”。
+这些生物为什么能迅速“集结”？
 
-在意大利著名当代艺术家、意大利国立罗马美术学院终身教授朱塞佩·第·劳伦佐看来，巨野工笔牡丹画传承着中国传统风格，并融入当代的审美特征，展现了一种新的视觉可能性。
+能否开辟化学农药之外的治蝗“新路径”？
 
-“我愿巨野工笔牡丹画能创造出具有世界语言的作品，让世界看到巨野工笔牡丹画，欣赏代表幸福与和平的牡丹花。
+郭晓娇的研究给出了答案。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 00:04 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 00:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 00:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 00:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 00:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 00:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 00:22 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 00:17 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 00:29 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 00:29 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 00:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 00:24 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 00:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 00:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 00:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 00:19 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 00:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 00:11 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 00:28 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 00:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 00:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/588290.shtml)
-- 2026-06-30 00:17 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/61229474323.shtml)
-- 2026-06-30 00:17 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/93353227.shtml)
-- 2026-06-30 00:21 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/84018875166.shtml)
-- 2026-06-30 00:12 - [千香](https://www.share.minike.top/Article/details/415032.shtml)
-- 2026-06-30 00:16 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/3908550604.shtml)
-- 2026-06-30 00:20 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/50673562.shtml)
-- 2026-06-30 00:21 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/0227053576.shtml)
-- 2026-06-30 00:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/439503014674.shtml)
-- 2026-06-30 00:04 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/15784.shtml)
-- 2026-06-30 00:24 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/1136385.shtml)
-- 2026-06-30 00:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/18433.shtml)
-- 2026-06-30 00:03 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/079727.shtml)
-- 2026-06-30 00:07 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/77403.shtml)
-- 2026-06-30 00:05 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/0796153931.shtml)
+- 2026-06-30 00:34 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/36502792817.shtml)
+- 2026-06-30 00:14 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7664297827.shtml)
+- 2026-06-30 00:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/592049916.shtml)
+- 2026-06-30 00:13 - [急先锋](https://www.blog.kurohicncr.top/Article/details/443139.shtml)
+- 2026-06-30 00:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/91661315343.shtml)
+- 2026-06-30 00:34 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/983289.shtml)
+- 2026-06-30 00:35 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/26654932947.shtml)
+- 2026-06-30 00:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/95795512.shtml)
+- 2026-06-30 00:32 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/099240481058.shtml)
+- 2026-06-30 00:07 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/913865789057.shtml)
+- 2026-06-30 00:25 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/0576351626.shtml)
+- 2026-06-30 00:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/9963319798.shtml)
+- 2026-06-30 00:12 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/95811724.shtml)
+- 2026-06-30 00:24 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/308226.shtml)
+- 2026-06-30 00:23 - [金刚川](http://www.blog.kurohicncr.top/Article/details/44595074.shtml)

@@ -1,54 +1,49 @@
-# 国开行发行60亿元绿色金融债券
+# 华勤技术获富国基金增持109.41万股 每股作价约81.07港元
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-国家开发银行已于4月9日在上海清算所成功发行60亿元3年期绿色金融债券，发行利率为1.49%，认购倍数5.19倍，获得投资者踊跃认购。 据了解，这次发行严格按照《绿色金融支持项目目录（2025年版）》挑选项目，绿色等级为G1（最高级别），募集资金将主要用于基础设施绿色升级、环境保护产业、生态保护修复和利用等重点领域，预计将建设/改造供水管网380千米、建设/改造雨污排水管网83
+香港联交所最新数据显示，6月9日，富国基金增持华勤技术（03296）109.41万股，每股作价81.0671港元，总金额约为8869.55万港元。增持后最新持股数目约为619.44万股，持股比例为6.57%。责任编辑：卢昱君
 
 ## 正文
 
-国家开发银行已于4月9日在上海清算所成功发行60亿元3年期绿色金融债券，发行利率为1.49%，认购倍数5.19倍，获得投资者踊跃认购。
+香港联交所最新数据显示，6月9日，富国基金增持华勤技术（03296）109.41万股，每股作价81.0671港元，总金额约为8869.55万港元。
 
-据了解，这次发行严格按照《绿色金融支持项目目录（2025年版）》挑选项目，绿色等级为G1（最高级别），募集资金将主要用于基础设施绿色升级、环境保护产业、生态保护修复和利用等重点领域，预计将建设/改造供水管网380千米、建设/改造雨污排水管网838千米，并实现每年削减化学需氧量1.95万吨、生化需氧量726吨、氨氮1589吨、悬浮物1.05万吨、总氮1311吨、总磷304吨等环境效益。
+增持后最新持股数目约为619.44万股，持股比例为6.57%。
 
-截至目前，国开行已累计发行绿色金融债券2475亿元。
-
-下一步，国开行将聚焦主责主业，用好绿色金融债券融资渠道，为加快经济社会发展全面绿色转型、建设美丽中国提供更多金融支持。
-
-（央视新闻）责任编辑：李琳琳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 00:14 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 00:24 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 00:11 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 00:21 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 00:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 00:04 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 00:21 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 00:11 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 00:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 00:15 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 00:03 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 00:11 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 00:32 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 00:06 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 00:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 00:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 00:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:35 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:12 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 00:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 00:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 00:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 00:13 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 00:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 00:29 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/5239756.shtml)
-- 2026-06-30 00:14 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/77157.shtml)
-- 2026-06-30 00:03 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/9342720135.shtml)
-- 2026-06-30 00:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/12584885585.shtml)
-- 2026-06-30 00:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/31305.shtml)
-- 2026-06-30 00:03 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/847350401990.shtml)
-- 2026-06-30 00:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/685999936304.shtml)
-- 2026-06-30 00:24 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/18008.shtml)
-- 2026-06-30 00:07 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/2737536.shtml)
-- 2026-06-30 00:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/940809774289.shtml)
-- 2026-06-30 00:02 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/946322859.shtml)
-- 2026-06-30 00:12 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/677783972.shtml)
-- 2026-06-30 00:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/23643839.shtml)
-- 2026-06-30 00:22 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/819872.shtml)
-- 2026-06-30 00:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/513697600284.shtml)
+- 2026-06-30 00:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/143399112.shtml)
+- 2026-06-30 00:35 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/017635.shtml)
+- 2026-06-30 00:32 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/14586302.shtml)
+- 2026-06-30 00:14 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/402694391627.shtml)
+- 2026-06-30 00:30 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/12333400.shtml)
+- 2026-06-30 00:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/0415877473.shtml)
+- 2026-06-30 00:19 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/0847171.shtml)
+- 2026-06-30 00:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/51707.shtml)
+- 2026-06-30 00:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/863927487868.shtml)
+- 2026-06-30 00:33 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/7233798.shtml)
+- 2026-06-30 00:27 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/076373522250.shtml)
+- 2026-06-30 00:16 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/4687216.shtml)
+- 2026-06-30 00:10 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/47220.shtml)
+- 2026-06-30 00:19 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/296131.shtml)
+- 2026-06-30 00:14 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/13003717983.shtml)

@@ -1,53 +1,45 @@
-# 美国30年期国债中标收益率高于发行前交易水平
+# 全周期金融服务 护航民营企业成长
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-美国财政部发行220亿美元30年期国债中标收益率4.876%，创7月以来最高月度水平，也高于纽约时间下午1点竞标截止时的发行前交易水平4.871%，反映出需求弱于预期。投标截止时，30年期收益率当日下跌约1个基点，抹去了此前超过3个基点的涨幅。 一级交易商获配11.6%，高于之前一次；直接投标人获配下降至24.2%，间接投标人获配升至64.1%。 投标倍数2.39倍，与过去六次
+发布时间：2026年06月15日 09:37 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-美国财政部发行220亿美元30年期国债中标收益率4.876%，创7月以来最高月度水平，也高于纽约时间下午1点竞标截止时的发行前交易水平4.871%，反映出需求弱于预期。
-
-投标截止时，30年期收益率当日下跌约1个基点，抹去了此前超过3个基点的涨幅。
-
-一级交易商获配11.6%，高于之前一次；直接投标人获配下降至24.2%，间接投标人获配升至64.1%。
-
-投标倍数2.39倍，与过去六次续发行的平均水平持平。
-
-责任编辑：丁文武
+发布时间：2026年06月15日 09:37 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:10 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 00:20 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 00:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 00:29 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 00:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 00:07 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 00:24 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 00:15 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 00:09 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:22 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 00:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 00:22 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 00:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 00:31 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 00:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 00:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 00:26 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 00:24 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 00:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 00:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 00:33 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 00:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 00:34 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 00:29 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/292535247181.shtml)
-- 2026-06-30 00:29 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/182158584.shtml)
-- 2026-06-30 00:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/94782.shtml)
-- 2026-06-30 00:18 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/4687189582.shtml)
-- 2026-06-30 00:09 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/16370290.shtml)
-- 2026-06-30 00:05 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/1286119.shtml)
-- 2026-06-30 00:00 - [金刚川](http://www.blog.minike.top/Article/details/30908.shtml)
-- 2026-06-30 00:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/244244660.shtml)
-- 2026-06-30 00:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/264183830509.shtml)
-- 2026-06-30 00:15 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/2677018862.shtml)
-- 2026-06-30 00:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/098449.shtml)
-- 2026-06-30 00:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/61770.shtml)
-- 2026-06-30 00:17 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/638493.shtml)
-- 2026-06-30 00:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/68915464084.shtml)
-- 2026-06-30 00:14 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/3721637.shtml)
+- 2026-06-30 00:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/6243854.shtml)
+- 2026-06-30 00:13 - [扬名立万](http://www.share.kurohicncr.top/Article/details/30628046540.shtml)
+- 2026-06-30 00:24 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/515708214545.shtml)
+- 2026-06-30 00:18 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/880630437.shtml)
+- 2026-06-30 00:35 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/79496.shtml)
+- 2026-06-30 00:18 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/12485324153.shtml)
+- 2026-06-30 00:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/3819922673.shtml)
+- 2026-06-30 00:19 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/8266182275.shtml)
+- 2026-06-30 00:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/6308934.shtml)
+- 2026-06-30 00:08 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/541515057.shtml)
+- 2026-06-30 00:33 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/35378600193.shtml)
+- 2026-06-30 00:07 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/44446022.shtml)
+- 2026-06-30 00:34 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/3570956054.shtml)
+- 2026-06-30 00:16 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/610833379344.shtml)
+- 2026-06-30 00:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/964990.shtml)

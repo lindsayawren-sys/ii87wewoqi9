@@ -1,48 +1,61 @@
-# 浙江富阳农村商业银行被罚13万元：未按照规定开展客户尽职调查
+# 华商新动力混合A近1年涨幅超122% 刘力坚持长期主义 深耕产业升级方向
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，中国人民银行浙江省分行行政处罚决定信息公示表显示，浙江富阳农村商业银行股份有限公司因未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告并被罚款13万元。 序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚 内容 作出行政处罚决定机关名称 作出行政 处罚决定 日期 公示期限 （自公示之日起计算） 备注 1 浙江富阳农村
+当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。 据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：01792
 
 ## 正文
 
-4月10日金融一线消息，中国人民银行浙江省分行行政处罚决定信息公示表显示，浙江富阳农村商业银行股份有限公司因未按照规定开展客户尽职调查，未按照规定报告可疑交易，受到警告并被罚款13万元。
+当前市场风格频繁轮动，在市场风格快速轮动的环境中保持定力、锚定产业趋势的基金经理，其价值正在凸显。
 
-序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚 内容 作出行政处罚决定机关名称 作出行政 处罚决定 日期 公示期限 （自公示之日起计算） 备注 1 浙江富阳农村商业银行股份有限公司 浙银罚决字〔2026〕8号 1．未按照规定开展客户尽职调查； 2．未按照规定报告可疑交易。
+华商基金刘力紧跟时代步伐，深耕产业升级方向投资机会。
 
-警告，处13万元罚款。
+他管理的华商新动力混合基金截至2026年5月31日近1、3、5年业绩均大幅超越同期业绩比较基准，提升了持有人的投资获得感。
 
-中国人民银行浙江省分行 2026年4月7日 三年 责任编辑：曹睿潼
+据基金评价机构数据显示，截至2026年5月31日，华商新动力混合基金（A类：001723；C类：017927）近1年、3年、5年分别位居同类排名前10%、前7%及前12%（详见下表）。
+
+华商新动力混合基金同类排名 截至2026年5月31日，华商新动力混合A近1年净值增长率达122.81%；近3年净值增长率为123.75%，超越同期业绩比较基准59个百分点；拉长至近5年，华商新动力混合A净值增长率为81.56%，领先了业绩比较基准65个百分点，展现出在复杂市场环境下较强的结构性机会把握能力（详见下表）。
+
+华商新动力混合基金业绩表现 刘力 华商新动力混合基金经理 华商科创创业精选混合等基金经理 刘力为北京大学微电子学与固体电子学硕士，自2016年7月加入华商基金，是华商基金自主培养的一名成长投资中生代基金经理，现任华商新动力混合、华商科创创业精选混合基金等基金经理。
+
+他始终以“投资长坡厚雪的赛道中符合产业趋势的优秀企业，立志于在长周期获得可持续回报”为核心投资理念，方法论上淡化择时，注重行业比较与个股筛选。
+
+刘力在华商新动力混合基金定期报告中表示，一月份（市场）单边上涨，二月份整体呈现震荡且波动放大的态势，三月份超预期的地缘冲突引发指数连续下跌。
 
 ## 相关推荐
 
-- 2026-06-30 00:03 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 00:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 00:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 00:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 00:29 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 00:14 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 00:12 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 00:15 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 00:15 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 00:16 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 00:20 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 00:19 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 00:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 00:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 00:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 00:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 00:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 00:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 00:26 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 00:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 00:09 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 00:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 00:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 00:23 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/85185.shtml)
-- 2026-06-30 00:14 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/22603332.shtml)
-- 2026-06-30 00:11 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/2166950065.shtml)
-- 2026-06-30 00:21 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/15846067999.shtml)
-- 2026-06-30 00:00 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/882391357285.shtml)
-- 2026-06-30 00:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/48360190.shtml)
-- 2026-06-30 00:05 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/1499810141.shtml)
-- 2026-06-30 00:25 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/1844181024.shtml)
-- 2026-06-30 00:20 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/0254354394.shtml)
-- 2026-06-30 00:08 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/046905187056.shtml)
-- 2026-06-30 00:28 - [啊啊啊](https://www.share.minike.top/Article/details/661231384.shtml)
-- 2026-06-30 00:04 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/322249203677.shtml)
-- 2026-06-30 00:26 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/76516.shtml)
-- 2026-06-30 00:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/451717303.shtml)
-- 2026-06-30 00:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/639002992728.shtml)
+- 2026-06-30 00:16 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/416645901.shtml)
+- 2026-06-30 00:19 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/46490806622.shtml)
+- 2026-06-30 00:23 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/011409260464.shtml)
+- 2026-06-30 00:35 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/48272589.shtml)
+- 2026-06-30 00:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/89358599859.shtml)
+- 2026-06-30 00:06 - [周生如故](https://www.blog.kurohicncr.top/Article/details/14273259558.shtml)
+- 2026-06-30 00:10 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/42161239.shtml)
+- 2026-06-30 00:09 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/39501231702.shtml)
+- 2026-06-30 00:24 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/7518110672.shtml)
+- 2026-06-30 00:29 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/15219.shtml)
+- 2026-06-30 00:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/112341.shtml)
+- 2026-06-30 00:15 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/5304362981.shtml)
+- 2026-06-30 00:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/109550898.shtml)
+- 2026-06-30 00:10 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/76163.shtml)
+- 2026-06-30 00:30 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/506997.shtml)

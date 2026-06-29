@@ -1,58 +1,58 @@
-# 农工党“参政为公、实干为民”主题教育动员部署会在京召开
+# （美加墨世界杯）综合消息：卡塔尔赢队史首分 巴西摩洛哥战平
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。 会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。会议由杨关
+中新社纽约/旧金山6月13日电 当地时间13日在美国率先进行的两场美加墨世界杯小组赛均以1:1平局收场，卡塔尔队逼平瑞士队，拿到队史首个世界杯积分，巴西队与摩洛哥队的强强对话同样握手言和。 2022年，卡塔尔队以东道主身份自动晋级世界杯决赛圈，在小组赛三战皆墨，仅打入一球，创下东道主球队历史最差战绩。 在旧金山进行的B组首轮小组赛中，瑞士队弗洛伊勒造点，恩博洛主罚命中，打进本届
 
 ## 正文
 
-中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。
+中新社纽约/旧金山6月13日电 当地时间13日在美国率先进行的两场美加墨世界杯小组赛均以1:1平局收场，卡塔尔队逼平瑞士队，拿到队史首个世界杯积分，巴西队与摩洛哥队的强强对话同样握手言和。
 
-会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。
+2022年，卡塔尔队以东道主身份自动晋级世界杯决赛圈，在小组赛三战皆墨，仅打入一球，创下东道主球队历史最差战绩。
 
-农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。
+在旧金山进行的B组首轮小组赛中，瑞士队弗洛伊勒造点，恩博洛主罚命中，打进本届世界杯首个点球，帮助瑞士队以1:0领先。
 
-农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。
+在下半场补时第4分钟，卡塔尔队胡希头球破门绝平，两队最终以1:1握手言和。
 
-会议由杨关林主持。
+卡塔尔队拼下队史首个世界杯积分。
 
-何维要求，农工党全党要深刻认识、准确把握开展“参政为公、实干为民”主题教育的重要意义，充分认识这是把握正确政治方向，巩固多党合作共同思想政治基础的需要；是牢记多党合作初心，树立和践行正确政绩观的需要；是坚持服务中心大局，推进“十五五”高质量开局的需要；是纵深推进廉洁建设、作风建设，持续加强中国特色社会主义参政党建设的需要，以更坚定的政治自觉完成好这次重大政治任务。
+此役后，B组小组赛首轮较量结束，瑞士、加拿大、波黑和卡塔尔队均各积1分，无净胜球。
 
-何维强调，要深刻认识、准确把握主题教育“学思想、讲大局、重实干、出实绩”的总体要求，不折不扣落实主题教育各项重点任务。
+当天的焦点战是在纽约新泽西体育场举行的C组小组赛首轮比赛，世界排名第六的巴西队迎战排名第七的摩洛哥队，前者曾五次夺得世界杯冠军，后者则是在卡塔尔世界杯打入四强的“超级黑马”，被外界视为本届世界杯开赛以来第一场真正意义上的强强对话。
 
-要持续强化理论武装，坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，传承优良作风，涵养清廉生态，牢固树立和践行正确政绩观；要突出问题导向，聚焦在政治建设、履职尽责、作风纪律等方面存在的薄弱环节，全面排查形成问题清单；要狠抓整改整治，强化落实明确责任清单；要健全长效机制，做实整改后半篇文章；要持续提升履职能力，更加自觉把农工党所长与中心大局所需紧密结合，展现参政履职新作为。
+比赛第21分钟，摩洛哥队球员赛巴里单刀挑射破门。
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 00:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 00:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:05 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 00:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 00:04 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:21 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 00:28 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 00:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 00:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 00:12 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 00:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 00:08 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 00:09 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 00:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 00:19 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 00:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 00:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 00:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 00:23 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 00:14 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 00:07 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 00:19 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:06 - [速度与激情9](https://www.blog.minike.top/Article/details/155624.shtml)
-- 2026-06-30 00:06 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/87456261.shtml)
-- 2026-06-30 00:07 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/949647941.shtml)
-- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5896494251.shtml)
-- 2026-06-30 00:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/813881238134.shtml)
-- 2026-06-30 00:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/92015.shtml)
-- 2026-06-30 00:24 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/31997398609.shtml)
-- 2026-06-30 00:05 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/780179468.shtml)
-- 2026-06-30 00:19 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/979485526142.shtml)
-- 2026-06-30 00:24 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/47356.shtml)
-- 2026-06-30 00:18 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/6785175.shtml)
-- 2026-06-30 00:18 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/25082.shtml)
-- 2026-06-30 00:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/4380487.shtml)
-- 2026-06-30 00:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6579982.shtml)
-- 2026-06-30 00:07 - [一生一世](https://www.blog.minike.top/Article/details/019449909.shtml)
+- 2026-06-30 00:34 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/75013757.shtml)
+- 2026-06-30 00:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/48081679507.shtml)
+- 2026-06-30 00:22 - [起风了](http://www.blog.kurohicncr.top/Article/details/57719067938.shtml)
+- 2026-06-30 00:31 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/28653112.shtml)
+- 2026-06-30 00:13 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/198679882679.shtml)
+- 2026-06-30 00:29 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/9121669.shtml)
+- 2026-06-30 00:08 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/9044606087.shtml)
+- 2026-06-30 00:33 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/0617105430.shtml)
+- 2026-06-30 00:18 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/78007301.shtml)
+- 2026-06-30 00:27 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/660157350.shtml)
+- 2026-06-30 00:11 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/8211011.shtml)
+- 2026-06-30 00:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/18049465.shtml)
+- 2026-06-30 00:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/8182545384.shtml)
+- 2026-06-30 00:30 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/812589104.shtml)
+- 2026-06-30 00:07 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/628650.shtml)

@@ -1,56 +1,58 @@
-# “活化石”年年绽放 海外华媒见证攀枝花苏铁守护故事
+# 冬奥冠军韩晓鹏：每一次跌倒都是为了更好地起跳
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网攀枝花4月10日电(王利文)在四川攀枝花，“千年铁树开花”的民间俗语被打破。春日里，金沙江干热河谷间，近40万株攀枝花苏铁竞相绽放，金黄纺锤状的雄花挺立如塔，棕褐绣球状的雌花圆润似球，构成世间罕见的生态奇观。 9日，来自全球17个国家和地区的华文媒体代表，走进四川攀枝花苏铁国家级自然保护区，探寻这一“植物活化石”的守护密码。 作为与恐龙同时代的孑遗物种，苏铁被誉为“植物活
+中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。 “我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。”中华体育精神大讲堂上，韩晓鹏坦言，
 
 ## 正文
 
-中新网攀枝花4月10日电(王利文)在四川攀枝花，“千年铁树开花”的民间俗语被打破。
+中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。
 
-春日里，金沙江干热河谷间，近40万株攀枝花苏铁竞相绽放，金黄纺锤状的雄花挺立如塔，棕褐绣球状的雌花圆润似球，构成世间罕见的生态奇观。
+自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。
 
-9日，来自全球17个国家和地区的华文媒体代表，走进四川攀枝花苏铁国家级自然保护区，探寻这一“植物活化石”的守护密码。
+“我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。
 
-作为与恐龙同时代的孑遗物种，苏铁被誉为“植物活化石”。
+”中华体育精神大讲堂上，韩晓鹏坦言，刚开始练滑雪时，面对的是从未接触过的项目。
 
-攀枝花苏铁是国家一级重点保护野生植物，与大熊猫、恐龙化石并称为“巴蜀三宝”，在植物演化研究中具有不可替代的价值。
+“最难的是空中翻转，要在几秒内完成助滑、起跳、翻转、落地等一系列动作，稍有不慎就会重重摔在雪地上。
 
-“它生长极慢，一年大约只长2毫米，看似普通的一株，往往已是千年古树。
+在日复一日的训练中，慢慢摸到了滑雪的门道。
 
-”四川攀枝花苏铁国家级自然保护区保护中心资源管理科科长、工程师杨意斌介绍，生长在北纬27度的攀枝花苏铁，是欧亚大陆分布纬度最北、海拔最高、面积最大、株数最多、分布最集中的天然苏铁林，也是全球唯一每年大规模开花的野生苏铁群落，独特的干热河谷气候，让这里的苏铁不再是“千年开花”，每年3至6月如期绽放。
+”韩晓鹏说。
 
-这份“世界绝无、中国仅有”的自然奇观，曾面临严峻生存危机。
+韩晓鹏讲述了2006年都灵冬奥会夺冠的高光时刻。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 00:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 00:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 00:21 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:23 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 00:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 00:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 00:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 00:29 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 00:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 00:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 00:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 00:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 00:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 00:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 00:33 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 00:08 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 00:12 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 00:24 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 00:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 00:34 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/713369684880.shtml)
-- 2026-06-30 00:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/6370877039.shtml)
-- 2026-06-30 00:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/98322.shtml)
-- 2026-06-30 00:01 - [恋与深空 日服](http://www.share.minike.top/Article/details/849135.shtml)
-- 2026-06-30 00:07 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/701185720.shtml)
-- 2026-06-30 00:16 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/88228574.shtml)
-- 2026-06-30 00:28 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/74941.shtml)
-- 2026-06-30 00:23 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/82615671.shtml)
-- 2026-06-30 00:09 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/425380298.shtml)
-- 2026-06-30 00:01 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/57900181.shtml)
-- 2026-06-30 00:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/871701602.shtml)
-- 2026-06-30 00:02 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3666455.shtml)
-- 2026-06-30 00:13 - [月亮](http://www.blog.minike.top/Article/details/44291203.shtml)
-- 2026-06-30 00:25 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/70139380058.shtml)
-- 2026-06-30 00:11 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6332977.shtml)
+- 2026-06-30 00:20 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/9618813685.shtml)
+- 2026-06-30 00:23 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/71444140.shtml)
+- 2026-06-30 00:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/46067767.shtml)
+- 2026-06-30 00:34 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/925641414.shtml)
+- 2026-06-30 00:10 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/333312397.shtml)
+- 2026-06-30 00:35 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/21880.shtml)
+- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/26762476177.shtml)
+- 2026-06-30 00:18 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/25715.shtml)
+- 2026-06-30 00:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/305959655.shtml)
+- 2026-06-30 00:19 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/81289.shtml)
+- 2026-06-30 00:35 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/59657.shtml)
+- 2026-06-30 00:26 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/68209719.shtml)
+- 2026-06-30 00:20 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/31336.shtml)
+- 2026-06-30 00:29 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/405075598.shtml)
+- 2026-06-30 00:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/2088848896.shtml)

@@ -1,60 +1,61 @@
-# 美的旗下万东医疗发布7大新品，落地初代MR智能体
+# 即将获利的家族办公室，以及它们入局SpaceX的背后逻辑
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月10日晚间消息，在2026年春季中国国际医疗器械博览会（CMEF）上，美的集团旗下万东医疗发布三部委高端医疗设备暨无液氦行业标准、初代MR智能体等七大创新产品，宣布实现国产医疗影像装备从“单点智能”到“系统智慧”的关键跨越。 展会期间，万东医疗联合首都医科大学附属北京积水潭医院牵头的无液氦超导磁共振系统方案亮相，并成功入选国家工信部、卫健委、药监局2025年高端
+专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 包括前 eBay 总裁杰夫・斯科尔、汽车配件连锁 AutoZone 创始人皮特・海德在内的多位亿万富豪旗下家族投资机构，都将从 SpaceX 本次上市中收获丰厚回报。美妆品牌家族继承人转型风投的加里・劳德，便通过以自己名字命名的家族办公室投资了 SpaceX。 多家布局航天初创企业的家族办公室向 CNBC 表示，它们
 
 ## 正文
 
-新浪科技讯 4月10日晚间消息，在2026年春季中国国际医疗器械博览会（CMEF）上，美的集团旗下万东医疗发布三部委高端医疗设备暨无液氦行业标准、初代MR智能体等七大创新产品，宣布实现国产医疗影像装备从“单点智能”到“系统智慧”的关键跨越。
+专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 包括前 eBay 总裁杰夫・斯科尔、汽车配件连锁 AutoZone 创始人皮特・海德在内的多位亿万富豪旗下家族投资机构，都将从 SpaceX 本次上市中收获丰厚回报。
 
-展会期间，万东医疗联合首都医科大学附属北京积水潭医院牵头的无液氦超导磁共振系统方案亮相，并成功入选国家工信部、卫健委、药监局2025年高端医疗装备推广应用项目。
+美妆品牌家族继承人转型风投的加里・劳德，便通过以自己名字命名的家族办公室投资了 SpaceX。
 
-据悉，该方案从根本上摆脱对稀缺氦资源依赖，破解了供应链“卡脖子”问题，大幅降低运维成本，已实现临床规模化应用。
+多家布局航天初创企业的家族办公室向 CNBC 表示，它们将这类标的视作基础设施与国防赛道投资，而非追逐太空探索概念的投机炒作。
 
-此外，万东医疗首创的初代MR智能体也正式发布，该智能体基于万东医疗联合北京天坛医院、国家神经疾病中心的打造的“全球最大中国人脑结构专属参考系”——覆盖228项核心指标、4-85岁全生命周期，基于105个中心近2.8万例国人数据训练，致力于打造AI赋能中国标准的AD早筛全链路智能闭环。
+劳德称，吸引他的是星链卫星技术过硬的硬实力，而非太空旅游的噱头；他早年大量投资本就集中在通信领域。
 
-目前，初代MR智能体已实现全流程智能落地：扫描前以AI驱动标准前置，制定AD专属扫描序列，同步通过AI质控从源头把控扫描质量；扫描中以AI算法实现全流程标准化操作，兼顾扫描效率与数据精准；扫描后以中国脑标尺为核心，通过AI完成全脑结构精准分析，一键生成智能化临床报告，彻底破解了AD早筛困局，让规范、精准的脑健康筛查惠及更广泛人群。
+“我从来没想过当宇航员，” 他说，“卫星通信只是一种至关重要的通信载体。
 
-万东医疗相关负责人表示，当前医疗影像行业已从单纯硬件参数比拼，转向AI+设备+临床服务一体化解决方案的竞争。
+” 罗宾・劳伯旗下的无限资本在 2025 年初通过二级市场配售入股 SpaceX。
 
-公司以无液氦硬件自主可控为底座，以MR智能体为软件核心，走出“中国技术路径+中国诊断标准”的差异化路线。
+他表示，马斯克过往亮眼的落地成果、星链的商业化成功是出资的核心理由。
 
-（文猛） 责任编辑：刘万里 SF014
+劳伯还提到，对比如今预估超 1.75 万亿美元的总市值，当时的估值尚属 “合理区间”。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 00:11 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 00:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 00:12 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 00:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 00:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 00:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 00:14 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 00:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 00:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 00:13 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 00:09 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 00:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 00:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 00:25 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 00:34 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 00:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 00:25 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 00:23 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 00:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 00:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 00:24 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 00:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 00:35 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 00:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 00:35 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 00:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/13911.shtml)
-- 2026-06-30 00:10 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/747032.shtml)
-- 2026-06-30 00:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/19402616.shtml)
-- 2026-06-30 00:27 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/1040995.shtml)
-- 2026-06-30 00:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/23932.shtml)
-- 2026-06-30 00:20 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/44882265811.shtml)
-- 2026-06-30 00:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/7900601.shtml)
-- 2026-06-30 00:13 - [起风了](https://www.blog.kurohicncr.top/Article/details/98893417759.shtml)
-- 2026-06-30 00:18 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/836080770.shtml)
-- 2026-06-30 00:04 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/05341.shtml)
-- 2026-06-30 00:19 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/42058954650.shtml)
-- 2026-06-30 00:08 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/9017183664.shtml)
-- 2026-06-30 00:28 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/18788969.shtml)
-- 2026-06-30 00:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/25133606322.shtml)
-- 2026-06-30 00:17 - [女心理师](https://www.share.minike.top/Article/details/2607117.shtml)
+- 2026-06-30 00:21 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/9727619686.shtml)
+- 2026-06-30 00:15 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/843114.shtml)
+- 2026-06-30 00:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/09494631692.shtml)
+- 2026-06-30 00:06 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/1518625046.shtml)
+- 2026-06-30 00:12 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/041167.shtml)
+- 2026-06-30 00:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/1940012500.shtml)
+- 2026-06-30 00:15 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/1348055.shtml)
+- 2026-06-30 00:14 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/1811100.shtml)
+- 2026-06-30 00:25 - [请回答王牌2019](http://www.blog.minike.top/Article/details/59390443.shtml)
+- 2026-06-30 00:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/324760454298.shtml)
+- 2026-06-30 00:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/7255840.shtml)
+- 2026-06-30 00:35 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/135682195.shtml)
+- 2026-06-30 00:12 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/597130092498.shtml)
+- 2026-06-30 00:07 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/895853204824.shtml)
+- 2026-06-30 00:22 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/751041743.shtml)

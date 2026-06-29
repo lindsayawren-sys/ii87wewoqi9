@@ -1,56 +1,60 @@
-# 美伊战争之能源影响冲击消费者，美国3月通胀率飙升
+# 长城基金尤国梁：商业航天板块下半年景气可期，有望迎来多重产业催化
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-受伊朗战争对能源市场的经济冲击影响，消费者价格大幅上涨，3月份通胀率飙升。 美国劳工统计局周五表示，消费者价格指数（衡量汽油、食品杂货和房租等日常用品价格的广泛指标）环比上涨0.9%，同比上涨3.3%。同比数据较上月的2.4%大幅跃升，环比数据也较上月的0.3%显著上升。 预期与现实 0.9%的环比涨幅和3.3%的同比涨幅均与LSEG调查的经济学家预期一致。 剔除波动较大的汽油
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年以来，A股结构性行情特点较为鲜明。相较于一路走强的光模块、芯片等AI硬科技赛道，同为高成长科技方向的商业航天板块走势相对分化。板块在前期冲高过后，近期持续震荡休整。商业航天板块还有投资机会吗？产业中长期成长逻辑是否扎实？放眼整条产业链，哪些细分领域更具投资价值？围绕广大投资者关心的问题，近日，长城久嘉创
 
 ## 正文
 
-受伊朗战争对能源市场的经济冲击影响，消费者价格大幅上涨，3月份通胀率飙升。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国劳工统计局周五表示，消费者价格指数（衡量汽油、食品杂货和房租等日常用品价格的广泛指标）环比上涨0.9%，同比上涨3.3%。
+今年以来，A股结构性行情特点较为鲜明。
 
-同比数据较上月的2.4%大幅跃升，环比数据也较上月的0.3%显著上升。
+相较于一路走强的光模块、芯片等AI硬科技赛道，同为高成长科技方向的商业航天板块走势相对分化。
 
-预期与现实 0.9%的环比涨幅和3.3%的同比涨幅均与LSEG调查的经济学家预期一致。
+板块在前期冲高过后，近期持续震荡休整。
 
-剔除波动较大的汽油和食品价格以更好评估价格增长趋势的所谓核心价格，环比上涨0.2%，同比上涨2.6%。
+商业航天板块还有投资机会吗？
 
-这两个数据均略低于经济学家分别预期的0.3%和2.6%。
+产业中长期成长逻辑是否扎实？
 
-核心CPI数据略高于2月份的读数，2月份核心价格环比上涨0.2%，同比上涨2.5%。
+放眼整条产业链，哪些细分领域更具投资价值？
 
-数据中断的影响 经济学家指出，由于去年秋季长达43天的政府停摆导致数据收集中断，2025年12月至2026年4月的通胀数据将受到影响。
+围绕广大投资者关心的问题，近日，长城久嘉创新成长混合基金经理尤国梁做客中国证券报直播间，就这些问题进行了专业而详尽的解读。
 
 ## 相关推荐
 
-- 2026-06-30 00:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 00:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 00:16 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 00:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 00:17 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 00:10 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 00:26 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 00:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 00:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 00:27 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 00:28 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 00:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 00:17 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 00:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 00:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 00:10 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 00:21 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 00:28 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 00:21 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 00:12 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 00:20 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 00:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:02 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/13496334.shtml)
-- 2026-06-30 00:11 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/8376726.shtml)
-- 2026-06-30 00:18 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/01336.shtml)
-- 2026-06-30 00:09 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/324421.shtml)
-- 2026-06-30 00:02 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/95355542.shtml)
-- 2026-06-30 00:22 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/7081209486.shtml)
-- 2026-06-30 00:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/447604933098.shtml)
-- 2026-06-30 00:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/17203.shtml)
-- 2026-06-30 00:29 - [千与千寻](http://www.blog.minike.top/Article/details/559148554779.shtml)
-- 2026-06-30 00:19 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/37050393315.shtml)
-- 2026-06-30 00:14 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/59777501597.shtml)
-- 2026-06-30 00:21 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/85928460.shtml)
-- 2026-06-30 00:20 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/54744.shtml)
-- 2026-06-30 00:09 - [天道](http://www.blog.kurohicncr.top/Article/details/5501111150.shtml)
-- 2026-06-30 00:09 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/4669841165.shtml)
+- 2026-06-30 00:34 - [新官上任三把火](https://www.share.minike.top/Article/details/213521256.shtml)
+- 2026-06-30 00:28 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1017162144.shtml)
+- 2026-06-30 00:33 - [金牌调解](http://www.share.minike.top/Article/details/10589684.shtml)
+- 2026-06-30 00:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/55364.shtml)
+- 2026-06-30 00:25 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/3891073631.shtml)
+- 2026-06-30 00:11 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/429747598255.shtml)
+- 2026-06-30 00:31 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/22039.shtml)
+- 2026-06-30 00:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/78559175446.shtml)
+- 2026-06-30 00:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/15049.shtml)
+- 2026-06-30 00:17 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/644024439641.shtml)
+- 2026-06-30 00:14 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/98226223.shtml)
+- 2026-06-30 00:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/8288472.shtml)
+- 2026-06-30 00:12 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/34329253.shtml)
+- 2026-06-30 00:14 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/00868316298.shtml)
+- 2026-06-30 00:19 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/109587942.shtml)

@@ -1,51 +1,48 @@
-# 百奥家庭互动获董事会主席戴坚增持合计10万股
+# 国寿资产落地债券通“南向通”交易
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-百奥家庭互动（02100）发布公告，执行董事及董事会主席戴坚先生（戴先生）于2026年4月9日透过 Stmoritz Investment Limited（Stmoritz，由戴先生间接实益拥有的公司）以平均每股股份 0.460港元从市场购入合计10万股每股面值0.0000005美元的本公司普通股（股份）（购买股份）。 紧随购买股份后，Stmoritz直接持有合计6.89亿股股
+6月12日金融一线消息，近日，国寿资产顺利落地债券通“南向通”交易。 下一步，国寿资产将在监管部门的指导下，有序开展“南向通”业务，稳慎推进全球资产配置，不断提升国际化发展水平，有力支持香港国际金融中心建设，更好服务我国金融业高水平双向开放。 责任编辑：李琳琳
 
 ## 正文
 
-百奥家庭互动（02100）发布公告，执行董事及董事会主席戴坚先生（戴先生）于2026年4月9日透过 Stmoritz Investment Limited（Stmoritz，由戴先生间接实益拥有的公司）以平均每股股份 0.460港元从市场购入合计10万股每股面值0.0000005美元的本公司普通股（股份）（购买股份）。
+6月12日金融一线消息，近日，国寿资产顺利落地债券通“南向通”交易。
 
-紧随购买股份后，Stmoritz直接持有合计6.89亿股股份（占本公司已发行股本约 24.0%）。
+下一步，国寿资产将在监管部门的指导下，有序开展“南向通”业务，稳慎推进全球资产配置，不断提升国际化发展水平，有力支持香港国际金融中心建设，更好服务我国金融业高水平双向开放。
 
-自2026年3月30日至4月9日期间，戴先生透过Stmoritz从市场购入合计147.6万股股份。
-
-责任编辑：卢昱君
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 00:01 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 00:28 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 00:06 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 00:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 00:05 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 00:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 00:10 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 00:27 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 00:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 00:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 00:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 00:14 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 00:32 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 00:17 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 00:22 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 00:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 00:09 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 00:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 00:12 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 00:26 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 00:34 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 00:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/472324003.shtml)
-- 2026-06-30 00:16 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/703153.shtml)
-- 2026-06-30 00:02 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/288164305174.shtml)
-- 2026-06-30 00:24 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/5186844845.shtml)
-- 2026-06-30 00:10 - [一见倾心](http://www.blog.minike.top/Article/details/387484849256.shtml)
-- 2026-06-30 00:03 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/47218735567.shtml)
-- 2026-06-30 00:20 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/949437518.shtml)
-- 2026-06-30 00:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/3878310.shtml)
-- 2026-06-30 00:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/9893727805.shtml)
-- 2026-06-30 00:10 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/546399592015.shtml)
-- 2026-06-30 00:22 - [金牌调解](http://www.share.minike.top/Article/details/3743118.shtml)
-- 2026-06-30 00:21 - [急先锋](https://www.share.minike.top/Article/details/720174.shtml)
-- 2026-06-30 00:18 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/800649999605.shtml)
-- 2026-06-30 00:14 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/65857.shtml)
-- 2026-06-30 00:20 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/22954833.shtml)
+- 2026-06-30 00:26 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/166478828.shtml)
+- 2026-06-30 00:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/0056934.shtml)
+- 2026-06-30 00:33 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/589183.shtml)
+- 2026-06-30 00:18 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/98581222.shtml)
+- 2026-06-30 00:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/25071.shtml)
+- 2026-06-30 00:35 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/4384040439.shtml)
+- 2026-06-30 00:22 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/4639459742.shtml)
+- 2026-06-30 00:18 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/68839445.shtml)
+- 2026-06-30 00:22 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/2658187719.shtml)
+- 2026-06-30 00:14 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/774641357.shtml)
+- 2026-06-30 00:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/671229313973.shtml)
+- 2026-06-30 00:18 - [逃狱兄弟](http://www.share.minike.top/Article/details/639763447993.shtml)
+- 2026-06-30 00:09 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/6840189551.shtml)
+- 2026-06-30 00:19 - [《贺子珍》](http://www.share.minike.top/Article/details/47494397.shtml)
+- 2026-06-30 00:15 - [斛珠夫人](https://www.share.minike.top/Article/details/5623364.shtml)

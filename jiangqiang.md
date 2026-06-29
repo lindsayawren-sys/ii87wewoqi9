@@ -1,45 +1,60 @@
-# 中共中央批准：邹广同志任中共海南省委常委
+# 脱发“年轻化” 自救路上先厘清误区与真相
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中共中央批准 邹广同志任中共海南省委常委 日前，中共中央批准：邹广同志任中共海南省委常委。 来源：中共海南省委组织部
+“我是女生，走在街上经常被人叫‘帅哥’。”20岁的宋妍妍在青岛的免租房里接受采访时，语气轻松。3个月前，她让朋友用剪刀和刮胡刀给自己剃了光头。 这不是行为艺术，而是一场针对脱发的“自救”。在社交媒体上，与她有类似情况的年轻人不在少数。脱发，这一传统认知中属于中年群体的困扰，正在年轻人中蔓延。 中华医学会皮肤性病学分会毛发学组等制定的《中国雄激素性秃发诊疗指南(2023)》数据显
 
 ## 正文
 
-中共中央批准 邹广同志任中共海南省委常委 日前，中共中央批准：邹广同志任中共海南省委常委。
+“我是女生，走在街上经常被人叫‘帅哥’。
 
-来源：中共海南省委组织部
+”20岁的宋妍妍在青岛的免租房里接受采访时，语气轻松。
+
+3个月前，她让朋友用剪刀和刮胡刀给自己剃了光头。
+
+这不是行为艺术，而是一场针对脱发的“自救”。
+
+在社交媒体上，与她有类似情况的年轻人不在少数。
+
+脱发，这一传统认知中属于中年群体的困扰，正在年轻人中蔓延。
+
+中华医学会皮肤性病学分会毛发学组等制定的《中国雄激素性秃发诊疗指南(2023)》数据显示，雄激素性秃发(以下简称“雄秃”)成年男性患病率达21.3%，女性为6.0%，发病高峰集中在20-40岁。
+
+值得注意的是，随着社会压力的增加和生活节奏的加快，近年来临床就诊率呈现明显上升趋势。
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 00:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 00:22 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 00:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 00:15 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 00:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 00:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 00:26 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 00:05 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:13 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 00:23 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 00:30 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 00:11 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 00:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 00:14 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 00:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 00:14 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 00:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 00:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 00:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 00:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 00:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 00:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/4061389.shtml)
-- 2026-06-30 00:26 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/13249422.shtml)
-- 2026-06-30 00:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/1260020620.shtml)
-- 2026-06-30 00:09 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/318272971.shtml)
-- 2026-06-30 00:16 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/250224156.shtml)
-- 2026-06-30 00:16 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/78425048171.shtml)
-- 2026-06-30 00:22 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/8394811.shtml)
-- 2026-06-30 00:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/472770.shtml)
-- 2026-06-30 00:29 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/937826.shtml)
-- 2026-06-30 00:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/114154339.shtml)
-- 2026-06-30 00:11 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/270369583038.shtml)
-- 2026-06-30 00:08 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/7042066.shtml)
-- 2026-06-30 00:06 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/88554986281.shtml)
-- 2026-06-30 00:18 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/7610573.shtml)
-- 2026-06-30 00:02 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/920462.shtml)
+- 2026-06-30 00:08 - [一生一世](https://www.blog.minike.top/Article/details/84572895.shtml)
+- 2026-06-30 00:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/297105.shtml)
+- 2026-06-30 00:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/03631807.shtml)
+- 2026-06-30 00:32 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/29661.shtml)
+- 2026-06-30 00:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/267321046.shtml)
+- 2026-06-30 00:13 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/9676578.shtml)
+- 2026-06-30 00:34 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/3879601.shtml)
+- 2026-06-30 00:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/1805770.shtml)
+- 2026-06-30 00:31 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/70926216738.shtml)
+- 2026-06-30 00:11 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/49582612139.shtml)
+- 2026-06-30 00:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/06512.shtml)
+- 2026-06-30 00:18 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/292831515.shtml)
+- 2026-06-30 00:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/0964942064.shtml)
+- 2026-06-30 00:12 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/4723680.shtml)
+- 2026-06-30 00:12 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/7559894.shtml)

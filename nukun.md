@@ -1,57 +1,56 @@
-# 欧洲股市延续涨势 受乌克兰谈判相关消息提振
+# 山西柳林：一场骑行赛事 带火一路沿黄文旅
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-市场预期美伊周末会谈将巩固中东停火，加之有迹象显示在达成乌克兰和平协议方面出现进展，推动欧洲股市延续涨势。 斯托克欧洲600指数收盘上涨0.4%，此前乌克兰负责与俄罗斯谈判的核心代表表示，他看到在与克里姆林宫达成潜在和平协议方面出现进展。拥有俄罗斯子公司的奥地利奥合国际银行领涨，上涨11%。不过，国防股下跌，彭博欧洲国防精选指数下跌2.7%，莱茵金属下跌5.6%。 按周来看，斯
+中新网吕梁6月13日电 (刘小红)2026年“柳林碗团杯”第三届“黄河一号”旅游公路自行车公开赛将于14日在山西柳林鸣枪开赛。赛事依托黄河一号旅游公路优质赛道，串联黄河自然风光、古村民俗风情与地方特色美食，以体育赛事为纽带，有效盘活县域文旅资源、拉动文旅消费，以“体育+文旅”融合新模式，让柳林沿黄旅游公路焕发活力。 柳林县副县长武丽云表示，本次比赛既是一场速度与激情的骑行比拼，
 
 ## 正文
 
-市场预期美伊周末会谈将巩固中东停火，加之有迹象显示在达成乌克兰和平协议方面出现进展，推动欧洲股市延续涨势。
+中新网吕梁6月13日电 (刘小红)2026年“柳林碗团杯”第三届“黄河一号”旅游公路自行车公开赛将于14日在山西柳林鸣枪开赛。
 
-斯托克欧洲600指数收盘上涨0.4%，此前乌克兰负责与俄罗斯谈判的核心代表表示，他看到在与克里姆林宫达成潜在和平协议方面出现进展。
+赛事依托黄河一号旅游公路优质赛道，串联黄河自然风光、古村民俗风情与地方特色美食，以体育赛事为纽带，有效盘活县域文旅资源、拉动文旅消费，以“体育+文旅”融合新模式，让柳林沿黄旅游公路焕发活力。
 
-拥有俄罗斯子公司的奥地利奥合国际银行领涨，上涨11%。
+柳林县副县长武丽云表示，本次比赛既是一场速度与激情的骑行比拼，更是展示柳林山水风貌、推介“柳林碗团”特色品牌、活化本土非遗的重要窗口。
 
-不过，国防股下跌，彭博欧洲国防精选指数下跌2.7%，莱茵金属下跌5.6%。
+记者13日从赛事新闻媒体见面会上获悉，赛事以“沿黄骑行看吕梁，柳林抖起来”为主题，集结全国702名骑行爱好者同台竞技。
 
-按周来看，斯托克欧洲600指数上涨3.1%，实现连续第三周上涨。
+相较于往届521人的参赛规模，本届赛事报名人数大幅攀升，辐射范围覆盖省内外，兼具专业性与全民参与性。
 
-受美伊停火消息推动的这轮涨势仍在延续，此前以色列总理内塔尼亚胡同意与黎巴嫩举行直接会谈，重点在于解除真主党的武装。
+为适配不同年龄段、不同水平骑行爱好者的参赛需求，赛事科学设置7大竞赛组别，既满足职业车手的高强度竞技需求，也为业余骑友、骑行爱好者提供了体验赛事魅力、畅游沿黄风光的平台，真正实现全民参与、全民共享。
 
-“投资者情绪主要取决于停火能否持续，以及霍尔木兹海峡航运能否恢复正常，”Lombard Odier Asset Management宏观研究主管Florian Ielpo表示。
+赛事赛道继续沿用孟门镇至三交镇的经典沿黄旅游公路赛道，全程约52公里。
 
-与此同时，围绕人工智能的担忧仍在加剧市场分化。
+这条赛道临水而行，串联起古村、古渡、湿地与红色点位，兼具竞技挑战与骑游趣味。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 00:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 00:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 00:05 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 00:00 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 00:12 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 00:26 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 00:21 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 00:16 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 00:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 00:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 00:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 00:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 00:07 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 00:10 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 00:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 00:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 00:25 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 00:25 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 00:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [炽夏](http://www.share.kurohicncr.top/Article/details/22293226.shtml)
-- 2026-06-30 00:24 - [我和我的家乡](http://www.share.minike.top/Article/details/050810072589.shtml)
-- 2026-06-30 00:24 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/778577582.shtml)
-- 2026-06-30 00:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/61541010.shtml)
-- 2026-06-30 00:26 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/752308867652.shtml)
-- 2026-06-30 00:26 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/35723446.shtml)
-- 2026-06-30 00:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/253196.shtml)
-- 2026-06-30 00:08 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/9960064.shtml)
-- 2026-06-30 00:07 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/864071498.shtml)
-- 2026-06-30 00:16 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/663147618578.shtml)
-- 2026-06-30 00:02 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/9419289.shtml)
-- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/29623046945.shtml)
-- 2026-06-30 00:21 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/652196.shtml)
-- 2026-06-30 00:01 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/4179448.shtml)
-- 2026-06-30 00:07 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/419660.shtml)
+- 2026-06-30 00:16 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/550600415909.shtml)
+- 2026-06-30 00:23 - [千香](https://www.blog.kurohicncr.top/Article/details/68543613996.shtml)
+- 2026-06-30 00:25 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/22690228.shtml)
+- 2026-06-30 00:14 - [急先锋](https://www.share.minike.top/Article/details/236840484047.shtml)
+- 2026-06-30 00:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/615490239450.shtml)
+- 2026-06-30 00:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/7088486.shtml)
+- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/5230112890.shtml)
+- 2026-06-30 00:24 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/87272955.shtml)
+- 2026-06-30 00:16 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/138546.shtml)
+- 2026-06-30 00:29 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/663876947.shtml)
+- 2026-06-30 00:23 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/19645.shtml)
+- 2026-06-30 00:08 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/160767687.shtml)
+- 2026-06-30 00:34 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/581397996.shtml)
+- 2026-06-30 00:33 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/76254905.shtml)
+- 2026-06-30 00:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/805210802752.shtml)

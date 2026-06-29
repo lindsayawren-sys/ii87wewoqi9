@@ -1,58 +1,59 @@
-# 境外媒体关注郑丽文访大陆
+# 5月新增贷款5200亿元重回正增长，票据融资放量托底
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月12日电 综合消息：7日至12日，中国国民党主席郑丽文率国民党访问团到访大陆，受到境外媒体关注。 英国广播公司、半岛电视台、拉丁美洲通讯社等多家媒体均关注到，郑丽文是自2016年以来首位访问中国大陆的国民党在任领导人。 新加坡《联合早报》报道，郑丽文8日上午率团前往江苏南京的中山陵，随即在中山陵博爱广场发表演说，强调希望此行种下和平的种子。11日上午，郑丽文前往北
+21世纪经济报道记者唐亚迪 5月新增人民币贷款转正，金融数据出现回稳态势。 中国人民银行6月12日发布的金融统计数据显示，5月当月人民币贷款新增5200亿元，同比少增1000亿元。其中，票据融资发挥了重要的托底作用。数据显示，5月票据融资达5570亿元，同比多增4824亿元，在平滑信贷波动中展现了灵活的调节功能。 分部门来看，5月住户贷款减少1412亿元，其中短期贷款减少840
 
 ## 正文
 
-中新社北京4月12日电 综合消息：7日至12日，中国国民党主席郑丽文率国民党访问团到访大陆，受到境外媒体关注。
+21世纪经济报道记者唐亚迪 5月新增人民币贷款转正，金融数据出现回稳态势。
 
-英国广播公司、半岛电视台、拉丁美洲通讯社等多家媒体均关注到，郑丽文是自2016年以来首位访问中国大陆的国民党在任领导人。
+中国人民银行6月12日发布的金融统计数据显示，5月当月人民币贷款新增5200亿元，同比少增1000亿元。
 
-新加坡《联合早报》报道，郑丽文8日上午率团前往江苏南京的中山陵，随即在中山陵博爱广场发表演说，强调希望此行种下和平的种子。
+其中，票据融资发挥了重要的托底作用。
 
-11日上午，郑丽文前往北京香山碧云寺拜谒孙中山衣冠冢。
+数据显示，5月票据融资达5570亿元，同比多增4824亿元，在平滑信贷波动中展现了灵活的调节功能。
 
-她还与同行的国民党前主席连战次子连胜武，在连战2006年到访拜谒时所种的白皮松树前合影。
+分部门来看，5月住户贷款减少1412亿元，其中短期贷款减少840亿元，中长期贷款减少571亿元；企（事）业单位贷款增加6400亿元，其中短期贷款增加1000亿元，中长期贷款减少200亿元。
 
-11日下午，郑丽文一行进入故宫参观，其间有不少游客认出郑丽文并兴奋跟拍。
+居民中长期贷款和企业中长期贷款单月有所回落，反映出中长期信贷需求仍处于蓄力阶段，有待进一步释放。
 
-中共中央总书记习近平10日上午在北京会见了郑丽文主席率领的中国国民党访问团。
+中信证券首席经济学家明明指出，5月处于季中时点，通常并非信贷投放的集中发力窗口，当前新增信贷主要依赖短期贷款和票据融资支撑。
 
-《联合早报》称，在10日上午，国共双方讲话内容在政治表述上高度呼应，主轴集中于坚持“九二共识”、反对“台独”，将两岸关系置于中华民族与中华文明的大叙事之下，并把和平作为会面的主轴。
+票据融资作为银行调节信贷规模的“缓冲垫”，在实体经济有效融资需求偏弱的背景下，发挥了平滑信贷波动的作用。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 00:17 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 00:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 00:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 00:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 00:00 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 00:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 00:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 00:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 00:20 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 00:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 00:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 00:29 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 00:33 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 00:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:28 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 00:18 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 00:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 00:13 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 00:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 00:24 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/07069854.shtml)
-- 2026-06-30 00:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/75221.shtml)
-- 2026-06-30 00:13 - [斛珠夫人](https://www.share.minike.top/Article/details/7770311.shtml)
-- 2026-06-30 00:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/22191233163.shtml)
-- 2026-06-30 00:22 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/9953399999.shtml)
-- 2026-06-30 00:25 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/12748129.shtml)
-- 2026-06-30 00:04 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/1128668234.shtml)
-- 2026-06-30 00:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/40446.shtml)
-- 2026-06-30 00:26 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/2507593.shtml)
-- 2026-06-30 00:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/652046085.shtml)
-- 2026-06-30 00:06 - [扬名立万](https://www.share.minike.top/Article/details/11721677.shtml)
-- 2026-06-30 00:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/150399383590.shtml)
-- 2026-06-30 00:21 - [乔家的儿女](http://www.share.minike.top/Article/details/80518336.shtml)
-- 2026-06-30 00:09 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/2311878.shtml)
-- 2026-06-30 00:19 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/5332083.shtml)
+- 2026-06-30 00:16 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/903084000449.shtml)
+- 2026-06-30 00:22 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/682324.shtml)
+- 2026-06-30 00:07 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/07754533032.shtml)
+- 2026-06-30 00:33 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/494997835.shtml)
+- 2026-06-30 00:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/786263931552.shtml)
+- 2026-06-30 00:23 - [第一炉香](https://www.blog.minike.top/Article/details/92050.shtml)
+- 2026-06-30 00:30 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/199939847.shtml)
+- 2026-06-30 00:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/343435.shtml)
+- 2026-06-30 00:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/5063677018.shtml)
+- 2026-06-30 00:32 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/76087845172.shtml)
+- 2026-06-30 00:06 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/26723609.shtml)
+- 2026-06-30 00:26 - [东方风云榜直播](https://www.blog.minike.top/Article/details/56293.shtml)
+- 2026-06-30 00:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/45865761243.shtml)
+- 2026-06-30 00:12 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/294792.shtml)
+- 2026-06-30 00:30 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/348635.shtml)

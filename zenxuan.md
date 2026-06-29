@@ -1,60 +1,59 @@
-# 中国一汽周时莹：车企重复投入各自为战，仿佛没有自己的操作系统就没有噱头可言
+# 浙江“村咖大师”相聚侨乡青田 技艺切磋厚植村咖底蕴
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 中国一汽战略与合作部副总经理智能产业发展办公室主任周时莹表示，现在行业内投入的资金非常多，这些钱大多用在了购买算力、采集数据，以及一轮又一轮的模型训推上。此外，每个车企品牌都投入了大量的人力
+中新网丽水6月14日电(周健 陈胤倩 饶晓咪)6月12日至6月14日，浙江省第二届“村咖大师”技能比武在该省侨乡青田举行。本届赛事以“匠心筑咖·侨韵青田”为主题，30余位浙江省优秀乡村咖啡从业者进行技能展示与交流，在技艺切磋中提升专业水平，共同推动乡村咖啡产业提质升级。 比赛全面考察选手的创意设计能力与基本功，包含“创意咖啡展演”和“美式咖啡制作”两大模块，并鼓励选手结合家乡食
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网丽水6月14日电(周健 陈胤倩 饶晓咪)6月12日至6月14日，浙江省第二届“村咖大师”技能比武在该省侨乡青田举行。
 
-中国一汽战略与合作部副总经理智能产业发展办公室主任周时莹表示，现在行业内投入的资金非常多，这些钱大多用在了购买算力、采集数据，以及一轮又一轮的模型训推上。
+本届赛事以“匠心筑咖·侨韵青田”为主题，30余位浙江省优秀乡村咖啡从业者进行技能展示与交流，在技艺切磋中提升专业水平，共同推动乡村咖啡产业提质升级。
 
-此外，每个车企品牌都投入了大量的人力和资源，组建团队研发座舱和自动驾驶系统，并且都取得了一定的成果。
+比赛全面考察选手的创意设计能力与基本功，包含“创意咖啡展演”和“美式咖啡制作”两大模块，并鼓励选手结合家乡食材、贴近乡村审美进行创作。
 
-但她指出，如果座舱和自动驾驶系统依然像现在这样，技术割裂、模型割裂、系统割裂，只能通过信号和信息进行简单交互，那么很难实现像人的大脑一样，进行有逻辑性的思考，也无法妥善处理“大脑”与“小脑”之间的协同关系。
+青田选手陈郑晔的作品《梅好时光》将新鲜杨梅融入咖啡的创作中。
 
-周时莹认为，汽车智能化的本源结构包含五个核心方面，智能汽车只有筑牢这五个本源支柱，才能真正称之为智能化汽车。
+陈郑晔介绍，“眼下正是青田杨梅丰收季，我选用自家种的杨梅，精心打造一杯有着青田风味的特调咖啡，希望通过这杯饮品，把家乡的美好滋味分享给更多朋友。
 
-第一是算法，核心是如何让这个钢铁结构的车辆更像人一样驾驶，确保行驶绝对安全。
+” 宁波选手胡甜也带来了充满家乡特色的作品——象山茅洋荷花主题美式。
 
-第二是算力，目前各个整车企业自建、购买或租赁的分散式算力中心，调度效率并不高。
+她说，“我的咖啡店门口就有一大片荷花池，一到夏天满池花开，景色特别美。
 
-第三是数据，现在各个车企都拥有海量数据，动辄就宣称有上百万CLS数据，但大家投入了大量资金采集、存储这些数据，却很难高效利用这些碎片化的数据。
+希望这杯带着荷香的咖啡，能让大家感受到乡村独有的惬意与美好。
 
 ## 相关推荐
 
-- 2026-06-30 00:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 00:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 00:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 00:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 00:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 00:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 00:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 00:12 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 00:18 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 00:17 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 00:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 00:03 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 00:20 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 00:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 00:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 00:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 00:29 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 00:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 00:17 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 00:13 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 00:12 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 00:31 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 00:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 00:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 00:33 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 00:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:09 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/777447615.shtml)
-- 2026-06-30 00:01 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/43357.shtml)
-- 2026-06-30 00:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/564564.shtml)
-- 2026-06-30 00:07 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/262736.shtml)
-- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/94425872176.shtml)
-- 2026-06-30 00:01 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/243011.shtml)
-- 2026-06-30 00:04 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/18644258.shtml)
-- 2026-06-30 00:23 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/78229854.shtml)
-- 2026-06-30 00:28 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/911934138311.shtml)
-- 2026-06-30 00:13 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/12064.shtml)
-- 2026-06-30 00:05 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/29885915100.shtml)
-- 2026-06-30 00:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/2253435747.shtml)
-- 2026-06-30 00:20 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/037451.shtml)
-- 2026-06-30 00:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/66891885.shtml)
-- 2026-06-30 00:28 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/973901430.shtml)
+- 2026-06-30 00:16 - [起风了](http://www.blog.minike.top/Article/details/10925328.shtml)
+- 2026-06-30 00:31 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/258641006.shtml)
+- 2026-06-30 00:11 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/587466.shtml)
+- 2026-06-30 00:22 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/479528614481.shtml)
+- 2026-06-30 00:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/512348610.shtml)
+- 2026-06-30 00:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/4443246.shtml)
+- 2026-06-30 00:06 - [急先锋](http://www.share.minike.top/Article/details/4803309.shtml)
+- 2026-06-30 00:26 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/74699.shtml)
+- 2026-06-30 00:35 - [斛珠夫人](https://www.share.minike.top/Article/details/39440683.shtml)
+- 2026-06-30 00:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2035713.shtml)
+- 2026-06-30 00:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/862571.shtml)
+- 2026-06-30 00:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/22846.shtml)
+- 2026-06-30 00:30 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/289253279.shtml)
+- 2026-06-30 00:34 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/48505919.shtml)
+- 2026-06-30 00:35 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/102606.shtml)

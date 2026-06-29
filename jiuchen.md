@@ -1,61 +1,61 @@
-# 南航商城售假风波后续：香奈儿洗面奶仍有售 商家称支持国检
+# 报告预计2026年中国风光新增装机约3亿千瓦
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-4月11日消息，南航商城陷入假货风波。有消费者对媒体表示，怀疑自己用里程兑换的香奈儿泡沫洁面乳非正品。今年3月初，该消费者用8497里程在南航商城兑换了一瓶香奈儿泡沫洁面乳（150ml），但东西到手后，她发现不对劲，在第三方平台上传了照片鉴定。得物的识图鉴别报告结论为外观不符合正品特征。鉴别为仿品。不过，该报告仅供识图鉴别参考，最终结论以实物为准。 查询南航商场发现，目前，仍有
+中新社北京6月12日电 (记者 王梦瑶)水电水利规划设计总院12日发布的《中国可再生能源发展报告2025年度》预计，2026年中国风电、光伏新增装机约3亿千瓦，风电新增并网装机容量约1亿千瓦，太阳能发电新增并网装机容量约2亿千瓦，可再生能源将继续成为中国能源绿色低碳转型的主力。报告显示，2025年中国可再生能源装机规模实现跨越式增长。全国可再生能源年新增装机再创新高，达到4.5
 
 ## 正文
 
-4月11日消息，南航商城陷入假货风波。
+中新社北京6月12日电 (记者 王梦瑶)水电水利规划设计总院12日发布的《中国可再生能源发展报告2025年度》预计，2026年中国风电、光伏新增装机约3亿千瓦，风电新增并网装机容量约1亿千瓦，太阳能发电新增并网装机容量约2亿千瓦，可再生能源将继续成为中国能源绿色低碳转型的主力。
 
-有消费者对媒体表示，怀疑自己用里程兑换的香奈儿泡沫洁面乳非正品。
+报告显示，2025年中国可再生能源装机规模实现跨越式增长。
 
-今年3月初，该消费者用8497里程在南航商城兑换了一瓶香奈儿泡沫洁面乳（150ml），但东西到手后，她发现不对劲，在第三方平台上传了照片鉴定。
+全国可再生能源年新增装机再创新高，达到4.52亿千瓦。
 
-得物的识图鉴别报告结论为外观不符合正品特征。
+全国可再生能源发电装机达23.37亿千瓦，占总装机比重60.1%，进一步巩固了装机主体地位。
 
-鉴别为仿品。
+风光发电总装机历史性超过火电，达到18.42亿千瓦。
 
-不过，该报告仅供识图鉴别参考，最终结论以实物为准。
+与此同时，可再生能源供给能力大幅增强。
 
-查询南航商场发现，目前，仍有一款香奈儿（Chanel）山茶花泡沫保湿洁面乳在售。
+报告称，2025年中国可再生能源年发电量达到3.99万亿千瓦时，在各类电源总发电量中占比接近四成。
 
-店铺工作人员表示，他们是入驻商家，和南航是合作关系，店内在售的香奈儿产品是免税版本，可能和专柜产品包装不太一样，但成分支持国检，“都有相关的产品资质”。
+全国可再生能源新增发电量已完全覆盖全社会用电增量，经济增长的新增能耗首次全部由绿电支撑。
 
 ## 相关推荐
 
-- 2026-06-30 00:14 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 00:08 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 00:11 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 00:18 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 00:08 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 00:07 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 00:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 00:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:06 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 00:20 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 00:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 00:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 00:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 00:20 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 00:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 00:06 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 00:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 00:35 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 00:20 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 00:14 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 00:16 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 00:28 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:14 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 00:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 00:14 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 00:24 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 00:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/58520444.shtml)
-- 2026-06-30 00:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/6033055313.shtml)
-- 2026-06-30 00:20 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/4989059854.shtml)
-- 2026-06-30 00:04 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/49818690852.shtml)
-- 2026-06-30 00:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/766913679.shtml)
-- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/593811676.shtml)
-- 2026-06-30 00:17 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/0592129.shtml)
-- 2026-06-30 00:28 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/1358402112.shtml)
-- 2026-06-30 00:19 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/93915211774.shtml)
-- 2026-06-30 00:02 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/7381625.shtml)
-- 2026-06-30 00:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/72668140.shtml)
-- 2026-06-30 00:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/580663.shtml)
-- 2026-06-30 00:00 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/459548456937.shtml)
-- 2026-06-30 00:19 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/752659214427.shtml)
-- 2026-06-30 00:23 - [女心理师](http://www.share.minike.top/Article/details/931848.shtml)
+- 2026-06-30 00:34 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/5153861.shtml)
+- 2026-06-30 00:15 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/723478338.shtml)
+- 2026-06-30 00:23 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/470029014.shtml)
+- 2026-06-30 00:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/9192670.shtml)
+- 2026-06-30 00:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/933905439.shtml)
+- 2026-06-30 00:34 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/23342997820.shtml)
+- 2026-06-30 00:10 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/255871.shtml)
+- 2026-06-30 00:19 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/49544285768.shtml)
+- 2026-06-30 00:35 - [啊啊啊](http://www.share.minike.top/Article/details/633612.shtml)
+- 2026-06-30 00:19 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/974402550904.shtml)
+- 2026-06-30 00:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/8312510.shtml)
+- 2026-06-30 00:06 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/9019532935.shtml)
+- 2026-06-30 00:29 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/7376424.shtml)
+- 2026-06-30 00:30 - [世界杯](https://www.blog.minike.top/Article/details/652229.shtml)
+- 2026-06-30 00:24 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0859281272.shtml)

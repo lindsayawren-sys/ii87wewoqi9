@@ -1,56 +1,45 @@
-# “洋”味+新人+热度+长效 八百年会船书写新“船”说
+# 日本：民众举行集会 反对高市政府扩军修宪动向
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-每年春天，国家级非遗——溱潼会船在江苏泰州姜堰区举行。500多只各色船只浩浩荡荡，比速度、比技巧、比气势，水上贡船、花船表演和岸边民俗展示交相辉映。当地人说：会船越热闹，日子越红火。这项传承了八百年的水乡盛事，今年有了新变化：洋小伙来了，各地大学生来了，数万游客也来了。清晨的溱湖，锣鼓震天。穿着水乡传统服饰的西班牙小伙李桑饶成为湖面焦点。他和队友们齐声呐喊、同步发力，撑着篙船奋
+发布时间：2026年06月15日 10:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-每年春天，国家级非遗——溱潼会船在江苏泰州姜堰区举行。
-
-500多只各色船只浩浩荡荡，比速度、比技巧、比气势，水上贡船、花船表演和岸边民俗展示交相辉映。
-
-当地人说：会船越热闹，日子越红火。
-
-这项传承了八百年的水乡盛事，今年有了新变化：洋小伙来了，各地大学生来了，数万游客也来了。
-
-清晨的溱湖，锣鼓震天。
-
-穿着水乡传统服饰的西班牙小伙李桑饶成为湖面焦点。
-
-他和队友们齐声呐喊、同步发力，撑着篙船奋力冲向终点。
-
-虽然最终与领奖台无缘，但满头大汗的他，说一点也不遗憾。
+发布时间：2026年06月15日 10:55 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 00:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 00:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 00:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 00:28 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 00:02 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 00:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 00:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 00:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 00:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 00:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 00:14 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 00:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 00:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 00:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 00:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 00:08 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 00:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 00:16 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 00:16 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 00:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 00:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/97899985.shtml)
-- 2026-06-30 00:01 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/2823440434.shtml)
-- 2026-06-30 00:22 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/87911.shtml)
-- 2026-06-30 00:28 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/704952.shtml)
-- 2026-06-30 00:28 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/839175278.shtml)
-- 2026-06-30 00:22 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/642621763937.shtml)
-- 2026-06-30 00:06 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/981265836043.shtml)
-- 2026-06-30 00:24 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/33574517030.shtml)
-- 2026-06-30 00:27 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/02333.shtml)
-- 2026-06-30 00:07 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/2977644659.shtml)
-- 2026-06-30 00:13 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/89364.shtml)
-- 2026-06-30 00:12 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/04600464298.shtml)
-- 2026-06-30 00:02 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/61987.shtml)
-- 2026-06-30 00:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/2911279335.shtml)
-- 2026-06-30 00:29 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/600029727.shtml)
+- 2026-06-30 00:17 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/81346.shtml)
+- 2026-06-30 00:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/0988751.shtml)
+- 2026-06-30 00:13 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/530700926256.shtml)
+- 2026-06-30 00:31 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/0853347.shtml)
+- 2026-06-30 00:21 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/7323196.shtml)
+- 2026-06-30 00:19 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/2995666871.shtml)
+- 2026-06-30 00:08 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3724780238.shtml)
+- 2026-06-30 00:25 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/334552302.shtml)
+- 2026-06-30 00:09 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/03281.shtml)
+- 2026-06-30 00:25 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/0243818.shtml)
+- 2026-06-30 00:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/73505232.shtml)
+- 2026-06-30 00:09 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/410574984416.shtml)
+- 2026-06-30 00:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/7391386.shtml)
+- 2026-06-30 00:11 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/90491.shtml)
+- 2026-06-30 00:22 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/581412020.shtml)

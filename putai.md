@@ -1,53 +1,61 @@
-# 钧达股份绩后涨超4% 第一季度业绩同比扭亏为盈
+# 电影《爸爸》广州路演 主角刘青云坦言“表演难度极大”
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-钧达股份（02865）绩后涨近5%，截至发稿，股价上涨4.26%，现报30.36港元，成交额3.07亿港元。 4月9日，钧达股份发布2026年第一季度报告，该集团取得营业收入16.94亿元，同比减少9.63%；归属于上市公司股东的净利润1416.36万元，去年同期则取得亏损1.06亿元；基本每股收益0.05元。 公告称，2026年第一季度，伴随光伏行业供需关系优化、海外重点市场
+中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。 该影片将于6月27日正式上映。影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。正如翁子光所说：这不是一部关于“
 
 ## 正文
 
-钧达股份（02865）绩后涨近5%，截至发稿，股价上涨4.26%，现报30.36港元，成交额3.07亿港元。
+中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。
 
-4月9日，钧达股份发布2026年第一季度报告，该集团取得营业收入16.94亿元，同比减少9.63%；归属于上市公司股东的净利润1416.36万元，去年同期则取得亏损1.06亿元；基本每股收益0.05元。
+导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。
 
-公告称，2026年第一季度，伴随光伏行业供需关系优化、海外重点市场需求释放，公司紧抓行业机遇，深耕光伏电池主业，推进降本增效与市场拓展，经营状况稳步改善、盈利水平大幅回升。
+该影片将于6月27日正式上映。
 
-同时，公司资本运作、战略投资与业务发展有序推进，在巩固主业优势的同时，积极培育第二增长曲线。
+影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。
 
-责任编辑：卢昱君
+正如翁子光所说：这不是一部关于“谁杀了谁”的电影，而是一部关于“留下来的人怎么活”的电影。
+
+一向擅长塑造多面银幕形象的刘青云，此次褪去以往经典角色的锋芒，化身一位平凡内敛又极致负重前行、沉默坚守的父亲。
+
+为贴合角色状态，他摒弃外放的表演方式，将表演融入生活细节：佝偻的体态、不经意间抬手揉眼的小动作、欲言又止的神态、面对家人时隐忍又温柔的眼神，每一处微表情、每一个肢体动作都精准拿捏人物心境。
+
+刘青云坦言，“父亲”这个角色看似普通，实则表演难度极大，“这个角色没有激烈的台词和外放的情绪，所有情感都压在心底，要靠细节去传递人物的精神困境和复杂情绪。
 
 ## 相关推荐
 
-- 2026-06-30 00:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 00:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 00:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 00:25 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 00:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 00:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 00:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 00:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 00:15 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 00:15 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 00:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 00:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 00:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 00:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 00:12 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 00:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 00:35 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 00:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 00:12 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 00:18 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 00:20 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 00:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 00:24 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 00:21 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 00:35 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 00:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 00:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/572236082.shtml)
-- 2026-06-30 00:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/612723.shtml)
-- 2026-06-30 00:20 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/1776951846.shtml)
-- 2026-06-30 00:06 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/1712240064.shtml)
-- 2026-06-30 00:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/768833783428.shtml)
-- 2026-06-30 00:15 - [沙丘](http://www.share.minike.top/Article/details/6338388.shtml)
-- 2026-06-30 00:23 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/736069729301.shtml)
-- 2026-06-30 00:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/16268927743.shtml)
-- 2026-06-30 00:02 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/1916318267.shtml)
-- 2026-06-30 00:23 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/86721680.shtml)
-- 2026-06-30 00:29 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/88037304.shtml)
-- 2026-06-30 00:13 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/147399125861.shtml)
-- 2026-06-30 00:16 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/355685927.shtml)
-- 2026-06-30 00:10 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/62292591681.shtml)
-- 2026-06-30 00:09 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/99016.shtml)
+- 2026-06-30 00:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/56262233.shtml)
+- 2026-06-30 00:19 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/001773.shtml)
+- 2026-06-30 00:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/0980762724.shtml)
+- 2026-06-30 00:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/7256184054.shtml)
+- 2026-06-30 00:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/996292.shtml)
+- 2026-06-30 00:20 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/451352.shtml)
+- 2026-06-30 00:31 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/078536885010.shtml)
+- 2026-06-30 00:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/23261505452.shtml)
+- 2026-06-30 00:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/12619684.shtml)
+- 2026-06-30 00:13 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/25655311.shtml)
+- 2026-06-30 00:25 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/4027362060.shtml)
+- 2026-06-30 00:28 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/77150.shtml)
+- 2026-06-30 00:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/5752443440.shtml)
+- 2026-06-30 00:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/57729.shtml)
+- 2026-06-30 00:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/92233.shtml)

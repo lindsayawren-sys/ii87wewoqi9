@@ -1,56 +1,58 @@
-# 外国驻港领团和商界中山行 助力更多内地企业依托香港走向国际市场
+# （投资中国）派安盈全球高级副总裁：中国市场是全球产品创新的重要战略支点
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网中山4月10日电 (记者 戴小橦)“时隔25年再来中山，这座城市已从传统商贸地，蜕变为充满活力的高科技产业高地。”4月9日，香港奥地利商会主席鲍拿(Wilhelm Brauner)在参访时直言。 当日，“走进中山，共促伟人故里交流合作”外国驻港领团和商界参访团实地走访广东中山多家聚焦新质生产力的重点企业，参访团成员纷纷点赞中山发展势能。 参访团首站抵达中山翠亨新区规划馆，
+中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。 作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规
 
 ## 正文
 
-中新网中山4月10日电 (记者 戴小橦)“时隔25年再来中山，这座城市已从传统商贸地，蜕变为充满活力的高科技产业高地。
+中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。
 
-”4月9日，香港奥地利商会主席鲍拿(Wilhelm Brauner)在参访时直言。
+作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。
 
-当日，“走进中山，共促伟人故里交流合作”外国驻港领团和商界参访团实地走访广东中山多家聚焦新质生产力的重点企业，参访团成员纷纷点赞中山发展势能。
+最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规模继续领先全球各区域市场，达8700万美元，同比增长2%。
 
-参访团首站抵达中山翠亨新区规划馆，这片珠江口东西两岸融合发展的区域，凭借深中通道(深圳至中山跨江通道)带来的区位优势，以及前瞻性的产业规划，获得参访团成员的认可。
+承丹丹表示，中国市场的重要性不仅体现在营收规模上，更在于其服务数百万全球跨境中小微企业，帮助它们发掘全球市场机遇。
 
-多位参访团成员表示，翠亨新区区位与营商环境优势突出，是外资布局大湾区的优质落脚点。
+“当前中国企业出海正从‘规模扩张’转向‘价值深耕’，从‘走出去’迈向‘走进去’直至‘扎下根’。
 
-在中山小神童创新科技有限公司，智能轮椅、智能爬楼机、具身智能机器人等多款创新产品集中亮相，现场产品演示引得参访团成员纷纷拿出手机拍摄记录。
+”她认为，这些企业对跨境支付的要求已发生深刻变化，推动着跨境金融不断向前发展。
 
-鲍拿表示，在欧洲老龄化趋势下，这类智能康养设备市场潜力巨大，后续将推动商会企业与中山的企业对接，拓展智能制造、康养科技领域的合作。
+承丹丹说，中国中小企业在跨境支付方面呈现三大特点：一是对资金效率要求高，关注资金能否快速、安全流转；二是多币种和全球资金管理需求复杂，需要用一个账户统一管理全球收付款；三是对本地化支付与合规能力要求提升，需满足不同国家监管、支付及税务要求，让资金“安全合规地使用和落地”。
 
-走进中山康方生物医药有限公司(简称“康方生物”)，参访团一行详细了解中国创新药在肿瘤治疗领域取得的突破，这家掌握生物医药核心自主知识产权的企业，给参访团留下深刻印象。
+近年来中国持续优化外资营商环境，尤其是在金融开放、数字经济以及跨境贸易等领域，释放出更加稳定、透明和开放的政策信号。
 
 ## 相关推荐
 
-- 2026-06-30 00:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 00:08 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 00:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 00:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 00:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 00:15 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 00:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 00:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 00:05 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 00:12 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 00:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 00:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 00:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 00:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 00:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 00:30 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 00:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 00:26 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 00:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 00:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/61982.shtml)
-- 2026-06-30 00:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/96358.shtml)
-- 2026-06-30 00:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/544506835335.shtml)
-- 2026-06-30 00:26 - [沙丘](https://www.share.minike.top/Article/details/89739796551.shtml)
-- 2026-06-30 00:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/17931415.shtml)
-- 2026-06-30 00:25 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/12975.shtml)
-- 2026-06-30 00:11 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/45410991057.shtml)
-- 2026-06-30 00:16 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/235065.shtml)
-- 2026-06-30 00:11 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/325704346.shtml)
-- 2026-06-30 00:08 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/17039.shtml)
-- 2026-06-30 00:08 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/3535906531.shtml)
-- 2026-06-30 00:06 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/493456.shtml)
-- 2026-06-30 00:17 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/40192.shtml)
-- 2026-06-30 00:11 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/20146130812.shtml)
-- 2026-06-30 00:12 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/524149431.shtml)
+- 2026-06-30 00:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/57494756876.shtml)
+- 2026-06-30 00:21 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7290571.shtml)
+- 2026-06-30 00:16 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/167247.shtml)
+- 2026-06-30 00:24 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/8980966.shtml)
+- 2026-06-30 00:24 - [爱很美味](http://www.share.minike.top/Article/details/175478302.shtml)
+- 2026-06-30 00:14 - [沙丘](http://www.blog.minike.top/Article/details/0950499070.shtml)
+- 2026-06-30 00:21 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/511107.shtml)
+- 2026-06-30 00:15 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/36440909138.shtml)
+- 2026-06-30 00:27 - [我们的少年时代2](https://www.share.minike.top/Article/details/64951395.shtml)
+- 2026-06-30 00:26 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/503770.shtml)
+- 2026-06-30 00:25 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/28799.shtml)
+- 2026-06-30 00:18 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/121470035.shtml)
+- 2026-06-30 00:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/8439762.shtml)
+- 2026-06-30 00:19 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/50754.shtml)
+- 2026-06-30 00:33 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/903551057627.shtml)

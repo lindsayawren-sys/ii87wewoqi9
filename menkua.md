@@ -1,59 +1,60 @@
-# 云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一
+# “第三届中哈智库论坛”在北京举行
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网云南昭通4月11日电 题：云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一 作者 时文枝 “要不是政府帮扶，我们家真不知道该怎么撑下去。”回忆起三年前丈夫重病、两个孩子尚在读书的日子，45岁的云南省昭通市镇雄县粉壁村村民李春琴难掩感慨。2023年，当地镇村干部走访发现家庭困难后，将其纳为动态识别防止返贫监测对象(以下简称监测对象)，通过办理低保、落实健康及教育帮扶政策，
+中新网北京6月12日电 (记者 黄钰钦)6月12日，“第三届中哈智库论坛”在北京举行。本届论坛的主题为“中国和哈萨克斯坦：共同发展与现代化”。来自中国与哈萨克斯坦科研学术机构的50余位专家学者与会。 中国社会科学院俄罗斯东欧中亚所所长孙壮志在开幕式致辞中表示，当前，中哈两国都迈入国家发展与双边合作的新阶段。中国迎来“十五五”开局之年，作为推进中国式现代化建设的关键窗口期，国家发
 
 ## 正文
 
-中新网云南昭通4月11日电 题：云南昭通筑牢防返贫底线 过渡期五年考核连续全省第一 作者 时文枝 “要不是政府帮扶，我们家真不知道该怎么撑下去。
+中新网北京6月12日电 (记者 黄钰钦)6月12日，“第三届中哈智库论坛”在北京举行。
 
-”回忆起三年前丈夫重病、两个孩子尚在读书的日子，45岁的云南省昭通市镇雄县粉壁村村民李春琴难掩感慨。
+本届论坛的主题为“中国和哈萨克斯坦：共同发展与现代化”。
 
-2023年，当地镇村干部走访发现家庭困难后，将其纳为动态识别防止返贫监测对象(以下简称监测对象)，通过办理低保、落实健康及教育帮扶政策，帮助全家渡过难关。
+来自中国与哈萨克斯坦科研学术机构的50余位专家学者与会。
 
-这是2021至2025年，昭通市在巩固拓展脱贫攻坚成果同乡村振兴有效衔接5年过渡期里，筑牢防返贫底线的一个真实缩影。
+中国社会科学院俄罗斯东欧中亚所所长孙壮志在开幕式致辞中表示，当前，中哈两国都迈入国家发展与双边合作的新阶段。
 
-昭通市地处云、贵、川三省交界处的乌蒙山腹地，是全国脱贫人口最多的地级市，635万户籍人口中有185.07万脱贫人口、26.85万监测对象，脱贫人口和监测对象均占全省四分之一。
+中国迎来“十五五”开局之年，作为推进中国式现代化建设的关键窗口期，国家发展布局持续完善，为经济社会提质升级、深化对外务实合作奠定坚实的物质基础与人文支撑。
 
-“过渡期里，我们以监测帮扶守底线，不让一户农村家庭返贫致贫。
+在两国发展战略深度对接背景下，新时代中哈合作呈现稳定、务实、可持续的高质量发展特征，成为区域睦邻协作、共建周边命运共同体的典范。
 
-”昭通市农业农村局党组书记、局长罗光华介绍，五年来，该市累计识别监测对象6.36万户26.85万人。
+哈萨克斯坦总统直属战略研究所所长沙伊马尔达诺夫在开幕式上指出，在百年变局加速演进、国际形势深刻调整的时代背景下，智库的战略价值愈发凸显。
 
-其中，5.37万户23.54万人已消除返贫致贫风险，未消除风险对象均已落实帮扶措施。
+它既是各国理解全球治理进程、研判地缘政治格局的关键窗口，也是捕捉发展机遇、应对系统性风险的智力枢纽，更是推动国家间凝聚共识、政策协同的重要桥梁。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 00:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 00:08 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 00:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 00:20 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 00:13 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 00:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 00:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 00:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 00:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 00:20 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 00:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 00:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 00:29 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 00:19 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 00:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 00:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 00:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 00:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 00:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 00:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 00:19 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 00:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 00:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 00:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 00:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:04 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/34032682.shtml)
-- 2026-06-30 00:01 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/89258734.shtml)
-- 2026-06-30 00:14 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/32501.shtml)
-- 2026-06-30 00:24 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/299868011.shtml)
-- 2026-06-30 00:11 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/4595680348.shtml)
-- 2026-06-30 00:13 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/9784138.shtml)
-- 2026-06-30 00:20 - [恋与深空 日服](https://www.share.minike.top/Article/details/423303.shtml)
-- 2026-06-30 00:14 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/15706943.shtml)
-- 2026-06-30 00:18 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/72010658249.shtml)
-- 2026-06-30 00:02 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/074360.shtml)
-- 2026-06-30 00:24 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/9424408066.shtml)
-- 2026-06-30 00:17 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/0654928.shtml)
-- 2026-06-30 00:29 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/877280020.shtml)
-- 2026-06-30 00:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/3937337063.shtml)
-- 2026-06-30 00:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/5956239555.shtml)
+- 2026-06-30 00:09 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/387708817217.shtml)
+- 2026-06-30 00:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/8010494778.shtml)
+- 2026-06-30 00:31 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/93517144.shtml)
+- 2026-06-30 00:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/60371877.shtml)
+- 2026-06-30 00:22 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/14076.shtml)
+- 2026-06-30 00:21 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/285718195.shtml)
+- 2026-06-30 00:19 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/8083167342.shtml)
+- 2026-06-30 00:13 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/91000330.shtml)
+- 2026-06-30 00:30 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/9951514273.shtml)
+- 2026-06-30 00:26 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/380941.shtml)
+- 2026-06-30 00:28 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5699200.shtml)
+- 2026-06-30 00:11 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/419406150.shtml)
+- 2026-06-30 00:33 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/78538559483.shtml)
+- 2026-06-30 00:32 - [存储三巨头被告了](http://www.share.minike.top/Article/details/400798880.shtml)
+- 2026-06-30 00:34 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/362410033.shtml)

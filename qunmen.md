@@ -1,58 +1,52 @@
-# 深蓝汽车喻成：新能源汽车进入大众阶段，产品要从早期“制造爽点”转向“打造差异化”
+# 【活力中国调研行】临床用上手术机器人，安全如何守护？
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。深蓝汽车产品全球开发总经理喻成出席并演讲。 喻成谈到，目前双碳已经成为全球共识，日本、德国、印度整体对石油的依赖程度非常高，中国这几年随着新能源汽车的发展，对石油的依赖在逐步降低，在往更好的方
+发布时间：2026年06月13日 23:04 来源：中国新闻网 随着医疗机器人逐步走进临床诊疗各环节，其应用安全性备受关注。6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。某科技企业相关负责人朱罡表示，手术机器人核心是赋能给医生，医生是整个医疗过程中的决策者，同时机器人配备有急停系统，在整个治疗过程中，医生可以任何时候去喊停
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+发布时间：2026年06月13日 23:04 来源：中国新闻网 随着医疗机器人逐步走进临床诊疗各环节，其应用安全性备受关注。
 
-深蓝汽车产品全球开发总经理喻成出席并演讲。
+6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。
 
-喻成谈到，目前双碳已经成为全球共识，日本、德国、印度整体对石油的依赖程度非常高，中国这几年随着新能源汽车的发展，对石油的依赖在逐步降低，在往更好的方向发展。
+某科技企业相关负责人朱罡表示，手术机器人核心是赋能给医生，医生是整个医疗过程中的决策者，同时机器人配备有急停系统，在整个治疗过程中，医生可以任何时候去喊停，机器人也会实时监测，通过前期建立的力学模型，能够评估出对患者相对安全的力。
 
-从市场的情况来看，这几年新能源汽车市场快速发展，2025年产销量首次突破1500万辆，中国新能源汽车销量占全球50%以上，是全球最大的市场。
-
-特别是今年1、2月份，出海的趋势非常明显。
-
-“对我们现在来讲，海外产品的开发比国内产品的开发还要重要，同时面向海外3000万的市场，在全力进入相关的领域。
-
-” 他指出，从市场发展态势来讲，新能源汽车目前已经进入了大众的阶段，产品要推向更多的市场。
-
-所以，从早期要制造爽点，到现在的重点是打造差异化，以及极致成本控制能力，来实现大众普及。
+(记者 刘世炯 陈杭 制作 刘鹏) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-30 00:17 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 00:27 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 00:08 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 00:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 00:01 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 00:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 00:05 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 00:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 00:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 00:07 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:13 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 00:01 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 00:06 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 00:18 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 00:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 00:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 00:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 00:35 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 00:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 00:10 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 00:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 00:20 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 00:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:14 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 00:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:03 - [一生一世](https://www.share.kurohicncr.top/Article/details/2358607004.shtml)
-- 2026-06-30 00:02 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/795898397.shtml)
-- 2026-06-30 00:01 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/29745924.shtml)
-- 2026-06-30 00:03 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/46024.shtml)
-- 2026-06-30 00:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/68593.shtml)
-- 2026-06-30 00:24 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/137631179.shtml)
-- 2026-06-30 00:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/129246.shtml)
-- 2026-06-30 00:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/64297929.shtml)
-- 2026-06-30 00:12 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/850692619.shtml)
-- 2026-06-30 00:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/93986.shtml)
-- 2026-06-30 00:20 - [第一炉香](https://www.blog.minike.top/Article/details/495035.shtml)
-- 2026-06-30 00:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/54731783.shtml)
-- 2026-06-30 00:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/22527285.shtml)
-- 2026-06-30 00:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/87756.shtml)
-- 2026-06-30 00:10 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/5401299394.shtml)
+- 2026-06-30 00:10 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/6139580.shtml)
+- 2026-06-30 00:29 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/2857044.shtml)
+- 2026-06-30 00:11 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/679226841.shtml)
+- 2026-06-30 00:20 - [小娘惹](http://www.share.minike.top/Article/details/40974.shtml)
+- 2026-06-30 00:21 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/9358924331.shtml)
+- 2026-06-30 00:12 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2872541.shtml)
+- 2026-06-30 00:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/25627.shtml)
+- 2026-06-30 00:22 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/418376317608.shtml)
+- 2026-06-30 00:13 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/49648110.shtml)
+- 2026-06-30 00:34 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/391598.shtml)
+- 2026-06-30 00:24 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/0014649.shtml)
+- 2026-06-30 00:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/203387398.shtml)
+- 2026-06-30 00:34 - [请回答王牌2019](https://www.share.minike.top/Article/details/19934901687.shtml)
+- 2026-06-30 00:30 - [月亮](http://www.share.kurohicncr.top/Article/details/4340268.shtml)
+- 2026-06-30 00:13 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/09417666.shtml)

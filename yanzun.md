@@ -1,60 +1,61 @@
-# 长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上
+# 公共场所控烟 如何更有效？
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。长城汽车智能化产品副总经理佘士东出席并演讲。 他指出，当前智能座舱面临高度同质化的困境，大模型上车正推动行业从“人机交互”向“人-智-体”三方服务演进。长城汽车通过工程化落地，实现了以自然对话
+近期，公共场所吸烟话题持续引发关注。近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+近期，公共场所吸烟话题持续引发关注。
 
-长城汽车智能化产品副总经理佘士东出席并演讲。
+近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。
 
-他指出，当前智能座舱面临高度同质化的困境，大模型上车正推动行业从“人机交互”向“人-智-体”三方服务演进。
+然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。
 
-长城汽车通过工程化落地，实现了以自然对话为核心的智能体交互，让用户从“操作机器”回归“表达需求”，为智能座舱体验带来革命性升级。
+面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。
 
-佘士东分析，当前智能座舱界面高度同质化，200多款车型的交互界面相似度达95%以上，行业陷入“无米下锅”的创新瓶颈。
+只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清新。
 
-而大模型上车带来了破局机遇，行业正逐步从“人机交互”迈向“人-智-体”三方服务时代。
+二手烟危害不容忽视 前不久，深圳一公交站台，一女子劝阻男子吸烟引发争执；上海迪士尼乐园，一名游客因制止他人吸烟，双方发生肢体冲突……诸如此类因二手烟引发的冲突，在各地公共场所时有发生。
 
-这一转变的核心，是车从“司机与机器的交互”扩展为“全车成员与智能体的交互”，大六座车型、后排舒适性配置的普及正是这一趋势的体现。
+不少受访者表示，自己曾在电梯、饭店、办公楼楼道等室内公共场所被二手烟困扰，一些呼吸道敏感人群更是深感不便。
 
-佘士东坦言，当前智能体仍处于“相持相知”阶段，未来将向“美好生活推荐”演进。
+“我有哮喘，闻到烟味就喘不上气。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:25 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:07 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 00:17 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 00:06 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 00:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 00:26 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 00:13 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 00:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 00:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 00:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 00:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 00:11 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 00:12 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 00:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 00:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 00:35 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 00:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 00:25 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 00:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 00:16 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 00:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 00:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 00:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 00:21 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 00:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 00:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/77957760268.shtml)
-- 2026-06-30 00:26 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/0528330258.shtml)
-- 2026-06-30 00:18 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/018681209434.shtml)
-- 2026-06-30 00:05 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/04583597.shtml)
-- 2026-06-30 00:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/9341123011.shtml)
-- 2026-06-30 00:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/290649183053.shtml)
-- 2026-06-30 00:08 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/483330563626.shtml)
-- 2026-06-30 00:29 - [金刚川](https://www.blog.minike.top/Article/details/2290969.shtml)
-- 2026-06-30 00:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/841760.shtml)
-- 2026-06-30 00:08 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/51632184231.shtml)
-- 2026-06-30 00:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/79551979.shtml)
-- 2026-06-30 00:28 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/9923540370.shtml)
-- 2026-06-30 00:26 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/591559.shtml)
-- 2026-06-30 00:02 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/360943.shtml)
-- 2026-06-30 00:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/994840202.shtml)
+- 2026-06-30 00:13 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/623864934757.shtml)
+- 2026-06-30 00:25 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/9401167221.shtml)
+- 2026-06-30 00:10 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/5437014.shtml)
+- 2026-06-30 00:08 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/556885821.shtml)
+- 2026-06-30 00:11 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/07018772053.shtml)
+- 2026-06-30 00:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/594901.shtml)
+- 2026-06-30 00:23 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/7096621.shtml)
+- 2026-06-30 00:26 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/583921.shtml)
+- 2026-06-30 00:33 - [青春环游记第三季](https://www.share.minike.top/Article/details/6963535.shtml)
+- 2026-06-30 00:32 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/69645860195.shtml)
+- 2026-06-30 00:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/4827926940.shtml)
+- 2026-06-30 00:25 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/95129850.shtml)
+- 2026-06-30 00:35 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/183911.shtml)
+- 2026-06-30 00:16 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/9436161.shtml)
+- 2026-06-30 00:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/90675548.shtml)

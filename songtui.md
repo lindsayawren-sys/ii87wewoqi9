@@ -1,51 +1,58 @@
-# 交通运输部安委办约谈中国铁建股份有限公司
+# 诺贝尔经济学奖得主：马斯克本质上是真人版庞氏骗局
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据交通运输部微信公众号消息，今年以来，中国铁建股份有限公司及其所属子公司在公路水运工程建设领域事故多发，为推动公路水运工程建设安全生产形势稳定好转，依据《交通运输部安全生产警示约谈和挂牌督办办法》，近日，交通运输部安委办约谈了中国铁建股份有限公司及其所属相关子公司。约谈强调，中国铁建要认真落实党中央、国务院决策部署，统筹好发展和安全，坚持人民至上、生命至上，
+当地时间6月12日，诺贝尔经济学奖得主保罗·克鲁格曼发文“Elon Musk， Human Ponzi Scheme”，称世界首富埃隆·马斯克是庞氏骗局。 原文编译如下： 昨天我进行了一次短途旅行。首先，我乘坐了当地的超级高铁，它穿行于无聊公司（Boring Company）挖掘的隧道之中。随后，我通过脑机接口召唤了一辆完全自动驾驶的特斯拉机器人出租车。途中，我还阅读了来自火星
 
 ## 正文
 
-中新网4月10日电 据交通运输部微信公众号消息，今年以来，中国铁建股份有限公司及其所属子公司在公路水运工程建设领域事故多发，为推动公路水运工程建设安全生产形势稳定好转，依据《交通运输部安全生产警示约谈和挂牌督办办法》，近日，交通运输部安委办约谈了中国铁建股份有限公司及其所属相关子公司。
+当地时间6月12日，诺贝尔经济学奖得主保罗·克鲁格曼发文“Elon Musk， Human Ponzi Scheme”，称世界首富埃隆·马斯克是庞氏骗局。
 
-约谈强调，中国铁建要认真落实党中央、国务院决策部署，统筹好发展和安全，坚持人民至上、生命至上，树立和践行正确政绩观，处理好安全、质量、工期和效益的关系，坚持强管理、高标准、严要求，切实提高公路水运工程项目施工质量安全管理水平。
+原文编译如下： 昨天我进行了一次短途旅行。
 
-约谈指出，中国铁建要深刻认识当前安全生产形势，深刻剖析事故背后的深层次问题，深刻汲取事故教训，切实举一反三，采取有效手段，重点防范思想认识不到位、施工现场管控不到位、材料产品管理不到位等带来的质量安全风险，坚决遏制事故多发势头。
+首先，我乘坐了当地的超级高铁，它穿行于无聊公司（Boring Company）挖掘的隧道之中。
 
-约谈要求，中国铁建要从严履行企业主体责任，积极主动作为，加强内部安全管理，强化分包和劳务合作队伍管理，坚决整治违规作业和冒险施工，严防施工现场失管失控。
+随后，我通过脑机接口召唤了一辆完全自动驾驶的特斯拉机器人出租车。
 
-要深化开展风险隐患排查整治，针对桥梁、隧道、基坑和边坡、临时结构工程等重点部位，强化质量安全管理措施，严防群死群伤事故发生。
+途中，我还阅读了来自火星殖民地的最新消息。
+
+好吧，以上一切都并未发生，因为那些产品根本不存在。
+
+目前没有任何可投入运营的超级高铁；Boring Company也未挖掘任何一条商业隧道；特斯拉仅在奥斯汀部署了少数几辆自动驾驶（而非完全自动驾驶）出租车，其他地方则一概没有。
+
+（谷歌旗下的Waymo无人驾驶出租车已在多个主要交通枢纽投入运营。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 00:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 00:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 00:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 00:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 00:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 00:01 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 00:24 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 00:03 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 00:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 00:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 00:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 00:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 00:21 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 00:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 00:26 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 00:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 00:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 00:22 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 00:30 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:01 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/099426419.shtml)
-- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/628697.shtml)
-- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/1919987414.shtml)
-- 2026-06-30 00:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/07616971.shtml)
-- 2026-06-30 00:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/22192479587.shtml)
-- 2026-06-30 00:01 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/318527.shtml)
-- 2026-06-30 00:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/7535690.shtml)
-- 2026-06-30 00:13 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/720641696183.shtml)
-- 2026-06-30 00:29 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/29284409648.shtml)
-- 2026-06-30 00:09 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/2772206152.shtml)
-- 2026-06-30 00:02 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/8648711.shtml)
-- 2026-06-30 00:18 - [乔家的儿女](https://www.blog.minike.top/Article/details/86227581122.shtml)
-- 2026-06-30 00:27 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/53430.shtml)
-- 2026-06-30 00:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/154200607.shtml)
-- 2026-06-30 00:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/6620639390.shtml)
+- 2026-06-30 00:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/5774081300.shtml)
+- 2026-06-30 00:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/931740.shtml)
+- 2026-06-30 00:13 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/4813365.shtml)
+- 2026-06-30 00:26 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/67970.shtml)
+- 2026-06-30 00:28 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/541330.shtml)
+- 2026-06-30 00:26 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/101228.shtml)
+- 2026-06-30 00:22 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/5737236813.shtml)
+- 2026-06-30 00:08 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/0549693029.shtml)
+- 2026-06-30 00:09 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/3321987655.shtml)
+- 2026-06-30 00:21 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/532866003948.shtml)
+- 2026-06-30 00:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/1985056.shtml)
+- 2026-06-30 00:11 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/868212.shtml)
+- 2026-06-30 00:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/435944788814.shtml)
+- 2026-06-30 00:16 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/487145474.shtml)
+- 2026-06-30 00:34 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/45823892979.shtml)

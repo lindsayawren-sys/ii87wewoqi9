@@ -1,60 +1,56 @@
-# 长江有色：特朗普对美伊谈判协议持乐观预期 10日锌价或上涨
+# 遇见小面创始人深夜致歉，拟将相关商标无偿赠予渝见小面
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-【ccmn.cn摘要】特朗普对美伊谈判协议持乐观预期，隔夜伦锌领涨 1.22%；海外供应干扰不断致供应趋紧，国内旺季消费预期促现货逢低补库，今现锌或上涨。 【ccmn.cn锌期货市场】隔夜伦锌偏强上扬，领涨有色金属板块，开盘报3290美元/吨，高点报3334美元，低点报3268.5美元，尾盘收于3325美元，涨40美元，涨幅1.22%；成交量8608手减少2022手，持仓量21
+近日，因起诉河南“渝见小面”餐饮店，“中式面馆第一股”遇见小面（02408.HK）陷入舆论风波。 6月15日凌晨1点多，遇见小面创始人宋奇发布《致渝见小面的一封信》，就此次“商标风波”致歉。信中称，其和团队决定将已注册的第35类“渝见小面”商标无偿赠予渝见小面。 宋奇称，遇见小面的企业文化中一直强调正直、善良，“而今天发生的事情与我们价值观背道而驰，是管理上的重大失误”。他表示
 
 ## 正文
 
-【ccmn.cn摘要】特朗普对美伊谈判协议持乐观预期，隔夜伦锌领涨 1.22%；海外供应干扰不断致供应趋紧，国内旺季消费预期促现货逢低补库，今现锌或上涨。
+近日，因起诉河南“渝见小面”餐饮店，“中式面馆第一股”遇见小面（02408.HK）陷入舆论风波。
 
-【ccmn.cn锌期货市场】隔夜伦锌偏强上扬，领涨有色金属板块，开盘报3290美元/吨，高点报3334美元，低点报3268.5美元，尾盘收于3325美元，涨40美元，涨幅1.22%；成交量8608手减少2022手，持仓量212142手增加291手。
+6月15日凌晨1点多，遇见小面创始人宋奇发布《致渝见小面的一封信》，就此次“商标风波”致歉。
 
-晚间沪锌走势先抑后扬，主力2603合约最新收盘价报23810元/吨，涨30元，涨幅0.13%。
+信中称，其和团队决定将已注册的第35类“渝见小面”商标无偿赠予渝见小面。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估：隔夜伦锌偏强上扬，领涨有色板块，收于3325美元/吨，涨幅1.22%。
+宋奇称，遇见小面的企业文化中一直强调正直、善良，“而今天发生的事情与我们价值观背道而驰，是管理上的重大失误”。
 
-沪锌主力合约早盘高开震荡，当前价格交投于23780元/吨附近。
+他表示，“对此，我们承认错误，承担后果，不甩锅，今后要承担更多的社会责任。
 
-宏观层面，特朗普对美伊谈判的乐观表态缓解了市场紧张情绪。
+同时，我们已中止和外包律所的合作，并呼吁商标保护工作科学、良性开展。
 
-全球市场风险偏好回升，美股、黄金等资产普涨，美元指数连续三日下跌，为大宗商品提供了有利环境。
+” 此次商标风波始于6月12日。
 
-国内方面，3月CPI环比下降0.7%，PPI环比上涨1.0%，显示内需偏弱但工业品价格受成本推动有所回暖。
+据河南广播电视台“民生大参考”栏目当日报道，“渝见小面”餐饮店负责人毛女士称，近日被“遇见小面”起诉，事由为商标侵权。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 00:06 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 00:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 00:11 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 00:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 00:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 00:16 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 00:08 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 00:02 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 00:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 00:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 00:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 00:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 00:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 00:13 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 00:14 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 00:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 00:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 00:20 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 00:33 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 00:06 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 00:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 00:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 00:13 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/3976687723.shtml)
-- 2026-06-30 00:01 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/85048516791.shtml)
-- 2026-06-30 00:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/50103555522.shtml)
-- 2026-06-30 00:08 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/76297554758.shtml)
-- 2026-06-30 00:27 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/6302882.shtml)
-- 2026-06-30 00:22 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/188787.shtml)
-- 2026-06-30 00:19 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/5362948425.shtml)
-- 2026-06-30 00:23 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/9411234616.shtml)
-- 2026-06-30 00:25 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/617551778.shtml)
-- 2026-06-30 00:23 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/3843544.shtml)
-- 2026-06-30 00:26 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/619993324487.shtml)
-- 2026-06-30 00:22 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/11464791.shtml)
-- 2026-06-30 00:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/62556706.shtml)
-- 2026-06-30 00:06 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/796998102225.shtml)
-- 2026-06-30 00:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/477643738047.shtml)
+- 2026-06-30 00:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/95724.shtml)
+- 2026-06-30 00:24 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/31267.shtml)
+- 2026-06-30 00:22 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/13765.shtml)
+- 2026-06-30 00:35 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/078646.shtml)
+- 2026-06-30 00:11 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/56444.shtml)
+- 2026-06-30 00:14 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/11734616.shtml)
+- 2026-06-30 00:31 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/058390.shtml)
+- 2026-06-30 00:15 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/52783533.shtml)
+- 2026-06-30 00:15 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/19467628.shtml)
+- 2026-06-30 00:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/892977984987.shtml)
+- 2026-06-30 00:31 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/91648563964.shtml)
+- 2026-06-30 00:29 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/465971.shtml)
+- 2026-06-30 00:09 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/05546515613.shtml)
+- 2026-06-30 00:27 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/9387342932.shtml)
+- 2026-06-30 00:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/87684225.shtml)

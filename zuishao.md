@@ -1,59 +1,60 @@
-# 5000余项创新产品亮相第十四届中国电子信息博览会
+# 特朗普要求法国取消科技“数字销售税”，否则将对法国葡萄酒征100%关税
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新社深圳4月9日电 (记者 索有为)第十四届中国电子信息博览会(CITE2026)9日在深圳会展中心(福田)开幕，汇聚全球1200家领军企业，集中展示5000余项创新产品。 该博览会以“新技术、新产品、新场景”为主题，为期三天，围绕核心产业设立重点展区，从芯片、裸眼3D显示、液冷算力、具身智能，到AI手机、人形机器人、智慧出行、AI医疗等领域的创新成果集中亮相，推动电子信息产
+核心要点 据《纽约邮报》周一报道，美国总统特朗普向法国发出警告，要求其废除 3% 的科技数字服务税；如若不从，美国将对法国进口葡萄酒、香槟全额征收 100% 关税。 本周七国集团（G7）峰会将在法国埃维昂莱班举办，特朗普在峰会前放出上述制裁威胁。 特朗普向《纽约邮报》表示：“我已向马克龙总统提出要求，不得向美国企业征收这笔税费。如果法国执意征税，我别无选择，只能对所有产自法国的
 
 ## 正文
 
-中新社深圳4月9日电 (记者 索有为)第十四届中国电子信息博览会(CITE2026)9日在深圳会展中心(福田)开幕，汇聚全球1200家领军企业，集中展示5000余项创新产品。
+核心要点 据《纽约邮报》周一报道，美国总统特朗普向法国发出警告，要求其废除 3% 的科技数字服务税；如若不从，美国将对法国进口葡萄酒、香槟全额征收 100% 关税。
 
-该博览会以“新技术、新产品、新场景”为主题，为期三天，围绕核心产业设立重点展区，从芯片、裸眼3D显示、液冷算力、具身智能，到AI手机、人形机器人、智慧出行、AI医疗等领域的创新成果集中亮相，推动电子信息产业迈向全域智能与协作。
+本周七国集团（G7）峰会将在法国埃维昂莱班举办，特朗普在峰会前放出上述制裁威胁。
 
-开展首日，具身机器人成为展会亮点，宇树机器人、众擎机器人、智元机器人等企业展台前围满了观众，能够爬坡过坎、沏茶递茶、演奏音乐的机器人令人目不暇接。
+特朗普向《纽约邮报》表示：“我已向马克龙总统提出要求，不得向美国企业征收这笔税费。
 
-在展会上亮相的CSHN系列AI专用芯片电感，采用深圳市科达嘉电子有限公司自主研发的金属软磁粉末热压成型，有助于降低AI芯片功耗，优化系统效率。
+如果法国执意征税，我别无选择，只能对所有产自法国的香槟与葡萄酒征收 100% 关税。
 
-CSEG系列工业级一体成型电感则采用自主研发的低损耗磁粉芯材料，在100kHz~5MHz宽频率范围内保持极低损耗，为工业自动化应用提供高效、稳定的支持。
+” 法国国民议会于 2019 年通过数字服务税法案，对亚马逊、元宇宙、字母表等美国科技巨头在法国境内产生的总营收征收 3% 的税款。
 
-该公司产品经理周丽表示，公司布局AI服务器、人形机器人、低空经济等高增长领域，开发专属电感解决方案，形成与产业发展同步的技术路线图。
+葡萄酒出口约占法国葡萄酒行业全球总销售额的五分之一，每年输美葡萄酒贸易额约 20 亿美元。
 
-据悉，涵盖智算、人工智能+、集成电路、具身智能等领域的系列专业活动，也将陆续在该展会上举行，构建起产学研用对接网络。
+这并非特朗普政府首次针对法国葡萄酒行业出台报复性贸易措施。
 
-(完)
+2019 年法国刚推出该税种时，美方就放出风声，计划对包括葡萄酒在内的法国输美商品征收高额关税，美方称该税种专门针对美国企业，存在歧视性。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 00:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 00:11 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 00:12 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 00:07 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:22 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 00:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 00:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 00:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 00:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 00:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 00:02 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 00:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 00:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 00:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 00:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 00:35 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 00:09 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 00:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 00:15 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 00:09 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 00:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 00:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 00:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 00:15 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 00:08 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 00:23 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/90934.shtml)
-- 2026-06-30 00:28 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/078165398.shtml)
-- 2026-06-30 00:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/795154509.shtml)
-- 2026-06-30 00:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/96354.shtml)
-- 2026-06-30 00:23 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/333196.shtml)
-- 2026-06-30 00:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/872641675.shtml)
-- 2026-06-30 00:27 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/8303130.shtml)
-- 2026-06-30 00:26 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/43293.shtml)
-- 2026-06-30 00:28 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/433490905.shtml)
-- 2026-06-30 00:09 - [周生如故](https://www.blog.kurohicncr.top/Article/details/8248854.shtml)
-- 2026-06-30 00:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/35307548921.shtml)
-- 2026-06-30 00:19 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/34046034.shtml)
-- 2026-06-30 00:12 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/9467147.shtml)
-- 2026-06-30 00:20 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/083659.shtml)
-- 2026-06-30 00:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/0288493710.shtml)
+- 2026-06-30 00:35 - [起风了](http://www.blog.minike.top/Article/details/898109.shtml)
+- 2026-06-30 00:11 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/238521.shtml)
+- 2026-06-30 00:21 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/65657013.shtml)
+- 2026-06-30 00:14 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/907165.shtml)
+- 2026-06-30 00:30 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/459240277447.shtml)
+- 2026-06-30 00:18 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6898647.shtml)
+- 2026-06-30 00:10 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/63857.shtml)
+- 2026-06-30 00:06 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/660152.shtml)
+- 2026-06-30 00:28 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/171306.shtml)
+- 2026-06-30 00:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/4191076691.shtml)
+- 2026-06-30 00:26 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/9547689.shtml)
+- 2026-06-30 00:30 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/408126.shtml)
+- 2026-06-30 00:06 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/056362.shtml)
+- 2026-06-30 00:21 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/82554535302.shtml)
+- 2026-06-30 00:30 - [斛珠夫人](https://www.share.minike.top/Article/details/61413.shtml)

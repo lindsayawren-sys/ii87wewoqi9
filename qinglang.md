@@ -1,55 +1,61 @@
-# 农村中小银行行政许可新规征求意见！农村商业联合银行被纳入
+# 第三届“红旗杯”法兰克福国际龙舟节举办
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-北京商报讯（记者 宋亦桐） 4月10日，据金融监管总局官网，为进一步规范农村中小银行机构行政许可工作，金融监管总局修订形成了《农村中小银行机构行政许可事项实施办法（征求意见稿）》（以下简称《办法》），现向社会公开征求意见。 《办法》共8章129条，基本延续原有章节体例，主要是将农村商业联合银行准入政策、金融机构合规管理办法、银行业金融机构董事（理事）和高级管理人员任职资格管理办
+中新网柏林6月14日电 法兰克福消息：第三届“红旗杯”法兰克福国际龙舟节12日在法兰克福开幕。当地民众、华侨华人和国际友人齐聚美因河畔，共同见证这一文化盛会。 中国驻法兰克福总领事黄昳扬表示，今年是法兰克福国际龙舟节连续第三年举办。三年来，大家因龙舟相聚，因文化相知，因友谊相连。从龙舟竞渡到文化展演，从美食市集到城市推介，从中德交流到亚洲多元文化互动，龙舟节正逐步形成自己的特色
 
 ## 正文
 
-北京商报讯（记者 宋亦桐） 4月10日，据金融监管总局官网，为进一步规范农村中小银行机构行政许可工作，金融监管总局修订形成了《农村中小银行机构行政许可事项实施办法（征求意见稿）》（以下简称《办法》），现向社会公开征求意见。
+中新网柏林6月14日电 法兰克福消息：第三届“红旗杯”法兰克福国际龙舟节12日在法兰克福开幕。
 
-《办法》共8章129条，基本延续原有章节体例，主要是将农村商业联合银行准入政策、金融机构合规管理办法、银行业金融机构董事（理事）和高级管理人员任职资格管理办法等最新监管规定和要求纳入行政许可办法予以明确，对部分行政许可事项的内部审查流程、审批事权划分及有关事项的报告路径等进行调整优化。
+当地民众、华侨华人和国际友人齐聚美因河畔，共同见证这一文化盛会。
 
-《办法》明确，设立农村商业银行、农村商业联合银行，应当符合下列条件：有符合《中华人民共和国公司法》《中华人民共和国商业银行法》和金融监管总局有关规定的章程；农村商业银行应在农村商业银行、农村合作银行、农村信用社等机构基础上组建，农村商业联合银行应在省（自治区）农村信用社联合社基础上组建；注册资本为实缴资本，最低限额为5000万元人民币；有符合任职资格条件的董事、高级管理人员和熟悉银行业务的合格从业人员；有健全的组织机构和管理制度；有与业务经营相适应的营业场所、安全防范措施和其他设施。
+中国驻法兰克福总领事黄昳扬表示，今年是法兰克福国际龙舟节连续第三年举办。
 
-设立农村商业银行、农村商业联合银行，还应符合其他审慎性条件，至少包括：具有良好的公司治理结构；具有清晰的农村金融发展战略和成熟的农村金融商业模式；具有健全的风险管理体系，能有效控制各类风险；具备有效的资本约束与资本补充机制；具有科学有效的人力资源管理制度，拥有高素质的专业人才；建立与业务经营相适应的信息科技治理体系，具有支撑业务经营的必要、合规的管理制度、信息系统与设备设施，保障信息系统安全、持续、稳健运行，保障数据和个人信息安全；最近1年无严重违法违规行为和因内部管理问题导致的重大案件，或者相关违法违规及内部管理问题已整改到位并经金融监管总局或其派出机构认可等。
+三年来，大家因龙舟相聚，因文化相知，因友谊相连。
 
-董事（理事）和高级管理人员任职资格许可方面，《办法》规定，农村中小银行机构董事（理事）和高级管理人员拟任人应符合具有完全民事行为能力；具有担任相应职务所需的知识、经验及能力；具有良好的守法合规记录和廉洁从业记录；具有良好的品行、声誉等基本条件。
+从龙舟竞渡到文化展演，从美食市集到城市推介，从中德交流到亚洲多元文化互动，龙舟节正逐步形成自己的特色和品牌，成为法兰克福市民和各国朋友共同期待的夏日文化盛会。
 
-拟任人有因危害国家安全、实施恐怖活动、贪污、贿赂、侵占财产、挪用财产、黑社会性质的组织犯罪或者破坏社会主义市场经济秩序，被判处刑罚，或者因犯罪被剥夺政治权利以及有其他故意或重大过失犯罪记录的；有违反社会公德的不良行为，造成恶劣影响的；对曾任职机构违法违规经营活动或重大损失负有直接责任或领导责任，情节严重的；担任或曾任被接管、撤销、宣告破产或吊销营业执照机构的董事（理事）或高级管理人员的，但能够证明本人对曾任职机构被接管、撤销、宣告破产或吊销营业执照不负有个人责任的除外等情形之一的，视为不符合本《办法》相关规定的条件，不得担任农村中小银行机构董事（理事）和高级管理人员。
+龙舟比赛最动人的地方，不只在于速度与力量，更在于同一条船上的人同心协力、步调一致。
 
-责任编辑：曹睿潼
+唯有心往一处想、劲往一处使，才能劈波斩浪、奋勇向前。
+
+龙舟文化所蕴含的这种团结协作、同舟共济精神跨越国界，使今天的美因河畔不仅洋溢着中国传统端午节的热烈气氛，也展现出亚洲与欧洲多元文化交相辉映的独特魅力。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 00:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 00:19 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 00:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 00:22 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 00:12 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 00:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 00:20 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 00:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 00:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 00:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 00:30 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 00:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 00:33 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 00:21 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 00:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 00:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 00:29 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 00:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 00:25 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 00:17 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 00:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 00:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 00:24 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 00:16 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:10 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/347314121461.shtml)
-- 2026-06-30 00:14 - [毒液2](http://www.blog.minike.top/Article/details/249415581.shtml)
-- 2026-06-30 00:09 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/08728582664.shtml)
-- 2026-06-30 00:28 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/835279534.shtml)
-- 2026-06-30 00:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/1213438.shtml)
-- 2026-06-30 00:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/964985.shtml)
-- 2026-06-30 00:07 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/39523273.shtml)
-- 2026-06-30 00:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/117772.shtml)
-- 2026-06-30 00:24 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/200851901.shtml)
-- 2026-06-30 00:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/6370354.shtml)
-- 2026-06-30 00:13 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/68934.shtml)
-- 2026-06-30 00:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/4357371837.shtml)
-- 2026-06-30 00:03 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/25723685.shtml)
-- 2026-06-30 00:23 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/219566564.shtml)
-- 2026-06-30 00:29 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/0516576.shtml)
+- 2026-06-30 00:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/096433.shtml)
+- 2026-06-30 00:20 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/995817792.shtml)
+- 2026-06-30 00:09 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/4825820401.shtml)
+- 2026-06-30 00:32 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/34673.shtml)
+- 2026-06-30 00:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/284680675573.shtml)
+- 2026-06-30 00:20 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/18933.shtml)
+- 2026-06-30 00:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/337430108711.shtml)
+- 2026-06-30 00:06 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/08562.shtml)
+- 2026-06-30 00:30 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/033514.shtml)
+- 2026-06-30 00:26 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/9653718.shtml)
+- 2026-06-30 00:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/34920.shtml)
+- 2026-06-30 00:20 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/330231.shtml)
+- 2026-06-30 00:19 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/97311623643.shtml)
+- 2026-06-30 00:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/873496.shtml)
+- 2026-06-30 00:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/3701584920.shtml)

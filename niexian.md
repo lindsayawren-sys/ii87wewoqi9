@@ -1,56 +1,60 @@
-# 浙江江山“小城办大赛”：攀岩热与城市活力同频攀升
+# （聚焦海峡论坛）第十八届海峡论坛·海峡视听季启幕
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网江山4月10日电(张煜欢 毛武俊)10日，2026年全国青少年攀岩公开赛(浙江江山站)在浙江衢州江山市体育馆攀岩馆开赛。来自国内25个省(自治区、直辖市)的178支代表队、979名青少年攀岩运动员齐聚浙西小城，在岩壁之上展开一场力量、技巧与意志的较量。 攀岩馆内，一面面色彩斑斓的岩壁前，小选手们目光专注，手指牢牢扣住岩点，脚下迅速寻找支撑，在身体腾挪、转身、发力之间不断向
+中新社厦门6月12日电 (郑江洛)第十八届海峡论坛·海峡视听季开幕式暨融合发展成果发布会12日在福建厦门举办。 活动以“融合发展·携手未来”为主题，聚焦闽台视听产业融合升级与两岸青年文化交流，搭建两岸视听行业合作与青年交流平台，持续赋能闽台视听产业协同发展。 中国广播电视社会组织联合会副会长田进表示，过去一年，一大批优质视听精品持续形成，涌现出多部现象级作品。《沉默的荣耀》《太
 
 ## 正文
 
-中新网江山4月10日电(张煜欢 毛武俊)10日，2026年全国青少年攀岩公开赛(浙江江山站)在浙江衢州江山市体育馆攀岩馆开赛。
+中新社厦门6月12日电 (郑江洛)第十八届海峡论坛·海峡视听季开幕式暨融合发展成果发布会12日在福建厦门举办。
 
-来自国内25个省(自治区、直辖市)的178支代表队、979名青少年攀岩运动员齐聚浙西小城，在岩壁之上展开一场力量、技巧与意志的较量。
+活动以“融合发展·携手未来”为主题，聚焦闽台视听产业融合升级与两岸青年文化交流，搭建两岸视听行业合作与青年交流平台，持续赋能闽台视听产业协同发展。
 
-攀岩馆内，一面面色彩斑斓的岩壁前，小选手们目光专注，手指牢牢扣住岩点，脚下迅速寻找支撑，在身体腾挪、转身、发力之间不断向上突破。
+中国广播电视社会组织联合会副会长田进表示，过去一年，一大批优质视听精品持续形成，涌现出多部现象级作品。
 
-赛场上，速度与稳定交织，力量与技巧碰撞；看台边，教练紧盯路线变化，家长屏息注视，每一次精准触点、每一次成功登顶，都引来阵阵掌声与喝彩。
+《沉默的荣耀》《太平年》《逐玉》等多部作品引发两岸同胞情感共鸣，两岸人员往来日趋常态化。
 
-据介绍，本次赛事由国家体育总局登山运动管理中心、中国登山协会主办，衢州市体育局、江山市人民政府承办。
+他建议，两岸立足共同文化根脉打造精品内容，并欢迎更多台湾青年来大陆深耕视听领域。
 
-比赛为期3天，设攀石赛、难度赛、速度赛三大项目，并根据年龄设置A8、A9、A10、A11、A12、U15、U17七个组别，各组别均分男、女组展开角逐。
+中华广播电视节目制作商业同业公会创会理事长汪威江致辞称，近年来，大陆电视剧在台湾保持稳定收视，大陆影视内容已是台湾影视市场的重要组成部分。
 
-其中，A8、A9、A10组不设攀石赛，A11、A12、U15、U17组不设难度赛。
+影视、音乐及网络文化成为维系两岸情感联结的核心动力。
 
-近千名青少年运动员、数百支参赛队伍汇聚一城，对一座县域城市而言，这样的赛事体量并不小。
+汪威江呼吁，两岸业界可以开展合拍共创、人才互通，实现双向深度融合。
 
 ## 相关推荐
 
-- 2026-06-30 00:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 00:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 00:14 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 00:21 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 00:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 00:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 00:22 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 00:25 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 00:02 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 00:27 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 00:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 00:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 00:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 00:15 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 00:35 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 00:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 00:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 00:26 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 00:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 00:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 00:13 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 00:21 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [千香](https://www.blog.kurohicncr.top/Article/details/9222104622.shtml)
-- 2026-06-30 00:00 - [速度与激情9](http://www.blog.minike.top/Article/details/72412.shtml)
-- 2026-06-30 00:29 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/4370104.shtml)
-- 2026-06-30 00:13 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/215890801.shtml)
-- 2026-06-30 00:12 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/36030.shtml)
-- 2026-06-30 00:29 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/0506206.shtml)
-- 2026-06-30 00:01 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/27306.shtml)
-- 2026-06-30 00:25 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/4520315.shtml)
-- 2026-06-30 00:29 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/17040264757.shtml)
-- 2026-06-30 00:26 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/3787803.shtml)
-- 2026-06-30 00:12 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/2550492504.shtml)
-- 2026-06-30 00:11 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/15515.shtml)
-- 2026-06-30 00:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/7411157437.shtml)
-- 2026-06-30 00:02 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/56280.shtml)
-- 2026-06-30 00:11 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/423772919.shtml)
+- 2026-06-30 00:12 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/235072.shtml)
+- 2026-06-30 00:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/834336144655.shtml)
+- 2026-06-30 00:09 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/688397.shtml)
+- 2026-06-30 00:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/9939559.shtml)
+- 2026-06-30 00:09 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/80511043092.shtml)
+- 2026-06-30 00:15 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/682632367.shtml)
+- 2026-06-30 00:35 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/1217949689.shtml)
+- 2026-06-30 00:21 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/3674333.shtml)
+- 2026-06-30 00:28 - [沙丘](https://www.blog.minike.top/Article/details/198220187310.shtml)
+- 2026-06-30 00:06 - [明星大侦探第一季](https://www.share.minike.top/Article/details/99752.shtml)
+- 2026-06-30 00:35 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/78219355.shtml)
+- 2026-06-30 00:15 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/045613089.shtml)
+- 2026-06-30 00:10 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/8052929.shtml)
+- 2026-06-30 00:32 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/49743670.shtml)
+- 2026-06-30 00:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/3194477182.shtml)

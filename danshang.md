@@ -1,54 +1,58 @@
-# 波兰央行将继续购买黄金
+# 美国债市：美债维持跌势 中东和平前景仍不明朗
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-来源：金十数据 金十数据4月9日讯，波兰央行周四维持利率在3.75%不变。货币政策委员会表示，接下来的决策将取决于有关波兰通胀前景和经济活动情况的最新信息。这些前景目前受到国外宏观经济形势变化的影响，包括全球大宗商品价格和通胀的变化，以及地缘政治背景的影响。波兰央行行长在新闻发布会上表示，有关燃料价格的财政政策和法规仍是CPI面临的风险，央行可能再次干预外汇市场。在黄金储备方面
+美国国债收盘下跌，抹去了早盘因美伊和平协议乐观情绪带动的涨势，此前美国总统特朗普称伊朗“最好规矩点”。但在伊朗外长阿拉格齐表示，美伊谅解备忘录“从未如此接近”后，国债脱离盘中低点。 纽约时间下午3点刚过，美债收益率全线上升2个基点至3个基点，利差基本维持在周四收盘水平的1个基点以内。美国10期国债收益率收于4.485%左右。 受围绕美伊和平协议的乐观情绪影响，美国国债在早盘时段
 
 ## 正文
 
-来源：金十数据 金十数据4月9日讯，波兰央行周四维持利率在3.75%不变。
+美国国债收盘下跌，抹去了早盘因美伊和平协议乐观情绪带动的涨势，此前美国总统特朗普称伊朗“最好规矩点”。
 
-货币政策委员会表示，接下来的决策将取决于有关波兰通胀前景和经济活动情况的最新信息。
+但在伊朗外长阿拉格齐表示，美伊谅解备忘录“从未如此接近”后，国债脱离盘中低点。
 
-这些前景目前受到国外宏观经济形势变化的影响，包括全球大宗商品价格和通胀的变化，以及地缘政治背景的影响。
+纽约时间下午3点刚过，美债收益率全线上升2个基点至3个基点，利差基本维持在周四收盘水平的1个基点以内。
 
-波兰央行行长在新闻发布会上表示，有关燃料价格的财政政策和法规仍是CPI面临的风险，央行可能再次干预外汇市场。
+美国10期国债收益率收于4.485%左右。
 
-在黄金储备方面，格拉平斯基表示，波兰央行继续购金，目前持有580吨黄金，重申将黄金储备增至700吨的目标。
+受围绕美伊和平协议的乐观情绪影响，美国国债在早盘时段受到买盘的热烈追捧，据Axios记者在X发帖，特朗普认为与伊朗的协议可能在本周末或周一签署，而伊朗外长也释放了乐观信号。
 
-责任编辑：赵思远
+随着原油价格在盘中低点附近震荡，国债期货从盘中高点震荡走低。
+
+尾盘时，WTI原油期货下跌约3.5%，使得美国国债继续在日内低点附近波动。
+
+截至美东时间下午4：29，2年期国债收益率报4.0851%； 5年期国债收益率报4.211%； 10年期国债收益率报4.4809%； 30年期国债收益率报4.9705%； 2年和10年期国债收益率差报39.37个基点； 5年和30年期国债收益率差报75.77个基点。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 00:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 00:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 00:11 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 00:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 00:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 00:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 00:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 00:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 00:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 00:11 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 00:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 00:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 00:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 00:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 00:15 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 00:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 00:16 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 00:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 00:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 00:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 00:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 00:26 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 00:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:08 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/131066216.shtml)
-- 2026-06-30 00:02 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/57609584488.shtml)
-- 2026-06-30 00:03 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/8725285766.shtml)
-- 2026-06-30 00:09 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/008833.shtml)
-- 2026-06-30 00:04 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/319402703851.shtml)
-- 2026-06-30 00:02 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/123094744.shtml)
-- 2026-06-30 00:16 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/4425456.shtml)
-- 2026-06-30 00:08 - [千与千寻](https://www.share.kurohicncr.top/Article/details/78361242638.shtml)
-- 2026-06-30 00:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/489903.shtml)
-- 2026-06-30 00:23 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/14976.shtml)
-- 2026-06-30 00:14 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/95548665424.shtml)
-- 2026-06-30 00:29 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/50123.shtml)
-- 2026-06-30 00:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/084922.shtml)
-- 2026-06-30 00:15 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7810655607.shtml)
-- 2026-06-30 00:14 - [沙丘](http://www.share.minike.top/Article/details/085397458.shtml)
+- 2026-06-30 00:27 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/92312.shtml)
+- 2026-06-30 00:21 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/00230.shtml)
+- 2026-06-30 00:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/4087716492.shtml)
+- 2026-06-30 00:13 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/533579.shtml)
+- 2026-06-30 00:14 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/1597015.shtml)
+- 2026-06-30 00:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/90337767.shtml)
+- 2026-06-30 00:25 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/9947440298.shtml)
+- 2026-06-30 00:15 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/6010485.shtml)
+- 2026-06-30 00:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/0433209603.shtml)
+- 2026-06-30 00:13 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/388310818076.shtml)
+- 2026-06-30 00:24 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/66218.shtml)
+- 2026-06-30 00:27 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/936955.shtml)
+- 2026-06-30 00:27 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/081002206.shtml)
+- 2026-06-30 00:12 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/88839231.shtml)
+- 2026-06-30 00:18 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/066775932.shtml)

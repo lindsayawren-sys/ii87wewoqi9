@@ -1,49 +1,57 @@
-# 正式会谈前 伊美代表团将分别与巴基斯坦总理会面
+# 青春华章·丝路逐光丨高台西路军纪念馆里 青年接力传承红色基因
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-总台记者当地时间11日上午获悉，伊朗与美国之间的会谈“很有可能”在伊斯兰堡当地时间当天下午开始。按照伊朗方面得到的消息，双方代表团将首先分别与巴基斯坦总理会面，之后会谈才会正式开始。（总台记者 李健南 李超）责任编辑：赵思远
+中国甘肃网6月12日讯(西北角·中国甘肃网记者 宋芳科 程健 赵志富)6月11日，由中央网信办网络传播局指导，甘肃省委网信办、甘肃省教育厅、共青团甘肃省委联合主办，中国互联网发展基金会提供特别支持，河西学院、张掖市委网信办、中国甘肃网共同承办的“青春华章·丝路逐光”网络主题活动采访团走进位于张掖高台的中国工农红军西路军纪念馆，缅怀革命先烈、追忆烽火岁月，深入挖掘新时代青年传承红
 
 ## 正文
 
-总台记者当地时间11日上午获悉，伊朗与美国之间的会谈“很有可能”在伊斯兰堡当地时间当天下午开始。
+中国甘肃网6月12日讯(西北角·中国甘肃网记者 宋芳科 程健 赵志富)6月11日，由中央网信办网络传播局指导，甘肃省委网信办、甘肃省教育厅、共青团甘肃省委联合主办，中国互联网发展基金会提供特别支持，河西学院、张掖市委网信办、中国甘肃网共同承办的“青春华章·丝路逐光”网络主题活动采访团走进位于张掖高台的中国工农红军西路军纪念馆，缅怀革命先烈、追忆烽火岁月，深入挖掘新时代青年传承红色基因、弘扬革命精神的生动实践。
 
-按照伊朗方面得到的消息，双方代表团将首先分别与巴基斯坦总理会面，之后会谈才会正式开始。
+采访团缓步走入中国工农红军西路军纪念馆园区，向革命英烈敬献鲜花，驻足瞻仰烈士丰碑、珍贵文物与历史影像。
 
-（总台记者 李健南 李超）责任编辑：赵思远
+全体人员怀着崇敬之心，深切缅怀西路军将士浴血河西、誓死为民的英雄壮举，深刻体悟西路军不畏艰险、浴血奋战的英雄主义气概，为党为人民英勇献身的精神。
+
+红色历史需要铭记，红色故事需要用心讲述。
+
+中国青年五四奖章暨新时代青年先锋获得者、中国工农红军西路军纪念馆副研究馆员石琳，长期深耕西路军历史研究与红色宣讲一线。
+
+她始终坚持以史实为基，用心用情讲好西路军故事，让革命历史可感可触、入脑入心。
+
+在青少年红色教育方面，纪念馆持续打造“小小红色讲解员”培育项目，引导青少年走近红色历史、传承革命精神。
+
+截至目前，已累计培养200多名小小讲解员。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 00:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 00:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 00:16 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 00:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 00:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 00:26 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 00:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 00:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 00:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 00:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 00:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 00:30 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 00:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 00:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 00:23 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 00:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 00:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 00:34 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 00:21 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 00:33 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 00:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/9353487.shtml)
-- 2026-06-30 00:07 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/560373250.shtml)
-- 2026-06-30 00:14 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/43842591299.shtml)
-- 2026-06-30 00:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/27254220968.shtml)
-- 2026-06-30 00:20 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/8709254.shtml)
-- 2026-06-30 00:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/90998.shtml)
-- 2026-06-30 00:05 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/67709.shtml)
-- 2026-06-30 00:02 - [刘念回应](http://www.share.kurohicncr.top/Article/details/94040559778.shtml)
-- 2026-06-30 00:21 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/7155110.shtml)
-- 2026-06-30 00:11 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/67008140.shtml)
-- 2026-06-30 00:00 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/79664062.shtml)
-- 2026-06-30 00:16 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/2477169915.shtml)
-- 2026-06-30 00:10 - [美人鱼](http://www.share.minike.top/Article/details/717222.shtml)
-- 2026-06-30 00:12 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/8448257981.shtml)
-- 2026-06-30 00:04 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/6372341035.shtml)
+- 2026-06-30 00:29 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/64450.shtml)
+- 2026-06-30 00:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/46342.shtml)
+- 2026-06-30 00:35 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/936034935418.shtml)
+- 2026-06-30 00:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/995750393814.shtml)
+- 2026-06-30 00:16 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/40674.shtml)
+- 2026-06-30 00:26 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/748700.shtml)
+- 2026-06-30 00:28 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/051348932878.shtml)
+- 2026-06-30 00:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/13291157022.shtml)
+- 2026-06-30 00:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/03568113317.shtml)
+- 2026-06-30 00:20 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/141475617056.shtml)
+- 2026-06-30 00:10 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/56642464.shtml)
+- 2026-06-30 00:20 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/567844242.shtml)
+- 2026-06-30 00:28 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/093303.shtml)
+- 2026-06-30 00:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/98144553.shtml)
+- 2026-06-30 00:27 - [沙丘](https://www.blog.minike.top/Article/details/37896489.shtml)

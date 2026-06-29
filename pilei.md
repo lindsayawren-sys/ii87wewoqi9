@@ -1,56 +1,61 @@
-# 北京半程马拉松开跑 中国男子半马新纪录诞生
+# 小克重金条卖爆，黄金消费股大涨，芝商所将开启黄金7×24小时交易
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。 北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一
+记者丨叶麦穗 编辑丨周炎炎 肖嘉 近期，黄金价格暴跌之后，不少抄底的投资人积极入场。 6月11日，21世纪经济报道记者在素有“北京黄金消费风向标”之称的菜百首饰总店探访时，销售人员表示，当日5克、10克的小规格投资金条已售罄。现场成交节奏极快，不少人“秒买秒付”。 值得注意的是，黄金价跌量升。6月12日，黄金消费概念股的股价大涨，其中A股上市公司潮宏基涨停，菜百股份上涨5.6%
 
 ## 正文
 
-中新社北京4月12日电 (记者 邢翀)2026北京国际长跑节-北京半程马拉松12日开跑，起点设置在天安门广场，终点为奥林匹克公园中心区景观大道。
+记者丨叶麦穗 编辑丨周炎炎 肖嘉 近期，黄金价格暴跌之后，不少抄底的投资人积极入场。
 
-经过激烈角逐，中国选手王文杰以1小时01分15秒的成绩夺得男子组冠军，并打破该项目的全国纪录。
+6月11日，21世纪经济报道记者在素有“北京黄金消费风向标”之称的菜百首饰总店探访时，销售人员表示，当日5克、10克的小规格投资金条已售罄。
 
-北京国际长跑节-北京半程马拉松是中国历史悠久的大众路跑赛事，今年共有2.2万名跑者参与赛事，赛道实现全程“无折返”，尤其在17.5公里后进一步减少弯道，有助于选手冲击个人最好成绩。
+现场成交节奏极快，不少人“秒买秒付”。
 
-本次赛事海外选手报名人数较2025年有大幅增长。
+值得注意的是，黄金价跌量升。
 
-男子组竞争尤为激烈，国内共有8名参赛选手的个人最好成绩在1小时04分之内。
+6月12日，黄金消费概念股的股价大涨，其中A股上市公司潮宏基涨停，菜百股份上涨5.6%；港股市场上，周大福大涨15.2%，灵宝黄金上涨12.43%，珠峰黄金上涨8.86%，老铺黄金上涨6%。
 
-比赛中，王文杰保持稳定配速，15公里处已确立了明显领先优势，最终以1小时01分15秒的成绩打破中国男子半马纪录。
+截至记者发稿，伦敦金回调至4200美元/盎司，国内金价同步回升至900元/克以上。
 
-李金豪以1小时03分06秒的成绩获得亚军，王琪以1小时04分37秒的成绩摘得季军。
+黄金零售股大涨 近期，国际金价一路下探。
 
-王文杰还是中国男子万米纪录保持者。
+6月11日，菜百的投资金条也跟着跌破了900元/克的关键价位。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 00:29 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 00:23 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 00:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 00:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 00:22 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 00:26 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 00:27 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 00:13 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 00:17 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 00:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 00:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 00:25 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 00:35 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 00:12 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 00:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 00:35 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 00:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 00:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 00:35 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 00:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 00:18 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:00 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/664252769966.shtml)
-- 2026-06-30 00:26 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/4549472485.shtml)
-- 2026-06-30 00:07 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/960255157052.shtml)
-- 2026-06-30 00:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/1264902.shtml)
-- 2026-06-30 00:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/3253690764.shtml)
-- 2026-06-30 00:04 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/252430722.shtml)
-- 2026-06-30 00:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/00773.shtml)
-- 2026-06-30 00:24 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/678792946.shtml)
-- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/7105882791.shtml)
-- 2026-06-30 00:08 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/39633035352.shtml)
-- 2026-06-30 00:07 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/522372.shtml)
-- 2026-06-30 00:26 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/29061693923.shtml)
-- 2026-06-30 00:26 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/985409197531.shtml)
-- 2026-06-30 00:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/20017.shtml)
-- 2026-06-30 00:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/566108907914.shtml)
+- 2026-06-30 00:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/128830087.shtml)
+- 2026-06-30 00:21 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/8690742827.shtml)
+- 2026-06-30 00:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/10266.shtml)
+- 2026-06-30 00:32 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/36834985.shtml)
+- 2026-06-30 00:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/7353621672.shtml)
+- 2026-06-30 00:26 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/225821606153.shtml)
+- 2026-06-30 00:19 - [85花告别古偶](http://www.blog.minike.top/Article/details/88724963805.shtml)
+- 2026-06-30 00:08 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/048785.shtml)
+- 2026-06-30 00:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2304044753.shtml)
+- 2026-06-30 00:32 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/36807039543.shtml)
+- 2026-06-30 00:09 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/4015375587.shtml)
+- 2026-06-30 00:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/93071.shtml)
+- 2026-06-30 00:27 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/009947205.shtml)
+- 2026-06-30 00:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/70534432.shtml)
+- 2026-06-30 00:21 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/6221930.shtml)

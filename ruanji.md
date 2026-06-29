@@ -1,59 +1,58 @@
-# 三一国际午后涨超5% 招银国际维持“买入”评级
+# 公安部网安局公布10起打击整治网络谣言违法犯罪典型案例
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-三一国际（00631）午后股价上涨5.26%，现报12.82港元，成交额9066.12万港元。 三一国际年报显示，全年实现营业收入243亿元，同比增长11%；归母净利润17.8亿元，同比增长61%。其中，三一国际海外业务收入92.34亿元，同比增加13%。 招银国际发表报告指，三一国际2025年税后利润（含少数股东权益）为17.8亿元，符合此前预告的利润区间（16亿元至18.5
+中新网6月15日电 据公安部网安局微信公众号消息，全国公安网安部门聚焦人民群众反映强烈的网络谣言突出违法犯罪，持续加大打击整治力度。今日，公安部网安局公布10起典型案例。 典型案例1 近日，有网民在网络平台发布帖文，谎称山东烟台某高中校门口斑马线处发生惨烈车祸，人员受伤情况极其严重。该校作为本地重点高中，相关消息快速触动了家长情绪，引发大量网民关注，造成本地舆论热议。 经查，网
 
 ## 正文
 
-三一国际（00631）午后股价上涨5.26%，现报12.82港元，成交额9066.12万港元。
+中新网6月15日电 据公安部网安局微信公众号消息，全国公安网安部门聚焦人民群众反映强烈的网络谣言突出违法犯罪，持续加大打击整治力度。
 
-三一国际年报显示，全年实现营业收入243亿元，同比增长11%；归母净利润17.8亿元，同比增长61%。
+今日，公安部网安局公布10起典型案例。
 
-其中，三一国际海外业务收入92.34亿元，同比增加13%。
+典型案例1 近日，有网民在网络平台发布帖文，谎称山东烟台某高中校门口斑马线处发生惨烈车祸，人员受伤情况极其严重。
 
-招银国际发表报告指，三一国际2025年税后利润（含少数股东权益）为17.8亿元，符合此前预告的利润区间（16亿元至18.5亿元）；扣除一次性的减值损失后，经调整股东的净利润为18.5亿元，与去年同期持平。
+该校作为本地重点高中，相关消息快速触动了家长情绪，引发大量网民关注，造成本地舆论热议。
 
-在业绩电话会议上，管理层提到大型矿用卡车、微电网和锂电是未来几年的主要增长领域。
+经查，网传信息均为虚构，网民张某为一名网络博主，其为博取关注，吸粉引流，肆意散播谣言信息，还凭空杜撰伤者腹中胎儿不幸离世的虚假情节，引发大量网民议论，扰乱网络空间秩序。
 
-该行继续看好三一国际通过持续业务多元化实现增长的策略，维持“买入”评级，目标价由20.6港元降至19.5港元；将2026年盈利预测下调6%，但主要是由于下调掘进机销量假设。
+目前，属地公安机关已对张某作出行政处罚。
 
-责任编辑：卢昱君
+典型案例2 近日，“科目二增加窄路掉头，科目三新增模拟隧道……”等一批所谓“安徽宿州2026年驾考新增考核项目”的消息在互联网传播，引发大量当地网民关注，特别是当地正在备考的驾校学员纷纷留言求证，甚至有人因为担心难度加大而急于向驾校退费或抢报。
+
+经查，网民付某、邓某某、黄某某等6人为安徽宿州当地驾校培行业从业人员，为了博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发谣言信息传播扩散，误导广大驾校考生和备考人员，造成不必要的恐慌、投诉甚至退费等，干扰了驾校的正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 00:18 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 00:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 00:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 00:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 00:23 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 00:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 00:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 00:24 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 00:05 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 00:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 00:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 00:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 00:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 00:11 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 00:29 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:15 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 00:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:25 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:17 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 00:28 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 00:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:22 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 00:11 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 00:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 00:16 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/251317918002.shtml)
-- 2026-06-30 00:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/2765805.shtml)
-- 2026-06-30 00:21 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/65193220170.shtml)
-- 2026-06-30 00:20 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/9254287750.shtml)
-- 2026-06-30 00:01 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/30031.shtml)
-- 2026-06-30 00:11 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/84825378.shtml)
-- 2026-06-30 00:03 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/738689586.shtml)
-- 2026-06-30 00:15 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/30728144.shtml)
-- 2026-06-30 00:21 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/50598585677.shtml)
-- 2026-06-30 00:01 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/557774900.shtml)
-- 2026-06-30 00:27 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/2563596658.shtml)
-- 2026-06-30 00:12 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/98785205.shtml)
-- 2026-06-30 00:01 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/075726503496.shtml)
-- 2026-06-30 00:00 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/8156429444.shtml)
-- 2026-06-30 00:02 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/134780.shtml)
+- 2026-06-30 00:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/545431579722.shtml)
+- 2026-06-30 00:08 - [存储三巨头被告了](https://www.share.minike.top/Article/details/40904924.shtml)
+- 2026-06-30 00:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/085923214.shtml)
+- 2026-06-30 00:10 - [美股](http://www.share.kurohicncr.top/Article/details/8876537471.shtml)
+- 2026-06-30 00:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/376122.shtml)
+- 2026-06-30 00:09 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/39984234.shtml)
+- 2026-06-30 00:06 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/71691.shtml)
+- 2026-06-30 00:31 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/058735.shtml)
+- 2026-06-30 00:34 - [月亮](https://www.share.minike.top/Article/details/30461693796.shtml)
+- 2026-06-30 00:28 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/0157444.shtml)
+- 2026-06-30 00:26 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/576397419.shtml)
+- 2026-06-30 00:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/5361341973.shtml)
+- 2026-06-30 00:09 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/314941820.shtml)
+- 2026-06-30 00:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/977070.shtml)
+- 2026-06-30 00:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/58181.shtml)

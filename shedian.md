@@ -1,57 +1,55 @@
-# 中国作协网络文学中心召开深化价值引领座谈会
+# 2026年文化和自然遗产日主场城市活动在湖北武汉举行
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:03 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强
+中新网武汉6月13日电 (记者 应妮 张芹)2026年文化和自然遗产日主场城市活动13日在湖北武汉开幕。 活动由国家文物局、湖北省人民政府主办，湖北省文化和旅游厅、湖北省文物局、武汉市人民政府承办，聚焦“文物属于人民 服务人民”主题，集中展示文化遗产保护传承新进展新成效，促进提升全社会文物保护意识，让人民群众共享丰厚历史文化滋养。 文化和旅游部副部长、国家文物局局长饶权，湖北省
 
 ## 正文
 
-中新网北京4月10日电 (记者 高凯)4月10日，中国作家协会网络文学中心召开网络文学座谈会。
+中新网武汉6月13日电 (记者 应妮 张芹)2026年文化和自然遗产日主场城市活动13日在湖北武汉开幕。
 
-中国作协党组成员、书记处书记毛广程出席会议并讲话，中国作协网络文学中心主任何弘主持会议，通报2025年网络文学工作情况及2026年重点工作安排，50余家全国重点网络文学网站平台负责人及网络作家和专家代表参加会议。
+活动由国家文物局、湖北省人民政府主办，湖北省文化和旅游厅、湖北省文物局、武汉市人民政府承办，聚焦“文物属于人民 服务人民”主题，集中展示文化遗产保护传承新进展新成效，促进提升全社会文物保护意识，让人民群众共享丰厚历史文化滋养。
 
-毛广程在讲话中指出，网络文学界要牢记“国之大者”，锚定2035年建成文化强国战略目标，在新的历史方位中找准定位，正确认识网络文学的使命、地位和作用。
+文化和旅游部副部长、国家文物局局长饶权，湖北省委副书记、省人民政府省长李殿勋出席活动开幕式并致辞。
 
-要提升创作质量，激发网络文学创新创造活力，不断推出内容新颖、思想精深、艺术精湛的精品力作。
+开幕式上，公布了2025年度文物事业高质量发展案例遴选推介名单、“文物安全守护人”名单、2026年度中华文物新媒体传播精品推介项目名单，邀请致力于文化遗产保护传承的各界代表进行主题讲述，推介精品传播作品，展示湖北文物传承发展成果，为“寻绎夏商”主题展览揭幕。
 
-要树立新风正气，引导正确审美，鼓励多元、健康的创作生态，倡导理性、包容的评论氛围，杜绝标签化、极端化、二元对立的文学认知。
+文化和自然遗产日期间，还举办了主题论坛、第六届文物科技创新论坛、第二届全国大学生文物保护法模拟法庭等系列活动。
 
-要深化网文出海，坚守中华文化主体性，探索建立中国叙事体系，提升中华文化的海外影响力。
+除主场城市系列活动外，在国家文物局的倡导下，各地文物部门、文博单位组织开展丰富多彩的文化和自然遗产日线上线下活动，推动文物惠民服务，丰富群众文化生活。
 
-会议研讨行业发展新形势、新挑战，分析研判近期一些极端创作倾向引发争议情况，凝聚共识，明确方向，部署下一阶段重点工作。
-
-会议认为，网络文学是新大众文艺的重要载体和鲜活实践，拥有庞大的读者群体和广泛的社会影响力，在引领阅读风尚、传承中华优秀传统文化、讲好中国故事等方面发挥了重要作用。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 00:09 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 00:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 00:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 00:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 00:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 00:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 00:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 00:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 00:08 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:20 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 00:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 00:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 00:11 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 00:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 00:29 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:26 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 00:24 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 00:09 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 00:08 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 00:30 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/698864407121.shtml)
-- 2026-06-30 00:03 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/23319402.shtml)
-- 2026-06-30 00:07 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/57607604.shtml)
-- 2026-06-30 00:21 - [金刚川](https://www.blog.minike.top/Article/details/63605.shtml)
-- 2026-06-30 00:00 - [斗破苍穹](https://www.share.minike.top/Article/details/17160789452.shtml)
-- 2026-06-30 00:06 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/58851408117.shtml)
-- 2026-06-30 00:08 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/302900342.shtml)
-- 2026-06-30 00:27 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/0375558.shtml)
-- 2026-06-30 00:26 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/6914419202.shtml)
-- 2026-06-30 00:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/83413418.shtml)
-- 2026-06-30 00:17 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/51566055395.shtml)
-- 2026-06-30 00:01 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/11333.shtml)
-- 2026-06-30 00:07 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/9033708944.shtml)
-- 2026-06-30 00:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/8219114771.shtml)
-- 2026-06-30 00:13 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/981645.shtml)
+- 2026-06-30 00:32 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/05428910798.shtml)
+- 2026-06-30 00:13 - [我和我的家乡](http://www.blog.minike.top/Article/details/3985051842.shtml)
+- 2026-06-30 00:16 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/5359696.shtml)
+- 2026-06-30 00:32 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/9529848.shtml)
+- 2026-06-30 00:24 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/63563247.shtml)
+- 2026-06-30 00:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/13643805.shtml)
+- 2026-06-30 00:21 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/92503.shtml)
+- 2026-06-30 00:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/65651.shtml)
+- 2026-06-30 00:17 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/442448734843.shtml)
+- 2026-06-30 00:20 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/14511.shtml)
+- 2026-06-30 00:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/809907.shtml)
+- 2026-06-30 00:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/439654.shtml)
+- 2026-06-30 00:20 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/59794793095.shtml)
+- 2026-06-30 00:29 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/05353903084.shtml)
+- 2026-06-30 00:33 - [巴西vs日本](http://www.share.minike.top/Article/details/3181490.shtml)

@@ -1,54 +1,58 @@
-# 48小时“脑力马拉松”在沪落幕 200名科创者跨界交锋
+# 直面新能源车险“两难”痛点，多地出手施策破题！还有哪些关要闯？
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 17:10 来源：中国新闻网 4月10日，一场持续48小时的“脑力马拉松”在上海张江科学会堂落下帷幕。没有疲惫与困意，200名来自世界各地的科创者，带着他们的创意产品，争先恐后地招呼着每一个路过的评委和观众。 黑客松，又名黑客马拉松，是一种“硬核”的科技比赛形式：几百名“脑力运动员”同处一个封闭空间中，在规定时间内用代码创作一个产品Demo，并
+来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。 近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。继“深十条”后，日前，重庆监管局公布对
 
 ## 正文
 
-发布时间：2026年04月11日 17:10 来源：中国新闻网 4月10日，一场持续48小时的“脑力马拉松”在上海张江科学会堂落下帷幕。
+来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。
 
-没有疲惫与困意，200名来自世界各地的科创者，带着他们的创意产品，争先恐后地招呼着每一个路过的评委和观众。
+近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。
 
-黑客松，又名黑客马拉松，是一种“硬核”的科技比赛形式：几百名“脑力运动员”同处一个封闭空间中，在规定时间内用代码创作一个产品Demo，并进行路演和评选。
+继“深十条”后，日前，重庆监管局公布对市政协六届四次会议相关提案的答复中，亦聚焦高赔付风险新能源汽车投保难、承保压力大问题给出相关扶持政策。
 
-从“不会失忆的学习搭子”到“AI模拟剪发效果”，再到为人形机器人设计超萌面容……这场创意集市般的交锋，吸引了多国选手专程赶来。
+实际上，近年围绕新能源车险“车主喊贵、险企叫亏”两难问题的讨论始终不断，尤其在2024年我国新能源商业车险年度保费首次突破千亿元、2025年达到1900亿元后，新能源车险能否顺利转向精细化运营、破解“两难”痛点，已成为这一黄金赛道能否释放长线增长势能的必答题。
 
-李姝徵 狄权 上海报道 责任编辑：【罗攀】
+同时需要看到，新能源车险已成为诸多财险公司的必争之地，但当前市场分化加剧，财险“老三家”在2025年保费合计占比超76%，马太效应凸显，承保盈利承压叠加竞争加剧下，中小险企该如何有效突围，分到一杯羹？
+
+破题加速 地方政策密集出台 “每3辆汽车就有1辆挂绿牌，目前新能源汽车保有量已超150万辆，新车新能源渗透率超80%。
+
+”这是今年初深圳市生态环境局公布的一组数据。
+
+作为新能源车险渗透率最高、也是全球新能源汽车产业链最完整的城市之一，深圳金融监管局、工信局、交通运输局、商务局近日联合印发“深十条”，从产品创新、定价改革和产业协同三个维度系统施策。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 00:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 00:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 00:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 00:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 00:06 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 00:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 00:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 00:21 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 00:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 00:27 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 00:05 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 00:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 00:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 00:24 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 00:31 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 00:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 00:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 00:10 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 00:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 00:08 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 00:11 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 00:18 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 00:20 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 00:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/6190517.shtml)
-- 2026-06-30 00:21 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/9307030449.shtml)
-- 2026-06-30 00:10 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/48380.shtml)
-- 2026-06-30 00:13 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/8610677113.shtml)
-- 2026-06-30 00:00 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/133095285858.shtml)
-- 2026-06-30 00:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/987857.shtml)
-- 2026-06-30 00:20 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/185978.shtml)
-- 2026-06-30 00:28 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/0121892.shtml)
-- 2026-06-30 00:27 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/128634242.shtml)
-- 2026-06-30 00:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/67794966.shtml)
-- 2026-06-30 00:12 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/359030655.shtml)
-- 2026-06-30 00:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/22106697.shtml)
-- 2026-06-30 00:19 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/02347739416.shtml)
-- 2026-06-30 00:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5928720976.shtml)
-- 2026-06-30 00:12 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/58426392.shtml)
+- 2026-06-30 00:14 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/709774.shtml)
+- 2026-06-30 00:21 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/3646472796.shtml)
+- 2026-06-30 00:08 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/347140672372.shtml)
+- 2026-06-30 00:20 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/0655806774.shtml)
+- 2026-06-30 00:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/11382105.shtml)
+- 2026-06-30 00:32 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/88363699.shtml)
+- 2026-06-30 00:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/65102.shtml)
+- 2026-06-30 00:16 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/94311672.shtml)
+- 2026-06-30 00:13 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/37051077.shtml)
+- 2026-06-30 00:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/56666692.shtml)
+- 2026-06-30 00:13 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/91163.shtml)
+- 2026-06-30 00:21 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/84838203266.shtml)
+- 2026-06-30 00:32 - [千香](http://www.share.kurohicncr.top/Article/details/14135.shtml)
+- 2026-06-30 00:07 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/0405158.shtml)
+- 2026-06-30 00:23 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/975537326.shtml)

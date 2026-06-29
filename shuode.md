@@ -1,58 +1,52 @@
-# 千亿诉讼临近 OpenAI指控马斯克搞“突袭”
+# “香港非遗月2026”上演共融粤剧 印度裔参演者：很喜欢中国戏曲
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-OpenAI称，埃隆·马斯克在针对该初创公司的诉讼中突然变更诉求，在开庭仅数周前对其发起“法律伏击”。 在美东时间周五晚间提交的法庭文件中，OpenAI表示，马斯克本周早些时候提出的新诉求，显然意在“刁难被告、扰乱庭审程序，同时试图重塑其就本案对外塑造的舆论形象”。 马斯克于2024年起诉OpenAI及微软公司，指控这家ChatGPT开发者在从这家软件巨头获得数十亿美元投资、并
+发布时间：2026年06月14日 12:04 来源：中国新闻网 “香港非遗月2026”活动展期为5月30日至6月30日。香港特区政府康乐及文化事务署非物质文化遗产办事处6月13日举行非遗主题活动。现场带来多项非遗表演，如颂英晖剧团中的印度裔学徒带来的共融粤剧表演、海陆丰舞麒麟及客家山歌对唱等，展示了香港不同族群与社群的多元文化。 表演粤剧的印度裔姐妹表示，很喜欢中国戏曲，因为其
 
 ## 正文
 
-OpenAI称，埃隆·马斯克在针对该初创公司的诉讼中突然变更诉求，在开庭仅数周前对其发起“法律伏击”。
+发布时间：2026年06月14日 12:04 来源：中国新闻网 “香港非遗月2026”活动展期为5月30日至6月30日。
 
-在美东时间周五晚间提交的法庭文件中，OpenAI表示，马斯克本周早些时候提出的新诉求，显然意在“刁难被告、扰乱庭审程序，同时试图重塑其就本案对外塑造的舆论形象”。
+香港特区政府康乐及文化事务署非物质文化遗产办事处6月13日举行非遗主题活动。
 
-马斯克于2024年起诉OpenAI及微软公司，指控这家ChatGPT开发者在从这家软件巨头获得数十亿美元投资、并计划重组为营利性企业后，背弃了其作为研究机构的创立初衷。
+现场带来多项非遗表演，如颂英晖剧团中的印度裔学徒带来的共融粤剧表演、海陆丰舞麒麟及客家山歌对唱等，展示了香港不同族群与社群的多元文化。
 
-该案定于4月27日开庭审理。
+表演粤剧的印度裔姐妹表示，很喜欢中国戏曲，因为其独特的服装、妆容以及与西方戏剧的不同魅力。
 
-OpenAI与微软均否认存在不当行为。
+舞麒麟团队的创办人表示，海陆丰舞麒麟文化来自潮汕，寓意祈求风调雨顺、国泰民安，麒麟扎作色彩缤纷，希望借此让香港居民及世界各地旅客了解中华传统文化的精髓和技艺。
 
-这位全球首富今年1月曾向法庭提出，要求被告方赔偿约790亿至1340亿美元的“不当获利”，这一金额主要基于2015年马斯克与萨姆·奥尔特曼等人联合创立OpenAI以来公司估值的暴涨幅度。
-
-如此高额的判决将跻身美国历史上最大金额判赔之列。
-
-而马斯克的律师团队在本周提交的文件中称，若庭审胜诉，所有赔偿金不应归其个人，而应返还给OpenAI。
+(记者 周圣昀) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 00:11 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 00:07 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 00:08 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 00:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 00:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 00:06 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 00:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 00:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 00:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 00:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 00:32 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 00:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 00:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 00:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 00:09 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 00:34 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 00:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 00:35 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 00:35 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 00:26 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/05283877.shtml)
-- 2026-06-30 00:10 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/517889526.shtml)
-- 2026-06-30 00:23 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/0707739.shtml)
-- 2026-06-30 00:28 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/6136374.shtml)
-- 2026-06-30 00:02 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/71446452818.shtml)
-- 2026-06-30 00:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/22788468321.shtml)
-- 2026-06-30 00:06 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/57622127863.shtml)
-- 2026-06-30 00:18 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/450899531.shtml)
-- 2026-06-30 00:07 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/995720579.shtml)
-- 2026-06-30 00:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/601692630.shtml)
-- 2026-06-30 00:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/084671339.shtml)
-- 2026-06-30 00:29 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/044432744.shtml)
-- 2026-06-30 00:10 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/306390428.shtml)
-- 2026-06-30 00:17 - [一见倾心](http://www.share.minike.top/Article/details/070255521663.shtml)
-- 2026-06-30 00:04 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/77654877.shtml)
+- 2026-06-30 00:15 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/91722497.shtml)
+- 2026-06-30 00:11 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/50995341287.shtml)
+- 2026-06-30 00:25 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/44247.shtml)
+- 2026-06-30 00:19 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/191139871.shtml)
+- 2026-06-30 00:17 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/30256727807.shtml)
+- 2026-06-30 00:18 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/265951473991.shtml)
+- 2026-06-30 00:27 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/54542128860.shtml)
+- 2026-06-30 00:24 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/59845500.shtml)
+- 2026-06-30 00:09 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/10942.shtml)
+- 2026-06-30 00:28 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/517765599.shtml)
+- 2026-06-30 00:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/137992626741.shtml)
+- 2026-06-30 00:06 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/24280181.shtml)
+- 2026-06-30 00:07 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/721140174.shtml)
+- 2026-06-30 00:25 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/617929245797.shtml)
+- 2026-06-30 00:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/33948523.shtml)

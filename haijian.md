@@ -1,56 +1,61 @@
-# 酒价内参4月10日价格发布，洋河梦之蓝M6+小幅上涨1元实现三连阳
+# 贝莱德：油汇风险笼罩印度债券引资努力
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨
+贝莱德一位高管表示，尽管印度为提升其债券吸引力所采取的措施值得欢迎，但对油价及其对卢比影响的担忧，仍是吸引外国投资者购买政府债券面临的巨大障碍。 为提振卢比汇率及债券市场吸引力，印度上周宣布对海外债券投资者减税，并推出一系列旨在增加资金流入和改善市场准入的措施。 随着这些措施的出台，流入印度债券市场的外国资金有所加速，部分基金经理对此持积极态度，特别是考虑到印度有望被纳入彭博全
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。
+贝莱德一位高管表示，尽管印度为提升其债券吸引力所采取的措施值得欢迎，但对油价及其对卢比影响的担忧，仍是吸引外国投资者购买政府债券面临的巨大障碍。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。
+为提振卢比汇率及债券市场吸引力，印度上周宣布对海外债券投资者减税，并推出一系列旨在增加资金流入和改善市场准入的措施。
 
-部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。
+随着这些措施的出台，流入印度债券市场的外国资金有所加速，部分基金经理对此持积极态度，特别是考虑到印度有望被纳入彭博全球综合指数。
 
-今日白酒市场11大单品四涨五跌二平。
+然而，贝莱德今年基本未涉足印度市场，且“目前尚未对战略配置进行实质性调整”，贝莱德亚太区全球固定收益主管纳文·赛加尔（Navin Saigal）表示。
 
-上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨2元/瓶；五粮液1618与洋河梦之蓝M6+均小幅上涨1元/瓶，其中洋河梦之蓝M6+实现三连阳。
+“对印度离岸投资者而言，最大的实际悬而未决问题仍是中东局势和油价走势。
 
-下跌方面，精品茅台跌幅居前，下调5元/瓶，受市场化定价及渠道再平衡影响；五粮液普五八代下跌4元/瓶；飞天茅台与青花郎均下跌3元/瓶；青花汾20小幅回调1元/瓶。
+” 尽管这些措施可能在一定程度上支持资金流入，但这家管理着约14万亿美元资产的全球最大资产管理公司警告称，不应期待立即出现单向的实盘资金流入。
 
-古井贡古20及水晶剑南春价格环比保持不变。
+“对许多投资者而言，外汇对冲的总成本仍是主要制约因素，”赛加尔表示，并补充称，印度的宏观经济背景依然严峻，面临通胀风险和政府财政压力。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+赛加尔指出，原油价格的波动扩大了印度经常账户、通胀及卢比汇率的潜在结果范围，进而推高了货币对冲成本，并削弱了印度债券的总回报表现。
 
 ## 相关推荐
 
-- 2026-06-30 00:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 00:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 00:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 00:23 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 00:11 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 00:21 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 00:09 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 00:22 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 00:15 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 00:27 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 00:09 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 00:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 00:10 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 00:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 00:17 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 00:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 00:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 00:09 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 00:31 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 00:14 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 00:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 00:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 00:32 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 00:23 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/053906788.shtml)
-- 2026-06-30 00:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/139707761600.shtml)
-- 2026-06-30 00:16 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/31032378020.shtml)
-- 2026-06-30 00:05 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/741482238.shtml)
-- 2026-06-30 00:12 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/84685.shtml)
-- 2026-06-30 00:00 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/419665236350.shtml)
-- 2026-06-30 00:01 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/08723.shtml)
-- 2026-06-30 00:22 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/5583757.shtml)
-- 2026-06-30 00:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/377093439815.shtml)
-- 2026-06-30 00:01 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/174375.shtml)
-- 2026-06-30 00:27 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/991922475.shtml)
-- 2026-06-30 00:21 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/748240935.shtml)
-- 2026-06-30 00:06 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/84822.shtml)
-- 2026-06-30 00:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/11783.shtml)
-- 2026-06-30 00:03 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/613797245.shtml)
+- 2026-06-30 00:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/44036028215.shtml)
+- 2026-06-30 00:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/802377001.shtml)
+- 2026-06-30 00:17 - [斛珠夫人](http://www.blog.minike.top/Article/details/172489.shtml)
+- 2026-06-30 00:16 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/5201515.shtml)
+- 2026-06-30 00:33 - [TOP Prada](http://www.share.minike.top/Article/details/008248956311.shtml)
+- 2026-06-30 00:09 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/521019195792.shtml)
+- 2026-06-30 00:35 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/4756847594.shtml)
+- 2026-06-30 00:20 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/175401277.shtml)
+- 2026-06-30 00:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/9766700.shtml)
+- 2026-06-30 00:25 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/0626239.shtml)
+- 2026-06-30 00:19 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/113888399852.shtml)
+- 2026-06-30 00:24 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/9995381.shtml)
+- 2026-06-30 00:11 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/42313.shtml)
+- 2026-06-30 00:20 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/297093.shtml)
+- 2026-06-30 00:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/165895306.shtml)

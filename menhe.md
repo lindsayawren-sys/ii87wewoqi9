@@ -1,59 +1,60 @@
-# 脑机接口、北斗芯片、智能船舶……一批重要国家标准发布
+# 吉林绿色农业打出“组合拳” 激光技术拓海外市场
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据“市说新语”微信公众号消息，近日，市场监管总局(国家标准委)批准发布一批重要国家标准，涉及新兴领域、传统产业、生态环保、安全生产、百姓生活等方面。该批标准发布后将在提升人民群众生活品质、保障生命财产安全等方面发挥重要作用。在新兴领域方面 发布智能网联汽车、半导体器件、脑机接口、北斗芯片等18项国家标准，助力前沿技术领域高质量发展。发布锂离子电池、移动电源及
+中新网长春6月14日电 (谭伟旗 金乔)以激光“光肥”助力作物提质增产，靠激光除草机器人守护黑土地，吉林多项激光绿色农业技术加速走向国际市场，掀起一场特色鲜明的现代农业变革。 正在举行的第三届长春国际光电博览会上，吉林农业大学联合中国科学院长春光机所研发的激光“光肥”技术，成为展会一大亮点。据项目负责人杨明来介绍，该技术核心是将点光源转化为面光源，把光强降至原有百万分之一，在不
 
 ## 正文
 
-中新网4月10日电 据“市说新语”微信公众号消息，近日，市场监管总局(国家标准委)批准发布一批重要国家标准，涉及新兴领域、传统产业、生态环保、安全生产、百姓生活等方面。
+中新网长春6月14日电 (谭伟旗 金乔)以激光“光肥”助力作物提质增产，靠激光除草机器人守护黑土地，吉林多项激光绿色农业技术加速走向国际市场，掀起一场特色鲜明的现代农业变革。
 
-该批标准发布后将在提升人民群众生活品质、保障生命财产安全等方面发挥重要作用。
+正在举行的第三届长春国际光电博览会上，吉林农业大学联合中国科学院长春光机所研发的激光“光肥”技术，成为展会一大亮点。
 
-在新兴领域方面 发布智能网联汽车、半导体器件、脑机接口、北斗芯片等18项国家标准，助力前沿技术领域高质量发展。
+据项目负责人杨明来介绍，该技术核心是将点光源转化为面光源，把光强降至原有百万分之一，在不损伤作物、不危害人体的前提下，有效提升植物光合作用效率。
 
-发布锂离子电池、移动电源及工业电源系统等8项国家标准，强化用电安全保障。
+“激光农业技术已有40余年研究历史，过去受高成本制约难以大范围普及。
 
-发布电磁、纳米、通信、电声设备及材料等19项国家标准，支撑相关行业安全有序发展。
+我们完成光源技术革新，研制出成套装备，整体技术达到国际领先水准。
 
-发布智能船舶、船用甲醇燃料发动机等14项国家标准，涵盖船舶设计建造、动力系统、安全防护等核心环节，推动我国船舶工业安全化、智能化、绿色化发展。
+”杨明来介绍。
 
-发布碳化硅单晶、聚丙烯腈基氧化纤维、碳纤维增强复合材料等10项新材料国家标准，明确提出新材料产品的技术要求和检验方法，促进新材料的应用和产业发展。
+实测数据显示，该技术应用于设施温室果蔬，可实现15%至30%的增产；水稻秧苗经20天激光照射，增产幅度达10%至15%；大豆种子经激光处理后，增产区间为5%至46%。
 
-在传统产业方面 发布机车车辆空气调节系统等9项国家标准，为提升轨道交通产品质量、保障运行安全、促进技术创新、增强国际竞争力提供坚实技术支撑。
+激光补光还能减少作物病害发生，降低农药使用量，是零污染的绿色农业技术。
 
 ## 相关推荐
 
-- 2026-06-30 00:04 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 00:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 00:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 00:18 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 00:28 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 00:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 00:27 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 00:20 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 00:14 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 00:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 00:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 00:25 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 00:08 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 00:33 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 00:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 00:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 00:12 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 00:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 00:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 00:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 00:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 00:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 00:09 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 00:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 00:13 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 00:31 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:13 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7617907400.shtml)
-- 2026-06-30 00:03 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/75608.shtml)
-- 2026-06-30 00:27 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/542067764.shtml)
-- 2026-06-30 00:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/19877902506.shtml)
-- 2026-06-30 00:07 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/490875078105.shtml)
-- 2026-06-30 00:09 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/58962203.shtml)
-- 2026-06-30 00:11 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/54873.shtml)
-- 2026-06-30 00:05 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/661539184.shtml)
-- 2026-06-30 00:28 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/90358.shtml)
-- 2026-06-30 00:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/30541430.shtml)
-- 2026-06-30 00:12 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/164417316.shtml)
-- 2026-06-30 00:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/595408111466.shtml)
-- 2026-06-30 00:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/2657539.shtml)
-- 2026-06-30 00:22 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/3887690.shtml)
-- 2026-06-30 00:04 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/85893202992.shtml)
+- 2026-06-30 00:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/78913839.shtml)
+- 2026-06-30 00:31 - [明星大侦探第四季](https://www.share.minike.top/Article/details/50019.shtml)
+- 2026-06-30 00:25 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/03904229376.shtml)
+- 2026-06-30 00:26 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/78357454879.shtml)
+- 2026-06-30 00:29 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/422251957964.shtml)
+- 2026-06-30 00:33 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/6307648275.shtml)
+- 2026-06-30 00:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/8162551923.shtml)
+- 2026-06-30 00:24 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/127879977857.shtml)
+- 2026-06-30 00:25 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/1944708091.shtml)
+- 2026-06-30 00:19 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/960848.shtml)
+- 2026-06-30 00:10 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/006454343886.shtml)
+- 2026-06-30 00:28 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/039493247805.shtml)
+- 2026-06-30 00:17 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/05785878.shtml)
+- 2026-06-30 00:11 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/2688943073.shtml)
+- 2026-06-30 00:27 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/031445.shtml)

@@ -1,59 +1,59 @@
-# 中信建投期货：4月10日工业品早报
+# 美银证券：周大福目标价升至14.2港元 重申其“中性”评级
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-铜：停火条款存分歧，铜价延续震荡 周四晚沪铜主力震荡收涨逾9.8万元，伦铜涨至12700美金附近。 宏观中性。美国2月核心PCE同比涨幅放缓至3%符合预期但仍高于美联储2%的长期目标，中东冲突前美国通胀粘性依然顽固。美伊谈判在即，围绕停战条款双方存在分歧，市场观望情绪浓厚。 基本面中性。昨日上期所铜仓单减少6189吨至17.9万吨，LME铜去库1825吨至38.3万吨，SMM中
+美银证券发布研报称，将周大福（01929）的目标估值倍数由预测2027财年市盈率的15倍下调至13倍，以反映同行估值中枢下移，以及因入账对冲收益而导致的盈利质量下降。尽管因金价波动带来盈利不确定性，但鉴于其交易估值相当于预测2027财年市盈率10倍及股息率6%的吸引水平，表现平衡。该行重申其“中性”评级，目标价由13.9港元上调至14.2港元。 周大福公布的2026财年净利润达
 
 ## 正文
 
-铜：停火条款存分歧，铜价延续震荡 周四晚沪铜主力震荡收涨逾9.8万元，伦铜涨至12700美金附近。
+美银证券发布研报称，将周大福（01929）的目标估值倍数由预测2027财年市盈率的15倍下调至13倍，以反映同行估值中枢下移，以及因入账对冲收益而导致的盈利质量下降。
 
-宏观中性。
+尽管因金价波动带来盈利不确定性，但鉴于其交易估值相当于预测2027财年市盈率10倍及股息率6%的吸引水平，表现平衡。
 
-美国2月核心PCE同比涨幅放缓至3%符合预期但仍高于美联储2%的长期目标，中东冲突前美国通胀粘性依然顽固。
+该行重申其“中性”评级，目标价由13.9港元上调至14.2港元。
 
-美伊谈判在即，围绕停战条款双方存在分歧，市场观望情绪浓厚。
+周大福公布的2026财年净利润达90亿港元（下同），同比增长52.2%，高出该行预期2%，且大致符合早前公布初步利润增长45%至55%的预测范围；期内收入为944亿元，同比上升5.3%，毛利率与营业利润率分别为32.3%及20%，均符合预期。
 
-基本面中性。
+另外，公司宣派末期股息每股0.45港元，连同中期股息每股0.22港元，全年股息共0.67港元，意味着派息比率为73%，股息率达6%。
 
-昨日上期所铜仓单减少6189吨至17.9万吨，LME铜去库1825吨至38.3万吨，SMM中国铜主要社会库存减少2.4万吨至31.8万吨。
+美银证券补充，周大福于今年4月至5月的中国内地及香港同店销售增长分别达正19.7%及正40.6%，主要受到计价黄金首饰销售强劲，以及推出“万相”系列新产品所带动。
 
-本周铜价回升施压下游消费降温，现货升贴水有所承压。
+管理层指引2027财年中国内地同店销售将录高单位数增长，香港则录低双位数增长，整体收入预计录中至高单位数增长。
 
-总体来看，宏观不确定性与偏强的基本面尚未形成共振，市场情绪谨慎，预计短期铜价震荡整理为主，持续性反弹仍需观察地缘进展。
+该行将公司2027财年净利润预测上调17%至109亿元，意味同比升21%，以反映更佳的收入及利润率指引。
 
 ## 相关推荐
 
-- 2026-06-30 00:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 00:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 00:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 00:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 00:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 00:03 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 00:19 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 00:04 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 00:19 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 00:15 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:24 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 00:28 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 00:15 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 00:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 00:26 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 00:15 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 00:20 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 00:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 00:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:29 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 00:28 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 00:22 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 00:29 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 00:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 00:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:07 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/0551796416.shtml)
-- 2026-06-30 00:03 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/662816.shtml)
-- 2026-06-30 00:01 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/61299273970.shtml)
-- 2026-06-30 00:07 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/146903460483.shtml)
-- 2026-06-30 00:18 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/4457057.shtml)
-- 2026-06-30 00:19 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/272580939.shtml)
-- 2026-06-30 00:16 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/504230592.shtml)
-- 2026-06-30 00:04 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/26168.shtml)
-- 2026-06-30 00:02 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/590707278.shtml)
-- 2026-06-30 00:00 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/1328453875.shtml)
-- 2026-06-30 00:21 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/679279406.shtml)
-- 2026-06-30 00:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/70674.shtml)
-- 2026-06-30 00:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/7716405800.shtml)
-- 2026-06-30 00:20 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/367375808414.shtml)
-- 2026-06-30 00:00 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/571620.shtml)
+- 2026-06-30 00:28 - [沉睡花园](https://www.share.minike.top/Article/details/77432706.shtml)
+- 2026-06-30 00:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/274009.shtml)
+- 2026-06-30 00:15 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/42997856123.shtml)
+- 2026-06-30 00:09 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/625581.shtml)
+- 2026-06-30 00:34 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/9112751444.shtml)
+- 2026-06-30 00:31 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/586616750727.shtml)
+- 2026-06-30 00:22 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/49829298390.shtml)
+- 2026-06-30 00:23 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/32092431550.shtml)
+- 2026-06-30 00:21 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/1653391.shtml)
+- 2026-06-30 00:21 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/7934057147.shtml)
+- 2026-06-30 00:12 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/8286023.shtml)
+- 2026-06-30 00:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/513567354.shtml)
+- 2026-06-30 00:33 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/1737364610.shtml)
+- 2026-06-30 00:21 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/90122315526.shtml)
+- 2026-06-30 00:08 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/874831353577.shtml)

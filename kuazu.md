@@ -1,58 +1,58 @@
-# 不同集团午前涨超22% 公司品牌持续破圈扩大用户基数
+# 华泰期货：地缘通胀博弈 铜市震荡运行
 
-> 更新时间：2026-06-30 00:30:02 UTC+8
+> 更新时间：2026-06-30 00:36:02 UTC+8
 
 ## 摘要
 
-不同集团（06090）盘中涨超25%，截至发稿，股价上涨22.40%，现报42.62港元，成交额7508.47万港元。 申万宏源研报指出，不同集团品牌持续破圈扩用户，打破品类边界提客单。据公司招股书披露，中国富裕家庭数量预计将从2020年的500万增加至2029年的540万，截至2025年6月30日，公司培育了超过300万名会员的忠实社群， 2022-2025H1婴儿推车销量合
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 现货情况： 据SMM讯，2026-06-13当周，SMM1#电解铜平均价格运行于103260元/吨至104720元/吨，周中呈现探底回升的态势。SMM升贴水报价运行于-10元/吨至40元/吨。库存方面，2026-06-13当周，LME库存变动-1.27万吨至36.41万吨，上期所库存变化1.87万吨至18.82万吨。国内社会库存
 
 ## 正文
 
-不同集团（06090）盘中涨超25%，截至发稿，股价上涨22.40%，现报42.62港元，成交额7508.47万港元。
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 现货情况： 据SMM讯，2026-06-13当周，SMM1#电解铜平均价格运行于103260元/吨至104720元/吨，周中呈现探底回升的态势。
 
-申万宏源研报指出，不同集团品牌持续破圈扩用户，打破品类边界提客单。
+SMM升贴水报价运行于-10元/吨至40元/吨。
 
-据公司招股书披露，中国富裕家庭数量预计将从2020年的500万增加至2029年的540万，截至2025年6月30日，公司培育了超过300万名会员的忠实社群， 2022-2025H1婴儿推车销量合计为46.3万件，用户数仍有较大提升空间。
+库存方面，2026-06-13当周，LME库存变动-1.27万吨至36.41万吨，上期所库存变化1.87万吨至18.82万吨。
 
-此外，公司将BeBeBus定义为人群品牌而非品类品牌，公司仅以婴童产品为原点品类，持续围绕“家庭CFO”，打破品类边界，提升用户客单值。
+国内社会库存（不含保税区）变化-1.52万吨至21.78万吨，保税区库存变动0.78万吨至5.61万吨。
 
-申万宏源认为，展望2026年，不同集团将“用AI重新定义高端家庭质量生活”确立为公司使命，计划做AI的场景化、产品化、产业化落地，加大核心产品（即婴儿推车、汽车安全座椅、婴儿床及婴儿餐椅）的AI升级。
+Comex库存上涨0.59万吨至65.04万短吨。
 
-宁波奉化新工厂将于2026年下半年开启运营，全面打造数字化、智能化示范工厂，为AI 产品升级提供坚实保障。
+观点： 宏观方面，2026-06-13当周，市场主要受地缘政治与美国通胀数据双重影响，两大主线相互博弈牵动全球风险资产与大宗商品情绪。
 
-责任编辑：卢昱君
+美伊和谈取得实质性进展，双方有望快速签署和平协议，伊朗主动释放善意并放行油轮通行，霍尔木兹海峡紧张局势大幅缓解，原油地缘溢价显著回落，整体市场避险情绪降温，风险偏好有所回升。
+
+与此同时，美国 5 月 CPI 数据大幅超预期，同比涨幅突破 4%，为三年来新高，叠加 PPI 同步走高，通胀粘性再度凸显。
 
 ## 相关推荐
 
-- 2026-06-30 00:01 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 00:02 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 00:22 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 00:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 00:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 00:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:18 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 00:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 00:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 00:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 00:27 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 00:11 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 00:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 00:03 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 00:32 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 00:22 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 00:33 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 00:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 00:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 00:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 00:10 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 00:25 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 00:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 00:22 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 00:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 00:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:05 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/14987720507.shtml)
-- 2026-06-30 00:08 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/1887290.shtml)
-- 2026-06-30 00:03 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/17175560.shtml)
-- 2026-06-30 00:06 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/4491199.shtml)
-- 2026-06-30 00:01 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/074243952.shtml)
-- 2026-06-30 00:26 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/19993188.shtml)
-- 2026-06-30 00:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/1834015.shtml)
-- 2026-06-30 00:27 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/14015146703.shtml)
-- 2026-06-30 00:11 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/919312000421.shtml)
-- 2026-06-30 00:12 - [恋与深空 巧合](https://www.share.minike.top/Article/details/57956589768.shtml)
-- 2026-06-30 00:25 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/255446.shtml)
-- 2026-06-30 00:11 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/75228309362.shtml)
-- 2026-06-30 00:06 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/6299336.shtml)
-- 2026-06-30 00:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/8433676420.shtml)
-- 2026-06-30 00:07 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/277478433772.shtml)
+- 2026-06-30 00:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/65657361.shtml)
+- 2026-06-30 00:33 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/42448787.shtml)
+- 2026-06-30 00:27 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/247612.shtml)
+- 2026-06-30 00:33 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/3525368.shtml)
+- 2026-06-30 00:15 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/99817360453.shtml)
+- 2026-06-30 00:07 - [女心理师](http://www.share.minike.top/Article/details/257611.shtml)
+- 2026-06-30 00:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/923313135726.shtml)
+- 2026-06-30 00:16 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/479392000.shtml)
+- 2026-06-30 00:09 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/74193.shtml)
+- 2026-06-30 00:29 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/869180.shtml)
+- 2026-06-30 00:33 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/59479320449.shtml)
+- 2026-06-30 00:13 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/74125.shtml)
+- 2026-06-30 00:31 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/3732091.shtml)
+- 2026-06-30 00:09 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/20009.shtml)
+- 2026-06-30 00:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/11176467.shtml)
