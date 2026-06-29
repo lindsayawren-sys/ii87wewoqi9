@@ -1,58 +1,60 @@
-# 海南省人工智能服务平台正式上线
+# 立夏万物生 全国初夏尝鲜地图带你寻找夏日味道
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网海口6月13日电 (记者 王晓斌)海南省人工智能服务平台13日正式上线。这个面向市场主体的人工智能服务平台，目前已集聚121款人工智能大模型、44个垂直行业专业智能体，为用户搭建技术、资源、服务一体化支撑体系。 海南省人工智能服务平台由海南省国有资本运营有限公司下属企业海南省信息产业投资集团有限公司、海南省算力科技有限公司(下称“海南算力”)投资建设，构建有算力资源、模型
+节气物候图鉴：立夏万物生 全国初夏尝鲜地图带你寻找夏日味道 中国天气网讯 时光流转，岁月更迭，跟着物候图鉴，读懂二十四节气。今天(5月5日)，我们迎来夏季的第一个节气——立夏。此时我国升温显著，夏季版图开始向北扩张，万物蓬勃生长，各种瓜果也迎来尝鲜的好时节。中国天气网推出立夏全国初夏尝鲜地图，看看哪些地方的初夏时令美味即将上市。 立夏意味着风暖昼长、万物并秀，也意味着拔擢成长、
 
 ## 正文
 
-中新网海口6月13日电 (记者 王晓斌)海南省人工智能服务平台13日正式上线。
+节气物候图鉴：立夏万物生 全国初夏尝鲜地图带你寻找夏日味道 中国天气网讯 时光流转，岁月更迭，跟着物候图鉴，读懂二十四节气。
 
-这个面向市场主体的人工智能服务平台，目前已集聚121款人工智能大模型、44个垂直行业专业智能体，为用户搭建技术、资源、服务一体化支撑体系。
+今天(5月5日)，我们迎来夏季的第一个节气——立夏。
 
-海南省人工智能服务平台由海南省国有资本运营有限公司下属企业海南省信息产业投资集团有限公司、海南省算力科技有限公司(下称“海南算力”)投资建设，构建有算力资源、模型服务(MaaS)、Token交易市场、智能体应用市场四大板块。
+此时我国升温显著，夏季版图开始向北扩张，万物蓬勃生长，各种瓜果也迎来尝鲜的好时节。
 
-上线当天，平台推出“百万亿Token赋能计划”“政企AI落地支持计划”“信创AI云端畅享计划”等专项行动，赋能海南本土企业智能化。
+中国天气网推出立夏全国初夏尝鲜地图，看看哪些地方的初夏时令美味即将上市。
 
-海南算力副总经理蔡达森介绍，平台已经初步构建了AI产业生态圈，支持海南省国资委私有化部署“琼资慧眼”智能监管系统，借助大模型推动国有资产全域穿透式监管；医疗领域推出中医辅助诊疗、脑肿瘤医学影像辅助诊断等多款智能产品。
+立夏意味着风暖昼长、万物并秀，也意味着拔擢成长、欣欣向荣。
 
-海南省国资委主任马咏华表示，海南省国资委将统筹省属企业率先完成数智化改造，联动中小微企业协同转型，推动AI技术融入商业航天、南繁种业、深海科技、低空经济等优势赛道，打造智慧生产、运维、服务等标杆应用场景。
+此时，北方气温渐升，易出现干热风；而在南方雷雨增多，强对流天气频发。
 
-他期待各方积极参与平台共建、场景共创、市场共拓，培育具有海南特色的AI产业集群，打造面向国内、辐射东南亚的数字产业高地 海南省通信管理局局长平义真说，全省通信行业将持续升级全域通信网络，优化算力网络布局，推进“算、网、电、云”深度协同，不断提升网络带宽、传输时延、算力调度等核心指标。
+古人将立夏节气分为三候：一候蝼蝈鸣；二候蚯蚓出；三候王瓜生。
 
-同时依托网络资源优势，为平台提供稳定可靠的底层支撑，保障大模型训练、智能体运行、海量数据交互等全环节高效运转。
+一候：蝼蝈鸣 立夏到来，最先听到的便是蝼蝈在田间鸣叫。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 03:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 03:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 03:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 03:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 03:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 03:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 03:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 03:14 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 03:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 03:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 03:40 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 03:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 03:25 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 03:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:39 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 03:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 03:21 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 03:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 03:38 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 03:31 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 03:28 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 03:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:22 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 03:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/374736203495.shtml)
-- 2026-06-30 03:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/683174933.shtml)
-- 2026-06-30 03:27 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/174025.shtml)
-- 2026-06-30 03:28 - [周生如故](https://www.blog.kurohicncr.top/Article/details/62212.shtml)
-- 2026-06-30 03:34 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/634082.shtml)
-- 2026-06-30 03:29 - [起风了](http://www.share.kurohicncr.top/Article/details/30726720027.shtml)
-- 2026-06-30 03:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/11033.shtml)
-- 2026-06-30 03:30 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/67326816.shtml)
-- 2026-06-30 03:40 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/695264.shtml)
-- 2026-06-30 03:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/80750616.shtml)
-- 2026-06-30 03:40 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/196613.shtml)
-- 2026-06-30 03:13 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/572020.shtml)
-- 2026-06-30 03:38 - [TOP Prada](https://www.blog.minike.top/Article/details/465751487954.shtml)
-- 2026-06-30 03:24 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/4879114879.shtml)
-- 2026-06-30 03:22 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/3159913.shtml)
+- 2026-06-30 03:25 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/353341.shtml)
+- 2026-06-30 03:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/7792066111.shtml)
+- 2026-06-30 03:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/479784680923.shtml)
+- 2026-06-30 03:31 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/6581645446.shtml)
+- 2026-06-30 03:34 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/6607030618.shtml)
+- 2026-06-30 03:35 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/739659266276.shtml)
+- 2026-06-30 03:20 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/00584339.shtml)
+- 2026-06-30 03:23 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/75026602.shtml)
+- 2026-06-30 03:20 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7381195.shtml)
+- 2026-06-30 03:40 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/13246453.shtml)
+- 2026-06-30 03:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/51833795.shtml)
+- 2026-06-30 03:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/198014884.shtml)
+- 2026-06-30 03:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/64091398.shtml)
+- 2026-06-30 03:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/01077225645.shtml)
+- 2026-06-30 03:43 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/430200951.shtml)

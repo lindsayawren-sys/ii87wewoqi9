@@ -1,56 +1,58 @@
-# 美国消费者信心四个月来首次回升 油价回落带来提振
+# 汇丰控股因MFS倒闭相关4亿美元损失股价重挫6%
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-美国消费者信心在6月初出现四个月来首次回升，汽油价格回落为受到通胀飙升冲击的美国居民带来一定缓解。 周五公布的数据显示，6月初步消费者信心指数从5月的纪录低点44.8升至48.9。经济学家此前预计该指数仅小幅升至46。 消费者预计未来一年物价将以4.6%的年率上涨，低于5月预期的4.8%。对未来5至10年的年通胀预期为3.4%，抹去了上月的升幅。 尽管汽油价格仍高于伊朗战争爆发
+汇丰控股周二公布一季度业绩，受英国抵押贷款机构Market Financial Solutions倒闭相关的4亿美元欺诈损失及中东冲突影响，税前利润低于市场预期，伦敦股价应声下跌逾6%。 财报显示，汇丰一季度税前利润降至94亿美元，低于市场预期的96亿美元。预期信贷损失激增至13亿美元，同比增加4亿美元。除4亿美元的MFS相关欺诈损失外，该行还因中东冲突额外增提3亿美元拨备。
 
 ## 正文
 
-美国消费者信心在6月初出现四个月来首次回升，汽油价格回落为受到通胀飙升冲击的美国居民带来一定缓解。
+汇丰控股周二公布一季度业绩，受英国抵押贷款机构Market Financial Solutions倒闭相关的4亿美元欺诈损失及中东冲突影响，税前利润低于市场预期，伦敦股价应声下跌逾6%。
 
-周五公布的数据显示，6月初步消费者信心指数从5月的纪录低点44.8升至48.9。
+财报显示，汇丰一季度税前利润降至94亿美元，低于市场预期的96亿美元。
 
-经济学家此前预计该指数仅小幅升至46。
+预期信贷损失激增至13亿美元，同比增加4亿美元。
 
-消费者预计未来一年物价将以4.6%的年率上涨，低于5月预期的4.8%。
+除4亿美元的MFS相关欺诈损失外，该行还因中东冲突额外增提3亿美元拨备。
 
-对未来5至10年的年通胀预期为3.4%，抹去了上月的升幅。
+此次损失暴露了银行对规模达3.5万亿美元私人信贷行业的隐秘风险敞口。
 
-尽管汽油价格仍高于伊朗战争爆发前水平，但近几周油价回落使美国消费者对个人财务状况的悲观情绪有所缓解。
+据悉，损失源于汇丰向Apollo支持的Atlas SP部门提供贷款，后者向MFS提供了4亿英镑融资。
 
-报告显示，低收入群体的信心改善尤为明显。
+MFS今年2月因欺诈指控进入破产管理程序。
 
-这部分消费者通常将更大比例的预算用于燃料支出。
+首席财务官Pam Kaur表示，这是通过“金融赞助商”获得的二级风险敞口，且该行依赖了赞助商的尽职调查。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:29 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 03:15 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 03:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:14 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 03:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 03:16 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 03:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 03:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 03:38 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 03:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 03:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 03:35 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 03:30 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 03:30 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 03:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 03:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 03:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 03:33 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 03:42 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 03:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:39 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/42806.shtml)
-- 2026-06-30 03:19 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/50497.shtml)
-- 2026-06-30 03:23 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/33251377392.shtml)
-- 2026-06-30 03:35 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/895464312.shtml)
-- 2026-06-30 03:29 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/446439299805.shtml)
-- 2026-06-30 03:27 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/61543948.shtml)
-- 2026-06-30 03:16 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/6877215667.shtml)
-- 2026-06-30 03:28 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/2818620597.shtml)
-- 2026-06-30 03:40 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/220113019294.shtml)
-- 2026-06-30 03:22 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/138863278.shtml)
-- 2026-06-30 03:31 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/4306938225.shtml)
-- 2026-06-30 03:12 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/06502522114.shtml)
-- 2026-06-30 03:18 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/550664628659.shtml)
-- 2026-06-30 03:12 - [美股](https://www.share.minike.top/Article/details/712770670883.shtml)
-- 2026-06-30 03:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/87761835116.shtml)
+- 2026-06-30 03:46 - [女心理师](http://www.share.kurohicncr.top/Article/details/831188609293.shtml)
+- 2026-06-30 03:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/821865999872.shtml)
+- 2026-06-30 03:39 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/76305148.shtml)
+- 2026-06-30 03:21 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/3843292.shtml)
+- 2026-06-30 03:40 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/76870336.shtml)
+- 2026-06-30 03:28 - [巴西绝杀日本](https://www.share.minike.top/Article/details/025617.shtml)
+- 2026-06-30 03:34 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/513042114.shtml)
+- 2026-06-30 03:46 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/70987012554.shtml)
+- 2026-06-30 03:28 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/1625949.shtml)
+- 2026-06-30 03:26 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/62651364752.shtml)
+- 2026-06-30 03:47 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/0894921.shtml)
+- 2026-06-30 03:36 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/015858.shtml)
+- 2026-06-30 03:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/41894554.shtml)
+- 2026-06-30 03:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/96435.shtml)
+- 2026-06-30 03:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/18216027761.shtml)

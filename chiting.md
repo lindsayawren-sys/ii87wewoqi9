@@ -1,58 +1,56 @@
-# 2026年全国竞走大奖赛（第3站）收官 陕西队获4金1银1铜
+# 微软Xbox营收持续下滑 首席执行官重组高管团队：我们必须变革工作方式
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。 本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。最终斩获4金1银1铜的优异成绩。运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带
+核心要点 微软 Xbox 首席执行官阿莎・夏尔马于周二向员工发布内部备忘录，宣布任命新一届领导层。这家科技巨头正试图扭转游戏业务颓势，重回增长轨道。 今年 2 月，游戏业务负责人菲尔・斯宾塞宣布退休，夏尔马正式接手 Xbox 业务。她于 2024 年加入微软，此前曾在 Meta 与 Instacart 担任高管；入职微软后出任核心 AI 工程团队产品总裁，主导 GitHub C
 
 ## 正文
 
-中新网陕西汉中6月15日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)14日在陕西城固落幕，本次赛事汇聚全国43支队伍、近500名竞走健儿同场竞技。
+核心要点 微软 Xbox 首席执行官阿莎・夏尔马于周二向员工发布内部备忘录，宣布任命新一届领导层。
 
-本次赛事陕西竞走队主场作战，选派18名运动员角逐10个竞赛项目。
+这家科技巨头正试图扭转游戏业务颓势，重回增长轨道。
 
-最终斩获4金1银1铜的优异成绩。
+今年 2 月，游戏业务负责人菲尔・斯宾塞宣布退休，夏尔马正式接手 Xbox 业务。
 
-运动员们不畏强手、奋勇拼搏，凭借稳定的竞技状态和扎实的训练积累，展现了陕西竞走项目老带新、传帮带的梯队建设与良好精神风貌。
+她于 2024 年加入微软，此前曾在 Meta 与 Instacart 担任高管；入职微软后出任核心 AI 工程团队产品总裁，主导 GitHub Copilot、Visual Studio Code 等开发者工具业务。
 
-在6月13日首个比赛日，男女半程马拉松竞走项目率先开赛。
+夏尔马在 CNBC 看到的这份内部备忘录中写道： “我们必须在整个平台体系内，变革工作模式与组织架构。
 
-陕西省选手杨宇喆强势后程发力、表现亮眼，以1小时27分55秒的成绩摘得男子半程马拉松竞走桂冠，这也是他职业生涯首个大赛冠军。
+目前我们难以快速推出有影响力的产品，内部内耗耗时过多，对外与玩家社群联结不足，部分基础核心能力也存在短板。
 
-女子方面，已获得名古屋亚运会参赛资格的陕西选手杨柳静，轻松摘得女子半程马拉松竞走项目金牌。
+” 上周微软公布财报，Xbox 游戏营收在过去六个季度里第四次出现下滑。
 
-作为队内主力，在恢复周期短、备战时间紧张的情况下，她依然随队参赛、全力以赴。
+微软首席执行官萨提亚・纳德拉表示，公司正努力赢回 Xbox、必应搜索及其他消费级业务的用户与粉丝。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 03:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 03:30 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 03:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 03:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 03:36 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 03:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 03:36 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 03:29 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 03:28 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 03:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 03:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 03:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 03:38 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 03:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 03:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 03:27 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 03:31 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 03:39 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 03:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 03:23 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/4844473.shtml)
-- 2026-06-30 03:40 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/793197.shtml)
-- 2026-06-30 03:39 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/4018113.shtml)
-- 2026-06-30 03:15 - [明星大侦探第四季](http://www.share.minike.top/Article/details/3481611.shtml)
-- 2026-06-30 03:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/7171191224.shtml)
-- 2026-06-30 03:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/55699904.shtml)
-- 2026-06-30 03:26 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/0967546.shtml)
-- 2026-06-30 03:28 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/8384030486.shtml)
-- 2026-06-30 03:28 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/252041.shtml)
-- 2026-06-30 03:16 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/394748.shtml)
-- 2026-06-30 03:27 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/8213425819.shtml)
-- 2026-06-30 03:13 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/52610260.shtml)
-- 2026-06-30 03:24 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/88359262.shtml)
-- 2026-06-30 03:13 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/47381.shtml)
-- 2026-06-30 03:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/51434.shtml)
+- 2026-06-30 03:22 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/0059296.shtml)
+- 2026-06-30 03:31 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/162542.shtml)
+- 2026-06-30 03:46 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/372880249.shtml)
+- 2026-06-30 03:47 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/8129355.shtml)
+- 2026-06-30 03:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/373824.shtml)
+- 2026-06-30 03:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/166769006322.shtml)
+- 2026-06-30 03:34 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/8002527.shtml)
+- 2026-06-30 03:26 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/9500860.shtml)
+- 2026-06-30 03:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/87906861789.shtml)
+- 2026-06-30 03:48 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/1327948741.shtml)
+- 2026-06-30 03:37 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/9089042294.shtml)
+- 2026-06-30 03:38 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/351513.shtml)
+- 2026-06-30 03:43 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/8781188.shtml)
+- 2026-06-30 03:41 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/31427240.shtml)
+- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/4006390.shtml)

@@ -1,52 +1,61 @@
-# 台湾博主在沈阳吃饭被少收56元，老板：你别管，这就是两岸一家亲！
+# 各界人士共祭济南“五三惨案”98周年
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 12:33 来源：中国新闻网 6月12日，第二十四届海峡青年论坛在福建厦门开幕。活动现场，台湾美食博主曲献平和与会嘉宾分享了在旅途中，他感受到大陆同胞对台湾同胞的热情。他印象最深的是一次在沈阳吃饭，结账时发现少收了56元(人民币)，老板的“减法”象征着全国56个民族和团结，让自己恍然大悟，直呼“格局太大了”，既开心又感动。“我觉得非常动人，也是
+中新网济南5月3日电 (吕妍)5月3日10时，防空警报响彻山东济南上空。当日，“五三惨案”98周年纪念活动举行。 1928年5月3日，日本帝国主义为阻止北伐军北伐，借口“保护侨民”，凶残杀害蔡公时等17名外交人员，强占济南城，大肆屠杀中国军人和民众，制造了震惊中外的“五三惨案”。 活动现场，社会各界人士代表首先向逝去的革命先烈默哀，表达对惨案罹难者的哀思，接着向英烈敬献花篮，缅
 
 ## 正文
 
-发布时间：2026年06月13日 12:33 来源：中国新闻网 6月12日，第二十四届海峡青年论坛在福建厦门开幕。
+中新网济南5月3日电 (吕妍)5月3日10时，防空警报响彻山东济南上空。
 
-活动现场，台湾美食博主曲献平和与会嘉宾分享了在旅途中，他感受到大陆同胞对台湾同胞的热情。
+当日，“五三惨案”98周年纪念活动举行。
 
-他印象最深的是一次在沈阳吃饭，结账时发现少收了56元(人民币)，老板的“减法”象征着全国56个民族和团结，让自己恍然大悟，直呼“格局太大了”，既开心又感动。
+1928年5月3日，日本帝国主义为阻止北伐军北伐，借口“保护侨民”，凶残杀害蔡公时等17名外交人员，强占济南城，大肆屠杀中国军人和民众，制造了震惊中外的“五三惨案”。
 
-“我觉得非常动人，也是我拍视频的动力。
+活动现场，社会各界人士代表首先向逝去的革命先烈默哀，表达对惨案罹难者的哀思，接着向英烈敬献花篮，缅怀致敬。
 
-”曲献平说。
+随后，各界嘉宾代表合力撞响“五三钟”，以此纪念历史，警醒世人。
 
-(记者 郎佳慧 制作 乐小敏） 责任编辑：【吉翔】
+“社会各界人士铭记这段历史，不是为了延续仇恨，而是为了以史为鉴、勿忘国耻。
+
+”民革济南市委会副主委、济南市民营经济发展局局长李轶锋在致辞时表示，应厚植家国情怀、砥砺自强之志，凝聚起捍卫和平、守护家园、奋发图强、助推民族复兴的强大精神力量。
+
+参加此次纪念活动的济南学生代表党子超说：“我们生活在和平年代，更要弘扬先辈们的崇高精神，努力学习，创造更加美好的生活，用实际行动守护来之不易的和平。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 03:36 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 03:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 03:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 03:32 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 03:19 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:23 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 03:41 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 03:27 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 03:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 03:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 03:38 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 03:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 03:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 03:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 03:47 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 03:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 03:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 03:45 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 03:33 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:32 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 03:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 03:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 03:38 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/938811964.shtml)
-- 2026-06-30 03:34 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/40810473.shtml)
-- 2026-06-30 03:21 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/572650309.shtml)
-- 2026-06-30 03:19 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/1387297998.shtml)
-- 2026-06-30 03:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/4569123.shtml)
-- 2026-06-30 03:14 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/507331808.shtml)
-- 2026-06-30 03:26 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/29771859298.shtml)
-- 2026-06-30 03:26 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/02476794.shtml)
-- 2026-06-30 03:32 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/07165.shtml)
-- 2026-06-30 03:13 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/837303.shtml)
-- 2026-06-30 03:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/559926179908.shtml)
-- 2026-06-30 03:26 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/4068808955.shtml)
-- 2026-06-30 03:40 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/596262.shtml)
-- 2026-06-30 03:30 - [月亮](https://www.share.kurohicncr.top/Article/details/2982940.shtml)
-- 2026-06-30 03:36 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/45839207.shtml)
+- 2026-06-30 03:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/67996177789.shtml)
+- 2026-06-30 03:46 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/787070842.shtml)
+- 2026-06-30 03:18 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/55831293.shtml)
+- 2026-06-30 03:28 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/42243694.shtml)
+- 2026-06-30 03:23 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/385738208.shtml)
+- 2026-06-30 03:27 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/57321.shtml)
+- 2026-06-30 03:25 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/837858729.shtml)
+- 2026-06-30 03:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/18719813629.shtml)
+- 2026-06-30 03:35 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/07083817289.shtml)
+- 2026-06-30 03:36 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/500934428895.shtml)
+- 2026-06-30 03:43 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/301596419.shtml)
+- 2026-06-30 03:21 - [时光音乐会](https://www.blog.minike.top/Article/details/862385944004.shtml)
+- 2026-06-30 03:35 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/89154.shtml)
+- 2026-06-30 03:40 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/189356718.shtml)
+- 2026-06-30 03:35 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/04938.shtml)

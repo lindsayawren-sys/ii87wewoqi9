@@ -1,57 +1,59 @@
-# 欧洲央行官员Kazimir称需进一步加息以遏制通胀
+# 数万亿美元退休储蓄流入集合投资信托 监管迷雾中难以窥见全貌
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Peter Kazimir表示，通胀在整个经济领域的蔓延将迫使欧洲央行进一步提高利率。 这位斯洛伐克央行行长认为，价格压力在没有干预的情况下不会缓解。他表示，即便美国与伊朗达成和平协议，也无法让通胀一夜之间回落至2%的目标水平。他说，尽管经济降温，但仍具韧性，为决策者采取行动留出了空间。 “我们的使命尚未完成，”Kazimir周五在伦敦接受采访时表示。“现
+在美国退休行业的核心，支撑着数以百万美国人晚年储蓄计划的，是一系列几乎没人能说清楚的金融产品。 没有人确切知道它们控制着多少资金。没有人能说清楚这些资金是如何配置的。也没有单一的金融监管机构负责监管它们。然而，集合投资信托（CIT）如今已是一个数万亿美元规模的业务，足以与共同基金或ETF相抗衡，并有望成为更多私人资产进入美国人退休储蓄的通道。 多年来，美国最大的雇主一直在缓慢地
 
 ## 正文
 
-欧洲央行管理委员会成员Peter Kazimir表示，通胀在整个经济领域的蔓延将迫使欧洲央行进一步提高利率。
+在美国退休行业的核心，支撑着数以百万美国人晚年储蓄计划的，是一系列几乎没人能说清楚的金融产品。
 
-这位斯洛伐克央行行长认为，价格压力在没有干预的情况下不会缓解。
+没有人确切知道它们控制着多少资金。
 
-他表示，即便美国与伊朗达成和平协议，也无法让通胀一夜之间回落至2%的目标水平。
+没有人能说清楚这些资金是如何配置的。
 
-他说，尽管经济降温，但仍具韧性，为决策者采取行动留出了空间。
+也没有单一的金融监管机构负责监管它们。
 
-“我们的使命尚未完成，”Kazimir周五在伦敦接受采访时表示。
+然而，集合投资信托（CIT）如今已是一个数万亿美元规模的业务，足以与共同基金或ETF相抗衡，并有望成为更多私人资产进入美国人退休储蓄的通道。
 
-“现在讨论政策是否需要变得具有限制性为时过早。
+多年来，美国最大的雇主一直在缓慢地将员工的养老储蓄转向这些专门供退休计划使用的集合投资工具。
 
-但考虑到价格压力正向整个经济扩散，我绝不会排除这种可能性。
+根据美国劳工部数据，到2024年，在参与人数超过100人的401（k）计划中，约40%的总资产投资于集合投资信托，高于2010年的12%，也高于配置给共同基金的比例。
 
-” 欧洲央行周四将存款利率上调25个基点至2.25%，成为首家对战争经济影响作出反应的主要央行。
+为员工和退休人员降低成本的努力驱动了这一转变。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 03:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 03:39 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 03:33 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 03:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:13 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 03:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 03:39 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 03:15 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 03:23 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 03:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 03:37 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 03:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 03:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 03:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 03:35 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 03:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 03:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 03:24 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 03:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:38 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:39 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 03:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/38725344.shtml)
-- 2026-06-30 03:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/162301996.shtml)
-- 2026-06-30 03:41 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/13233.shtml)
-- 2026-06-30 03:13 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/158254883.shtml)
-- 2026-06-30 03:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/3503211.shtml)
-- 2026-06-30 03:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/41523130.shtml)
-- 2026-06-30 03:20 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/29902.shtml)
-- 2026-06-30 03:32 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/445704359351.shtml)
-- 2026-06-30 03:12 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/7907837.shtml)
-- 2026-06-30 03:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/0418219.shtml)
-- 2026-06-30 03:34 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/671942995749.shtml)
-- 2026-06-30 03:33 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/81125.shtml)
-- 2026-06-30 03:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/9615907618.shtml)
-- 2026-06-30 03:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/61389076.shtml)
-- 2026-06-30 03:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/737987644.shtml)
+- 2026-06-30 03:41 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/321127923.shtml)
+- 2026-06-30 03:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/933119.shtml)
+- 2026-06-30 03:21 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/26347.shtml)
+- 2026-06-30 03:36 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/364239036.shtml)
+- 2026-06-30 03:35 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/0831750768.shtml)
+- 2026-06-30 03:29 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/560191476.shtml)
+- 2026-06-30 03:39 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/413365.shtml)
+- 2026-06-30 03:18 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/88042.shtml)
+- 2026-06-30 03:47 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/8760614.shtml)
+- 2026-06-30 03:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/2891679.shtml)
+- 2026-06-30 03:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/36709658522.shtml)
+- 2026-06-30 03:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/137050424889.shtml)
+- 2026-06-30 03:43 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/144858684633.shtml)
+- 2026-06-30 03:40 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/30049.shtml)
+- 2026-06-30 03:30 - [乔家的儿女](http://www.share.minike.top/Article/details/1421325137.shtml)

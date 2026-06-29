@@ -1,60 +1,59 @@
-# 两大板块掀起涨停潮！超级主线王者归来？
+# 国际人士：警惕日本军国主义死灰复燃
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，A股三大指数集体走强。截至收盘，上证指数、深证成指分别上涨1.61%、3.79%，创业板指数、科创50指数分别上涨5.30%、5.12%。 市场成交额为3.05万亿元，较上周五缩量1854亿元。上涨个股数量超3900只，个股涨跌幅的中位数为上涨1.25%。平均股价指数上涨3.86%。 继上周五跳空上涨
+5月3日是东京审判开庭纪念日。多国人士呼吁日本正视东京审判的历史正义，彻底反省历史罪责，停止在激进右倾化道路上狂飙。 阿根廷政治学家 国际问题分析师 阿蒂利奥·博隆：东京审判80周年是值得世界铭记的日子。但是我作为国际观察家，看到日本正在逐渐背离二战后确立的和平宪法。日本军国主义死灰复燃，对于整个东亚是一个极坏的消息，因为日本政府内部还存在着根深蒂固的帝国扩张传统，并带有强烈的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月3日是东京审判开庭纪念日。
 
-今天，A股三大指数集体走强。
+多国人士呼吁日本正视东京审判的历史正义，彻底反省历史罪责，停止在激进右倾化道路上狂飙。
 
-截至收盘，上证指数、深证成指分别上涨1.61%、3.79%，创业板指数、科创50指数分别上涨5.30%、5.12%。
+阿根廷政治学家 国际问题分析师 阿蒂利奥·博隆：东京审判80周年是值得世界铭记的日子。
 
-市场成交额为3.05万亿元，较上周五缩量1854亿元。
+但是我作为国际观察家，看到日本正在逐渐背离二战后确立的和平宪法。
 
-上涨个股数量超3900只，个股涨跌幅的中位数为上涨1.25%。
+日本军国主义死灰复燃，对于整个东亚是一个极坏的消息，因为日本政府内部还存在着根深蒂固的帝国扩张传统，并带有强烈的种族主义色彩。
 
-平均股价指数上涨3.86%。
+他们一贯想利用军事力量对外扩张，而这一切引发国际社会的强烈批评，极大不满和深切担忧。
 
-继上周五跳空上涨之后，今天上证指数再度大幅上涨，超出市场预期，其中一个刺激因素是伊美达成停战谅解备忘录。
+智利圣地亚哥大学高等研究学院学者 费尔南多·埃斯登索罗：东京审判是国际秩序发展进程中的一个进步，旨在避免重复20世纪上半叶的战争罪行。
 
-从指数表现来看，除微盘股指数之外，宽基指数均上涨。
+中国作为安理会常任理事国，是击败日本军国主义及轴心国集团的关键大国之一。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 03:18 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 03:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 03:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 03:32 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 03:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 03:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 03:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 03:21 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 03:23 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 03:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 03:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 03:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 03:24 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 03:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 03:19 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 03:37 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 03:44 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 03:23 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 03:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 03:40 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 03:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:36 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 03:43 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 03:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 03:45 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 03:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/38956297849.shtml)
-- 2026-06-30 03:25 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/306698899276.shtml)
-- 2026-06-30 03:39 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/69316729.shtml)
-- 2026-06-30 03:41 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/2818783325.shtml)
-- 2026-06-30 03:15 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/38695264537.shtml)
-- 2026-06-30 03:31 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/92513235768.shtml)
-- 2026-06-30 03:16 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/099931048577.shtml)
-- 2026-06-30 03:40 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/415125575774.shtml)
-- 2026-06-30 03:17 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/245561596267.shtml)
-- 2026-06-30 03:27 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/16357774262.shtml)
-- 2026-06-30 03:38 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/237851.shtml)
-- 2026-06-30 03:17 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/590746.shtml)
-- 2026-06-30 03:28 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/5807833.shtml)
-- 2026-06-30 03:20 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/4683826375.shtml)
-- 2026-06-30 03:17 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/180027200.shtml)
+- 2026-06-30 03:29 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/0326509535.shtml)
+- 2026-06-30 03:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/649929.shtml)
+- 2026-06-30 03:41 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/82183506205.shtml)
+- 2026-06-30 03:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/3640138.shtml)
+- 2026-06-30 03:29 - [斛珠夫人](https://www.blog.minike.top/Article/details/159547.shtml)
+- 2026-06-30 03:23 - [爱很美味](http://www.share.minike.top/Article/details/254323688.shtml)
+- 2026-06-30 03:43 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/123211.shtml)
+- 2026-06-30 03:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/84577.shtml)
+- 2026-06-30 03:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/81104414.shtml)
+- 2026-06-30 03:37 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/59498668.shtml)
+- 2026-06-30 03:28 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/29455382.shtml)
+- 2026-06-30 03:27 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/577454101.shtml)
+- 2026-06-30 03:18 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/18423226.shtml)
+- 2026-06-30 03:33 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/571484696.shtml)
+- 2026-06-30 03:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/8053625188.shtml)

@@ -1,59 +1,59 @@
-# 中老签署绿电绿证联合研究谅解备忘录
+# 哈萨克斯坦2026年以来登记麻疹感染病例逾5000例
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新社昆明6月13日电 (刘思捷)南方电网澜湄国际公司13日发布消息称，当日，该公司与老挝国家电力公司在第10届中国—南亚博览会上正式签署《中老绿电绿证联合研究谅解备忘录》，标志着中老双方正式启动绿电绿证合作相关研究工作，为推动两国绿色电力互认和绿色证书体系对接奠定制度基础。根据备忘录约定，中老双方将共同组建联合研究团队，围绕中国绿色电力证书(GEC)体系与老挝清洁能源的衔接路
+中新网阿斯塔纳5月4日电 哈通社4日援引哈萨克斯坦卫生部消息称，2026年以来，该国已累计登记超过5000例麻疹感染病例，整体发病水平呈上升趋势。 哈卫生部指出，本轮麻疹感染病例增长主要与疫苗接种覆盖率下降有关，其中包括部分人群拒绝接种疫苗以及新冠疫情期间常规免疫接种中断等因素。此外，人口流动增加亦对麻疹疫情传播产生影响。 从病例结构看，儿童为主要受影响群体。数据显示，约83%
 
 ## 正文
 
-中新社昆明6月13日电 (刘思捷)南方电网澜湄国际公司13日发布消息称，当日，该公司与老挝国家电力公司在第10届中国—南亚博览会上正式签署《中老绿电绿证联合研究谅解备忘录》，标志着中老双方正式启动绿电绿证合作相关研究工作，为推动两国绿色电力互认和绿色证书体系对接奠定制度基础。
+中新网阿斯塔纳5月4日电 哈通社4日援引哈萨克斯坦卫生部消息称，2026年以来，该国已累计登记超过5000例麻疹感染病例，整体发病水平呈上升趋势。
 
-根据备忘录约定，中老双方将共同组建联合研究团队，围绕中国绿色电力证书(GEC)体系与老挝清洁能源的衔接路径开展系统性研究。
+哈卫生部指出，本轮麻疹感染病例增长主要与疫苗接种覆盖率下降有关，其中包括部分人群拒绝接种疫苗以及新冠疫情期间常规免疫接种中断等因素。
 
-研究内容涵盖绿电绿证互认的技术标准、跨境绿证交易的注册与发行机制、绿证环境价值的计量与核算方法等关键议题。
+此外，人口流动增加亦对麻疹疫情传播产生影响。
 
-研究过程中，双方将充分借鉴中国在绿电绿证体系建设中积累的成熟经验，结合老挝以水电为主、光伏和风电快速发展的能源结构特点，以及老挝国内电力消费实际情况，逐步探索建立一套符合老挝国情的绿电绿证体系。
+从病例结构看，儿童为主要受影响群体。
 
-该体系将充分体现老挝清洁能源的资源禀赋优势，又与国际通行标准接轨。
+数据显示，约83%的感染者为14岁以下人群，其中超过70%为5岁以下儿童。
 
-此次绿电绿证合作是中国推动与周边国家共建澜湄区域共同电力市场的关键举措。
+接种情况方面，76.3%的感染者未接种疫苗。
 
-老挝致力于打造“澜湄区域清洁能源枢纽”，拥有丰富的水力资源，总装机容量超过1000万千瓦，同时正大力推进光伏和风电等新能源项目建设。
+从地区分布看，阿斯塔纳、阿拉木图等城市病例较为集中。
 
-中国是全球最大的绿电绿证交易市场之一，在绿色电力证书的发行、交易和消纳方面拥有丰富经验。
+消息称，哈萨克斯坦正通过扩大疫苗接种范围应对本轮麻疹疫情，包括开展儿童常规免疫接种，为6至11个月婴儿提供补充接种，对2至5岁儿童进行集中补种，并对青少年开展“补漏式”免疫接种等。
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 03:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 03:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 03:33 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 03:13 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 03:26 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 03:35 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 03:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 03:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 03:19 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 03:13 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 03:14 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 03:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 03:29 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 03:28 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:35 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 03:46 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 03:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 03:33 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 03:21 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 03:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 03:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 03:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [TOP Prada](http://www.blog.minike.top/Article/details/44584.shtml)
-- 2026-06-30 03:22 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/196115966103.shtml)
-- 2026-06-30 03:36 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/491453704.shtml)
-- 2026-06-30 03:13 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/969954.shtml)
-- 2026-06-30 03:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/3758115.shtml)
-- 2026-06-30 03:40 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/418598529375.shtml)
-- 2026-06-30 03:31 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/2867023516.shtml)
-- 2026-06-30 03:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/678762853268.shtml)
-- 2026-06-30 03:39 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/798254613.shtml)
-- 2026-06-30 03:28 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/5598109493.shtml)
-- 2026-06-30 03:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/85806.shtml)
-- 2026-06-30 03:19 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/592950.shtml)
-- 2026-06-30 03:30 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/01170.shtml)
-- 2026-06-30 03:34 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/446649409826.shtml)
-- 2026-06-30 03:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/71903.shtml)
+- 2026-06-30 03:43 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/0112646450.shtml)
+- 2026-06-30 03:31 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/24850015117.shtml)
+- 2026-06-30 03:38 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/893762591.shtml)
+- 2026-06-30 03:33 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/817654.shtml)
+- 2026-06-30 03:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/824007617559.shtml)
+- 2026-06-30 03:39 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/55387266.shtml)
+- 2026-06-30 03:28 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/91468.shtml)
+- 2026-06-30 03:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/0303209.shtml)
+- 2026-06-30 03:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/413895657.shtml)
+- 2026-06-30 03:41 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/44131.shtml)
+- 2026-06-30 03:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/3743594.shtml)
+- 2026-06-30 03:42 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/0610109.shtml)
+- 2026-06-30 03:41 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/1376386.shtml)
+- 2026-06-30 03:19 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/45786.shtml)
+- 2026-06-30 03:37 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/8499882722.shtml)

@@ -1,56 +1,61 @@
-# 江苏泰州一恐龙科普乐园开园 解锁亲子微度假新场景
+# 特斯拉FSD软件在比利时迎转机 弗拉芒大区或跟进荷兰批准
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步
+特斯拉在欧洲推广其“监督版完全自动驾驶”（FSD）软件的进程获得关键进展。比利时弗拉芒大区周二表示，正在研究能否在荷兰批准后快速跟进引入该技术。 荷兰监管机构上月临时批准了该软件在本国道路的使用，成为欧盟首个允许特斯拉FSD的国家。该软件可控制车辆，但要求驾驶员始终保持注意力。弗拉芒大区交通部长Annick De Ridder在社交媒体上表示，已要求特斯拉提供相关文件，以便评估
 
 ## 正文
 
-发布时间：2026年06月15日 08:23 来源：中国新闻网 今年以来，亲子游、研学游市场热度持续攀升，车程短、体验丰富、兼具游乐与教育属性的亲子微度假，成为民众出游主流选择。
+特斯拉在欧洲推广其“监督版完全自动驾驶”（FSD）软件的进程获得关键进展。
 
-6月14日，由泰州市交通运输局、中交二航局携手共建，集史前科普、沉浸式互动、田园休闲于一体的暴龙庄园在江苏泰州姜堰对外开放。
+比利时弗拉芒大区周二表示，正在研究能否在荷兰批准后快速跟进引入该技术。
 
-这座恐龙科普主题亲子乐园，为亲子家庭带来科普与游乐相融的短途出游新选择，进一步丰富当地文旅产品供给。
+荷兰监管机构上月临时批准了该软件在本国道路的使用，成为欧盟首个允许特斯拉FSD的国家。
 
-不同于常规亲子乐园偏重单一游乐的模式，园区主打“科普为本、沉浸赋能、游乐为辅”的差异化体验。
+该软件可控制车辆，但要求驾驶员始终保持注意力。
 
-乐园依托原创恐龙IP搭建全场景游玩空间，规划无动力游乐设施、原生态田园休闲区及专属亲子互动演艺，同时推出恐龙玩偶情景互动、IP人偶主题巡游、沉浸式实景剧情互动等环节，让不同年龄段的孩子都能深度参与。
+弗拉芒大区交通部长Annick De Ridder在社交媒体上表示，已要求特斯拉提供相关文件，以便评估后续跟进事宜。
 
-此外，园区增设科普研学板块，打造恐龙化石标本、岩石专题静态展区。
+她强调，不应阻碍创新，而应以深思熟虑和安全的方式使其成为可能，此举旨在让弗拉芒保持在创新前沿。
 
-展区以实物展品搭配通俗讲解，直观展现史前恐龙生存环境，普及生物演化知识，满足游客探秘史前生物、开展研学实践的需求。
+尽管特斯拉CEO马斯克对欧盟很快批准FSD表示乐观，但瑞典、芬兰、丹麦和挪威等多个国家的监管机构对该技术及其实益持怀疑态度。
 
-(记者 葛勇） 责任编辑：【黄钰涵】
+路透社查阅的电子邮件显示，北欧监管机构对系统超速倾向、结冰路面等冬季条件下的可靠性、以及驾驶员可能绕过手机使用限制等表示担忧。
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 03:29 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 03:38 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 03:19 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 03:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 03:17 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 03:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 03:34 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 03:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 03:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 03:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 03:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 03:41 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 03:32 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:48 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 03:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 03:42 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 03:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 03:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 03:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 03:46 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 03:47 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 03:30 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 03:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 03:43 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/6450250.shtml)
-- 2026-06-30 03:29 - [人类...完蛋了...](http://www.share.minike.top/Article/details/5041140832.shtml)
-- 2026-06-30 03:15 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/2530747990.shtml)
-- 2026-06-30 03:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/91785.shtml)
-- 2026-06-30 03:19 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/051970.shtml)
-- 2026-06-30 03:22 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/41680745604.shtml)
-- 2026-06-30 03:32 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/38918.shtml)
-- 2026-06-30 03:32 - [斛珠夫人](http://www.blog.minike.top/Article/details/262979769890.shtml)
-- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/62535879553.shtml)
-- 2026-06-30 03:27 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/86841350.shtml)
-- 2026-06-30 03:17 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/32483450.shtml)
-- 2026-06-30 03:18 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/6740222.shtml)
-- 2026-06-30 03:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/409356275.shtml)
-- 2026-06-30 03:15 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/84169693412.shtml)
-- 2026-06-30 03:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/904215.shtml)
+- 2026-06-30 03:32 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/29401436.shtml)
+- 2026-06-30 03:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/7702224.shtml)
+- 2026-06-30 03:24 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/7852788.shtml)
+- 2026-06-30 03:41 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/860765.shtml)
+- 2026-06-30 03:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/41852695287.shtml)
+- 2026-06-30 03:45 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/8590672.shtml)
+- 2026-06-30 03:20 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/9520027866.shtml)
+- 2026-06-30 03:28 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/561444794956.shtml)
+- 2026-06-30 03:36 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/822803197.shtml)
+- 2026-06-30 03:32 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/712429658962.shtml)
+- 2026-06-30 03:29 - [巴西扳平比分](https://www.blog.minike.top/Article/details/128222039.shtml)
+- 2026-06-30 03:45 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/295973567354.shtml)
+- 2026-06-30 03:25 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/997687986812.shtml)
+- 2026-06-30 03:37 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/24035.shtml)
+- 2026-06-30 03:23 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/11061.shtml)

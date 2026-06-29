@@ -1,58 +1,58 @@
-# 中国国家防总针对南方7省份启动防汛四级应急响应
+# 肯尼亚遭强降雨袭击 灾害已致18人丧生
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 (记者 陈溯)中国南方地区迎来新一轮大范围强降雨过程，记者12日从中国应急管理部获悉，国家防汛抗旱总指挥部(国家防总)针对南方7省份启动防汛四级应急响应。 12日，国家防总办公室、应急管理部组织自然资源、水利、气象等部门联合会商，视频调度浙江、福建、江西、广东、广西等11个省份，研判新一轮强降雨发展趋势，研究部署重点地区防汛救灾工作。 按照《国家防汛抗旱
+中新社北京5月4日电 内罗毕消息：当地时间5月3日，肯尼亚国家警察局证实，过去一周该国遭遇持续性强降雨天气，由此引发的洪水和泥石流等灾害，已经导致全国范围内18人死亡。 综合路透社、美联社等媒体消息，肯尼亚警方3日发表声明说，受到强降雨等极端天气影响，肯尼亚中部和东部的萨拉卡-尼西、埃尔盖约-马拉奎特和基安布等地相继发生大规模泥石流等灾害，导致大批房屋和农作物被损毁，大批民众流
 
 ## 正文
 
-中新社北京6月12日电 (记者 陈溯)中国南方地区迎来新一轮大范围强降雨过程，记者12日从中国应急管理部获悉，国家防汛抗旱总指挥部(国家防总)针对南方7省份启动防汛四级应急响应。
+中新社北京5月4日电 内罗毕消息：当地时间5月3日，肯尼亚国家警察局证实，过去一周该国遭遇持续性强降雨天气，由此引发的洪水和泥石流等灾害，已经导致全国范围内18人死亡。
 
-12日，国家防总办公室、应急管理部组织自然资源、水利、气象等部门联合会商，视频调度浙江、福建、江西、广东、广西等11个省份，研判新一轮强降雨发展趋势，研究部署重点地区防汛救灾工作。
+综合路透社、美联社等媒体消息，肯尼亚警方3日发表声明说，受到强降雨等极端天气影响，肯尼亚中部和东部的萨拉卡-尼西、埃尔盖约-马拉奎特和基安布等地相继发生大规模泥石流等灾害，导致大批房屋和农作物被损毁，大批民众流离失所。
 
-按照《国家防汛抗旱应急预案》有关规定，国家防总于12日10时针对广东、广西、江西、福建、浙江、贵州、湖南等七省份启动防汛四级应急响应，并派出2个工作组赴地方协助指导防汛工作。
+声明指出，目前已确认本轮极端天气造成18人死亡。
 
-会商指出，根据预测，12日夜间起，南方地区迎来新一轮强降雨过程，主雨区位于西南地区东部、江南、华南等地，持续时间长，累计雨量大，部分落区与前期降雨重叠，中小河流洪水、山洪和地质灾害、城市内涝等灾害风险较高，防汛形势趋于严峻。
+灾情发生后，由肯尼亚警方及相关部门组成的多机构救援队正开展搜救行动，转移高风险区域居民，并对隐患区域进行评估，以防止更多人员伤亡。
 
-会商要求，全面落实以行政首长负责制为核心的各项防汛责任制，重点夯实基层防御责任，把防汛救灾责任落实到基层一线和最小工作单元，确保责任链条无缝衔接。
+同时，随着降雨持续，部分地区灾害风险不断上升，警方呼吁公众提高警惕。
 
-突出抓好中小河流洪水、山洪和地质灾害、病险水库、城市内涝等防御，落实监测预警、隐患排查、力量前置和重点部位安全管控等措施，狠抓强降雨期间特别是夜间山丘区人员转移避险，确保救援人员和转移中民众的生命安全。
+此外，据肯尼亚内政部统计，截至目前，该国已有超过5.4万户家庭受灾，其中首都内罗毕有6000户。
 
-(完)
+全国各地数十所学校和医院被淹，17条道路被切断。
+
+每年3月至5月是肯尼亚雨季高峰期，强降雨往往导致基础设施受损，民众流离失所。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 03:24 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 03:31 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 03:33 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 03:40 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 03:40 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 03:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 03:17 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 03:16 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 03:14 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 03:35 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 03:20 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 03:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 03:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 03:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 03:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 03:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 03:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 03:29 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 03:46 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 03:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 03:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 03:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 03:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 03:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/6651559562.shtml)
-- 2026-06-30 03:39 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/8615360.shtml)
-- 2026-06-30 03:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/47462988.shtml)
-- 2026-06-30 03:12 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/01087402.shtml)
-- 2026-06-30 03:28 - [TOP Prada](https://www.share.minike.top/Article/details/84331750.shtml)
-- 2026-06-30 03:40 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/752725.shtml)
-- 2026-06-30 03:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/396703.shtml)
-- 2026-06-30 03:32 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/357522959.shtml)
-- 2026-06-30 03:17 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/95271330.shtml)
-- 2026-06-30 03:32 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/466355.shtml)
-- 2026-06-30 03:20 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/18836359.shtml)
-- 2026-06-30 03:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/8194086727.shtml)
-- 2026-06-30 03:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/244133305997.shtml)
-- 2026-06-30 03:39 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5848507.shtml)
-- 2026-06-30 03:29 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/26340207.shtml)
+- 2026-06-30 03:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/53100.shtml)
+- 2026-06-30 03:19 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/33373740685.shtml)
+- 2026-06-30 03:27 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/537986743.shtml)
+- 2026-06-30 03:34 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/62539442.shtml)
+- 2026-06-30 03:32 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/0442387.shtml)
+- 2026-06-30 03:40 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/526102220945.shtml)
+- 2026-06-30 03:34 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/56151.shtml)
+- 2026-06-30 03:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/47936868040.shtml)
+- 2026-06-30 03:29 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/364802.shtml)
+- 2026-06-30 03:40 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/550161166.shtml)
+- 2026-06-30 03:29 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/7923499.shtml)
+- 2026-06-30 03:28 - [85花告别古偶](http://www.share.minike.top/Article/details/6115063858.shtml)
+- 2026-06-30 03:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/19136550.shtml)
+- 2026-06-30 03:38 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/1269054.shtml)
+- 2026-06-30 03:47 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/874680264.shtml)

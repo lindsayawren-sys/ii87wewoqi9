@@ -1,57 +1,57 @@
-# SpaceX上市首日大涨后盘前再度走高 市值突破2万亿美元
+# 犹他医疗宣布季度派息 连续多年保持稳定分红
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-在上周完成创纪录的首次公开募股（IPO）并正式登陆纳斯达克后，SpaceX股价在周一盘前交易中再度大涨超6%，延续了上市首日的强劲动头。目前，该公司总市值已突破2万亿美元大关，跻身华盛顿最具价值的上市公司行列。 官方交易数据显示，SpaceX（代码：SPCX）在上周五的上市首日中大涨19%，一举成为市值排名全美第六的巨头企业，其首席执行官埃隆·马斯克也借此成为全球首位身价突破万
+犹他医疗产品公司周二宣布，董事会批准了每股0.31美元的季度现金股息，延续了公司长期以来的稳定分红政策。 根据公告，此次派息将于2026年6月4日支付给5月22日登记在册的股东。这是该公司自2025年11月将股息从0.305美元提高至0.31美元后的持续执行，标志着公司已连续多年保持稳定的季度分红记录。 此次派息决定基于公司稳健的财务基础。根据公司最新财报，截至2026年3月底
 
 ## 正文
 
-在上周完成创纪录的首次公开募股（IPO）并正式登陆纳斯达克后，SpaceX股价在周一盘前交易中再度大涨超6%，延续了上市首日的强劲动头。
+犹他医疗产品公司周二宣布，董事会批准了每股0.31美元的季度现金股息，延续了公司长期以来的稳定分红政策。
 
-目前，该公司总市值已突破2万亿美元大关，跻身华盛顿最具价值的上市公司行列。
+根据公告，此次派息将于2026年6月4日支付给5月22日登记在册的股东。
 
-官方交易数据显示，SpaceX（代码：SPCX）在上周五的上市首日中大涨19%，一举成为市值排名全美第六的巨头企业，其首席执行官埃隆·马斯克也借此成为全球首位身价突破万亿美元的超级富豪。
+这是该公司自2025年11月将股息从0.305美元提高至0.31美元后的持续执行，标志着公司已连续多年保持稳定的季度分红记录。
 
-在当天的交易中，散户投资者表现出极高的认购热情。
+此次派息决定基于公司稳健的财务基础。
 
-根据金融分析机构Vanda Research的数据，散户投资者共斩获了约20%的IPO配售份额，并于上市首日单日净买入价值高达1.176亿美元的SpaceX股票。
+根据公司最新财报，截至2026年3月底，公司资产负债表保持零负债状态，现金及投资总额增至8740万美元，股东权益达1.2037亿美元。
 
-这一数额刷新了美国股市历史上的IPO首日散户认购纪录，超越了数字货币交易所Coinbase在2021年4月上市时创下的前高。
+尽管一季度净销售额同比下降10.2%至872万美元，每股收益下降11%至0.818美元，但公司毛利率从57%扩大至60.6%，显示出产品组合优化和成本控制的成效。
 
-针对SpaceX股价持续走高以及市场对其长远业绩的关注，马斯克于14日在社交媒体上公开表示，这家涵盖航天火箭与人工智能业务的科技企业，有望在2030年前实现年营收达到1万亿美元的目标。
+在资本配置方面，公司一季度回购了2196股股票，平均回购价格为58.58美元。
 
-而根据最新官方财报，SpaceX在2025年的总营收仅为187亿美元。
+管理层重申了“在认为对剩余股东具有吸引力的价格下回购股票”的强烈意愿和财务能力。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 03:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 03:26 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 03:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 03:29 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 03:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 03:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 03:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 03:17 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 03:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 03:19 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 03:31 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 03:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 03:38 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 03:35 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 03:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 03:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 03:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 03:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 03:25 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 03:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/72239382.shtml)
-- 2026-06-30 03:27 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/7841860.shtml)
-- 2026-06-30 03:37 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/6111780.shtml)
-- 2026-06-30 03:24 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7809949.shtml)
-- 2026-06-30 03:21 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/076931.shtml)
-- 2026-06-30 03:16 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/6720870.shtml)
-- 2026-06-30 03:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/165112177551.shtml)
-- 2026-06-30 03:29 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/466132.shtml)
-- 2026-06-30 03:39 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/05452161648.shtml)
-- 2026-06-30 03:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/161029362.shtml)
-- 2026-06-30 03:41 - [沙丘](http://www.share.kurohicncr.top/Article/details/24970039.shtml)
-- 2026-06-30 03:41 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0511190015.shtml)
-- 2026-06-30 03:19 - [这一刀 会很帅](http://www.share.minike.top/Article/details/7127602139.shtml)
-- 2026-06-30 03:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/724584579373.shtml)
-- 2026-06-30 03:35 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/28285719547.shtml)
+- 2026-06-30 03:35 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/553553.shtml)
+- 2026-06-30 03:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/1165820885.shtml)
+- 2026-06-30 03:40 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/8582309715.shtml)
+- 2026-06-30 03:27 - [沙丘](http://www.share.minike.top/Article/details/35080680.shtml)
+- 2026-06-30 03:46 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/104815.shtml)
+- 2026-06-30 03:24 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/2109500243.shtml)
+- 2026-06-30 03:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/8986825.shtml)
+- 2026-06-30 03:37 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/2992338.shtml)
+- 2026-06-30 03:39 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/8135611.shtml)
+- 2026-06-30 03:43 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/6545746.shtml)
+- 2026-06-30 03:22 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/37921511.shtml)
+- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/377230896.shtml)
+- 2026-06-30 03:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/683499124.shtml)
+- 2026-06-30 03:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/703290014301.shtml)
+- 2026-06-30 03:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/55689865070.shtml)

@@ -1,47 +1,60 @@
-# 市场监管总局约谈山姆总部
+# 营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-国家市场监督管理总局6月15日通报，针对一段时期以来发现的山姆线下门店及线上网店多发的食品安全问题，市场监管总局近日依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，树牢食品安
+专题：聚焦美股2026年第一季度财报 公司指引运营支出占营收比例介于 35%–36% 内容速览 受运营支出预计高于预期影响，尽管营收保持强劲增长，Shopify 第二季度盈利展望仍不及市场预期。 电商平台巨头 Shopify（SHOP）股价大跌 13.28%。公司营收虽保持高增速，但运营支出高于预期，导致第二季度盈利指引低于市场预期。 该电商平台为商户提供线上销售、订单管理及支
 
 ## 正文
 
-国家市场监督管理总局6月15日通报，针对一段时期以来发现的山姆线下门店及线上网店多发的食品安全问题，市场监管总局近日依法对沃尔玛（中国）投资有限公司（即山姆总部）负责人进行了责任约谈，要求其严格按照《中华人民共和国食品安全法》，以及《食品销售连锁企业落实食品安全主体责任监督管理规定》《网络食品销售经营者落实食品安全主体责任监督管理规定》等法律法规规定开展食品经营活动，树牢食品安全意识，严格落实食品安全主体责任，自觉践行企业社会责任，严防全链条食品安全风险，切实保障公众饮食安全。
+专题：聚焦美股2026年第一季度财报 公司指引运营支出占营收比例介于 35%–36% 内容速览 受运营支出预计高于预期影响，尽管营收保持强劲增长，Shopify 第二季度盈利展望仍不及市场预期。
 
-（记者戴小河）责任编辑：郭栩彤
+电商平台巨头 Shopify（SHOP）股价大跌 13.28%。
+
+公司营收虽保持高增速，但运营支出高于预期，导致第二季度盈利指引低于市场预期。
+
+该电商平台为商户提供线上销售、订单管理及支付处理服务。
+
+公司给出第二季度指引： 运营支出占营收比例35%–36%；毛利总额同比增速维持25% 左右中段水平。
+
+这一业绩指引凸显出公司当前经营现状：营收仍强势增长，但成本走高、以及营收结构向低利润率商户服务业务倾斜，持续拖累盈利水平。
+
+首席财务官杰夫・霍夫迈斯特预计，利润率压力后续将逐步缓解；但受同比基数抬升影响，短期业绩增速将有所放缓。
+
+分析师预计公司二季度营收达34.2 亿美元，同比增幅接近 28%。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 03:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 03:34 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 03:23 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 03:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:36 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 03:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 03:29 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 03:37 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 03:35 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 03:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 03:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 03:22 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 03:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 03:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:40 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 03:40 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 03:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 03:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 03:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:22 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 03:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 03:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 03:35 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/8790855.shtml)
-- 2026-06-30 03:17 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/40514.shtml)
-- 2026-06-30 03:37 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/22850042.shtml)
-- 2026-06-30 03:33 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/3170399.shtml)
-- 2026-06-30 03:23 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/5596558751.shtml)
-- 2026-06-30 03:37 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/6938980745.shtml)
-- 2026-06-30 03:38 - [锐评T1零封KC](https://www.share.minike.top/Article/details/595849198212.shtml)
-- 2026-06-30 03:41 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/88024430.shtml)
-- 2026-06-30 03:41 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/910523.shtml)
-- 2026-06-30 03:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/922333.shtml)
-- 2026-06-30 03:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/3625320857.shtml)
-- 2026-06-30 03:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8092596.shtml)
-- 2026-06-30 03:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/563104.shtml)
-- 2026-06-30 03:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/5125469.shtml)
-- 2026-06-30 03:17 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/076141.shtml)
+- 2026-06-30 03:46 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/7869082.shtml)
+- 2026-06-30 03:18 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/1874726.shtml)
+- 2026-06-30 03:35 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/89208.shtml)
+- 2026-06-30 03:42 - [急先锋](https://www.share.kurohicncr.top/Article/details/9414457049.shtml)
+- 2026-06-30 03:31 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/9934159.shtml)
+- 2026-06-30 03:23 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18250.shtml)
+- 2026-06-30 03:30 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/38620844284.shtml)
+- 2026-06-30 03:40 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/7070326.shtml)
+- 2026-06-30 03:27 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/866223256433.shtml)
+- 2026-06-30 03:45 - [天道](http://www.share.kurohicncr.top/Article/details/6882366.shtml)
+- 2026-06-30 03:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/45079.shtml)
+- 2026-06-30 03:31 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/4124868823.shtml)
+- 2026-06-30 03:24 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/98505400056.shtml)
+- 2026-06-30 03:42 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/989190904.shtml)
+- 2026-06-30 03:18 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/52030119739.shtml)

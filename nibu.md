@@ -1,59 +1,51 @@
-# 钼代钨+AI液冷+地缘缓和！多重利好共振，华宝基金有色ETF（159876）最高飙涨超7%，获资金净申购9460万份！
+# 伊朗高级官员否认美军击沉多艘小型船只的言论
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！ 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。 伴随火热行情，资
+伊朗方面4日发布消息，驳斥美军关于击沉多艘伊朗小型船只的说法。 据悉，一名伊朗武装力量高级官员对美军相关言论予以否认。 当天早些时候，美军中央司令部司令库珀对媒体说，伊朗当天向美海军舰艇以及受美军“保护”商船发射多枚巡航导弹、无人机等，美军“阿帕奇”武装直升机和SH-60型“海鹰”直升机随后向这些伊朗船只发动攻击。美军在霍尔木兹海峡已击沉6艘试图阻挠商船航行的伊朗小型船只。
 
 ## 正文
 
-周五（6月12日）有色金属板块领涨全市场，全天获主力资金净流入超167亿元，板块吸金额高居31个申万一级行业首位！
+伊朗方面4日发布消息，驳斥美军关于击沉多艘伊朗小型船只的说法。
 
-洛阳钼业获主力资金净流入29.36亿元，登顶A股吸金榜榜首！
+据悉，一名伊朗武装力量高级官员对美军相关言论予以否认。
 
-热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）场内涨幅最高涨超7%，收涨5.15%，全天成交额2亿元，环比激增117%，一举收复10日、20日均线，斩获日线4连阳。
+当天早些时候，美军中央司令部司令库珀对媒体说，伊朗当天向美海军舰艇以及受美军“保护”商船发射多枚巡航导弹、无人机等，美军“阿帕奇”武装直升机和SH-60型“海鹰”直升机随后向这些伊朗船只发动攻击。
 
-伴随火热行情，资金积极进场布局！
-
-数据显示，有色ETF华宝（159876）全天获资金净申购9460万份。
-
-成份股狂掀涨停潮，铜陵有色、洛阳钼业、金钼股份、北方铜业、海亮股份、金田股份、驰宏锌锗7股涨停，锡业股份、云南铜业、江西铜业盘中触板，权重股紫金矿业涨超6%，北方稀土、中国铝业涨逾4%。
-
-今日有色金属板块缘何大涨？
-
-或可从三个维度进行拆解： 1、宏观层面，美国总统特朗普释放出美国与伊朗“即将达成和平协议”的信号，地缘风险溢价回落，风险偏好显著修复。
+美军在霍尔木兹海峡已击沉6艘试图阻挠商船航行的伊朗小型船只。
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 03:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 03:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 03:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 03:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 03:40 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 03:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 03:14 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 03:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 03:34 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 03:27 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 03:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 03:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 03:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 03:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 03:31 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 03:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 03:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 03:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 03:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 03:45 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 03:21 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 03:22 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 03:29 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 03:46 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/3128572768.shtml)
-- 2026-06-30 03:41 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/2695165.shtml)
-- 2026-06-30 03:40 - [扬名立万](https://www.share.kurohicncr.top/Article/details/695032493549.shtml)
-- 2026-06-30 03:26 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/906602.shtml)
-- 2026-06-30 03:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/768765.shtml)
-- 2026-06-30 03:35 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/257653.shtml)
-- 2026-06-30 03:31 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/589683459.shtml)
-- 2026-06-30 03:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/12551919.shtml)
-- 2026-06-30 03:25 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/705589167.shtml)
-- 2026-06-30 03:25 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/96749655365.shtml)
-- 2026-06-30 03:33 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/24393.shtml)
-- 2026-06-30 03:13 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/9154502588.shtml)
-- 2026-06-30 03:20 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/12964.shtml)
-- 2026-06-30 03:33 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/93672.shtml)
-- 2026-06-30 03:21 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/963419111.shtml)
+- 2026-06-30 03:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/810125563648.shtml)
+- 2026-06-30 03:35 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/753417676724.shtml)
+- 2026-06-30 03:43 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/410256.shtml)
+- 2026-06-30 03:20 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/08534759.shtml)
+- 2026-06-30 03:32 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/32174879910.shtml)
+- 2026-06-30 03:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/9010111263.shtml)
+- 2026-06-30 03:37 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/518520474676.shtml)
+- 2026-06-30 03:35 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/8269476.shtml)
+- 2026-06-30 03:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/3540200.shtml)
+- 2026-06-30 03:33 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/281582808542.shtml)
+- 2026-06-30 03:21 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/4561071112.shtml)
+- 2026-06-30 03:25 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/3694009.shtml)
+- 2026-06-30 03:23 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/366179.shtml)
+- 2026-06-30 03:30 - [毒液2](http://www.blog.minike.top/Article/details/23880.shtml)
+- 2026-06-30 03:18 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/0113634439.shtml)

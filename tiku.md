@@ -1,51 +1,47 @@
-# “哒给厚！”张凌赫现身海峡论坛 用闽南语向大家问好
+# 环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 17:22 来源：中国新闻网 第十八届海峡论坛6月13日在厦门举行，演员张凌赫受邀出席活动。张凌赫此前曾回应台湾同胞的喜爱，称这是情感浓度产生的共鸣。国台办也多次表态支持两岸影视文化界“双向奔赴”，乐见大陆艺人赴台交流，拉近两岸同胞心理距离。(记者 郎佳慧 制作 王雪尔） 责任编辑：【吉翔】
+环球华商俱乐部（01757）发布公告，集团预料截至2026年3月31日止年度取得公司拥有人应占综合溢利介于约800万港元至1200万港元，较截至2025年3月31日止财政年度取得的公司拥有人应占综合溢利约110万港元增加约六至九倍。有关期间纯利预期较截至2025年3月31日止财政年度增加，主要由于有关期间的建筑收入增加约4.32亿港元，且利润率亦有所提高。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月13日 17:22 来源：中国新闻网 第十八届海峡论坛6月13日在厦门举行，演员张凌赫受邀出席活动。
+环球华商俱乐部（01757）发布公告，集团预料截至2026年3月31日止年度取得公司拥有人应占综合溢利介于约800万港元至1200万港元，较截至2025年3月31日止财政年度取得的公司拥有人应占综合溢利约110万港元增加约六至九倍。
 
-张凌赫此前曾回应台湾同胞的喜爱，称这是情感浓度产生的共鸣。
+有关期间纯利预期较截至2025年3月31日止财政年度增加，主要由于有关期间的建筑收入增加约4.32亿港元，且利润率亦有所提高。
 
-国台办也多次表态支持两岸影视文化界“双向奔赴”，乐见大陆艺人赴台交流，拉近两岸同胞心理距离。
-
-(记者 郎佳慧 制作 王雪尔） 责任编辑：【吉翔】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 03:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 03:26 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 03:25 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 03:35 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 03:34 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 03:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 03:27 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 03:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 03:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 03:33 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 03:20 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 03:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 03:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 03:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 03:44 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 03:28 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 03:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 03:28 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 03:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 03:29 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 03:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:46 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 03:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/61648457.shtml)
-- 2026-06-30 03:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/200370518.shtml)
-- 2026-06-30 03:24 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/63801145269.shtml)
-- 2026-06-30 03:41 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/14073931.shtml)
-- 2026-06-30 03:29 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/257853.shtml)
-- 2026-06-30 03:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/803462.shtml)
-- 2026-06-30 03:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/737897407121.shtml)
-- 2026-06-30 03:32 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/78423504.shtml)
-- 2026-06-30 03:33 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/95435702.shtml)
-- 2026-06-30 03:17 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/17905289874.shtml)
-- 2026-06-30 03:24 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/913802.shtml)
-- 2026-06-30 03:21 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/577681645.shtml)
-- 2026-06-30 03:30 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/789875.shtml)
-- 2026-06-30 03:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/171123652.shtml)
-- 2026-06-30 03:26 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/331892117408.shtml)
+- 2026-06-30 03:20 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/8303031.shtml)
+- 2026-06-30 03:21 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/05275658.shtml)
+- 2026-06-30 03:20 - [日本领先巴西](https://www.share.minike.top/Article/details/7747186.shtml)
+- 2026-06-30 03:18 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/200577750.shtml)
+- 2026-06-30 03:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/3613350.shtml)
+- 2026-06-30 03:41 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/21826073666.shtml)
+- 2026-06-30 03:35 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/9549867890.shtml)
+- 2026-06-30 03:23 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/9666502139.shtml)
+- 2026-06-30 03:30 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/470032.shtml)
+- 2026-06-30 03:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/149649000.shtml)
+- 2026-06-30 03:27 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/4719476561.shtml)
+- 2026-06-30 03:40 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/02308847565.shtml)
+- 2026-06-30 03:46 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/441432772593.shtml)
+- 2026-06-30 03:18 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/5371047996.shtml)
+- 2026-06-30 03:46 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4763852321.shtml)

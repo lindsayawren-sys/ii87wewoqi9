@@ -1,57 +1,56 @@
-# 韩国混凝土货运卡车司机结束罢工 避免半导体工厂扩建项目受阻
+# XLG、EDG锁定VCT伦敦大师赛参赛资格
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-韩国混凝土货运卡车司机工会15日宣布，由于与混凝土制造企业就提高运输费用达成协议，工会决定即日起结束工业行动。此次劳资达成妥协，有效避免了三星电子和SK海力士等大型半导体工厂扩建项目可能面临的工期延误风险。 根据工会当日发表的声明，在针对资方所提协议的投票中，约7500名工会成员中超过65%的人投了赞成票，协议获得通过。 韩国当地媒体报道称，在韩国国土交通部的斡旋下，劳资双方于
+中新网北京5月6日电 V26无畏巡回北京站暨2026无畏契约冠军巡回赛CN联赛第一赛段(VCT CN联赛第一赛段)季后赛激战正酣，XLG、EDG已率先锁定伦敦大师赛参赛资格。 本次无畏巡回北京站于5月1日在北京石景山首钢冰球馆正式打响，八支晋级季后赛的VCT CN队伍展开双败淘汰制的激烈角逐。 揭幕日较量中，XLG与JDG分别以2比0击败TEC与TYL，取得开门红。AG、EDG
 
 ## 正文
 
-韩国混凝土货运卡车司机工会15日宣布，由于与混凝土制造企业就提高运输费用达成协议，工会决定即日起结束工业行动。
+中新网北京5月6日电 V26无畏巡回北京站暨2026无畏契约冠军巡回赛CN联赛第一赛段(VCT CN联赛第一赛段)季后赛激战正酣，XLG、EDG已率先锁定伦敦大师赛参赛资格。
 
-此次劳资达成妥协，有效避免了三星电子和SK海力士等大型半导体工厂扩建项目可能面临的工期延误风险。
+本次无畏巡回北京站于5月1日在北京石景山首钢冰球馆正式打响，八支晋级季后赛的VCT CN队伍展开双败淘汰制的激烈角逐。
 
-根据工会当日发表的声明，在针对资方所提协议的投票中，约7500名工会成员中超过65%的人投了赞成票，协议获得通过。
+揭幕日较量中，XLG与JDG分别以2比0击败TEC与TYL，取得开门红。
 
-韩国当地媒体报道称，在韩国国土交通部的斡旋下，劳资双方于14日晚间达成了一项备忘录。
+AG、EDG也在次日比赛中战胜TE与DRG，双双晋级胜者组。
 
-根据该协议，卡车司机每趟运输的费用将提高4200韩元（约合2.77美元），涨幅为5.5%。
+败者组方面，TYL以2比1淘汰TEC，DRG以2比0击败TE，两支队伍保留了晋级可能。
 
-这一加薪方案将从今年7月起正式实施，并持续至明年2月。
+4日晚进行的两场胜者组对抗直接与伦敦大师赛门票挂钩。
 
-此前，由于劳资纠纷引发的停工事件导致物流受阻，一度对韩国国内关键半导体制造基地升级及产能扩建工程的建材供应构成严重威胁。
+实力更胜一筹的XLG、EDG双双完成零封，提前锁定大师赛席位。
 
-随着工会决定重返岗位，相关重点项目的供应链危机已得到缓解。
+两队将在8日展开的胜者组决赛中相遇，向总决赛发起冲击。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 03:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 03:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 03:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 03:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 03:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 03:41 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 03:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 03:22 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 03:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 03:38 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:21 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 03:18 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 03:36 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 03:46 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 03:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 03:18 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 03:43 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 03:37 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 03:19 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 03:21 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/10881893.shtml)
-- 2026-06-30 03:34 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/40057233.shtml)
-- 2026-06-30 03:24 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/402916.shtml)
-- 2026-06-30 03:32 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/699248131768.shtml)
-- 2026-06-30 03:17 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/91326129652.shtml)
-- 2026-06-30 03:15 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/129572381.shtml)
-- 2026-06-30 03:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/46984809375.shtml)
-- 2026-06-30 03:39 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/531213893935.shtml)
-- 2026-06-30 03:20 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/95277.shtml)
-- 2026-06-30 03:17 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/15157.shtml)
-- 2026-06-30 03:16 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/69016.shtml)
-- 2026-06-30 03:16 - [第一炉香](http://www.share.kurohicncr.top/Article/details/14729.shtml)
-- 2026-06-30 03:14 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/80251389951.shtml)
-- 2026-06-30 03:36 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/67411289886.shtml)
-- 2026-06-30 03:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/4271622367.shtml)
+- 2026-06-30 03:39 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/771494173327.shtml)
+- 2026-06-30 03:31 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/241021.shtml)
+- 2026-06-30 03:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/82005129691.shtml)
+- 2026-06-30 03:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/06904.shtml)
+- 2026-06-30 03:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/184785065978.shtml)
+- 2026-06-30 03:34 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0901322804.shtml)
+- 2026-06-30 03:26 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/923074932015.shtml)
+- 2026-06-30 03:44 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/569286.shtml)
+- 2026-06-30 03:27 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/4930074.shtml)
+- 2026-06-30 03:21 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/50677048.shtml)
+- 2026-06-30 03:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2224335661.shtml)
+- 2026-06-30 03:19 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/2174611008.shtml)
+- 2026-06-30 03:18 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/56288208728.shtml)
+- 2026-06-30 03:41 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/24471199.shtml)
+- 2026-06-30 03:40 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/078619246.shtml)

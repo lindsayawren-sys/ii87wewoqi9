@@ -1,60 +1,59 @@
-# 第十届“互联网+”物流供应链管理与运作国际研讨会在沈阳举行
+# 假日江山丽 旅途活力足——“五一”假期掀起出游热潮
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月12日电(杨茜茜)作为2026辽宁国际友城大会重要主题分论坛之一，11日，第十届“互联网+”物流供应链管理与运作国际研讨会暨国际产学研用合作会议在东北大学国际学术交流中心启幕。本次活动聚焦数字时代物流供应链变革，搭建起中外学术交流与产业合作的高端平台。辽宁省人民政府外事办公室党组成员、副主任赵洪斌出席会议，东北大学副校长王兴伟出席并致辞。东北大学信息科学与工程学院
+明媚五月天，假期如约至。从公园里的赏花漫步，到野外的溯溪徒步；从大城市的打卡热潮，到小城镇的悠闲漫游，这个“五一”假期，祖国处处生机盎然、人潮涌动。各地做足准备、倾心迎客，游客们选择多样、热情高涨，美好假期更添文旅动感。美景如画竞出游 五月，气候适宜，美景缤纷。 走进国家植物园(北园)的牡丹园，“中国龙”“黄冠”“火神”等牡丹品种正值盛花期，雍容花姿搭配艳丽花色，让游客频频赞叹
 
 ## 正文
 
-中新网沈阳6月12日电(杨茜茜)作为2026辽宁国际友城大会重要主题分论坛之一，11日，第十届“互联网+”物流供应链管理与运作国际研讨会暨国际产学研用合作会议在东北大学国际学术交流中心启幕。
+明媚五月天，假期如约至。
 
-本次活动聚焦数字时代物流供应链变革，搭建起中外学术交流与产业合作的高端平台。
+从公园里的赏花漫步，到野外的溯溪徒步；从大城市的打卡热潮，到小城镇的悠闲漫游，这个“五一”假期，祖国处处生机盎然、人潮涌动。
 
-辽宁省人民政府外事办公室党组成员、副主任赵洪斌出席会议，东北大学副校长王兴伟出席并致辞。
+各地做足准备、倾心迎客，游客们选择多样、热情高涨，美好假期更添文旅动感。
 
-东北大学信息科学与工程学院黄敏教授作为会议主席致辞，香港中文大学(深圳)协理副校长蔡小强教授等专家学者现场分享前沿研究成果。
+美景如画竞出游 五月，气候适宜，美景缤纷。
 
-本次论坛由东北大学牵头主办，汇聚全球多所顶尖高校及行业龙头企业的权威专家学者，围绕“互联网+”背景下物流供应链数字化变革、智能运营管理、产学研用融合创新等前沿议题展开研讨，为辽宁物流产业转型升级与对外开放合作注入新动能。
+走进国家植物园(北园)的牡丹园，“中国龙”“黄冠”“火神”等牡丹品种正值盛花期，雍容花姿搭配艳丽花色，让游客频频赞叹国色天香。
 
-据介绍，东北大学自2017年发起举办该系列研讨会(I+LSCMO)，至今已吸引47位主讲人发表79场主题演讲。
+在焕新亮相的“京韵——穆帅点芳”主题花坛前，杭州游客何颖宜带着孩子摆出京剧身段，定格下假期的笑脸：“孩子的春假正好在‘五一’前夕，我们提前出行，在北京已经玩了三天。
 
-今年的研讨会与“国际产学研用合作会议”同期举行，旨在搭建中外顶尖学者与从业者交流互动的桥梁，推广前沿方法与应用，挖掘“互联网+”物流供应链管理领域的国际合作机遇，助力辽宁构建开放合作的现代物流产业生态。
+” 今年，浙江、山东、湖南、海南等地多座城市中小学在“五一”假期前后放春假，叠加“拼假”人群，形成了从4月24日至5月10日共17天的旅游相对出行高峰。
 
-(完)
+据去哪儿旅行监测，这个假期更多人选择错峰出行，“五一”前后周末出行量较去年增长10%以上。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 03:17 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 03:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 03:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 03:13 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 03:24 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 03:40 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 03:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 03:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 03:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 03:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 03:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 03:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:39 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 03:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 03:33 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:24 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 03:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 03:46 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 03:45 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 03:18 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 03:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 03:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 03:46 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 03:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 03:26 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 03:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/135431.shtml)
-- 2026-06-30 03:17 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/933714156.shtml)
-- 2026-06-30 03:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/7409984.shtml)
-- 2026-06-30 03:32 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/37460405987.shtml)
-- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/02478563254.shtml)
-- 2026-06-30 03:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/86145541382.shtml)
-- 2026-06-30 03:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/17023.shtml)
-- 2026-06-30 03:30 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/5420450509.shtml)
-- 2026-06-30 03:24 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/959984.shtml)
-- 2026-06-30 03:25 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/88847.shtml)
-- 2026-06-30 03:16 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/1413099523.shtml)
-- 2026-06-30 03:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/0337164320.shtml)
-- 2026-06-30 03:34 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/0698423.shtml)
-- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/734529878.shtml)
-- 2026-06-30 03:22 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/799460968867.shtml)
+- 2026-06-30 03:18 - [《共患难》](https://www.share.kurohicncr.top/Article/details/72552205849.shtml)
+- 2026-06-30 03:21 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/96102186.shtml)
+- 2026-06-30 03:42 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/46190.shtml)
+- 2026-06-30 03:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/129718.shtml)
+- 2026-06-30 03:44 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/969883732.shtml)
+- 2026-06-30 03:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/8525999028.shtml)
+- 2026-06-30 03:43 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/70635.shtml)
+- 2026-06-30 03:34 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/377452.shtml)
+- 2026-06-30 03:38 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/69334344033.shtml)
+- 2026-06-30 03:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/9010625494.shtml)
+- 2026-06-30 03:27 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/1619407119.shtml)
+- 2026-06-30 03:34 - [急先锋](http://www.share.kurohicncr.top/Article/details/0466936951.shtml)
+- 2026-06-30 03:43 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/09274769234.shtml)
+- 2026-06-30 03:26 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/536210056612.shtml)
+- 2026-06-30 03:45 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/7988176223.shtml)

@@ -1,57 +1,59 @@
-# （活力中国调研行）中国“超级X光机”助力破解关键技术难题
+# 大反弹！A股悄然收复4100点，这波行情究竟在“涨”什么？
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中国科学院高能物理研究所副所长、HEPS常务副总指挥董宇辉13日在北京表示，高能同步辐射光源自2025年12月正式试运行以来，截至今年4月底已支持近300个课题研究，吸引1000余名来访用户；计划今年年中完成国家验收后正式运行。 当日，记者随2026年“活力中国调研行”北京主题采访活动走进位于怀柔科学城的中国科学院高能物理研究
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股为何突然“易涨难跌”？答案藏在“大国复利”里。 “五一”小长假之前，上证指数重返4100点。自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。 “股市未必是经济的晴雨表，但一定是社会预期的晴雨表
 
 ## 正文
 
-中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中国科学院高能物理研究所副所长、HEPS常务副总指挥董宇辉13日在北京表示，高能同步辐射光源自2025年12月正式试运行以来，截至今年4月底已支持近300个课题研究，吸引1000余名来访用户；计划今年年中完成国家验收后正式运行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当日，记者随2026年“活力中国调研行”北京主题采访活动走进位于怀柔科学城的中国科学院高能物理研究所，探访中国第一台高能量的第四代同步辐射光源——高能同步辐射光源(HEPS)。
+A股为何突然“易涨难跌”？
 
-董宇辉表示，形象来讲，HEPS就是一台巨大的X光机。
+答案藏在“大国复利”里。
 
-“我们建造一个加速器，把电子加速到非常接近光速，然后让电子发生偏转，发出很亮的X光，然后用这些X光来开展各种各样的测试”。
+“五一”小长假之前，上证指数重返4100点。
 
-HEPS是破解“卡脖子”技术难题、驱动原始创新的“微观眼睛”和“国之重器”，为航空航天、能源环境、生物医药等前沿科学和工程应用等多领域提供高品质的X光。
+自2025年10月以来，大盘已经悄然在4000点之上运行了7个月。
 
-例如，在高铁领域，HEPS能够给车轮做残余应力无损表征，在不损伤车轮的情况下测试其内部残余应力状态，为保障列车安全运行提供依据。
+上证指数在2024年一季度曾下探至2600点，从2600点到4100点是一段接近60%的反弹。
 
-HEPS已成为多学科交叉创新的重要平台。
+“股市未必是经济的晴雨表，但一定是社会预期的晴雨表。
 
-现场，北京大学助理教授、博雅青年学者鞠光旭实验团队正在进行24小时不间断、需持续三天的多学科交叉前沿实验。
+”正如中国人民大学重阳研究院院长王文所说，2023年二季度到2024年三季度，上证指数长期在2600点到3400点之间徘徊，长达多月的股市低迷，多少受了“中国见顶论”悲观论调影响。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 03:28 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 03:37 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:23 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 03:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 03:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 03:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 03:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 03:14 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 03:25 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 03:21 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 03:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 03:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 03:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 03:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 03:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 03:35 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 03:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 03:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 03:24 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 03:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 03:42 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 03:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/90434111.shtml)
-- 2026-06-30 03:35 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/31348.shtml)
-- 2026-06-30 03:37 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/2412190.shtml)
-- 2026-06-30 03:27 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/13747139.shtml)
-- 2026-06-30 03:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/0099427313.shtml)
-- 2026-06-30 03:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/0911791.shtml)
-- 2026-06-30 03:29 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/593711.shtml)
-- 2026-06-30 03:19 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/5415908.shtml)
-- 2026-06-30 03:27 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/1159869490.shtml)
-- 2026-06-30 03:17 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/130285.shtml)
-- 2026-06-30 03:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/14305111492.shtml)
-- 2026-06-30 03:15 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/546792229.shtml)
-- 2026-06-30 03:13 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/67542517930.shtml)
-- 2026-06-30 03:34 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/864682429740.shtml)
-- 2026-06-30 03:12 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/76348450052.shtml)
+- 2026-06-30 03:28 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/170158.shtml)
+- 2026-06-30 03:19 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/0161898.shtml)
+- 2026-06-30 03:29 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/632761.shtml)
+- 2026-06-30 03:28 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/59239.shtml)
+- 2026-06-30 03:36 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/818686.shtml)
+- 2026-06-30 03:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/108937756.shtml)
+- 2026-06-30 03:18 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/66229568.shtml)
+- 2026-06-30 03:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/6298134000.shtml)
+- 2026-06-30 03:37 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/96442241.shtml)
+- 2026-06-30 03:27 - [日本进球](https://www.blog.kurohicncr.top/Article/details/24616157.shtml)
+- 2026-06-30 03:21 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/339764261.shtml)
+- 2026-06-30 03:23 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/022660.shtml)
+- 2026-06-30 03:23 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/14328199.shtml)
+- 2026-06-30 03:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/85595667.shtml)
+- 2026-06-30 03:29 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/1834023.shtml)

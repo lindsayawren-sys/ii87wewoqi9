@@ -1,61 +1,61 @@
-# “2026中意文化对话行”走进佛罗伦萨 海派文化绽放文艺复兴发源地
+# 特朗普施压FDA局长批准调味电子烟 马卡里或被迫改弦更张
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网佛罗伦萨6月14日电(记者 樊中华)当地时间6月12日下午，“2026中意文化对话行”活动走进佛罗伦萨，在塞斯托-菲奥伦蒂诺(Sesto Fiorentino)市政厅举办中意文化与产业交流座谈会。中国驻佛罗伦萨总领馆副总领事、当地政府官员、在意华侨企业家与来自中国的文化使者和企业家们进行了深入交流。 意大利中华炎黄文化研究会会长何建爵致辞表示，文化是中意双方联通彼此心灵、
+据媒体周二援引知情人士报道，美国总统特朗普上周末对食品药品监督管理局（FDA）局长马蒂·马卡里提出严厉批评，指责其在批准调味电子烟和尼古丁产品方面行动过于迟缓。 特朗普通过多轮电话及白宫会谈，向顾问询问调味电子烟对年轻MAGA选民的重要性。顾问们将马卡里描述为总统推进电子烟议程的“障碍”，并告知特朗普，马卡里此前曾违背白宫意愿，拒绝批准洛杉矶制造商Glas的薄荷、芒果和蓝莓口味
 
 ## 正文
 
-中新网佛罗伦萨6月14日电(记者 樊中华)当地时间6月12日下午，“2026中意文化对话行”活动走进佛罗伦萨，在塞斯托-菲奥伦蒂诺(Sesto Fiorentino)市政厅举办中意文化与产业交流座谈会。
+据媒体周二援引知情人士报道，美国总统特朗普上周末对食品药品监督管理局（FDA）局长马蒂·马卡里提出严厉批评，指责其在批准调味电子烟和尼古丁产品方面行动过于迟缓。
 
-中国驻佛罗伦萨总领馆副总领事、当地政府官员、在意华侨企业家与来自中国的文化使者和企业家们进行了深入交流。
+特朗普通过多轮电话及白宫会谈，向顾问询问调味电子烟对年轻MAGA选民的重要性。
 
-意大利中华炎黄文化研究会会长何建爵致辞表示，文化是中意双方联通彼此心灵、凝聚合作共识的最动人的纽带。
+顾问们将马卡里描述为总统推进电子烟议程的“障碍”，并告知特朗普，马卡里此前曾违背白宫意愿，拒绝批准洛杉矶制造商Glas的薄荷、芒果和蓝莓口味产品。
 
-此次活动来到佛罗伦萨，将在平等包容的文明对话中拉近彼此距离，推动文化交流赋能经贸、科技等多领域的务实合作。
+FDA自2020年起已禁止调味电子烟弹上市，目前仅允许41款烟草或薄荷醇口味产品销售。
 
-中新社国际传播集团上海分公司执行总经理达利敏在致辞中表示，佛罗伦萨与上海两地虽相隔万里，却有着深厚的文化共鸣。
+特朗普在2024年竞选期间承诺“拯救”电子烟行业，此番施压标志其政策立场较第一任期发生180度转变。
 
-此次活动中，文化使者将探寻文明共通内涵，中意企业将共商合作机遇，推动佛罗伦萨文艺复兴精神与上海海派文化深度交融。
+报道称，特朗普与马卡里已就政策转向进行沟通，马卡里正考虑对调味产品审批持更开放态度，但其此前一直担忧水果和糖果口味对青少年产生独特吸引力。
 
-来自上海的企业家们在现场分享了文化交流底色上的合作愿景。
+目前尚不清楚最终决定是否已作出。
 
-上海市工商联文化商会会长、上海渠丰国际贸易有限公司董事长杨震华表示，上海是中国民营文化产业发展最活跃的沃土之一，近年来，不仅有兼具创新活力与市场影响力的行业头部企业，更成长起一大批深耕细分领域、拥有核心竞争力的中小微文化创意主体。
+消息传出后，Turning Point Brands上涨3.2%，英美烟草上涨1.7%，菲利普·莫里斯和奥驰亚收窄早盘跌幅。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 03:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:41 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:41 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 03:18 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 03:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 03:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 03:19 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 03:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 03:15 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 03:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 03:12 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 03:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 03:40 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 03:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 03:24 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 03:40 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 03:27 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 03:22 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 03:27 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 03:44 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 03:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 03:33 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 03:31 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 03:21 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 03:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 03:26 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 03:43 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 03:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:18 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/4080210.shtml)
-- 2026-06-30 03:29 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/82546396.shtml)
-- 2026-06-30 03:32 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/1894705.shtml)
-- 2026-06-30 03:17 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/6083830.shtml)
-- 2026-06-30 03:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2996016.shtml)
-- 2026-06-30 03:35 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/04669918411.shtml)
-- 2026-06-30 03:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/8226407.shtml)
-- 2026-06-30 03:16 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/6575961.shtml)
-- 2026-06-30 03:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/349631.shtml)
-- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/5533368238.shtml)
-- 2026-06-30 03:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/942476671616.shtml)
-- 2026-06-30 03:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/82749.shtml)
-- 2026-06-30 03:33 - [天道](https://www.blog.minike.top/Article/details/222369924.shtml)
-- 2026-06-30 03:14 - [极限挑战第一季](https://www.blog.minike.top/Article/details/06386485.shtml)
-- 2026-06-30 03:36 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/838442995.shtml)
+- 2026-06-30 03:35 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/997993100074.shtml)
+- 2026-06-30 03:44 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/480161665.shtml)
+- 2026-06-30 03:31 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/091327538.shtml)
+- 2026-06-30 03:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/92138234.shtml)
+- 2026-06-30 03:32 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/9708046.shtml)
+- 2026-06-30 03:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/6071763846.shtml)
+- 2026-06-30 03:22 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/51435.shtml)
+- 2026-06-30 03:22 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/306634095.shtml)
+- 2026-06-30 03:34 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/30789350164.shtml)
+- 2026-06-30 03:35 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/586018146.shtml)
+- 2026-06-30 03:46 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/95572123.shtml)
+- 2026-06-30 03:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/066922266.shtml)
+- 2026-06-30 03:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/424491467.shtml)
+- 2026-06-30 03:28 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/48292362663.shtml)
+- 2026-06-30 03:39 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/086003988050.shtml)

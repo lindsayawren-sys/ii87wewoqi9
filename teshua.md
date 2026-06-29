@@ -1,54 +1,58 @@
-# 京东方A、“易中天”遭猛烈抛售
+# 破7.5亿！五一档票房超过去年同期
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨叶映橙 视频丨柳润瑛 本周（6月8日至6月12日）主力资金大幅涌入算力与关键矿产领域，其中，算力龙头海光信息获主力净流入26.86亿元，位居全市场流入首位，宏景科技、中微公司分别净流入13.13亿元、12.98亿元。关键矿产领域，氢氧化锂龙头天华新能获主力资金净流入24.93亿元，铜陵有
+据网络平台数据 截至5月5日19时53分 2026年五一档总票房(含预售) 突破7.5亿元 超过去年五一档总票房(7.47亿元) 观影人次突破2060万 放映场次突破237.6万场 皆超去年同期 票价创下四年最优惠 全国多地推出观影惠民补贴 今年五一档，电影市场热度持续走高，十余部新片集中上映，涵盖悬疑、动作、温情、动画等多种题材，为不同观众提供了丰富选择。既有红色题材影片《浴
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据网络平台数据 截至5月5日19时53分 2026年五一档总票房(含预售) 突破7.5亿元 超过去年五一档总票房(7.47亿元) 观影人次突破2060万 放映场次突破237.6万场 皆超去年同期 票价创下四年最优惠 全国多地推出观影惠民补贴 今年五一档，电影市场热度持续走高，十余部新片集中上映，涵盖悬疑、动作、温情、动画等多种题材，为不同观众提供了丰富选择。
 
-记者丨李益文 编辑丨叶映橙 视频丨柳润瑛 本周（6月8日至6月12日）主力资金大幅涌入算力与关键矿产领域，其中，算力龙头海光信息获主力净流入26.86亿元，位居全市场流入首位，宏景科技、中微公司分别净流入13.13亿元、12.98亿元。
+既有红色题材影片《浴血困牛山》带领观众回望峥嵘岁月；也有现实题材影片《给阿嬷的情书》，以真诚叙事诠释潮汕文化底蕴与侨乡情感；动作片《寒战1994》延续硬核港式警匪风格，悬疑片《消失的人》则以层层反转带来悬疑推理体验。
 
-关键矿产领域，氢氧化锂龙头天华新能获主力资金净流入24.93亿元，铜陵有色、盛新锂能分别获主力资金净流入17.08亿元、13.74亿元，天齐锂业、章源钨业获主力资金净流入均超13亿元。
+不仅影片供给丰富，今年五一档的观影福利同样诚意满满。
 
-另一边，此前大热的光模块、通信设备及面板等板块遭主力猛烈抛售。
+数据显示，五一档首日全国平均票价36.8元，创下近四年同期最低，不少观众直呼“看电影更划算了”。
 
-面板龙头京东方A本周主力资金净流出高达69.04亿元，光模块核心标的新易盛、中际旭创、天孚通信遭主力资金分别净流出66.1亿元、57.33亿元、46.72亿元；通信设备赛道同步遭遇大额资金离场，亨通光电、沪电股份、长电科技遭主力资金分别净流出41.02亿元、39.4亿元、36.93亿元；此外，工业富联、中兴通讯、立讯精密本周主力资金净流出均超33亿元。
+票价更亲民，背后离不开多方补贴“加码”。
 
-责任编辑：凌辰
+一方面，票务平台票补力度加大，推出大量特惠票；另一方面，北京、河北、浙江、安徽、广西、湖南、湖北、四川、贵州、云南、陕西、吉林等地也相继推出观影补贴、消费券等惠民活动，让观众实实在在享受到优惠。
+
+今年是电影经济促进年，全年预计投放不少于12亿元惠民观影补贴。
+
+截至目前，相关金融机构与票务平台累计核销观影优惠补贴已超过3.5亿元，带动电影票房超29.6亿元。
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 03:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 03:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 03:19 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 03:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 03:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 03:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 03:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 03:38 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 03:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 03:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 03:32 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 03:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 03:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 03:22 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 03:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 03:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 03:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 03:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 03:45 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 03:35 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 03:45 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 03:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 03:26 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/4871430065.shtml)
-- 2026-06-30 03:26 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/399859325049.shtml)
-- 2026-06-30 03:17 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/81916208834.shtml)
-- 2026-06-30 03:36 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/4253057.shtml)
-- 2026-06-30 03:40 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/68875.shtml)
-- 2026-06-30 03:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/14257062458.shtml)
-- 2026-06-30 03:40 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/794235014743.shtml)
-- 2026-06-30 03:26 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/70955413.shtml)
-- 2026-06-30 03:29 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/2934608.shtml)
-- 2026-06-30 03:35 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/13087262.shtml)
-- 2026-06-30 03:13 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/90858372.shtml)
-- 2026-06-30 03:37 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/39394595.shtml)
-- 2026-06-30 03:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/870686750.shtml)
-- 2026-06-30 03:39 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/0353022.shtml)
-- 2026-06-30 03:24 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/756790052.shtml)
+- 2026-06-30 03:37 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/459338444828.shtml)
+- 2026-06-30 03:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/4345514314.shtml)
+- 2026-06-30 03:22 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/123202279.shtml)
+- 2026-06-30 03:41 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/07506.shtml)
+- 2026-06-30 03:43 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/399588.shtml)
+- 2026-06-30 03:46 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/525679744.shtml)
+- 2026-06-30 03:28 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/435676462747.shtml)
+- 2026-06-30 03:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/636455.shtml)
+- 2026-06-30 03:30 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/692913271.shtml)
+- 2026-06-30 03:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/4334193626.shtml)
+- 2026-06-30 03:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/79231.shtml)
+- 2026-06-30 03:28 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/26423938714.shtml)
+- 2026-06-30 03:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/741959675.shtml)
+- 2026-06-30 03:25 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/570315364.shtml)
+- 2026-06-30 03:29 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/028223715.shtml)

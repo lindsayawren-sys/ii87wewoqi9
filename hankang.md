@@ -1,59 +1,46 @@
-# 圣戈班17.6亿美元向凯斯科出售达尔分销业务
+# 英国海军：迪拜附近一艘货船报告轮机舱发生火灾
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。 这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易
+英国海事贸易行动办公室（UKMTO）表示，一艘位于迪拜附近的货船报告其轮机舱起火。 火灾原因尚不清楚，该事件发生在迪拜以北约36海里处。责任编辑：李桐
 
 ## 正文
 
-欧洲早盘圣戈班股价上涨 5.8%，凯斯科大跌 9.1% 法国建材巨头圣戈班达成交易，将旗下达尔分销业务出售给芬兰零售企业凯斯科（股票代码 KESKOB，跌幅 10.23%），消息公布后圣戈班股价走高。
+英国海事贸易行动办公室（UKMTO）表示，一艘位于迪拜附近的货船报告其轮机舱起火。
 
-这家法国集团于周一披露，已签署具有法律约束力的收购协议，将其布局瑞典、挪威、丹麦市场的达尔业务售予凯斯科，交易总对价含债务在内达 15.2 亿欧元（折合 17.6 亿美元），交易预计 2027 年初完成交割。
+火灾原因尚不清楚，该事件发生在迪拜以北约36海里处。
 
-欧洲早盘时段，圣戈班股价大涨 5.8%，而凯斯科股价重挫 9.1%。
-
-凯斯科表示，本次收购将为公司吸纳北欧地区大量水暖、卫浴、供暖专业渠道客户，同时称这是企业成立以来规模最大的一笔收购交易。
-
-完成收购后，建材与工业技术贸易板块将成为凯斯科旗下规模最大的业务线。
-
-凯斯科总裁兼首席执行官约尔马・劳哈拉表示：“多年来我们一直在寻觅大规模收购机会，尤其是北欧工业技术贸易赛道，优质收购标的十分稀缺。
-
-” 建材供应商圣戈班称，本次剥离达尔业务，是集团优化整体资产组合战略规划的重要一步。
-
-责任编辑：郭明煜
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 03:35 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 03:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 03:18 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 03:23 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 03:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 03:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 03:19 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 03:16 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 03:36 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 03:37 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:24 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 03:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 03:22 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:27 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 03:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 03:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 03:30 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 03:24 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 03:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 03:21 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/936255.shtml)
-- 2026-06-30 03:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/1725173343.shtml)
-- 2026-06-30 03:18 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/3519859675.shtml)
-- 2026-06-30 03:37 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/147275948073.shtml)
-- 2026-06-30 03:13 - [一生一世](http://www.blog.minike.top/Article/details/698628.shtml)
-- 2026-06-30 03:40 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/71187991.shtml)
-- 2026-06-30 03:32 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/062665.shtml)
-- 2026-06-30 03:26 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/59408177.shtml)
-- 2026-06-30 03:32 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/40884010.shtml)
-- 2026-06-30 03:36 - [毒液2](http://www.share.minike.top/Article/details/557473693230.shtml)
-- 2026-06-30 03:20 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2740152201.shtml)
-- 2026-06-30 03:39 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/65284060.shtml)
-- 2026-06-30 03:38 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/973855911575.shtml)
-- 2026-06-30 03:14 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/116960588979.shtml)
-- 2026-06-30 03:39 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/9462338336.shtml)
+- 2026-06-30 03:32 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/16692566.shtml)
+- 2026-06-30 03:36 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/28161727909.shtml)
+- 2026-06-30 03:22 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/80605073.shtml)
+- 2026-06-30 03:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/175928794.shtml)
+- 2026-06-30 03:27 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/304552.shtml)
+- 2026-06-30 03:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/03227.shtml)
+- 2026-06-30 03:41 - [美股](https://www.share.minike.top/Article/details/94769.shtml)
+- 2026-06-30 03:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/1376343754.shtml)
+- 2026-06-30 03:20 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/885878743.shtml)
+- 2026-06-30 03:22 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/4049663954.shtml)
+- 2026-06-30 03:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/20434898569.shtml)
+- 2026-06-30 03:36 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/946168690028.shtml)
+- 2026-06-30 03:29 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/426457933035.shtml)
+- 2026-06-30 03:37 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/741741.shtml)
+- 2026-06-30 03:44 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/775036560405.shtml)

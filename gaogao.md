@@ -1,57 +1,51 @@
-# 践行习近平总书记重要论述深入实施能源安全新战略
+# eBay确认收到GameStop主动发起的收购要约
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-能源安全是关系国家经济社会发展的全局性、战略性问题。 “抓住能源就抓住了国家发展和安全战略的牛鼻子”，2014年6月13日，习近平总书记主持召开中央财经领导小组第六次会议，提出“四个革命、一个合作”能源安全新战略，为新时代能源发展指明前进方向、提供根本遵循。 新时代新征程上，沿着习近平总书记指引的方向，我国加快构建清洁低碳安全高效的新型能源体系，推动能源供应链韧性和安全水平不断
+eBay在声明中确认，已收到GameStop主动提出的、不具约束力的收购提议。 eBay表示，在收到该提议之前，公司未与GameStop进行任何讨论，也未接到对方接洽： “eBay董事会将在其财务和法律顾问的协助下，审慎评估这一未经请求的提议，以确定其认为符合公司及全体股东最佳利益的行动方案”； 建议股东目前不要采取任何行动； 董事会将重点评估该提议为eBay股东带来的价值，包
 
 ## 正文
 
-能源安全是关系国家经济社会发展的全局性、战略性问题。
+eBay在声明中确认，已收到GameStop主动提出的、不具约束力的收购提议。
 
-“抓住能源就抓住了国家发展和安全战略的牛鼻子”，2014年6月13日，习近平总书记主持召开中央财经领导小组第六次会议，提出“四个革命、一个合作”能源安全新战略，为新时代能源发展指明前进方向、提供根本遵循。
+eBay表示，在收到该提议之前，公司未与GameStop进行任何讨论，也未接到对方接洽： “eBay董事会将在其财务和法律顾问的协助下，审慎评估这一未经请求的提议，以确定其认为符合公司及全体股东最佳利益的行动方案”； 建议股东目前不要采取任何行动； 董事会将重点评估该提议为eBay股东带来的价值，包括GameStop股票对价的价值，以及GameStop提出具有约束力、可执行提议的能力； 公司表示，在董事会对该提议进行进一步全面审慎评估之前，无意提供更多评论。
 
-新时代新征程上，沿着习近平总书记指引的方向，我国加快构建清洁低碳安全高效的新型能源体系，推动能源供应链韧性和安全水平不断提升，正在走出一条符合中国国情、顺应全球发展大势、适应时代要求的能源高质量发展之路，为加快建设能源强国创造有利条件、夯实长远根基。
-
-强化战略引领 夯实能源安全根基 5月27日，我国渤海亿吨级油田垦利10-2油田群一期项目全面投产，油田原油日产量超2800吨，探明地质储量超1亿吨，是我国海上最大规模浅层岩性油田。
-
-加快油气增储上产步伐，持续筑牢能源战略安全底线。
-
-当前，美以伊冲突已持续百余日，全球能源贸易秩序遇到严峻挑战，我国能源供应平稳有序，经济发展彰显韧性与底气。
-
-进入新时代，我国已成为世界上最大的能源生产国和能源消费国，面临从“能源大国”向“能源强国”转变的迫切需要。
-
-2014年6月13日，在中央财经领导小组第六次会议上，习近平总书记强调：“面对能源供需格局新变化、国际能源发展新趋势，保障国家能源安全，必须推动能源生产和消费革命。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 03:24 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 03:34 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 03:31 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 03:22 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 03:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 03:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 03:40 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 03:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 03:31 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 03:22 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 03:31 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:20 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 03:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 03:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 03:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 03:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 03:33 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 03:27 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 03:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 03:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 03:24 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 03:31 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 03:46 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 03:19 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 03:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/5259973.shtml)
-- 2026-06-30 03:24 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/12480.shtml)
-- 2026-06-30 03:19 - [斗破苍穹](https://www.share.minike.top/Article/details/663822438580.shtml)
-- 2026-06-30 03:19 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/93306.shtml)
-- 2026-06-30 03:32 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/61270480006.shtml)
-- 2026-06-30 03:16 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/12247.shtml)
-- 2026-06-30 03:16 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/944692449431.shtml)
-- 2026-06-30 03:14 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/70960723091.shtml)
-- 2026-06-30 03:26 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/7463132.shtml)
-- 2026-06-30 03:41 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/891790.shtml)
-- 2026-06-30 03:39 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/376127958448.shtml)
-- 2026-06-30 03:23 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/997206475161.shtml)
-- 2026-06-30 03:13 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/52026679473.shtml)
-- 2026-06-30 03:24 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/45822.shtml)
-- 2026-06-30 03:16 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/59633305352.shtml)
+- 2026-06-30 03:36 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/07412742.shtml)
+- 2026-06-30 03:27 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/444275125221.shtml)
+- 2026-06-30 03:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/63428.shtml)
+- 2026-06-30 03:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/689273939356.shtml)
+- 2026-06-30 03:18 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/584730118242.shtml)
+- 2026-06-30 03:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/74374274.shtml)
+- 2026-06-30 03:22 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/258182211.shtml)
+- 2026-06-30 03:23 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5528816870.shtml)
+- 2026-06-30 03:43 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/7882328.shtml)
+- 2026-06-30 03:47 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/9727553874.shtml)
+- 2026-06-30 03:30 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/732511447.shtml)
+- 2026-06-30 03:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/8507168031.shtml)
+- 2026-06-30 03:34 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/601351599.shtml)
+- 2026-06-30 03:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/5972026.shtml)
+- 2026-06-30 03:35 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/12630799506.shtml)

@@ -1,50 +1,58 @@
-# 【活力中国调研行】机器人什么时候能当保姆？企业：5到10年就可以
+# 约2.3万人次到场观赛 2026上海浪琴环球马术冠军赛落幕
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月13日 23:11 来源：中国新闻网 6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。在园区的一家企业里，记者看到该企业的机器人正在演示桌面杂物自主规整和小型扭蛋精细化抓取。该企业市场负责人郭怡然告诉记者，这些模拟训练都是在为机器人走进千家万户做技术和模型上的储备，通过给机器人灌输基础认知再加以模型
+中新网上海5月4日电 (记者 缪璐)5月3日，为期三天的2026上海浪琴环球马术冠军赛在上海久事国际马术中心落幕。当天进行的最高组别1.60米浪琴大奖赛中，出身于马术世家的比利时骑手尼古拉·费利佩尔茨(Nicola Philippaerts)凭借完美发挥夺得冠军。 2026年恰逢农历马年，也是赛事落户上海后的第二个马年，十二年轮回再启，赋予赛事更多特殊意义。上海浪琴环球马术冠军
 
 ## 正文
 
-发布时间：2026年06月13日 23:11 来源：中国新闻网 6月13日，记者跟随2026年“活力中国调研行”北京主题采访活动走进中关村(海淀)具身智能创新产业园。
+中新网上海5月4日电 (记者 缪璐)5月3日，为期三天的2026上海浪琴环球马术冠军赛在上海久事国际马术中心落幕。
 
-在园区的一家企业里，记者看到该企业的机器人正在演示桌面杂物自主规整和小型扭蛋精细化抓取。
+当天进行的最高组别1.60米浪琴大奖赛中，出身于马术世家的比利时骑手尼古拉·费利佩尔茨(Nicola Philippaerts)凭借完美发挥夺得冠军。
 
-该企业市场负责人郭怡然告诉记者，这些模拟训练都是在为机器人走进千家万户做技术和模型上的储备，通过给机器人灌输基础认知再加以模型训练，未来5到10年，机器人就能够走进千家万户，成为人们处理家务的一个好帮手。
+2026年恰逢农历马年，也是赛事落户上海后的第二个马年，十二年轮回再启，赋予赛事更多特殊意义。
 
-(记者 刘世炯 陈杭 制作 刘鹏) 责任编辑：【张令旗】
+上海浪琴环球马术冠军赛连续第三年在上海久事国际马术中心举办。
+
+赛事不仅为全球马术爱好者呈现了一场高水准的竞技盛宴，更在“五一”黄金周打造出文商旅体展深度融合的城市假日消费新场景。
+
+三天以来，共计约2.3万人次观众到现场观赛，其中境外观众占比约11%，外省市观众占比约45%，赛事票房较去年提升约10%。
+
+赛场上，现世界排名第一、英国人气骑手斯科特·布拉什(Scott Brash)，世界排名第四、手握东京奥运会个人赛冠军的英国骑手本·马赫(Ben Maher)和潜力无限的德国新生代女骑手索菲·希纳斯(Sophie Hinners)等一众名将尽展跃障之间的力量美学。
+
+开赛首日，2025浪琴环球马术冠军赛年度总冠军、世界排名第五的比利时骑手吉尔斯·托马斯(Gilles Thomas)就在今年新增的1.60米环球团体冠军赛个人赛中斩获冠军；随后他在2日进行的1.50米争时赛(含附加赛)中以零罚分、36.91秒再下一城，收获上海之行的第二座冠军奖杯。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 03:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 03:30 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 03:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 03:31 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 03:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 03:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 03:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 03:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 03:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 03:35 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 03:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 03:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 03:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 03:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 03:43 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 03:23 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 03:29 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 03:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 03:43 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 03:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 03:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 03:27 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/854986.shtml)
-- 2026-06-30 03:25 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/837403.shtml)
-- 2026-06-30 03:25 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/52745.shtml)
-- 2026-06-30 03:36 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/39351626894.shtml)
-- 2026-06-30 03:27 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/42760906.shtml)
-- 2026-06-30 03:15 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/895701111671.shtml)
-- 2026-06-30 03:32 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/39741.shtml)
-- 2026-06-30 03:34 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/73535245700.shtml)
-- 2026-06-30 03:13 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/4193587578.shtml)
-- 2026-06-30 03:29 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/98138.shtml)
-- 2026-06-30 03:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/1250381235.shtml)
-- 2026-06-30 03:16 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/1322255.shtml)
-- 2026-06-30 03:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/1990487691.shtml)
-- 2026-06-30 03:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/48271551.shtml)
-- 2026-06-30 03:16 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/655946.shtml)
+- 2026-06-30 03:28 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/55494286422.shtml)
+- 2026-06-30 03:40 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/419068.shtml)
+- 2026-06-30 03:25 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/147261827294.shtml)
+- 2026-06-30 03:35 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/156054942.shtml)
+- 2026-06-30 03:18 - [世界杯](https://www.blog.minike.top/Article/details/1845479.shtml)
+- 2026-06-30 03:42 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/460023509.shtml)
+- 2026-06-30 03:22 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/960044.shtml)
+- 2026-06-30 03:41 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/557620841.shtml)
+- 2026-06-30 03:35 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/508230864490.shtml)
+- 2026-06-30 03:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/231525739459.shtml)
+- 2026-06-30 03:32 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/883865.shtml)
+- 2026-06-30 03:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/399313308426.shtml)
+- 2026-06-30 03:21 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/76694386411.shtml)
+- 2026-06-30 03:29 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/28494569191.shtml)
+- 2026-06-30 03:22 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/647640178.shtml)

@@ -1,59 +1,57 @@
-# 盱眙龙虾节精彩启幕 美食文旅融合激活夜间消费
+# 芒格书院施宏俊：价投和风投在核心原则上一致——投对的人
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。近日，第26届盱眙龙虾节欢乐龙虾宴开启。当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。 围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色
+专题：对话奥马哈·第十一届中美投资人酒会 2026年5月2日，在伯克希尔·哈撒韦股东大会期间举行的新浪财经中美投资人酒会主题论坛“价值投资的当代实践”上，芒格书院创始人施宏俊回溯了价值投资的历史起点。他提到，1956年26岁的巴菲特在奥马哈创立首家合伙公司，募资仅10万美元，却由此开启了持续70年的价值投资时代；几乎同一时期，仙童半导体的成立则标志着风险投资模式的兴起，推动了硅
 
 ## 正文
 
-发布时间：2026年06月15日 07:56 来源：中国新闻网 眼下正值小龙虾消费旺季。
+专题：对话奥马哈·第十一届中美投资人酒会 2026年5月2日，在伯克希尔·哈撒韦股东大会期间举行的新浪财经中美投资人酒会主题论坛“价值投资的当代实践”上，芒格书院创始人施宏俊回溯了价值投资的历史起点。
 
-近日，第26届盱眙龙虾节欢乐龙虾宴开启。
+他提到，1956年26岁的巴菲特在奥马哈创立首家合伙公司，募资仅10万美元，却由此开启了持续70年的价值投资时代；几乎同一时期，仙童半导体的成立则标志着风险投资模式的兴起，推动了硅谷的诞生。
 
-当地以虾为媒，融合特色美食、潮流演艺与文旅休闲项目，丰富夜间消费业态，持续释放消费活力。
+两种投资范式在同一历史节点出现，却走向了截然不同的路径。
 
-在盱眙龙虾广场，千余桌整齐摆放，全国各地游客齐聚一堂。
+施宏俊指出，风险投资以寻找颠覆性技术和商业模式为核心，强调对变化的敏感与前沿布局；而价值投资则更关注在变化世界中寻找“不被改变”的公司，其核心在于稳定现金流与可持续竞争优势。
 
-十三香、蒜泥、麻辣、冰镇等多款口味小龙虾鲜香诱人。
+他引用巴菲特在1999年互联网泡沫时期的反思强调，在产业剧变中，投资者更应思考“谁会失败”，而非仅关注行业增长性，真正的关键在于判断具体公司是否具备长期护城河。
 
-围绕小龙虾主题，当地打造“龙虾+音乐”“龙虾+足球”等特色内容，拉动夜间文旅消费。
+不过，在他看来，价值投资与风险投资在一个核心原则上高度一致——“投对的人”。
 
-同时当地推出票根经济，游客凭活动门票可免费游玩多家景区，并享受餐饮、住宿相关优惠，延伸文旅消费产业链。
+无论是巴菲特近年来反复强调的“the right person”，还是投资案例中将管理者置于首位的判断逻辑，最终都指向同一结论：无论是寻找伟大公司，还是押注未来技术，识别并信任正确的人，是穿越周期的底层能力。
 
-(记者 葛勇 江苏盱眙报道 视频来源 淮安台 盱眙台） 责任编辑：【黄钰涵】
+附演讲全文： 今天的论坛主题是“价值投资的当代实践”，但是，我想先把时间拉到更远一点，回到巴菲特的青年时代。
 
 ## 相关推荐
 
-- 2026-06-30 03:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 03:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 03:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 03:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 03:12 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 03:14 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 03:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 03:16 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 03:29 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 03:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 03:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 03:15 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 03:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 03:20 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 03:29 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 03:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 03:19 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 03:32 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 03:37 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 03:45 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 03:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 03:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 03:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/24381514093.shtml)
-- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/17367787.shtml)
-- 2026-06-30 03:20 - [乔家的儿女](http://www.share.minike.top/Article/details/11452.shtml)
-- 2026-06-30 03:40 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/60629.shtml)
-- 2026-06-30 03:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9747542532.shtml)
-- 2026-06-30 03:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/554077186.shtml)
-- 2026-06-30 03:34 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/21904129141.shtml)
-- 2026-06-30 03:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/749172.shtml)
-- 2026-06-30 03:33 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/1209345.shtml)
-- 2026-06-30 03:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/34253073.shtml)
-- 2026-06-30 03:21 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/81777032982.shtml)
-- 2026-06-30 03:33 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/4765728210.shtml)
-- 2026-06-30 03:12 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/9466530842.shtml)
-- 2026-06-30 03:28 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/63092.shtml)
-- 2026-06-30 03:20 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/217980044.shtml)
+- 2026-06-30 03:32 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/3934733136.shtml)
+- 2026-06-30 03:39 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/427236.shtml)
+- 2026-06-30 03:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/08630095162.shtml)
+- 2026-06-30 03:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/6312634437.shtml)
+- 2026-06-30 03:40 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/69581018.shtml)
+- 2026-06-30 03:32 - [金刚川](http://www.share.minike.top/Article/details/337390.shtml)
+- 2026-06-30 03:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/613340.shtml)
+- 2026-06-30 03:38 - [沙丘](http://www.share.kurohicncr.top/Article/details/27045941451.shtml)
+- 2026-06-30 03:34 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/9635430053.shtml)
+- 2026-06-30 03:30 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/87132136.shtml)
+- 2026-06-30 03:44 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/1305850962.shtml)
+- 2026-06-30 03:33 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/76921559.shtml)
+- 2026-06-30 03:23 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/20200830.shtml)
+- 2026-06-30 03:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/9544625.shtml)
+- 2026-06-30 03:19 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/65642223728.shtml)

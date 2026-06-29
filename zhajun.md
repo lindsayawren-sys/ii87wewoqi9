@@ -1,47 +1,58 @@
-# 总书记关心的世界级非遗｜昆腔婉转韵悠长
+# 铜价高烧与价格战夹击，格力去年营收净利双降近10％，2026空调“内卷”向何方
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 21:17 来源：新华社 责任编辑：【李骏】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！华夏时报记者 卢晓 北京报道 持续上涨的铜价和激烈的价格战，在2025年给予空调行业双重夹击，行业龙头格力电器（下称“格力”）也未能幸免。 4月28日晚间，格力交出了一份营收和归母净利润双双同比下降近10%的2025年成绩单。但有意思的是，格力股价在次日却以上涨5.28%收尾，4月30日格力股价微降1.05
 
 ## 正文
 
-发布时间：2026年06月14日 21:17 来源：新华社 责任编辑：【李骏】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+华夏时报记者 卢晓 北京报道 持续上涨的铜价和激烈的价格战，在2025年给予空调行业双重夹击，行业龙头格力电器（下称“格力”）也未能幸免。
+
+4月28日晚间，格力交出了一份营收和归母净利润双双同比下降近10%的2025年成绩单。
+
+但有意思的是，格力股价在次日却以上涨5.28%收尾，4月30日格力股价微降1.05%至40.05元。
+
+资本市场的“波澜不惊”，一定程度上源于格力也及时抛出了慷慨的回购和分红方案，新出炉的今年一季报也显示出它已重回增长轨道。
+
+但此前格力与海信之间的“铜铝之争”已经释放出明显信号：空调市场今年的日子也不会太好过。
+
+双重夹击利润承压 格力一直是空调行业乃至整个白电企业的盈利标杆。
+
+但2025年它也没能扛住压力。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 03:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 03:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 03:38 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 03:24 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 03:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 03:17 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 03:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 03:18 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 03:40 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 03:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 03:13 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 03:34 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 03:26 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 03:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 03:42 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 03:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 03:29 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 03:36 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 03:41 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 03:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 03:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 03:35 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 03:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 03:19 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/16937.shtml)
-- 2026-06-30 03:30 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/16572.shtml)
-- 2026-06-30 03:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/82257.shtml)
-- 2026-06-30 03:38 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/5424030.shtml)
-- 2026-06-30 03:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/7519391.shtml)
-- 2026-06-30 03:13 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/446570638142.shtml)
-- 2026-06-30 03:36 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/10183886231.shtml)
-- 2026-06-30 03:18 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/1859186074.shtml)
-- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/3065189484.shtml)
-- 2026-06-30 03:12 - [时光音乐会](https://www.share.minike.top/Article/details/6595483.shtml)
-- 2026-06-30 03:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/308888548.shtml)
-- 2026-06-30 03:15 - [日本进球](http://www.share.minike.top/Article/details/023338.shtml)
-- 2026-06-30 03:25 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/46599.shtml)
-- 2026-06-30 03:38 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/73258167.shtml)
-- 2026-06-30 03:35 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/401636025536.shtml)
+- 2026-06-30 03:24 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/648822.shtml)
+- 2026-06-30 03:47 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/4019499.shtml)
+- 2026-06-30 03:45 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/14636187209.shtml)
+- 2026-06-30 03:34 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/02633609.shtml)
+- 2026-06-30 03:29 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/9272007.shtml)
+- 2026-06-30 03:30 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/4345535.shtml)
+- 2026-06-30 03:19 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/52596506.shtml)
+- 2026-06-30 03:40 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/38764663626.shtml)
+- 2026-06-30 03:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/6816564106.shtml)
+- 2026-06-30 03:43 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/6385938874.shtml)
+- 2026-06-30 03:19 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/56951586.shtml)
+- 2026-06-30 03:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/279297.shtml)
+- 2026-06-30 03:30 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/75348091.shtml)
+- 2026-06-30 03:41 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/81291.shtml)
+- 2026-06-30 03:42 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/01399256364.shtml)

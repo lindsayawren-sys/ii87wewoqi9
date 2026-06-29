@@ -1,58 +1,59 @@
-# 2026年全国竞走大奖赛（第3站）在陕启幕
+# 花草皆成致富景 浙江“生态美妆文旅”激发消费新活力
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。 本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。 城固县委常委、常务副县长杨奇涛表示，近年来，当地
+中新网杭州5月4日电(周其 问泽英)“玉瓣凉丛拥翠烟，南薰池阁灿云仙”。虽未到盛花期，浙江省温州市泰顺县的穆寨栀子花海基地仍在“五一”期间迎来大批游客打卡。“今年基地打造‘赏栀子花海、品栀子花茶’乡村文旅项目，‘五一’假期预计接待游客约2万人次。”基地负责人林淑静介绍，该基地建成后累计接待游客超10万人次。 依托栀子花作为化妆品原料的优势，泰顺走出了一条“种植+研发+旅游”融合
 
 ## 正文
 
-中新网陕西汉中6月13日电 (记者 张一辰)2026年全国竞走大奖赛(第3站)暨青少年竞走锦标赛暨竞走单项赛(第3站)13日在陕西城固县开幕，来自全国43支代表队的437名选手参赛。
+中新网杭州5月4日电(周其 问泽英)“玉瓣凉丛拥翠烟，南薰池阁灿云仙”。
 
-本次赛事由中国田径协会、陕西省体育局、汉中市人民政府主办，西安体育学院、陕西省田径运动管理中心、陕西省田径协会、汉中市体育局、城固县人民政府承办。
+虽未到盛花期，浙江省温州市泰顺县的穆寨栀子花海基地仍在“五一”期间迎来大批游客打卡。
 
-城固县委常委、常务副县长杨奇涛表示，近年来，当地把体育事业融入全县高质量发展大局，依托“体教大联盟”和“1+6竞走联盟”等创新模式，走出了一条具有地方特色的体教融合新路。
+“今年基地打造‘赏栀子花海、品栀子花茶’乡村文旅项目，‘五一’假期预计接待游客约2万人次。
 
-本次赛事分为全国竞走大奖赛、青少年竞走锦标赛、竞走单项赛三大板块，共计27个竞赛大项，其中多项赛事为中国田径协会Ⅱ级、Ⅲ级专业赛事，含金量十足。
+”基地负责人林淑静介绍，该基地建成后累计接待游客超10万人次。
 
-赛事涵盖成年组、U20、U18、U16等多个年龄组别，设置半程马拉松竞走、3公里、5公里、10公里个人竞走以及接力竞走等多个项目，全面考验选手的速度、耐力与节奏把控能力。
+依托栀子花作为化妆品原料的优势，泰顺走出了一条“种植+研发+旅游”融合发展之路，搭建“栀子花·共富工坊”，建成全国首家栀子花深加工观光工厂，带动浙闽交界区域5000多户农户增收，其中栀子花“赏花经济”已推动当地及周边县域旅游增收超5000万元。
 
-在当日进行的成年组半程马拉松竞走比赛中，陕西选手表现出色，杨宇喆、杨柳静分别摘得男子组与女子组桂冠。
+“栀子花不仅是好看的花，更是能致富的花。
 
-杨柳静赛后表示，她对自己本场比赛的状态和成绩十分满意。
+”泰顺县市场监督管理局党委委员曾长达感慨道。
 
-此次参赛主要是以赛代练，接下来她将全身心投入亚运会备战，力争在大赛中取得理想名次。
+这一致富图景，正是浙江“生态美妆+文旅”跨界融合的生动缩影。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:17 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 03:39 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 03:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 03:31 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 03:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 03:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 03:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 03:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 03:17 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 03:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 03:27 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 03:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 03:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 03:31 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 03:32 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 03:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 03:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 03:24 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 03:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 03:31 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 03:34 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 03:34 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 03:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:34 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/033747.shtml)
-- 2026-06-30 03:12 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/17224157.shtml)
-- 2026-06-30 03:30 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/851712762.shtml)
-- 2026-06-30 03:33 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/173368.shtml)
-- 2026-06-30 03:34 - [天道](http://www.blog.kurohicncr.top/Article/details/2772064642.shtml)
-- 2026-06-30 03:26 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/46530.shtml)
-- 2026-06-30 03:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/314683.shtml)
-- 2026-06-30 03:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/642480876635.shtml)
-- 2026-06-30 03:38 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/055690179.shtml)
-- 2026-06-30 03:35 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/208411502.shtml)
-- 2026-06-30 03:25 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/891601771.shtml)
-- 2026-06-30 03:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/007882474.shtml)
-- 2026-06-30 03:26 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/99024.shtml)
-- 2026-06-30 03:31 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/73809702.shtml)
-- 2026-06-30 03:24 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/7711777505.shtml)
+- 2026-06-30 03:26 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/221431.shtml)
+- 2026-06-30 03:20 - [扫黑风暴](https://www.share.minike.top/Article/details/3152550.shtml)
+- 2026-06-30 03:34 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/146485957440.shtml)
+- 2026-06-30 03:19 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/7743871.shtml)
+- 2026-06-30 03:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/10831762.shtml)
+- 2026-06-30 03:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/80958336.shtml)
+- 2026-06-30 03:18 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/245638007.shtml)
+- 2026-06-30 03:44 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/485067928885.shtml)
+- 2026-06-30 03:31 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/997155389432.shtml)
+- 2026-06-30 03:42 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/40624.shtml)
+- 2026-06-30 03:47 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/335416599545.shtml)
+- 2026-06-30 03:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/669320764859.shtml)
+- 2026-06-30 03:29 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/7429523.shtml)
+- 2026-06-30 03:31 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/71623316145.shtml)
+- 2026-06-30 03:47 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/88039524.shtml)

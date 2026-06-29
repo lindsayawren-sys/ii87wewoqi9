@@ -1,59 +1,56 @@
-# 创新药终于反击！520880单日大涨3.66%，周线终结7连阴！机构密集提示底部机会
+# 华宝基金科创人工智能ETF (589520)量价齐升！
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-6月12日，AH创新药携手上攻，显著跑赢大市！重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。 聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨
+4月最后一个交易日（4月30日）或由于一季度亮眼业绩提振，寒武纪20CM涨停，创历史新高，股价首次突破1600元，超越源杰科技，成为A股股价最高的股票。芯原股份、凌云光携手涨停助攻，科创人工智能指数一度领跑全市场，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内涨幅最高上探6.44%，收涨6.12%，全天成交额9089万元，环比激增158%。 科创人工智能方向
 
 ## 正文
 
-6月12日，AH创新药携手上攻，显著跑赢大市！
+4月最后一个交易日（4月30日）或由于一季度亮眼业绩提振，寒武纪20CM涨停，创历史新高，股价首次突破1600元，超越源杰科技，成为A股股价最高的股票。
 
-重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）场内价格分别收涨2.31%、3.66%。
+芯原股份、凌云光携手涨停助攻，科创人工智能指数一度领跑全市场，重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内涨幅最高上探6.44%，收涨6.12%，全天成交额9089万元，环比激增158%。
 
-沪指涨1.12%重返4000点，恒指涨1.93%终结7连跌。
+科创人工智能方向为何强势上涨？
 
-聚焦港股通创新药板块，诺诚建华、荣昌生物飙升逾7%强势领涨！
+或可从三个维度进行拆解： 1、宏观层面，高层在讲话中指出，要多路线布局前沿技术探索，全链条推进关键核心技术攻关，不断巩固人工智能发展领先地位。
 
-权重龙头集体力挺：信达生物、康方生物大涨4.8%，中国生物制药、科伦博泰生物涨超5%，百济神州、翰森制药、三生制药齐涨超2%。
+在科技博弈的背景下，AI作为核心技术，实现自主可控至关重要。
 
-热门ETF方面，100%创新药研发标的——港股通创新药ETF华宝（520880）全天震荡上行，盘中摸高3.92%，收涨3.66%，创下4月16日以来最大单日升幅，全天成交5.28亿元，较上日激增逾77%！
+2、产业层面，东方证券指出，市场低估了此前DeepSeek-V4发布对于国产算力产业链的带动*。
 
-本周，港股通创新药初现止跌迹象，520880在连跌7周后，周线终于收阳！
+国泰君安证券表示，DeepSeek-V4与国产芯片的原生适配取得关键进展，或将重塑全球AI产业链的利润分配格局，硬件端有望优先享受行业发展红利。
 
-尽管单周累计涨幅仅为0.25%，但已成功跑赢大盘，恒指周跌0.98%，连跌5周。
+此前市场的核心担忧是国产算力缺乏顶级大模型适配，而此次发布彻底打消了这一顾虑，国产算力产业链的业绩兑现确定性大幅提升，市场尚未充分定价这一变化带来的估值修复空间*。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 03:22 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 03:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 03:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 03:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 03:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 03:25 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 03:30 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 03:16 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 03:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 03:27 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 03:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 03:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 03:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 03:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 03:30 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 03:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 03:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 03:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 03:36 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 03:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:35 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/10617.shtml)
-- 2026-06-30 03:34 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/223561.shtml)
-- 2026-06-30 03:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/30692.shtml)
-- 2026-06-30 03:14 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/11180355156.shtml)
-- 2026-06-30 03:22 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/93009720.shtml)
-- 2026-06-30 03:12 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/27103063066.shtml)
-- 2026-06-30 03:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/792054.shtml)
-- 2026-06-30 03:41 - [时光音乐会](http://www.share.minike.top/Article/details/931925805031.shtml)
-- 2026-06-30 03:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/3506424324.shtml)
-- 2026-06-30 03:12 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/0743620838.shtml)
-- 2026-06-30 03:18 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/447315123.shtml)
-- 2026-06-30 03:39 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/83383490406.shtml)
-- 2026-06-30 03:29 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/82007.shtml)
-- 2026-06-30 03:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/1728338.shtml)
-- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/004673.shtml)
+- 2026-06-30 03:23 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/063209.shtml)
+- 2026-06-30 03:31 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/884102396852.shtml)
+- 2026-06-30 03:31 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/9379114284.shtml)
+- 2026-06-30 03:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/688678390.shtml)
+- 2026-06-30 03:31 - [沉睡花园](https://www.blog.minike.top/Article/details/8728693.shtml)
+- 2026-06-30 03:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/622681.shtml)
+- 2026-06-30 03:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/823433.shtml)
+- 2026-06-30 03:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/019185685.shtml)
+- 2026-06-30 03:38 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/154730135076.shtml)
+- 2026-06-30 03:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/446400706.shtml)
+- 2026-06-30 03:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/260486.shtml)
+- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/009598815014.shtml)
+- 2026-06-30 03:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/598268.shtml)
+- 2026-06-30 03:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/269435946.shtml)
+- 2026-06-30 03:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/08174.shtml)

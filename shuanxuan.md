@@ -1,57 +1,54 @@
-# 美术馆里卖果蔬 川美毕业展上演艺术助农
+# 高盛：信达生物给予“买入”评级 目标价升至105.94港元
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走
+高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。 该行指出，今
 
 ## 正文
 
-以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。
 
-“世界杯魔咒”失灵了？
+今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。
 
-一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。
 
-为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+该行指出，今年6月将有两项关键数据成为市场焦点，包括预计公司在ADA会议上，将公布口服小分子GLP-1药物IBI3032更详细的早期临床数据，管理层此前曾简报该分子在4周内实现10%的体重下降，具备同类最佳潜力；在美国临床肿瘤学会（ASCO）会议上，IBI363（PD-1/IL-2b偏向性双特异性抗体）的两项数据将是重点关注，特别是一线非小细胞肺癌的二期临床数据首度亮相。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土台湾学子横跨两岸探寻“日月潭之谜”2026年中国龙舟公开赛荆州站闭幕掷纸飞机、彩虹跑！
-
-长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
-
-再见了屏幕！
-
-未来AI实验室长这样这可能是海拔4600米最美的工作服 致敬青藏铁路的守护者世界杯揭幕夜：呜呜祖拉在南非响起共享设计赋能产业升级 白沟箱包智启新程做原创2034年能踢进世界杯吗？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 03:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 03:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 03:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 03:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 03:13 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 03:12 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 03:30 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 03:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 03:40 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 03:41 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 03:35 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 03:46 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 03:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 03:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 03:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 03:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 03:27 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 03:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 03:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 03:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 03:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 03:31 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 03:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 03:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [乔家的儿女](http://www.share.minike.top/Article/details/7013683.shtml)
-- 2026-06-30 03:23 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/585441920.shtml)
-- 2026-06-30 03:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/19971388163.shtml)
-- 2026-06-30 03:19 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/617426.shtml)
-- 2026-06-30 03:33 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/98541117.shtml)
-- 2026-06-30 03:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/8098769961.shtml)
-- 2026-06-30 03:23 - [美股](https://www.share.kurohicncr.top/Article/details/633235878085.shtml)
-- 2026-06-30 03:32 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/350226.shtml)
-- 2026-06-30 03:26 - [扬名立万](https://www.blog.minike.top/Article/details/30272.shtml)
-- 2026-06-30 03:35 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/6962104941.shtml)
-- 2026-06-30 03:12 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/7470875.shtml)
-- 2026-06-30 03:30 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/5216119.shtml)
-- 2026-06-30 03:13 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/743513760.shtml)
-- 2026-06-30 03:27 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/37708534687.shtml)
-- 2026-06-30 03:17 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/789958.shtml)
+- 2026-06-30 03:44 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/79758319927.shtml)
+- 2026-06-30 03:23 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/89457198405.shtml)
+- 2026-06-30 03:21 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/6644457724.shtml)
+- 2026-06-30 03:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/74017.shtml)
+- 2026-06-30 03:47 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/54184252.shtml)
+- 2026-06-30 03:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/29827758762.shtml)
+- 2026-06-30 03:42 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/219513254213.shtml)
+- 2026-06-30 03:42 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/7132280187.shtml)
+- 2026-06-30 03:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/75745.shtml)
+- 2026-06-30 03:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/47520012.shtml)
+- 2026-06-30 03:29 - [逃狱兄弟](https://www.share.minike.top/Article/details/16351.shtml)
+- 2026-06-30 03:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/59217632.shtml)
+- 2026-06-30 03:28 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/76835396.shtml)
+- 2026-06-30 03:40 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/538098043829.shtml)
+- 2026-06-30 03:37 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/50058.shtml)

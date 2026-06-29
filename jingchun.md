@@ -1,60 +1,61 @@
-# 交银施罗德“换帅”背后：净利润四连降、权益规模腰斩
+# 从保安到文物修复师 彭柳升用妙手匠心守护世界文化遗产
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：东西财经 “交银施罗德基金董事长张宏良到龄退休，将由何人接棒？新任董事长将要面对公司规模和排名下滑、净利润四连降，股混基金规模腰斩，‘新旧三剑客’星光黯淡，昔日标杆掉队的困境。” 日前，交银施罗德基金公告称，董事长张宏良因达到法定退休年龄离任，总经理袁庆伟在新任董事长到任前暂代董事长职务。张宏良本次任
+中新网重庆5月3日电 题：从保安到文物修复师 彭柳升用妙手匠心守护世界文化遗产 中新网记者 肖江川 作为保安，他对抗文物盗贼；作为文物修复师，他帮助文物延续“生命”。从自学摸索到参与国家级文物保护工程抢救性修复，彭柳升用妙手匠心，守护世界文化遗产大足石刻。 彭柳升出生于1974年。1994年，他退伍后成为大足石刻景区的一名保安，每天对抗文物盗贼，一干便是17年。工作中，他每天刻
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网重庆5月3日电 题：从保安到文物修复师 彭柳升用妙手匠心守护世界文化遗产 中新网记者 肖江川 作为保安，他对抗文物盗贼；作为文物修复师，他帮助文物延续“生命”。
 
-来源：东西财经 “交银施罗德基金董事长张宏良到龄退休，将由何人接棒？
+从自学摸索到参与国家级文物保护工程抢救性修复，彭柳升用妙手匠心，守护世界文化遗产大足石刻。
 
-新任董事长将要面对公司规模和排名下滑、净利润四连降，股混基金规模腰斩，‘新旧三剑客’星光黯淡，昔日标杆掉队的困境。
+彭柳升出生于1974年。
 
-” 日前，交银施罗德基金公告称，董事长张宏良因达到法定退休年龄离任，总经理袁庆伟在新任董事长到任前暂代董事长职务。
+1994年，他退伍后成为大足石刻景区的一名保安，每天对抗文物盗贼，一干便是17年。
 
-张宏良本次任职时长仅一年有余，其职业生涯横跨保险、银行理财和公募基金三个领域，曾任交银人寿董事长、交银理财董事长。
+工作中，他每天刻苦钻研画技，练习雕刻，这为他转型打下了坚实基础。
 
-值得注意的是，交银施罗德基金近年董事长更迭频繁，前一任董事长阮红同样因到龄退休卸任。
+2011年，擅长绘画和石雕技艺的彭柳升经大足石刻研究院选拔，参与到千手观音抢救性修复工作中来，正式成为一名文物修复师。
 
-现任代董事长袁庆伟与阮红履历相似，均长期在交通银行系统任职，这也直观体现出银行系公募高管选聘由控股股东主导的行业常态。
+“我以前就是大足石刻景区的一名普通保安，守护文物守了10多年，但我心里一直有一个修石刻的梦。
 
-经营端的颓势仍在延续。
+”彭柳升说，他没有上过专业的院校，全靠自学绘画、自学石雕。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 03:19 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 03:27 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 03:31 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:33 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 03:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 03:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 03:18 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 03:15 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 03:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 03:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 03:28 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 03:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 03:22 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 03:31 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 03:42 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 03:28 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 03:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 03:21 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 03:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 03:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 03:25 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 03:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 03:25 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 03:39 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 03:37 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 03:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 03:28 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 03:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/7441736294.shtml)
-- 2026-06-30 03:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/6007735404.shtml)
-- 2026-06-30 03:14 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/768051088.shtml)
-- 2026-06-30 03:21 - [世界杯](https://www.share.kurohicncr.top/Article/details/064368927941.shtml)
-- 2026-06-30 03:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/867972.shtml)
-- 2026-06-30 03:18 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/0457313103.shtml)
-- 2026-06-30 03:34 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/756175.shtml)
-- 2026-06-30 03:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/47980440294.shtml)
-- 2026-06-30 03:22 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/874966020554.shtml)
-- 2026-06-30 03:27 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/2235814.shtml)
-- 2026-06-30 03:36 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/299832.shtml)
-- 2026-06-30 03:15 - [沉睡花园](https://www.share.minike.top/Article/details/086597.shtml)
-- 2026-06-30 03:22 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/672418740235.shtml)
-- 2026-06-30 03:12 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/680223127299.shtml)
-- 2026-06-30 03:27 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/04629900.shtml)
+- 2026-06-30 03:21 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/2307952.shtml)
+- 2026-06-30 03:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/0528020.shtml)
+- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/432270.shtml)
+- 2026-06-30 03:45 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/22755790096.shtml)
+- 2026-06-30 03:40 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/135606.shtml)
+- 2026-06-30 03:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/17252607336.shtml)
+- 2026-06-30 03:24 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/072115694.shtml)
+- 2026-06-30 03:25 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/358954198855.shtml)
+- 2026-06-30 03:34 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/333255364304.shtml)
+- 2026-06-30 03:43 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/6400966132.shtml)
+- 2026-06-30 03:35 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/6418502265.shtml)
+- 2026-06-30 03:23 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/44080261061.shtml)
+- 2026-06-30 03:38 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/742962666.shtml)
+- 2026-06-30 03:30 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/028122682.shtml)
+- 2026-06-30 03:44 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/21134271.shtml)

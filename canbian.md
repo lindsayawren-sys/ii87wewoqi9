@@ -1,57 +1,49 @@
-# 启境汽车刘嘉铭：汽车智能化已经从“有没有”到“优不优”，国内供应链天时地利人和
+# 九方智投控股于5月4日斥资514.73万港元回购15万股
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，启境汽车CEO刘嘉铭出席并演讲。 刘嘉铭表示，汽车智能化的下半场已经吹响明哨，无论是大模型、高算力芯片还是新的电子电气架构，都已经开始上车。经过这几年的发展，行业已经从“有没有”进入到“优不优”的阶段，同时，消费者对座舱和辅助驾驶的要求也同样从“有没有”升级到“优不优”。 他
+九方智投控股（09636）发布公告，于2026年5月4日斥资514.73万港元回购15万股。责任编辑：卢昱君
 
 ## 正文
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，启境汽车CEO刘嘉铭出席并演讲。
+九方智投控股（09636）发布公告，于2026年5月4日斥资514.73万港元回购15万股。
 
-刘嘉铭表示，汽车智能化的下半场已经吹响明哨，无论是大模型、高算力芯片还是新的电子电气架构，都已经开始上车。
-
-经过这几年的发展，行业已经从“有没有”进入到“优不优”的阶段，同时，消费者对座舱和辅助驾驶的要求也同样从“有没有”升级到“优不优”。
-
-他回顾了自己从1998年毕业至今的经历，从4S店到主机厂到集团机关，经历了行业的多个周期。
-
-他坦言，新能源和智能化技术对汽车本身提出了新的思考和课题。
-
-在产业和技术的拉动下，汽车正发生着与以往完全不同的变化。
-
-他认为，面向智能化的下半场，中国拥有完整的汽车供应链体系，再加上多年自主发展积累的工程能力和制造能力，以及互联网企业推动下的汽车智能化发展，可以说是天时、地利、人和正融合成一个时间机会窗口。
-
-对行业来说，汽车已经从价格战转向价值战，而价值更多体现为新技术在汽车领域应用中产生的新价值。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 03:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 03:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 03:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 03:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 03:33 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 03:41 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:21 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 03:38 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 03:16 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 03:16 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 03:26 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 03:23 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 03:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 03:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 03:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 03:28 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 03:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 03:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 03:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 03:35 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 03:41 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 03:42 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 03:43 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 03:27 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/28804341191.shtml)
-- 2026-06-30 03:19 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/98696279034.shtml)
-- 2026-06-30 03:29 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/084153.shtml)
-- 2026-06-30 03:36 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/58768404079.shtml)
-- 2026-06-30 03:38 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/78069319746.shtml)
-- 2026-06-30 03:24 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/1522096348.shtml)
-- 2026-06-30 03:39 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/50742184.shtml)
-- 2026-06-30 03:16 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/0558452168.shtml)
-- 2026-06-30 03:37 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/41020.shtml)
-- 2026-06-30 03:35 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/68561060880.shtml)
-- 2026-06-30 03:28 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/50869.shtml)
-- 2026-06-30 03:13 - [小娘惹](https://www.blog.minike.top/Article/details/6415617574.shtml)
-- 2026-06-30 03:19 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/930272033846.shtml)
-- 2026-06-30 03:20 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/691196939.shtml)
-- 2026-06-30 03:27 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/016195197209.shtml)
+- 2026-06-30 03:20 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/79291.shtml)
+- 2026-06-30 03:25 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/7229646.shtml)
+- 2026-06-30 03:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/746808204.shtml)
+- 2026-06-30 03:31 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/947154823.shtml)
+- 2026-06-30 03:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/96449657.shtml)
+- 2026-06-30 03:45 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/7621383.shtml)
+- 2026-06-30 03:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/649927553.shtml)
+- 2026-06-30 03:24 - [日本进球](http://www.share.kurohicncr.top/Article/details/1202874880.shtml)
+- 2026-06-30 03:20 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/554231.shtml)
+- 2026-06-30 03:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/1849226.shtml)
+- 2026-06-30 03:29 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/131553041.shtml)
+- 2026-06-30 03:18 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/024200393.shtml)
+- 2026-06-30 03:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/89246.shtml)
+- 2026-06-30 03:24 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/915387031599.shtml)
+- 2026-06-30 03:32 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/946972647.shtml)

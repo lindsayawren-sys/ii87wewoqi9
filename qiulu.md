@@ -1,57 +1,49 @@
-# 海口海关关于举办2026年6月份“关长接待日”的通知
+# 湖北荆州：光影绘夜空 国风醉游人
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-为进一步畅通与社会公众及干部职工的沟通渠道，促进关务公开，现就2026年6月份“关长接待日”相关安排通知如下： 一、总关接待日安排 (一)接待时间。 2026年6月16日(周二)10:00—12:00。(二)接待关领导。 副关长、党委委员敖必强。 (三)接待地点。 海南省海口市龙华区滨海大道61号海口海关机关办公大楼。 (四)预约登记方式。 请来访人员于6月15日(周一)上午1
+发布时间：2026年05月04日 17:41 来源：中国新闻网 5月3日晚，湖北荆州方特三千架无人机以光为墨与浏阳烟花联袂绽耀长空，楚辞名篇、龙腾凤舞、鳌鱼出水、生命之树依次在空中绽放……非遗打铁花星火漫天、惊艳登场，百花巡游次第上演，国风演艺精彩纷呈，为游客倾情打造一场流光溢彩、意蕴悠长的国风文旅盛宴。(吴淘淘 胡威虎 徐若楠） 责任编辑：【叶攀】
 
 ## 正文
 
-为进一步畅通与社会公众及干部职工的沟通渠道，促进关务公开，现就2026年6月份“关长接待日”相关安排通知如下： 一、总关接待日安排 (一)接待时间。
+发布时间：2026年05月04日 17:41 来源：中国新闻网 5月3日晚，湖北荆州方特三千架无人机以光为墨与浏阳烟花联袂绽耀长空，楚辞名篇、龙腾凤舞、鳌鱼出水、生命之树依次在空中绽放……非遗打铁花星火漫天、惊艳登场，百花巡游次第上演，国风演艺精彩纷呈，为游客倾情打造一场流光溢彩、意蕴悠长的国风文旅盛宴。
 
-2026年6月16日(周二)10:00—12:00。
-
-(二)接待关领导。
-
-副关长、党委委员敖必强。
-
-(三)接待地点。
-
-海南省海口市龙华区滨海大道61号海口海关机关办公大楼。
-
-(四)预约登记方式。
-
-请来访人员于6月15日(周一)上午12:00前通过电话或邮箱进行预约，并按照海口海关办公室反馈的接待时间顺序准时参加活动。
+(吴淘淘 胡威虎 徐若楠） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 03:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 03:25 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 03:19 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 03:14 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 03:41 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 03:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:29 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 03:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 03:37 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 03:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 03:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 03:35 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 03:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 03:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 03:32 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:31 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 03:24 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 03:18 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 03:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 03:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 03:31 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 03:26 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 03:44 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 03:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 03:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/9671096.shtml)
-- 2026-06-30 03:19 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/873926413702.shtml)
-- 2026-06-30 03:29 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/856031462501.shtml)
-- 2026-06-30 03:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/5749206.shtml)
-- 2026-06-30 03:36 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/481545780.shtml)
-- 2026-06-30 03:28 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/101608437.shtml)
-- 2026-06-30 03:33 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/7371547033.shtml)
-- 2026-06-30 03:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/96699.shtml)
-- 2026-06-30 03:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/47219144.shtml)
-- 2026-06-30 03:19 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/44934943454.shtml)
-- 2026-06-30 03:30 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/98006654084.shtml)
-- 2026-06-30 03:15 - [千香](http://www.share.minike.top/Article/details/98922480.shtml)
-- 2026-06-30 03:18 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/627391145.shtml)
-- 2026-06-30 03:25 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/70700.shtml)
-- 2026-06-30 03:33 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/90802175183.shtml)
+- 2026-06-30 03:23 - [金牌调解](https://www.share.kurohicncr.top/Article/details/20006.shtml)
+- 2026-06-30 03:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/963023107.shtml)
+- 2026-06-30 03:28 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/614572242.shtml)
+- 2026-06-30 03:44 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/250584729.shtml)
+- 2026-06-30 03:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/590037445.shtml)
+- 2026-06-30 03:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/424145700301.shtml)
+- 2026-06-30 03:40 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/1868734022.shtml)
+- 2026-06-30 03:29 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/505997687201.shtml)
+- 2026-06-30 03:27 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/50628904.shtml)
+- 2026-06-30 03:29 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/94447562.shtml)
+- 2026-06-30 03:45 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/0215805645.shtml)
+- 2026-06-30 03:44 - [一生一世](http://www.share.kurohicncr.top/Article/details/54839923332.shtml)
+- 2026-06-30 03:30 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/23478757798.shtml)
+- 2026-06-30 03:43 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/897328074858.shtml)
+- 2026-06-30 03:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/658222639.shtml)

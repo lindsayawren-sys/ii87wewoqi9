@@ -1,59 +1,58 @@
-# 心电一张网、慢病一盘棋 山西侯马探路县域医改
+# 黄河实业订立股份互换及优先购买权协议
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网临汾6月15日电 题：心电一张网、慢病一盘棋 山西侯马探路县域医改 中新网记者 范丽芳 2026年5月，山西临汾侯马市小里村的曹强(化名)突感胸闷气短，立刻到该村卫生所就诊。村医使用当地统一配备的便携式智能心电仪为其采集心电图。几分钟后，紧急数据出现在侯马市人民医院“心电平台”上，胸痛中心绿色通道立刻开启，转诊、接诊、手术……医生为其植入心脏起搏器后，患者转危为安。 这样
+黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。 b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Sl
 
 ## 正文
 
-中新网临汾6月15日电 题：心电一张网、慢病一盘棋 山西侯马探路县域医改 中新网记者 范丽芳 2026年5月，山西临汾侯马市小里村的曹强(化名)突感胸闷气短，立刻到该村卫生所就诊。
+黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。
 
-村医使用当地统一配备的便携式智能心电仪为其采集心电图。
+b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Slencor AI 过往收益相联系的预定公式，则应向下调整，且在任何情况下，行使所有优先购买权的总额上限为 1.2 亿港元。
 
-几分钟后，紧急数据出现在侯马市人民医院“心电平台”上，胸痛中心绿色通道立刻开启，转诊、接诊、手术……医生为其植入心脏起搏器后，患者转危为安。
+c） 本公司以2400万港元的价格向交易对手出售其在 VCFC 的 60%股权。
 
-这样的“幸运”，并非偶然。
+收购和出售在签署协议时同时完成，各项代价透过相互抵销的方式处理。
 
-近日，记者跟随2026年山西省卫健委“媒体走基层”调研采访活动走进侯马。
+收购 Slencor AI 将使本集团能进一步扩展至快速演进的人工智能领域，特别是在需求日益增长的人工智能代理数据训练及人类回馈强化学习领域。
 
-2023年11月，侯马建成覆盖全域的“心电一张网”。
+董事会相信，此次收购将强化本集团的科技实力，使本集团能捕捉人工智能相关服务的新兴市场机遇，并与现有业务产生潜在的协同效应。
 
-90台网络心电图机被统一配备到乡镇卫生院、社区卫生服务中心和村卫生所。
+此外，Slencor AI 管理与营运团队的专业知识与经验，预计将为本集团在人工智能及科技驱动解决方案方面的发展提供有力支持。
 
-一套“基层采集、云端传输、市级诊断、实时反馈、分级救治”的闭环模式由此成形。
+与此同时，出售 VCFC 使本集团能够精简业务，并减少在非核心消费金融投资领域的风险。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 03:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 03:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 03:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 03:16 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 03:23 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 03:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 03:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 03:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 03:24 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 03:16 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 03:18 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 03:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 03:44 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 03:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 03:33 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 03:31 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 03:34 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 03:43 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 03:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 03:27 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 03:40 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 03:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 03:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [天道](http://www.share.kurohicncr.top/Article/details/756188.shtml)
-- 2026-06-30 03:16 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/656432.shtml)
-- 2026-06-30 03:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0560241663.shtml)
-- 2026-06-30 03:35 - [月亮](http://www.share.minike.top/Article/details/84872.shtml)
-- 2026-06-30 03:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/7783121.shtml)
-- 2026-06-30 03:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/93316.shtml)
-- 2026-06-30 03:21 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/6573879883.shtml)
-- 2026-06-30 03:17 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/01018.shtml)
-- 2026-06-30 03:34 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/85739776076.shtml)
-- 2026-06-30 03:18 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/4897120.shtml)
-- 2026-06-30 03:32 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/35598.shtml)
-- 2026-06-30 03:35 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/317267.shtml)
-- 2026-06-30 03:14 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/0143064.shtml)
-- 2026-06-30 03:38 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/464109.shtml)
-- 2026-06-30 03:19 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/523231687.shtml)
+- 2026-06-30 03:29 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/15839211.shtml)
+- 2026-06-30 03:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/877360660.shtml)
+- 2026-06-30 03:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/381329249142.shtml)
+- 2026-06-30 03:19 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/5839090761.shtml)
+- 2026-06-30 03:41 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/85625.shtml)
+- 2026-06-30 03:18 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/224801627612.shtml)
+- 2026-06-30 03:40 - [起风了](https://www.share.minike.top/Article/details/9848109891.shtml)
+- 2026-06-30 03:27 - [沙丘](https://www.share.kurohicncr.top/Article/details/6092394566.shtml)
+- 2026-06-30 03:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/4784708407.shtml)
+- 2026-06-30 03:20 - [起风了](https://www.share.kurohicncr.top/Article/details/984655.shtml)
+- 2026-06-30 03:37 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/47828275428.shtml)
+- 2026-06-30 03:23 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/27708118919.shtml)
+- 2026-06-30 03:20 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/7607513846.shtml)
+- 2026-06-30 03:19 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/2327910.shtml)
+- 2026-06-30 03:20 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/47929.shtml)

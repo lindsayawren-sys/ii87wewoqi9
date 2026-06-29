@@ -1,57 +1,58 @@
-# 火爆20余年！世界杯流行什么，义乌早知道
+# 欧洲央行行长称能源成本飙升敲响警钟 呼吁减少化石燃料依赖
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新经纬6月12日电 (宋亚芬)美加墨世界杯开幕，“义乌制造”早已爆单。 一款抱着足球的尖叫鸡订单甚至已经排到2027年。 义乌商家展示手捧足球的尖叫鸡。中新社记者 董易鑫 摄 每次世界杯开赛前，义乌特别忙，今年尤甚。由于参赛球队规模扩大，订单起量的时间比往年来得更早。 工厂机器去年就开始为万里之外的绿茵场预热。义乌海关数据显示，2025年义乌体育用品及设备出口额同比增长20.
+欧洲央行行长克里斯蒂娜·拉加德表示，伊朗战争引发的能源成本飙升，应成为欧洲减少对化石燃料和能源进口依赖的警钟。 欧洲约60%的能源依赖进口，且几乎全部为化石燃料，拉加德周二在法兰克福一场气候会议上表示，这种现状“显然不可持续”。 “当前能源价格飙升提醒我们这种依赖的代价，”她说。“替代能源为在能源安全、可持续性与可负担性之间实现平衡提供了最清晰的路径。” 中东冲突推动油气价格上
 
 ## 正文
 
-中新经纬6月12日电 (宋亚芬)美加墨世界杯开幕，“义乌制造”早已爆单。
+欧洲央行行长克里斯蒂娜·拉加德表示，伊朗战争引发的能源成本飙升，应成为欧洲减少对化石燃料和能源进口依赖的警钟。
 
-一款抱着足球的尖叫鸡订单甚至已经排到2027年。
+欧洲约60%的能源依赖进口，且几乎全部为化石燃料，拉加德周二在法兰克福一场气候会议上表示，这种现状“显然不可持续”。
 
-义乌商家展示手捧足球的尖叫鸡。
+“当前能源价格飙升提醒我们这种依赖的代价，”她说。
 
-中新社记者 董易鑫 摄 每次世界杯开赛前，义乌特别忙，今年尤甚。
+“替代能源为在能源安全、可持续性与可负担性之间实现平衡提供了最清晰的路径。
 
-由于参赛球队规模扩大，订单起量的时间比往年来得更早。
+” 中东冲突推动油气价格上涨，对于像欧洲这样依赖进口化石燃料的地区而言构成脆弱性。
 
-工厂机器去年就开始为万里之外的绿茵场预热。
+数据显示，欧洲经济活动正受到明显冲击，威胁到刚刚起步的复苏，并使欧洲央行在应对高于2%目标的通胀时面临更复杂局面。
 
-义乌海关数据显示，2025年义乌体育用品及设备出口额同比增长20.3%，今年一季度则保持了12%的同比增速。
+拉加德的表态呼应了她去年关于欧洲迈向可再生能源路径的讲话，其他官员也频繁参与气候与自然议题的讨论。
 
-视频：爆款频出客商云集 义乌为何这么“热”来源：中国新闻网 为何火爆20余年 自2002年韩日世界杯开始，义乌制造从未缺席世界杯“周边”盛会。
+不过，也有批评认为此类表态超出了欧洲央行的职责范围。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:12 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 03:23 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 03:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 03:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 03:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 03:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 03:32 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 03:25 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 03:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 03:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 03:27 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 03:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 03:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 03:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 03:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 03:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:20 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 03:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 03:19 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/4882609443.shtml)
-- 2026-06-30 03:41 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/220839557.shtml)
-- 2026-06-30 03:16 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/2741458550.shtml)
-- 2026-06-30 03:20 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/3894037309.shtml)
-- 2026-06-30 03:12 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/539135653.shtml)
-- 2026-06-30 03:22 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/56048341.shtml)
-- 2026-06-30 03:41 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/801983.shtml)
-- 2026-06-30 03:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/302430738.shtml)
-- 2026-06-30 03:18 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/3857399530.shtml)
-- 2026-06-30 03:33 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/33637.shtml)
-- 2026-06-30 03:35 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/808347.shtml)
-- 2026-06-30 03:38 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/06769.shtml)
-- 2026-06-30 03:18 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/70653176048.shtml)
-- 2026-06-30 03:36 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/27190237926.shtml)
-- 2026-06-30 03:28 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/3545440838.shtml)
+- 2026-06-30 03:36 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3985634050.shtml)
+- 2026-06-30 03:26 - [日本16强魔咒](https://www.blog.minike.top/Article/details/306219334129.shtml)
+- 2026-06-30 03:36 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/7763295.shtml)
+- 2026-06-30 03:24 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/538591.shtml)
+- 2026-06-30 03:39 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/898729101.shtml)
+- 2026-06-30 03:19 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/263776182.shtml)
+- 2026-06-30 03:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/63722588.shtml)
+- 2026-06-30 03:26 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/929922386132.shtml)
+- 2026-06-30 03:20 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/313085.shtml)
+- 2026-06-30 03:22 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/5201898.shtml)
+- 2026-06-30 03:23 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/881671060.shtml)
+- 2026-06-30 03:47 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/333966957660.shtml)
+- 2026-06-30 03:21 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/76518.shtml)
+- 2026-06-30 03:39 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/15033.shtml)
+- 2026-06-30 03:38 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/7579289955.shtml)

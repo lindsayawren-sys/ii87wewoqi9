@@ -1,58 +1,56 @@
-# 千年古城江苏盱眙：民俗巡游燃动“龙虾之都”
+# 阿联酋国防部：探测到四枚来自伊朗的导弹 防空系统正在应对导弹威胁
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网淮安6月12日电 (冯楠 徐珊珊)6月12日，地处淮河之滨的千年古城江苏盱眙热闹非凡。从龙虾节广场到“尅”街，3.3公里的道路上，欢声笑语与铿锵锣鼓声交织，800多名文化志愿者在“巡梦山水 虾聚都梁”主题巡游中，共同奏响“龙虾之都”夏日狂欢曲。 巡游队伍分为三大主题篇章、八大特色方阵。近百名青年身着特色龙虾服饰，步伐整齐、动作刚劲，用富有张力的表演展现小龙虾的灵动姿态，象
+阿联酋国防部在X平台发文称，探测到四枚从伊朗飞向阿联酋的巡航导弹。 阿联酋国家应急危机与灾难管理局在X平台发文称，阿联酋防空系统正在应对导弹威胁。 其中三枚导弹在领海内被成功拦截，第四枚落入海中。 阿联酋多地可听到拦截声。这是该国周一发布的第三次警报。责任编辑：李桐
 
 ## 正文
 
-中新网淮安6月12日电 (冯楠 徐珊珊)6月12日，地处淮河之滨的千年古城江苏盱眙热闹非凡。
+阿联酋国防部在X平台发文称，探测到四枚从伊朗飞向阿联酋的巡航导弹。
 
-从龙虾节广场到“尅”街，3.3公里的道路上，欢声笑语与铿锵锣鼓声交织，800多名文化志愿者在“巡梦山水 虾聚都梁”主题巡游中，共同奏响“龙虾之都”夏日狂欢曲。
+阿联酋国家应急危机与灾难管理局在X平台发文称，阿联酋防空系统正在应对导弹威胁。
 
-巡游队伍分为三大主题篇章、八大特色方阵。
+其中三枚导弹在领海内被成功拦截，第四枚落入海中。
 
-近百名青年身着特色龙虾服饰，步伐整齐、动作刚劲，用富有张力的表演展现小龙虾的灵动姿态，象征着盱眙龙虾产业蒸蒸日上的发展态势。
+阿联酋多地可听到拦截声。
 
-文脉巡游队伍宛如流动的历史长卷：“第一山”花车携苏东坡、米芾的笔墨风韵缓缓前行，汉代王驾、明代皇家仪仗再现大云山雄浑底蕴与明祖陵庄严气象。
+这是该国周一发布的第三次警报。
 
-非遗方阵中，灵动的剪纸纹样在孩童衣袂间舒展，龙虾元素道具在小手中轻摇。
-
-活力队伍中，天源班学子步伐自信，展现着城市的未来气象。
-
-沿街市民或驻足打卡，或跟随队伍前行，全民参与的氛围浓厚。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 03:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 03:33 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 03:24 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 03:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 03:12 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 03:20 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 03:29 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 03:29 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 03:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 03:28 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 03:32 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 03:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 03:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 03:41 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 03:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 03:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 03:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 03:46 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 03:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 03:36 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 03:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 03:26 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 03:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/35690258.shtml)
-- 2026-06-30 03:26 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/326686648.shtml)
-- 2026-06-30 03:32 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/43491637.shtml)
-- 2026-06-30 03:40 - [日本反击率先破门](https://www.share.minike.top/Article/details/087007805.shtml)
-- 2026-06-30 03:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/913176101.shtml)
-- 2026-06-30 03:31 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/756515362.shtml)
-- 2026-06-30 03:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/53634829.shtml)
-- 2026-06-30 03:17 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/07346387.shtml)
-- 2026-06-30 03:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/11414.shtml)
-- 2026-06-30 03:29 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/03094894.shtml)
-- 2026-06-30 03:37 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/80131.shtml)
-- 2026-06-30 03:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/153706686710.shtml)
-- 2026-06-30 03:37 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/21896527140.shtml)
-- 2026-06-30 03:29 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/3163623.shtml)
-- 2026-06-30 03:15 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/130640943154.shtml)
+- 2026-06-30 03:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/368992153227.shtml)
+- 2026-06-30 03:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/590364013.shtml)
+- 2026-06-30 03:18 - [刘念回应](http://www.share.minike.top/Article/details/09360.shtml)
+- 2026-06-30 03:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/399663.shtml)
+- 2026-06-30 03:40 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/46109718807.shtml)
+- 2026-06-30 03:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/4522600166.shtml)
+- 2026-06-30 03:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/40032436.shtml)
+- 2026-06-30 03:20 - [点菜也要教吗](https://www.share.minike.top/Article/details/484121.shtml)
+- 2026-06-30 03:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/13046.shtml)
+- 2026-06-30 03:46 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/061866092.shtml)
+- 2026-06-30 03:30 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/10637.shtml)
+- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/41813.shtml)
+- 2026-06-30 03:29 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/65942.shtml)
+- 2026-06-30 03:37 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/241137581579.shtml)
+- 2026-06-30 03:34 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/933544046004.shtml)

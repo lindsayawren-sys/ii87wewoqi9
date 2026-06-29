@@ -1,44 +1,57 @@
-# 刘海星会见多国客人
+# 梅思安安全以 5.55 亿美元收购奥特罗尼卡消防安保公司
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-新华社北京6月12日电 6月11日至12日，中共中央对外联络部部长刘海星在北京分别会见新加坡国会议长谢健平，蒙古国副总理、民族联盟主席诺木泰巴亚尔，土耳其多党议员考察团和“2026中国与中东欧青年政治家论坛”外方参会代表，就落实好双方领导人共识、密切党际交往等交换意见。
+卖方为私募股权公司哨兵资本合伙人 内容概要 梅思安安全将以约 5.55 亿美元，从私募机构哨兵资本合伙人手中收购奥特罗尼卡消防安保公司。 梅思安安全已达成协议，收购奥特罗尼卡消防安保。该公司主营火灾与气体探测及报警系统，本次交易卖方为私募股权机构哨兵资本合伙人，交易对价约5.55 亿美元。 总部位于宾夕法尼亚州克兰伯里镇的安全设备厂商梅思安（MSA Safety） 周二表示：
 
 ## 正文
 
-新华社北京6月12日电 6月11日至12日，中共中央对外联络部部长刘海星在北京分别会见新加坡国会议长谢健平，蒙古国副总理、民族联盟主席诺木泰巴亚尔，土耳其多党议员考察团和“2026中国与中东欧青年政治家论坛”外方参会代表，就落实好双方领导人共识、密切党际交往等交换意见。
+卖方为私募股权公司哨兵资本合伙人 内容概要 梅思安安全将以约 5.55 亿美元，从私募机构哨兵资本合伙人手中收购奥特罗尼卡消防安保公司。
+
+梅思安安全已达成协议，收购奥特罗尼卡消防安保。
+
+该公司主营火灾与气体探测及报警系统，本次交易卖方为私募股权机构哨兵资本合伙人，交易对价约5.55 亿美元。
+
+总部位于宾夕法尼亚州克兰伯里镇的安全设备厂商梅思安（MSA Safety） 周二表示： 奥特罗尼卡总部位于挪威，现有员工约 550 人，2025 年销售额约1.6 亿美元。
+
+这笔交易预计于今年第三季度完成交割。
+
+梅思安 2025 年营收近19 亿美元。
+
+公司表示，本次收购资金将来自自有现金及信贷额度项下借款。
+
+总部位于纽约的中端市场私募机构哨兵资本，于 2024 年收购奥特罗尼卡；当时该机构斥资约 14 亿美元，收购了开利环球旗下工业消防业务，该业务现已更名为光谱安全解决方案，奥特罗尼卡隶属于其中。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 03:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 03:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 03:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 03:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 03:36 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 03:36 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 03:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 03:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 03:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 03:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 03:32 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 03:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 03:26 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 03:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 03:34 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 03:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 03:29 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 03:35 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 03:34 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 03:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/2894662465.shtml)
-- 2026-06-30 03:20 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/650164534.shtml)
-- 2026-06-30 03:20 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/0252214528.shtml)
-- 2026-06-30 03:15 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/5076891.shtml)
-- 2026-06-30 03:20 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/715913254721.shtml)
-- 2026-06-30 03:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/16522.shtml)
-- 2026-06-30 03:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/19331924232.shtml)
-- 2026-06-30 03:38 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/93585215.shtml)
-- 2026-06-30 03:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/60033850.shtml)
-- 2026-06-30 03:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/342619087.shtml)
-- 2026-06-30 03:41 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/3729638821.shtml)
-- 2026-06-30 03:37 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/113113824.shtml)
-- 2026-06-30 03:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/52960151708.shtml)
-- 2026-06-30 03:24 - [沙丘](https://www.blog.kurohicncr.top/Article/details/94274.shtml)
-- 2026-06-30 03:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/49328966.shtml)
+- 2026-06-30 03:43 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/406562855.shtml)
+- 2026-06-30 03:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/504816630840.shtml)
+- 2026-06-30 03:26 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/60889.shtml)
+- 2026-06-30 03:27 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/00609297.shtml)
+- 2026-06-30 03:31 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/658946833.shtml)
+- 2026-06-30 03:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/191575474679.shtml)
+- 2026-06-30 03:30 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/6537250.shtml)
+- 2026-06-30 03:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/188555.shtml)
+- 2026-06-30 03:40 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/228924949.shtml)
+- 2026-06-30 03:39 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/616371.shtml)
+- 2026-06-30 03:34 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/616562214.shtml)
+- 2026-06-30 03:45 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/419382163.shtml)
+- 2026-06-30 03:45 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/03590477526.shtml)
+- 2026-06-30 03:24 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/9666176374.shtml)
+- 2026-06-30 03:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/85006566809.shtml)

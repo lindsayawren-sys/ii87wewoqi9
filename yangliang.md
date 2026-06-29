@@ -1,61 +1,59 @@
-# 为何美伊协议对美联储而言未必是鸽派信号？
+# 美国批准向乌克兰潜在出售3.736亿美元JDAM-ER增程弹药
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-文章来源：华尔街见闻 美伊和平协议消息令美债大涨、降息预期升温，但美国银行泼下冷水：市场的鸽派解读可能大错特错。若协议推动WTI原油在80至90美元区间企稳，通胀温和上行叠加就业风险消退，美联储反而将面临最偏鹰派的政策环境——降息无望，加息才是正解。 美伊和平协议的消息推动美债大涨、降息预期快速升温，但美国银行提出警示：市场的鸽派解读可能是一厢情愿。若协议促使油价在温和区间企稳
+美国国务院周二发布声明称，已批准向乌克兰潜在出售联合直接攻击弹药增程型（JDAM-ER）及相关设备，估计金额为3.736亿美元。波音公司将担任该合同的主承包商。 此次获批的JDAM-ER是在基本型JDAM基础上加装折叠翼的增程版本，可将普通航空炸弹改装为具备滑翔能力的精确制导弹药，射程可达约72公里。据媒体报道，此前西方制导炸弹在乌克兰战场面临俄军GPS干扰系统的严重挑战，导致
 
 ## 正文
 
-文章来源：华尔街见闻 美伊和平协议消息令美债大涨、降息预期升温，但美国银行泼下冷水：市场的鸽派解读可能大错特错。
+美国国务院周二发布声明称，已批准向乌克兰潜在出售联合直接攻击弹药增程型（JDAM-ER）及相关设备，估计金额为3.736亿美元。
 
-若协议推动WTI原油在80至90美元区间企稳，通胀温和上行叠加就业风险消退，美联储反而将面临最偏鹰派的政策环境——降息无望，加息才是正解。
+波音公司将担任该合同的主承包商。
 
-美伊和平协议的消息推动美债大涨、降息预期快速升温，但美国银行提出警示：市场的鸽派解读可能是一厢情愿。
+此次获批的JDAM-ER是在基本型JDAM基础上加装折叠翼的增程版本，可将普通航空炸弹改装为具备滑翔能力的精确制导弹药，射程可达约72公里。
 
-若协议促使油价在温和区间企稳，反而可能制造出最偏鹰派的货币政策环境。
+据媒体报道，此前西方制导炸弹在乌克兰战场面临俄军GPS干扰系统的严重挑战，导致命中精度下降。
 
-受美伊即将达成和平协议的消息刺激，美债大幅上涨，年底前的美联储降息定价跌破一次完整降息。
+为此，美国已另外签署2300万美元合同为JDAM-ER配备抗干扰导引头，使其具备应对GPS干扰的能力。
 
-市场逻辑直觉上似乎成立：油价下行→通胀回落→美联储具备降息条件。
+乌克兰自2023年3月起便开始使用JDAM-ER弹药，主要通过米格-29和苏-27战机进行投掷。
 
-然而，据美银研究报告，协议的影响并非单向。
+此次潜在军售若最终执行，将进一步增强乌克兰空军的远程精确打击能力。
 
-协议不仅会缓解通胀上行风险，同时也将消除此前市场对经济活动与就业市场遭受滞后性冲击的担忧。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 03:26 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 03:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 03:13 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 03:20 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 03:19 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 03:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 03:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 03:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 03:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 03:21 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 03:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 03:27 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 03:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 03:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 03:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 03:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 03:47 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 03:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 03:25 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:42 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 03:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 03:43 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 03:37 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 03:34 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 03:37 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 03:33 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/73700.shtml)
-- 2026-06-30 03:12 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/357595861208.shtml)
-- 2026-06-30 03:39 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/408510405456.shtml)
-- 2026-06-30 03:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/373872239307.shtml)
-- 2026-06-30 03:28 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/62394855.shtml)
-- 2026-06-30 03:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/764276.shtml)
-- 2026-06-30 03:30 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/7293130.shtml)
-- 2026-06-30 03:33 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/2109545.shtml)
-- 2026-06-30 03:32 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/02402022.shtml)
-- 2026-06-30 03:35 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/96384342313.shtml)
-- 2026-06-30 03:27 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/00469.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/333083.shtml)
-- 2026-06-30 03:22 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/172265779.shtml)
-- 2026-06-30 03:21 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/752547898314.shtml)
-- 2026-06-30 03:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/47624000.shtml)
+- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/708509784.shtml)
+- 2026-06-30 03:47 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/83003.shtml)
+- 2026-06-30 03:26 - [金牌调解](https://www.share.kurohicncr.top/Article/details/264820.shtml)
+- 2026-06-30 03:47 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/2751082765.shtml)
+- 2026-06-30 03:28 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/98358.shtml)
+- 2026-06-30 03:22 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/9725624264.shtml)
+- 2026-06-30 03:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/57479.shtml)
+- 2026-06-30 03:30 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/2660032.shtml)
+- 2026-06-30 03:26 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/8996110938.shtml)
+- 2026-06-30 03:22 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/4563329.shtml)
+- 2026-06-30 03:20 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/014674193019.shtml)
+- 2026-06-30 03:24 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/251331.shtml)
+- 2026-06-30 03:22 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/18068354.shtml)
+- 2026-06-30 03:44 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/907291754.shtml)
+- 2026-06-30 03:35 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/905508263.shtml)

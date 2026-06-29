@@ -1,61 +1,60 @@
-# 中国与中东欧青年政治家论坛在武汉开幕
+# 科创芯片猛攻！海光信息20CM涨停，寒武纪、佰维存储历史新高，华宝基金科创芯片ETF（589190）涨超8%
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新社武汉6月14日电 (记者 梁婷)2026中国与中东欧青年政治家论坛14日在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。 此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。 “文化是凝聚中国与中东欧国家青年、深化彼此情谊的核心纽带。”塞尔维
+5月6日，科创芯片延续节前强攻态势，全“芯”布局芯片产业的科创芯片ETF华宝（589190）跳空高开，场内价格现涨8.65%，再探上市以来新高。成份股大面积上攻，海光信息20CM涨停，澜起科技、佰维存储、龙芯中科、仕佳光子两位数上涨，海光信息、澜起科技、佰维存储、寒武纪均刷新历史新高！ 在刚刚过去的4月，上证科创板芯片指数单月累计上涨34.72%，跑赢同期万得全A指数涨幅（8.
 
 ## 正文
 
-中新社武汉6月14日电 (记者 梁婷)2026中国与中东欧青年政治家论坛14日在武汉开幕，来自中东欧国家的政党、智库、民间组织青年代表，与中国嘉宾、青年代表开展对话交流，探讨合作与未来发展。
+5月6日，科创芯片延续节前强攻态势，全“芯”布局芯片产业的科创芯片ETF华宝（589190）跳空高开，场内价格现涨8.65%，再探上市以来新高。
 
-此次论坛由中共中央对外联络部、中共湖北省委共同主办，主题为“新形势下中国与中东欧国家同行现代化之路：青年的行动和贡献”。
+成份股大面积上攻，海光信息20CM涨停，澜起科技、佰维存储、龙芯中科、仕佳光子两位数上涨，海光信息、澜起科技、佰维存储、寒武纪均刷新历史新高！
 
-“文化是凝聚中国与中东欧国家青年、深化彼此情谊的核心纽带。
+在刚刚过去的4月，上证科创板芯片指数单月累计上涨34.72%，跑赢同期万得全A指数涨幅（8.69%）逾26个百分点。
 
-”塞尔维亚前进党主席团成员、文化部长塞拉科维奇接受媒体采访时表示，当前，中塞合作正从传统经贸领域向人工智能、数字经济、绿色能源等前沿领域拓展。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-中国—中东欧国家合作机制于2012年4月启动。
+在周二美股盘后交易中，芯片大牛股AMD股价直线猛拉，暴涨超16%。
 
-目前，已建立起以领导人会晤机制为引领，涵盖经贸、文化、教育、青年、农业、旅游、科技、卫生、智库、地方等多领域合作的架构。
+据AMD发布的业绩指引，其第二季度营收将高于华尔街预期，这主要得益于全球科技巨头加速在人工智能（AI）基础设施上的支出，从而带动了对其数据中心芯片的旺盛需求。
 
-中国外交部中国—中东欧国家合作事务特别代表陈国友表示，该合作机制务实成果不断涌现。
+验证产业超级周期。
 
-近年来，中国推出了面向中东欧国家的4个科技交流计划，并开展青年人才联合培养、科研合作。
+此外，存储巨头美光科技和闪迪股价均再度创出历史新高。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 03:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 03:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 03:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 03:21 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 03:30 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 03:27 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 03:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:24 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 03:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 03:21 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 03:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 03:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 03:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 03:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:45 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 03:23 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 03:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 03:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 03:34 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 03:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 03:38 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 03:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 03:29 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:41 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 03:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 03:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/78677138.shtml)
-- 2026-06-30 03:17 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/18621302847.shtml)
-- 2026-06-30 03:22 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/211822334.shtml)
-- 2026-06-30 03:20 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/45280701571.shtml)
-- 2026-06-30 03:18 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/89873902427.shtml)
-- 2026-06-30 03:34 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/751675072486.shtml)
-- 2026-06-30 03:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/7433755.shtml)
-- 2026-06-30 03:13 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/985143165155.shtml)
-- 2026-06-30 03:27 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/434303263265.shtml)
-- 2026-06-30 03:22 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/61149312.shtml)
-- 2026-06-30 03:23 - [勇敢的心第二部](http://www.share.minike.top/Article/details/886493.shtml)
-- 2026-06-30 03:41 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/043789771.shtml)
-- 2026-06-30 03:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/5543180749.shtml)
-- 2026-06-30 03:36 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/30235.shtml)
-- 2026-06-30 03:37 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/83919.shtml)
+- 2026-06-30 03:39 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/99076.shtml)
+- 2026-06-30 03:27 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/961096.shtml)
+- 2026-06-30 03:36 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/275795.shtml)
+- 2026-06-30 03:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/956858129.shtml)
+- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/185275035.shtml)
+- 2026-06-30 03:35 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/26848460634.shtml)
+- 2026-06-30 03:35 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/872052.shtml)
+- 2026-06-30 03:47 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/74232.shtml)
+- 2026-06-30 03:30 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/2118335582.shtml)
+- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/356737.shtml)
+- 2026-06-30 03:40 - [一见倾心](https://www.share.kurohicncr.top/Article/details/3537692397.shtml)
+- 2026-06-30 03:30 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/7916338.shtml)
+- 2026-06-30 03:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/30729.shtml)
+- 2026-06-30 03:32 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/7037183.shtml)
+- 2026-06-30 03:45 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/55865.shtml)

@@ -1,59 +1,59 @@
-# 南新制药（688189）被预处罚，股民索赔可期
+# 苹果因Siri人工智能功能推迟发布，以2.5亿美元和解诉讼
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，湖南南新制药股份有限公司（简称：南新制药，代码：688189）发布《关于收到行政处罚事先告知书的公告》。 经中国证监会湖南证监局查明：2023年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新） 在部分客户退货后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入4435.88万元，
+苹果周二就一起股东诉讼达成和解，赔偿金额为2.5亿美元。该诉讼源于该公司推迟了其Siri语音助手的人工智能升级。 该诉讼由彼得·兰德谢夫特于2024年在加利福尼亚州联邦法院提起，起因是这家iPhone制造商在2024年年度软件开发者大会上宣布了一系列AI升级功能 并开始投放广告，称这些功能将于当年秋季随新款iPhone一同推出。 但最终发布的iPhone并未包含这些功能，原告方
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月10日，湖南南新制药股份有限公司（简称：南新制药，代码：688189）发布《关于收到行政处罚事先告知书的公告》。
+苹果周二就一起股东诉讼达成和解，赔偿金额为2.5亿美元。
 
-经中国证监会湖南证监局查明：2023年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新） 在部分客户退货后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入4435.88万元，占当期营业收入5.96%；虚增利润总额908.77万元，占当期利润总额119.46%。
+该诉讼源于该公司推迟了其Siri语音助手的人工智能升级。
 
-2023年，广州南新与部分客户分别签订《应收账款协议》，在《应收账款协议》约定的现金折扣生效后，未冲减当期收入和利润，导致南新制药2023年年度报告虚增营业收入2032.40万元，占当期营业收入2.73%；虚增利润总额286.45万元，占当期利润总额37.65%。
+该诉讼由彼得·兰德谢夫特于2024年在加利福尼亚州联邦法院提起，起因是这家iPhone制造商在2024年年度软件开发者大会上宣布了一系列AI升级功能 并开始投放广告，称这些功能将于当年秋季随新款iPhone一同推出。
 
-以上事项，导致南新制药共计虚增2023年度营业收入6468.28万元，占当期营业收入8.69%；虚增利润总额1195.22万元，占当期利润总额157.11%。
+但最终发布的iPhone并未包含这些功能，原告方声称这损害了股东利益。
 
-故中国证监会湖南证监局拟决定：对南新制药及其相关责任人员给予警告，并各处以罚款。
+2025年，苹果表示Siri的人工智能全面升级要等到今年才推出 ，公司高管现已确认，新版Siri功能将于下月在苹果年度开发者大会上亮相。
 
-之前，2025年10月1日，南新制药发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+苹果在和解协议中并未承认存在任何过错，该协议仍需获得法官批准。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
+苹果在声明中表示，自2024年推出其所谓的“Apple Intelligence”以来，已发布了众多其他AI功能。
 
-权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
+“苹果已达成和解，以解决与两项新增功能可用性相关的索赔。
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 03:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 03:24 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 03:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 03:37 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 03:26 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 03:25 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 03:15 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 03:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 03:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 03:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 03:38 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 03:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 03:34 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 03:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 03:27 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 03:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 03:21 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 03:43 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 03:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 03:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 03:34 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 03:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 03:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 03:39 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/7391499383.shtml)
-- 2026-06-30 03:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/673232.shtml)
-- 2026-06-30 03:22 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/5239134740.shtml)
-- 2026-06-30 03:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/496376606332.shtml)
-- 2026-06-30 03:13 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/37647.shtml)
-- 2026-06-30 03:29 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/080111797934.shtml)
-- 2026-06-30 03:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/358393829.shtml)
-- 2026-06-30 03:13 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/88200152946.shtml)
-- 2026-06-30 03:29 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/5151736.shtml)
-- 2026-06-30 03:13 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/814171.shtml)
-- 2026-06-30 03:20 - [一生一世](https://www.share.kurohicncr.top/Article/details/42613.shtml)
-- 2026-06-30 03:39 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/024630247710.shtml)
-- 2026-06-30 03:15 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/081416879708.shtml)
-- 2026-06-30 03:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/901937104001.shtml)
-- 2026-06-30 03:31 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/130649101244.shtml)
+- 2026-06-30 03:43 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/092961994474.shtml)
+- 2026-06-30 03:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/458068842.shtml)
+- 2026-06-30 03:39 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/4588991900.shtml)
+- 2026-06-30 03:33 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/594548704.shtml)
+- 2026-06-30 03:21 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/9460290.shtml)
+- 2026-06-30 03:20 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/8701666489.shtml)
+- 2026-06-30 03:42 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/76655222735.shtml)
+- 2026-06-30 03:33 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/3850915.shtml)
+- 2026-06-30 03:24 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/31754.shtml)
+- 2026-06-30 03:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/84132623.shtml)
+- 2026-06-30 03:25 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/757786979.shtml)
+- 2026-06-30 03:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/73847997.shtml)
+- 2026-06-30 03:40 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/30079747.shtml)
+- 2026-06-30 03:33 - [时光音乐会](https://www.share.minike.top/Article/details/1119585443.shtml)
+- 2026-06-30 03:37 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/571762267.shtml)

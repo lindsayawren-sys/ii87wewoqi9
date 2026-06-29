@@ -1,46 +1,50 @@
-# 各地各部门举行世界献血者日主题活动
+# 追光的你｜我辈正青春
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 09:35 来源：央视综合 责任编辑：【王祎】
+视频：追光的你｜我辈正青春来源：央视网 青春何为？是心怀远方、步履不停，在追梦路上一往无前；是脚踏实地、实干笃行，在平凡岗位上默默坚守；是敢闯敢创、破局立新，在时代前沿勇立潮头；是初心如炬、胸怀家国，在复兴路上挺膺担当。 谨以此片，致敬所有把青春铺展在祖国大地上的奋斗者。新时代的中国，让每一束微光而明亮；青春的你我TA，是与时代同向的先锋力量。 总监制｜过 彤 骆红秉 监 制｜
 
 ## 正文
 
-发布时间：2026年06月15日 09:35 来源：央视综合 责任编辑：【王祎】
+视频：追光的你｜我辈正青春来源：央视网 青春何为？
+
+是心怀远方、步履不停，在追梦路上一往无前；是脚踏实地、实干笃行，在平凡岗位上默默坚守；是敢闯敢创、破局立新，在时代前沿勇立潮头；是初心如炬、胸怀家国，在复兴路上挺膺担当。
+
+谨以此片，致敬所有把青春铺展在祖国大地上的奋斗者。
+
+新时代的中国，让每一束微光而明亮；青春的你我TA，是与时代同向的先锋力量。
+
+总监制｜过 彤 骆红秉 监 制｜魏驱虎 唐晓艳 总制片人｜兰 军 制片人｜杨 乔 董迎晨 剪 辑｜卓 越 配 音｜曹煊一 视 觉｜张继颖 校 对｜任 佳 李英卓 出 品｜中央广播电视总台央视网
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 03:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 03:37 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 03:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 03:14 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 03:26 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 03:32 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 03:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 03:29 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 03:38 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 03:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 03:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 03:46 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 03:47 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 03:19 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 03:33 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 03:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 03:45 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 03:21 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:39 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 03:23 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/819027.shtml)
-- 2026-06-30 03:13 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/745075089.shtml)
-- 2026-06-30 03:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/21814659.shtml)
-- 2026-06-30 03:27 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/618371.shtml)
-- 2026-06-30 03:18 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/3107258.shtml)
-- 2026-06-30 03:20 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/629493406427.shtml)
-- 2026-06-30 03:14 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/44359299.shtml)
-- 2026-06-30 03:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/261873457.shtml)
-- 2026-06-30 03:35 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/637331.shtml)
-- 2026-06-30 03:26 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/932873.shtml)
-- 2026-06-30 03:35 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/5553600057.shtml)
-- 2026-06-30 03:27 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/1399618323.shtml)
-- 2026-06-30 03:41 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9370974327.shtml)
-- 2026-06-30 03:35 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/295911.shtml)
-- 2026-06-30 03:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/867747330936.shtml)
+- 2026-06-30 03:46 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/032262221.shtml)
+- 2026-06-30 03:30 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/62726.shtml)
+- 2026-06-30 03:41 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/4453671749.shtml)
+- 2026-06-30 03:42 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/2714835.shtml)
+- 2026-06-30 03:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/5665300.shtml)
+- 2026-06-30 03:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/9883124.shtml)
+- 2026-06-30 03:23 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/4205993.shtml)
+- 2026-06-30 03:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/972941261.shtml)
+- 2026-06-30 03:26 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/899390659930.shtml)
+- 2026-06-30 03:34 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/34555.shtml)
+- 2026-06-30 03:24 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/30838436.shtml)
+- 2026-06-30 03:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/966477.shtml)
+- 2026-06-30 03:23 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/4515366.shtml)
+- 2026-06-30 03:42 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/798058822408.shtml)
+- 2026-06-30 03:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/577962852.shtml)

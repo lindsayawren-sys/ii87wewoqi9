@@ -1,61 +1,59 @@
-# 2026VCT伦敦大师赛淘汰赛将启 各赛区头号种子亮相
+# 存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月12日电 经过五个比赛日的瑞士轮角逐，2026无畏契约伦敦大师赛八强于日前全部产生。来自VCT CN赛区的队伍占据其中两席，EDG战队与XLG战队将携手向最高荣誉发起冲击。 本届伦敦大师赛于北京时间6月6日启幕，来自CN赛区、EMEA赛区、太平洋赛区、美洲赛区的共12支战队获得了参赛资格。比赛分为瑞士轮与淘汰赛两个阶段：各大赛区一号种子均可直升淘汰赛，其余八支队伍
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨骆轶琪 见习记者林芊蔚 自2025年下半年开始，存储芯片行情紧俏，也让全球头部存储供应商动向成为关注焦点。 21世纪经济报道记者梳理发现，突然大幅度上涨的存储芯片行情正让头部厂商获得数倍的收入和盈利增长。其中韩国半导体巨头三星电子利润增长最为突出，一季度三星整体实现经营利润57.2万亿韩元，同比增长7
 
 ## 正文
 
-中新网北京6月12日电 经过五个比赛日的瑞士轮角逐，2026无畏契约伦敦大师赛八强于日前全部产生。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自VCT CN赛区的队伍占据其中两席，EDG战队与XLG战队将携手向最高荣誉发起冲击。
+记者丨骆轶琪 见习记者林芊蔚 自2025年下半年开始，存储芯片行情紧俏，也让全球头部存储供应商动向成为关注焦点。
 
-本届伦敦大师赛于北京时间6月6日启幕，来自CN赛区、EMEA赛区、太平洋赛区、美洲赛区的共12支战队获得了参赛资格。
+21世纪经济报道记者梳理发现，突然大幅度上涨的存储芯片行情正让头部厂商获得数倍的收入和盈利增长。
 
-比赛分为瑞士轮与淘汰赛两个阶段：各大赛区一号种子均可直升淘汰赛，其余八支队伍通过瑞士轮争夺四个淘汰赛名额。
+其中韩国半导体巨头三星电子利润增长最为突出，一季度三星整体实现经营利润57.2万亿韩元，同比增长756%；SK海力士一季度净利润40.35万亿韩元，同比增长398%；美国存储巨头闪迪2026财年第三财季（也即公历今年第一季度）净利润36.75亿美元，环比大增280%。
 
-从2026无畏契约冠军巡回赛CN联赛第一赛段中脱颖而出的EDG、XLG、DRG代表赛区出战，其中EDG直接晋级淘汰赛。
+今年以来，韩股半导体板块表现亮眼，SK海力士、三星电子近一年股价分别累涨683%，308%，5月4日开盘延续强劲涨势，截至发稿，SK海力士再涨6%，三星电子涨超2%。
 
-XLG战队在首战负于NRG的情况下迅速调整状态，他们先后以2比1的比分力克老对手DRG与太平洋赛区三号种子GE，有惊无险地从瑞士轮中突围。
+美股市场上，半导体板块同样吸睛，闪迪美股股价近一年以来狂飙3542%，西部数据涨超880%，希捷科技涨超700%。
 
-另一支来自 CN赛区的战队DRG则在连败之后遗憾告别了本次比赛舞台。
+集体赚翻 涨价和缺货行情驱动下，各大存储厂商的业绩表现堪称“炸裂”，尤其是盈利能力方面。
 
-根据赛程，淘汰赛采用双败淘汰赛制，每赢下一场都可获得冠军赛积分，为上海全球冠军赛铺路。
+三星电子发布的财报显示，第一季度公司实现销售收入133.9万亿韩元，同比增长69%，环比增长43%，其中半导体事业部（DS部门）实现销售收入81.7万亿韩元，环比增长86%。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 03:20 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 03:35 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 03:34 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 03:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 03:13 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:33 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 03:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 03:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 03:22 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 03:25 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 03:25 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 03:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 03:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 03:22 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 03:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 03:44 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 03:25 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 03:41 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:33 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 03:18 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 03:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 03:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 03:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 03:31 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 03:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 03:36 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 03:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/78633229.shtml)
-- 2026-06-30 03:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/155465019.shtml)
-- 2026-06-30 03:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/6242724.shtml)
-- 2026-06-30 03:16 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/5727453.shtml)
-- 2026-06-30 03:23 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/41582.shtml)
-- 2026-06-30 03:25 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/189947735281.shtml)
-- 2026-06-30 03:38 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/72861523786.shtml)
-- 2026-06-30 03:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/242993.shtml)
-- 2026-06-30 03:23 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7878448746.shtml)
-- 2026-06-30 03:27 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/79768717.shtml)
-- 2026-06-30 03:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/8378543890.shtml)
-- 2026-06-30 03:18 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/593365347995.shtml)
-- 2026-06-30 03:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/9209187267.shtml)
-- 2026-06-30 03:37 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/143921708.shtml)
-- 2026-06-30 03:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/930420213.shtml)
+- 2026-06-30 03:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/4100773648.shtml)
+- 2026-06-30 03:43 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/996977678.shtml)
+- 2026-06-30 03:38 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/3992509796.shtml)
+- 2026-06-30 03:19 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/6723780.shtml)
+- 2026-06-30 03:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/657985.shtml)
+- 2026-06-30 03:18 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/952361.shtml)
+- 2026-06-30 03:37 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/134422.shtml)
+- 2026-06-30 03:21 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/334358.shtml)
+- 2026-06-30 03:46 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/786155191282.shtml)
+- 2026-06-30 03:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/139111644436.shtml)
+- 2026-06-30 03:32 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/37180.shtml)
+- 2026-06-30 03:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/90816438.shtml)
+- 2026-06-30 03:40 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/95376994.shtml)
+- 2026-06-30 03:31 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/854766.shtml)
+- 2026-06-30 03:35 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/889305.shtml)

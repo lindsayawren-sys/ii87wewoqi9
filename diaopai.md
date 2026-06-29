@@ -1,59 +1,56 @@
-# 蚂蚁集团内测AI版支付宝！AI应用商业化具备广阔空间！软件开发ETF华宝（159036）盘中猛拉3.7%
+# 云南孔雀山雪景如画游人如织
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-今日（6月15日）软件开发方向表现活跃，直击AI应用前沿的——软件开发ETF华宝（159036）场内涨幅盘中上探3.75%，现涨1.98%，冲击日线2连阳！ 成份股方面，安博通领涨超16%，赛意信息、中科江南、赢时胜涨逾8%，鼎捷数智涨超7%，天阳科技、指南针、艾融软件等个股跟涨。 消息面上，Anthropic最强模型被禁，智谱国产新模型全量开放，业内看好国产模型价值重估。美国
+全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！一只流浪狗，为何让这座安徽小城收获泼天流量？短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每
 
 ## 正文
 
-今日（6月15日）软件开发方向表现活跃，直击AI应用前沿的——软件开发ETF华宝（159036）场内涨幅盘中上探3.75%，现涨1.98%，冲击日线2连阳！
+全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
 
-成份股方面，安博通领涨超16%，赛意信息、中科江南、赢时胜涨逾8%，鼎捷数智涨超7%，天阳科技、指南针、艾融软件等个股跟涨。
+一只流浪狗，为何让这座安徽小城收获泼天流量？
 
-消息面上，Anthropic最强模型被禁，智谱国产新模型全量开放，业内看好国产模型价值重估。
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
 
-美国政府以国家安全为由发布出口管制指令，要求暂停所有外国公民访问Anthropic最强模型Fable5和Mythos5。
+爱奇艺，到底在急什么？
 
-智谱旗下国产大模型GLM-5.2面向GLM Coding Plan全量用户开放。
+榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
 
-业内人士认为，在海外闭源前沿模型访问不确定性上升的背景下，国产开源模型的可用性、稳定性和开发者生态价值正在被重估。
+从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
 
-据悉，蚂蚁集团正在秘密测试AI版支付宝，腾讯旗下微信、阿里千问、字节豆包等均在加速构建各自AI生态，大厂纷纷加速AI应用落地。
+“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
 
-中国银河证券指出，随着国内大模型的持续迭代与落地，AI应用商业化具备广阔发展空间，相关企业有望受益于需求上升带来的新增量，建议关注大模型厂商。
+这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 03:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 03:21 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 03:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 03:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 03:35 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 03:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 03:39 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:41 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 03:19 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 03:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 03:20 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 03:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 03:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 03:21 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 03:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 03:37 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 03:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 03:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 03:44 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/4345375.shtml)
-- 2026-06-30 03:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/374933183.shtml)
-- 2026-06-30 03:14 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/4747849193.shtml)
-- 2026-06-30 03:26 - [沙丘](http://www.blog.kurohicncr.top/Article/details/873583880.shtml)
-- 2026-06-30 03:32 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/369973.shtml)
-- 2026-06-30 03:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/11349316.shtml)
-- 2026-06-30 03:15 - [沙丘](http://www.blog.kurohicncr.top/Article/details/09091147675.shtml)
-- 2026-06-30 03:24 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/263720.shtml)
-- 2026-06-30 03:30 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/14137908.shtml)
-- 2026-06-30 03:36 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/596244415.shtml)
-- 2026-06-30 03:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/31183.shtml)
-- 2026-06-30 03:30 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/821234.shtml)
-- 2026-06-30 03:33 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/619783.shtml)
-- 2026-06-30 03:31 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/0853698.shtml)
-- 2026-06-30 03:16 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/565952228.shtml)
+- 2026-06-30 03:26 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/245935070413.shtml)
+- 2026-06-30 03:28 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/34629203811.shtml)
+- 2026-06-30 03:23 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/34590.shtml)
+- 2026-06-30 03:28 - [刘念回应](http://www.share.minike.top/Article/details/87491.shtml)
+- 2026-06-30 03:47 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/729299985.shtml)
+- 2026-06-30 03:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/7217173.shtml)
+- 2026-06-30 03:31 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/760846.shtml)
+- 2026-06-30 03:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/57641212132.shtml)
+- 2026-06-30 03:33 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/488246.shtml)
+- 2026-06-30 03:34 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/5041508479.shtml)
+- 2026-06-30 03:42 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/301251535581.shtml)
+- 2026-06-30 03:29 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/882548.shtml)
+- 2026-06-30 03:27 - [流金岁月](http://www.share.minike.top/Article/details/7835133481.shtml)
+- 2026-06-30 03:21 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/82892922847.shtml)
+- 2026-06-30 03:19 - [时光音乐会](https://www.blog.minike.top/Article/details/79943321.shtml)

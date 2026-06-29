@@ -1,43 +1,57 @@
-# 伊朗副外长确认伊美谅解备忘录已达成一致
+# 欧洲央行管委Villeroy：未看到油价产生足以促使加息的影响
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 09:10 来源：央视新闻 责任编辑：【王祎】
+欧洲央行即将卸任的管理委员会成员Francois Villeroy de Galhau表示，该行尚未看到油价上涨对通胀产生足以促使其加息的影响。 “如果我们看到这样的第二轮效应，我们将采取行动并加息，以防止通胀变得广泛且持久，”他周二对法国第五电视台说。“目前，我们没有看到足够迹象表明这种传导正在发生。” 在宣布将于5月底退休后，Villeroy将不会参加下一次政策会议。他的任
 
 ## 正文
 
-发布时间：2026年06月15日 09:10 来源：央视新闻 责任编辑：【王祎】
+欧洲央行即将卸任的管理委员会成员Francois Villeroy de Galhau表示，该行尚未看到油价上涨对通胀产生足以促使其加息的影响。
+
+“如果我们看到这样的第二轮效应，我们将采取行动并加息，以防止通胀变得广泛且持久，”他周二对法国第五电视台说。
+
+“目前，我们没有看到足够迹象表明这种传导正在发生。
+
+” 在宣布将于5月底退休后，Villeroy将不会参加下一次政策会议。
+
+他的任期原定于明年结束。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 03:34 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 03:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 03:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 03:39 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 03:24 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 03:13 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 03:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 03:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 03:32 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 03:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 03:20 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 03:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 03:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 03:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 03:42 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:36 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 03:24 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 03:33 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 03:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:26 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 03:39 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 03:38 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 03:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:19 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:45 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/4202553.shtml)
-- 2026-06-30 03:21 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/57211.shtml)
-- 2026-06-30 03:13 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/53780.shtml)
-- 2026-06-30 03:28 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/873125781306.shtml)
-- 2026-06-30 03:34 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/16853779.shtml)
-- 2026-06-30 03:22 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/3007545239.shtml)
-- 2026-06-30 03:32 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/37242.shtml)
-- 2026-06-30 03:18 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/3843378.shtml)
-- 2026-06-30 03:20 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/3771390211.shtml)
-- 2026-06-30 03:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/2901361.shtml)
-- 2026-06-30 03:40 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/12976.shtml)
-- 2026-06-30 03:24 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/59732184.shtml)
-- 2026-06-30 03:16 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/4532156.shtml)
-- 2026-06-30 03:28 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/72013.shtml)
-- 2026-06-30 03:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/913241766.shtml)
+- 2026-06-30 03:38 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/67619.shtml)
+- 2026-06-30 03:39 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/94289808447.shtml)
+- 2026-06-30 03:39 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/911655.shtml)
+- 2026-06-30 03:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/303212.shtml)
+- 2026-06-30 03:35 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/556140748.shtml)
+- 2026-06-30 03:21 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/0870223.shtml)
+- 2026-06-30 03:32 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/460565512.shtml)
+- 2026-06-30 03:36 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/38072.shtml)
+- 2026-06-30 03:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/32693965.shtml)
+- 2026-06-30 03:45 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/78325019632.shtml)
+- 2026-06-30 03:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/75706719.shtml)
+- 2026-06-30 03:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/7334408.shtml)
+- 2026-06-30 03:18 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/98535753927.shtml)
+- 2026-06-30 03:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/884878955.shtml)
+- 2026-06-30 03:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/1323369.shtml)

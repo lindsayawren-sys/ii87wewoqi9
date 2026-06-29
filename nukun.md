@@ -1,58 +1,61 @@
-# 张伯驹：捐出“半个故宫”的收藏家
+# 陈茂波：香港加快构建成为全球高增值供应链管理中心
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：仇广宇 发于2026.6.15总第1239期《中国新闻周刊》杂志 1941年6月的一个清晨，收藏家张伯驹走出位于上海的寓所，坐上汽车前往外滩。不久后，他就消失在人们的视野之中。消息传出，整个上海滩都开始关注起这位大收藏家的安危。直到八个月之后，历尽艰辛的他才回到家中。 后来，人们得知，张伯驹成了一桩绑架案的人质，绑架策划者是他的同事李祖莱。对方开出300万伪币
+中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。 陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
 
 ## 正文
 
-中国新闻周刊记者：仇广宇 发于2026.6.15总第1239期《中国新闻周刊》杂志 1941年6月的一个清晨，收藏家张伯驹走出位于上海的寓所，坐上汽车前往外滩。
+中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。
 
-不久后，他就消失在人们的视野之中。
+陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
 
-消息传出，整个上海滩都开始关注起这位大收藏家的安危。
+他强调，香港作为国际贸易枢纽，新的增长空间与发展机遇不断涌现，并且是“量”与“质”同步提升。
 
-直到八个月之后，历尽艰辛的他才回到家中。
+同时，香港全力推动“AI+”与“金融+”相互促进的发展策略，加速千行百业升级转型，加强香港经济动能与韧性，以更好应对可能出现的不利因素。
 
-后来，人们得知，张伯驹成了一桩绑架案的人质，绑架策划者是他的同事李祖莱。
+陈茂波称，在国家“十五五”规划下，正全速推动构建现代化产业体系，促进科技创新与产业创新深度融合，推动产业结构向智能化、绿色化和融合化方向提升，并与区域内的产供链实现更深度互补分工。
 
-对方开出300万伪币的天价，逼迫他出售手中的国宝《平复帖》，换取平安。
+香港在以自身所长服务国家所需的发展过程中，正更好地发挥自身功能。
 
-但被绑架的张伯驹并未屈服，他交代家人，即使自己丧失生命，也不能让国宝流入市场，面临流失海外的风险。
+他提到，私人消费持续改善，出口及固定投资表现继续向好，即将公布的今年一季度香港本地生产总值预估数据，将较去年第四季度经修订的4%增长进一步加快，成为近5年来最强劲的季度增长。
 
-如今，这起绑架案也有了新的回响。
+陈茂波指出，过去一年多，香港本地消费市道复苏趋势明显。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 03:20 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 03:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 03:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 03:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 03:33 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 03:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 03:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 03:28 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 03:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 03:36 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 03:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 03:29 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 03:32 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 03:33 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 03:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 03:44 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 03:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 03:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:28 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 03:44 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 03:40 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 03:43 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 03:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 03:26 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 03:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/658631485.shtml)
-- 2026-06-30 03:17 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/766619.shtml)
-- 2026-06-30 03:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/15724572.shtml)
-- 2026-06-30 03:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/579498198.shtml)
-- 2026-06-30 03:14 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/8698924561.shtml)
-- 2026-06-30 03:41 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/1530397421.shtml)
-- 2026-06-30 03:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/07218.shtml)
-- 2026-06-30 03:21 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/672801691718.shtml)
-- 2026-06-30 03:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/3543994836.shtml)
-- 2026-06-30 03:38 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/357277.shtml)
-- 2026-06-30 03:37 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/6002426474.shtml)
-- 2026-06-30 03:35 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/41074843714.shtml)
-- 2026-06-30 03:30 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/12278.shtml)
-- 2026-06-30 03:32 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/22281840855.shtml)
-- 2026-06-30 03:16 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/7480469383.shtml)
+- 2026-06-30 03:19 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/89592737.shtml)
+- 2026-06-30 03:22 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/437725.shtml)
+- 2026-06-30 03:23 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/077777460.shtml)
+- 2026-06-30 03:21 - [这一刀 会很帅](http://www.share.minike.top/Article/details/957317.shtml)
+- 2026-06-30 03:25 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/35937.shtml)
+- 2026-06-30 03:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/7182772.shtml)
+- 2026-06-30 03:28 - [85花告别古偶](http://www.share.minike.top/Article/details/846543.shtml)
+- 2026-06-30 03:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/372972439063.shtml)
+- 2026-06-30 03:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/26184839194.shtml)
+- 2026-06-30 03:41 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/87717045648.shtml)
+- 2026-06-30 03:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/7080195.shtml)
+- 2026-06-30 03:35 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/851467.shtml)
+- 2026-06-30 03:42 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/221603.shtml)
+- 2026-06-30 03:19 - [小娘惹](https://www.share.kurohicncr.top/Article/details/1091303023.shtml)
+- 2026-06-30 03:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/50007004.shtml)

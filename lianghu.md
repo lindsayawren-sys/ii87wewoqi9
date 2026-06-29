@@ -1,59 +1,59 @@
-# 足不出户“游蜀道” 蜀道千年数字展在川上线
+# 伊朗袭击富查伊拉，为何对能源市场至关重要
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网乐山6月13日电 (记者 刘忠俊)6月13日，《蜀道千年：山河史诗与华夏脊梁蜀道数字展》在四川正式上线。该数字展由四川省文物局指导、四川省文物交流和信息中心出品，融合虚实交互技术、游戏化叙事与权威学术成果，突破实体展览物理空间限制，让网友足不出户即可沉浸式感悟蜀道千年文明底蕴。 蜀道横跨秦岭、巴山两大山系，是古代连通中原腹地与西南巴蜀地区的核心陆路通道，素来地势险峻、通行
+伊朗对富查伊拉的袭击，正中阿联酋石油“逃生通道”的要害。该港口旨在确保即便在霍尔木兹海峡陷入瘫痪的情况下，阿联酋的石油运输也能畅通无阻。 该港口位于阿曼湾，地处霍尔木兹海峡之外，也是哈卜善-富查伊拉输油管道的终点。这条管道能让阿布扎比将其油田开采的部分原油直接输送到海岸，无需油轮再取道霍尔木兹海峡。 该管道的日输油能力最高可达180万桶。战前，阿联酋的原油日产量约为340万桶。
 
 ## 正文
 
-中新网乐山6月13日电 (记者 刘忠俊)6月13日，《蜀道千年：山河史诗与华夏脊梁蜀道数字展》在四川正式上线。
+伊朗对富查伊拉的袭击，正中阿联酋石油“逃生通道”的要害。
 
-该数字展由四川省文物局指导、四川省文物交流和信息中心出品，融合虚实交互技术、游戏化叙事与权威学术成果，突破实体展览物理空间限制，让网友足不出户即可沉浸式感悟蜀道千年文明底蕴。
+该港口旨在确保即便在霍尔木兹海峡陷入瘫痪的情况下，阿联酋的石油运输也能畅通无阻。
 
-蜀道横跨秦岭、巴山两大山系，是古代连通中原腹地与西南巴蜀地区的核心陆路通道，素来地势险峻、通行艰险。
+该港口位于阿曼湾，地处霍尔木兹海峡之外，也是哈卜善-富查伊拉输油管道的终点。
 
-蜀道体系肇始于新石器时代，历经古道开凿、路网完善与近代交通体系更迭，贯穿中国古代文明发展全过程，深刻影响古代军事布防、商贸流通、政权治理、文化传播进程，是中华文明极具代表性的线性文化遗产廊道。
+这条管道能让阿布扎比将其油田开采的部分原油直接输送到海岸，无需油轮再取道霍尔木兹海峡。
 
-据介绍，传统蜀道体系分为南北主干道路及多条支线。
+该管道的日输油能力最高可达180万桶。
 
-秦岭北侧干道包含故道、褒斜道、傥骆道、子午道；巴山南侧干道涵盖金牛道、米仓道、荔枝道，祁山道、阴平道为重要支线。
+战前，阿联酋的原油日产量约为340万桶。
 
-本次数字展选取金牛道、米仓道、荔枝道、阴平道四条古道为主线，遵循古入川行进脉络，依托手绘专题地图，串联明月峡、昭化古城、剑门关、翠云廊、七曲山大庙、白马关等沿线核心文化遗产点位。
+富查伊拉同时也是一个主要的石油储备枢纽和船舶加油点。
 
-数字展系统梳理古道修筑背景与发展脉络，阐释栈道、古城、关隘等遗存历史价值，同步整合蜀道文旅线路、石刻碑刻、历代古道诗文等延伸内容，兼顾观赏体验与学术科普属性，全方位解读蜀道核心文化内涵。
+此次袭击发生前几天，阿联酋刚刚宣布退出欧佩克（OPEC）石油卡特尔。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 03:22 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 03:28 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 03:40 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 03:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 03:31 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 03:39 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 03:24 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 03:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:36 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:18 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 03:38 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 03:37 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 03:25 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 03:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 03:35 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 03:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 03:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 03:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 03:40 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 03:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 03:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 03:27 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 03:31 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 03:29 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 03:21 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/54020499945.shtml)
-- 2026-06-30 03:22 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/512879133.shtml)
-- 2026-06-30 03:22 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/5712108252.shtml)
-- 2026-06-30 03:41 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/04517316680.shtml)
-- 2026-06-30 03:25 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/2371834572.shtml)
-- 2026-06-30 03:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/50628278.shtml)
-- 2026-06-30 03:39 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/950916.shtml)
-- 2026-06-30 03:23 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/91865877267.shtml)
-- 2026-06-30 03:16 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/110936412.shtml)
-- 2026-06-30 03:15 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/5177729217.shtml)
-- 2026-06-30 03:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/32009.shtml)
-- 2026-06-30 03:26 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/89379905669.shtml)
-- 2026-06-30 03:27 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/446896879.shtml)
-- 2026-06-30 03:12 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/0834924.shtml)
-- 2026-06-30 03:33 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/7204659149.shtml)
+- 2026-06-30 03:38 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/784377923.shtml)
+- 2026-06-30 03:24 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/074634.shtml)
+- 2026-06-30 03:40 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/11532683476.shtml)
+- 2026-06-30 03:21 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/512311089.shtml)
+- 2026-06-30 03:47 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/94052952.shtml)
+- 2026-06-30 03:33 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/326700264753.shtml)
+- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/6335198.shtml)
+- 2026-06-30 03:45 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/1363790.shtml)
+- 2026-06-30 03:21 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/04853.shtml)
+- 2026-06-30 03:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/3240356.shtml)
+- 2026-06-30 03:28 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/65956.shtml)
+- 2026-06-30 03:21 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/8035099.shtml)
+- 2026-06-30 03:21 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/935971973046.shtml)
+- 2026-06-30 03:36 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/3104418438.shtml)
+- 2026-06-30 03:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/47972.shtml)

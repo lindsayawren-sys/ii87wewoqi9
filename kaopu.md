@@ -1,43 +1,57 @@
-# 华宝基金红利风向标 | 银行、券商等高股息板块走高，华宝红利家族全线飘红！
+# 商业航天领域大收购！300069，明起停牌
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！金利华电（300069）正拟通过外延收购方式布局商业航天领域。 5月5日晚间，公司发布公告称正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，公司股票5月6日开市时起开始停牌。 此番，金利华电拟收购标的为商业航天领域知名企业——西安中科西光航天
 
 ## 正文
 
-责任编辑：常福强
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+金利华电（300069）正拟通过外延收购方式布局商业航天领域。
+
+5月5日晚间，公司发布公告称正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，公司股票5月6日开市时起开始停牌。
+
+此番，金利华电拟收购标的为商业航天领域知名企业——西安中科西光航天科技集团有限公司（简称“中科西光”）。
+
+业绩承压 发力并购 4月份大涨45%的金利华电发布了发行股份购买资产并停牌的公告。
+
+金利华电公告称，正在筹划发行股份及支付现金购买资产并募集配套资金暨关联交易事项，因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相关规定，经公司申请，公司证券自2026年5月6日开市时起开始停牌。
+
+公司预计在不超过10个交易日的时间内披露本次交易方案，即在2026年5月20日前按照《公开发行证券的公司信息披露内容与格式准则第26号——上市公司重大资产重组》的要求披露相关信息。
+
+若公司未能在上述期限内召开董事会审议并披露交易方案，公司证券最晚将于2026年5月20日开市起复牌并终止筹划相关事项，同时披露停牌期间筹划事项的主要工作、事项进展、对公司的影响以及后续安排等事项，充分提示相关事项的风险和不确定性，并承诺自披露相关公告之日起至少1个月内不再筹划重大资产重组事项。
 
 ## 相关推荐
 
-- 2026-06-30 03:16 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 03:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 03:31 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 03:25 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 03:40 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 03:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 03:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 03:15 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 03:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 03:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 03:37 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 03:42 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 03:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 03:20 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 03:23 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 03:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 03:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 03:23 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 03:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 03:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 03:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/587825165.shtml)
-- 2026-06-30 03:12 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/35638591.shtml)
-- 2026-06-30 03:14 - [极限挑战第一季](http://www.blog.minike.top/Article/details/44038264918.shtml)
-- 2026-06-30 03:29 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/368107898.shtml)
-- 2026-06-30 03:37 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/3058718.shtml)
-- 2026-06-30 03:12 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/821798.shtml)
-- 2026-06-30 03:21 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/526102572589.shtml)
-- 2026-06-30 03:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/8244611.shtml)
-- 2026-06-30 03:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/81923392153.shtml)
-- 2026-06-30 03:14 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/28646.shtml)
-- 2026-06-30 03:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/30812130340.shtml)
-- 2026-06-30 03:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/38413802.shtml)
-- 2026-06-30 03:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/54250.shtml)
-- 2026-06-30 03:41 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/013768688726.shtml)
-- 2026-06-30 03:32 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/168005.shtml)
+- 2026-06-30 03:21 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/092813384.shtml)
+- 2026-06-30 03:36 - [流金岁月](https://www.share.minike.top/Article/details/365728524.shtml)
+- 2026-06-30 03:46 - [巴西vs日本](http://www.blog.minike.top/Article/details/973566342401.shtml)
+- 2026-06-30 03:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3763838.shtml)
+- 2026-06-30 03:22 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4674358737.shtml)
+- 2026-06-30 03:23 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/73931319.shtml)
+- 2026-06-30 03:35 - [毒液2](https://www.share.minike.top/Article/details/3439664138.shtml)
+- 2026-06-30 03:25 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/7955908472.shtml)
+- 2026-06-30 03:29 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/217831.shtml)
+- 2026-06-30 03:42 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/856834.shtml)
+- 2026-06-30 03:32 - [斗破苍穹](http://www.share.minike.top/Article/details/3303565.shtml)
+- 2026-06-30 03:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/2540386123.shtml)
+- 2026-06-30 03:37 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/962187730.shtml)
+- 2026-06-30 03:42 - [金刚川](http://www.share.minike.top/Article/details/73021293.shtml)
+- 2026-06-30 03:20 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/259066974.shtml)

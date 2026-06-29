@@ -1,58 +1,56 @@
-# 强心针来了！美伊和解，不仅终结战乱，更打通能源“大动脉”？
+# 越秀地产拟透过转让目标公司出售资产及业务
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——持续三个多月的中东地缘冲突迎来历史性转折，美国与伊朗正式达成永久停战协议，获得全球多国及国际组织的广泛认可。 此次和解不仅终结了区域战乱、修复中东局势，还将疏通全球能源运输通道，有效缓解能源通胀压力，为全球央行货币政策调整释放充足空间，对全球经济与金融市场有着深远的积极影响。 美伊敲定停战协议，多项核心条款落地 巴基斯坦总理夏巴兹·谢里夫（Shehbaz S
+越秀地产（00123）发布公告，于2026年5月1日，各相关卖方（广州隽景、广州庆越、佳景环球及广州城建）与各相关买方（广州造纸集团、广州越秀智造、广州越秀实业投资及广州越秀健康）订立相关转让协议，据此，相关卖方有条件同意出售，而相关买方有条件同意收购于目标公司的股权。各份转让协议互为条件，并应待（ 其中包括 ）独立股东于股东特别大会上通过批准所有转让协议项下拟进行交易的决议案
 
 ## 正文
 
-汇通财经APP讯——持续三个多月的中东地缘冲突迎来历史性转折，美国与伊朗正式达成永久停战协议，获得全球多国及国际组织的广泛认可。
+越秀地产（00123）发布公告，于2026年5月1日，各相关卖方（广州隽景、广州庆越、佳景环球及广州城建）与各相关买方（广州造纸集团、广州越秀智造、广州越秀实业投资及广州越秀健康）订立相关转让协议，据此，相关卖方有条件同意出售，而相关买方有条件同意收购于目标公司的股权。
 
-此次和解不仅终结了区域战乱、修复中东局势，还将疏通全球能源运输通道，有效缓解能源通胀压力，为全球央行货币政策调整释放充足空间，对全球经济与金融市场有着深远的积极影响。
+各份转让协议互为条件，并应待（ 其中包括 ）独立股东于股东特别大会上通过批准所有转让协议项下拟进行交易的决议案后，方告生效。
 
-美伊敲定停战协议，多项核心条款落地 巴基斯坦总理夏巴兹·谢里夫（Shehbaz Sharif）表示，历经数月断断续续的谈判与区域冲突，美伊双方于周日达成协议，将即刻永久终止中东战事。
+目标公司（南沙国际金融中心目标公司、云谷产业园目标公司、智谷产业园目标公司、毕节酒店目标公司及康养目标公司）持有多项资产及业务，包括（ 其中包括 ）南沙国际金融中心、云谷产业园、智谷产业园、毕节酒店以及医疗、护理及养老业务。
 
-据悉，双方将于本周五在瑞士举行正式签约仪式，后续将开启为期60天的专项谈判，重点磋商伊朗核计划相关事宜。
+于完成后，本公司将不再于目标公司及该等物业拥有任何权益。
 
-美国总统特朗普表态，将即刻解除美国对伊朗的海上封锁。
+因此，目标公司将不再为本公司的附属公司，而目标公司的财务业绩将不再综合并入本公司的财务业绩。
 
-虽然协议最终完整文本尚未对外公示，但伊朗官方媒体披露，这份长达14页的谅解备忘录草案包含两项核心内容，美方将取消对伊朗的石油制裁，伊朗则承诺在30天内重新开放霍尔木兹海峡，恢复正常通航。
-
-多国积极响应，欧洲拟解除对伊制裁 协议官宣后，英国、法国、德国、意大利四国发布联合声明，对美伊停战协议予以高度肯定。
-
-四国表示，此次和解是修复中东区域秩序、稳定全球经济的关键契机，同时明确释放善意，只要伊朗在核治理领域落实清晰、可核查的整改举措，欧洲四国将逐步解除对伊相关制裁。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 03:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 03:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 03:20 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 03:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 03:26 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 03:28 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 03:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 03:12 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 03:40 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 03:19 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 03:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 03:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 03:40 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 03:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 03:33 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 03:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 03:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 03:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 03:21 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 03:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 03:35 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 03:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 03:26 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/16510596.shtml)
-- 2026-06-30 03:38 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/612360962.shtml)
-- 2026-06-30 03:35 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/4143247.shtml)
-- 2026-06-30 03:22 - [人类...完蛋了...](https://www.share.minike.top/Article/details/87713307.shtml)
-- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/50686606.shtml)
-- 2026-06-30 03:22 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/77286.shtml)
-- 2026-06-30 03:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/8815975.shtml)
-- 2026-06-30 03:28 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/256419979.shtml)
-- 2026-06-30 03:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/30212.shtml)
-- 2026-06-30 03:19 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/5514118.shtml)
-- 2026-06-30 03:14 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/236371.shtml)
-- 2026-06-30 03:34 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/94020802539.shtml)
-- 2026-06-30 03:34 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/9107581.shtml)
-- 2026-06-30 03:33 - [第一炉香](https://www.share.minike.top/Article/details/90280839.shtml)
-- 2026-06-30 03:25 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/0179841.shtml)
+- 2026-06-30 03:27 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/39533.shtml)
+- 2026-06-30 03:45 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/3923847312.shtml)
+- 2026-06-30 03:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/0762757375.shtml)
+- 2026-06-30 03:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/890690965.shtml)
+- 2026-06-30 03:40 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/696152.shtml)
+- 2026-06-30 03:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/179463.shtml)
+- 2026-06-30 03:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/58413740.shtml)
+- 2026-06-30 03:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/64184866.shtml)
+- 2026-06-30 03:46 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/881763.shtml)
+- 2026-06-30 03:44 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/68151150260.shtml)
+- 2026-06-30 03:41 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/63075308.shtml)
+- 2026-06-30 03:30 - [人类...完蛋了...](https://www.share.minike.top/Article/details/73928.shtml)
+- 2026-06-30 03:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/41437819842.shtml)
+- 2026-06-30 03:34 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/4328707098.shtml)
+- 2026-06-30 03:39 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/9548427.shtml)

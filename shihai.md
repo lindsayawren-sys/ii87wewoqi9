@@ -1,57 +1,61 @@
-# 英国央行利率决议前夕 人们对通胀的担忧正日益上升
+# Calamos全球动态收益基金宣布月度派息
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。 在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。 “劳动力市场的势头已显著降温，”St James’s Place的经济学
+Calamos投资公司宣布，旗下封闭式基金Calamos全球动态收益基金（CHW）将进行月度股息派发。 根据公司公告，CHW基金将于2026年5月21日向股东派发每股0.05美元的现金股息，股权登记日及除息日均为5月14日。此次派息延续了该基金长期以来的月度派息政策，数据显示CHW基金持续保持稳定的月度分红记录。 CHW基金成立于2007年6月27日，是一家封闭式管理投资公司。
 
 ## 正文
 
-新华财经北京6月15日电 英国央行将于周四举行利率决议，会议或将以多数票决定维持利率不变，但此次会议预计将反映出货币政策委员会对长期能源危机带来的通胀风险日益增长的担忧。
+Calamos投资公司宣布，旗下封闭式基金Calamos全球动态收益基金（CHW）将进行月度股息派发。
 
-在英国央行行长贝利和副行长布里登等高级官员呼吁央行在应对通胀上升风险前应保持谨慎后，市场普遍预期该行将把关键利率维持在3.75%不变。
+根据公司公告，CHW基金将于2026年5月21日向股东派发每股0.05美元的现金股息，股权登记日及除息日均为5月14日。
 
-“劳动力市场的势头已显著降温，”St James’s Place的经济学家Hetal Mehta表示，“我认为目前尚无足够动力支持加息。
+此次派息延续了该基金长期以来的月度派息政策，数据显示CHW基金持续保持稳定的月度分红记录。
 
-” 但至少两位利率制定者——英国央行首席经济学家皮尔和货币政策委员格林——已暗示将要求立即加息。
+CHW基金成立于2007年6月27日，是一家封闭式管理投资公司。
 
-另一位货币政策委员曼恩则表示，如果能源危机恶化，不排除在某个时间点上调利率的可能性。
+基金的投资目标是以创造高水平的当期收益为主，以资本增值为次要目标。
 
-编辑：马萌伟 责任编辑：郭建
+基金主要投资于全球多元化的可转换工具、普通股和优先股，以及投资级和低于投资级（高收益/高风险）的收益型证券。
+
+截至2026年2月28日，基金前三大持仓分别为台积电（5.38%）、三星电子（3.60%）和英伟达（2.86%）。
+
+从股息构成来看，2026年5月派息全部来自短期资本收益，不包含普通收益或长期资本收益成分。
 
 ## 相关推荐
 
-- 2026-06-30 03:13 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 03:16 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:33 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 03:38 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 03:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 03:26 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 03:20 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 03:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 03:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 03:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 03:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 03:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 03:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 03:17 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 03:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 03:33 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:20 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 03:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 03:44 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 03:21 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 03:40 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 03:35 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 03:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 03:28 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 03:37 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 03:45 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 03:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 03:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 03:37 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 03:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/589998037910.shtml)
-- 2026-06-30 03:16 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/110622087.shtml)
-- 2026-06-30 03:33 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/8774482958.shtml)
-- 2026-06-30 03:39 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/402782.shtml)
-- 2026-06-30 03:29 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/853573208.shtml)
-- 2026-06-30 03:37 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/07255634.shtml)
-- 2026-06-30 03:16 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/97659.shtml)
-- 2026-06-30 03:38 - [绘画区你赢了](https://www.blog.minike.top/Article/details/79063792216.shtml)
-- 2026-06-30 03:35 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/926491071572.shtml)
-- 2026-06-30 03:18 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/55773.shtml)
-- 2026-06-30 03:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/752888398654.shtml)
-- 2026-06-30 03:35 - [日本领先巴西](http://www.share.minike.top/Article/details/9455667.shtml)
-- 2026-06-30 03:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/143688173087.shtml)
-- 2026-06-30 03:14 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/273384257.shtml)
-- 2026-06-30 03:19 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/166744.shtml)
+- 2026-06-30 03:32 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/734529.shtml)
+- 2026-06-30 03:33 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/877943983.shtml)
+- 2026-06-30 03:43 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/91439581.shtml)
+- 2026-06-30 03:19 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/49647603.shtml)
+- 2026-06-30 03:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/32119031.shtml)
+- 2026-06-30 03:21 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/95166045.shtml)
+- 2026-06-30 03:39 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/90068014057.shtml)
+- 2026-06-30 03:34 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/3845535.shtml)
+- 2026-06-30 03:34 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/103114266537.shtml)
+- 2026-06-30 03:46 - [扬名立万](https://www.share.kurohicncr.top/Article/details/72539.shtml)
+- 2026-06-30 03:28 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/41289322.shtml)
+- 2026-06-30 03:25 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/84283.shtml)
+- 2026-06-30 03:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/916368840754.shtml)
+- 2026-06-30 03:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/61913.shtml)
+- 2026-06-30 03:26 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/62848.shtml)

@@ -1,57 +1,51 @@
-# 报道：派拉蒙与华纳兄弟探索合并案获美国司法部批准
+# 小摩：港交所给予“增持”评级 目标价535港元
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-一位知情人士周五表示，美国司法部已批准派拉蒙天舞影业（Paramount Skydance）对华纳兄弟探索的拟议收购。 这笔约1100亿美元的交易因反垄断担忧而受到批评，此次获批是一个重要里程碑，不过它仍可能面临来自各州总检察长的法律挑战。根据此前报道，加州总检察长罗伯·邦塔是审查该提案的官员之一。 派拉蒙CEO大卫·埃里森在公司4月财报电话会议上向投资者表示，该交易有望在9月
+摩根大通发布研报称，香港交易所（00388）今年首季净利润录得52亿元，按季增长20%，同比增长27%。盈利较该行预期高出9%，各业务收入及成本方面均表现强劲，证券及衍生产品成交量稳健，料股价反应正面；给予港交所“增持”评级，目标价535港元。责任编辑：卢昱君
 
 ## 正文
 
-一位知情人士周五表示，美国司法部已批准派拉蒙天舞影业（Paramount Skydance）对华纳兄弟探索的拟议收购。
+摩根大通发布研报称，香港交易所（00388）今年首季净利润录得52亿元，按季增长20%，同比增长27%。
 
-这笔约1100亿美元的交易因反垄断担忧而受到批评，此次获批是一个重要里程碑，不过它仍可能面临来自各州总检察长的法律挑战。
+盈利较该行预期高出9%，各业务收入及成本方面均表现强劲，证券及衍生产品成交量稳健，料股价反应正面；给予港交所“增持”评级，目标价535港元。
 
-根据此前报道，加州总检察长罗伯·邦塔是审查该提案的官员之一。
-
-派拉蒙CEO大卫·埃里森在公司4月财报电话会议上向投资者表示，该交易有望在9月前完成，之后将触发所谓的“计时期权费”，使交易成本增加。
-
-这项拟议的合并已获得华纳兄弟探索股东的批准。
-
-2月下旬，派拉蒙提出以每股31美元的价格收购华纳兄弟探索的全部资产，后者包括CNN、TBS等有线电视网、华纳兄弟电影制片厂以及流媒体平台HBO Max。
-
-这一提议是在多次报价后提出的，并推翻了此前与Netflix达成的、由Netflix收购华纳兄弟探索流媒体及电影资产的协议。
-
-派拉蒙仍在等待欧洲监管机构的批准。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 03:15 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 03:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:33 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 03:20 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 03:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 03:18 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 03:36 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 03:24 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 03:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:43 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 03:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 03:47 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 03:35 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 03:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 03:27 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 03:43 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 03:19 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 03:31 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 03:38 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 03:23 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 03:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 03:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 03:22 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:21 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/47326724515.shtml)
-- 2026-06-30 03:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/34872645.shtml)
-- 2026-06-30 03:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/981629693982.shtml)
-- 2026-06-30 03:29 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/25246.shtml)
-- 2026-06-30 03:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/345508611.shtml)
-- 2026-06-30 03:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/145096.shtml)
-- 2026-06-30 03:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/94521001.shtml)
-- 2026-06-30 03:29 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/35194.shtml)
-- 2026-06-30 03:24 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/366980237.shtml)
-- 2026-06-30 03:19 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/2607330.shtml)
-- 2026-06-30 03:34 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/785648052.shtml)
-- 2026-06-30 03:40 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/57906.shtml)
-- 2026-06-30 03:15 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/68645.shtml)
-- 2026-06-30 03:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/560849.shtml)
-- 2026-06-30 03:23 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/0370331.shtml)
+- 2026-06-30 03:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/291444524.shtml)
+- 2026-06-30 03:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/738532610.shtml)
+- 2026-06-30 03:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/20212110529.shtml)
+- 2026-06-30 03:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8561127899.shtml)
+- 2026-06-30 03:23 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/62778.shtml)
+- 2026-06-30 03:39 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/7260561196.shtml)
+- 2026-06-30 03:38 - [毒液2](http://www.blog.minike.top/Article/details/795068043.shtml)
+- 2026-06-30 03:35 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/06875.shtml)
+- 2026-06-30 03:19 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/8651440569.shtml)
+- 2026-06-30 03:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/4271656072.shtml)
+- 2026-06-30 03:25 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/368779962154.shtml)
+- 2026-06-30 03:37 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/19342494252.shtml)
+- 2026-06-30 03:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/83093026.shtml)
+- 2026-06-30 03:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/61871.shtml)
+- 2026-06-30 03:19 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/15266860.shtml)

@@ -1,59 +1,56 @@
-# AI是美债的“救星”吗？
+# 南城香创始人称外卖大战结束后，连锁品牌有望给小饭馆释放出单量
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-文章来源：华尔街见闻 国联民生证券认为，当前 AI 下的“无就业繁荣”对当下美国财政体系下的债务问题解决可能相对有限。甚至在短期内，如果 AI 只是“内卷式”的技术发展，不创造实质性的新需求，仅以低价去替代现有的劳动力与服务供给，不仅无法缓解赤字，对税基的冲击可能还会加剧债务问题。 随着去年瑞·达利欧（Ray Dalio）的债务周期理论被市场广泛传播，市场对于美债的担忧明显上升
+外卖大战结束后，外卖行业正在发生哪些变化？近日，南城香创始人汪国玉在其个人视频号中分享了自己的观点，他认为外卖正在走向更加合理的价格区间。 汪国玉表示，南城香是较早吃到外卖红利的一批餐饮品牌。而在外卖大战来临之后，在平台大额补贴的泡沫下，不少餐饮企业都将外卖占比迅速拉升，汪国玉透露，最高峰时南城香的外卖占比曾高达56%。但在汪国玉看来，像南城香这样的品牌企业，外卖占比保持在20
 
 ## 正文
 
-文章来源：华尔街见闻 国联民生证券认为，当前 AI 下的“无就业繁荣”对当下美国财政体系下的债务问题解决可能相对有限。
+外卖大战结束后，外卖行业正在发生哪些变化？
 
-甚至在短期内，如果 AI 只是“内卷式”的技术发展，不创造实质性的新需求，仅以低价去替代现有的劳动力与服务供给，不仅无法缓解赤字，对税基的冲击可能还会加剧债务问题。
+近日，南城香创始人汪国玉在其个人视频号中分享了自己的观点，他认为外卖正在走向更加合理的价格区间。
 
-随着去年瑞·达利欧（Ray Dalio）的债务周期理论被市场广泛传播，市场对于美债的担忧明显上升。
+汪国玉表示，南城香是较早吃到外卖红利的一批餐饮品牌。
 
-截至 2025 年底，美国国债规模接近至 38 万亿美元，净利息 支出也接近上万亿美元，利息赤字率上升对财政空间和经济活力形成一定压力， 债务压力不容忽视。
+而在外卖大战来临之后，在平台大额补贴的泡沫下，不少餐饮企业都将外卖占比迅速拉升，汪国玉透露，最高峰时南城香的外卖占比曾高达56%。
 
-而在当前美国货币政策难以宽松、财政收支持续承压的格局 下，市场似乎又找到了一条新的化债道路，即寄希望于 AI 带来的生产力提升来稀 释缓解压力。
+但在汪国玉看来，像南城香这样的品牌企业，外卖占比保持在20%-30%更为合适。
 
-那么，这次 AI 能成为美债的“救星”吗？
+汪国玉谈到，高峰时南城香一天在外卖上的收入就有数百万元，这意味着大量订单会集中到连锁品牌，进而分流周边小饭馆的生意，甚至“会导致数百家小饭馆的倒闭”。
 
-AI 如何化解美债压力？
+4月13日，在国家发改委组织的市场调查研讨会上，汪国玉曾代表餐饮服务业提出对平台企业支持和监管的建议。
 
-在宏观经济与财政可持续性的分析框架中，债务率（债务 /GDP）的演变通常由以下经典公式来决定：？
+他表示，行业对新规的出台普遍持积极态度。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 03:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:22 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 03:12 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 03:38 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 03:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 03:28 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 03:14 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 03:30 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 03:39 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 03:37 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 03:35 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 03:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 03:35 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 03:36 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 03:42 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 03:45 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 03:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 03:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 03:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 03:43 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 03:30 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/577363963114.shtml)
-- 2026-06-30 03:28 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/769849805.shtml)
-- 2026-06-30 03:35 - [周生如故](http://www.blog.kurohicncr.top/Article/details/46781732413.shtml)
-- 2026-06-30 03:26 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/793552883.shtml)
-- 2026-06-30 03:19 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/664637.shtml)
-- 2026-06-30 03:28 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/7897991413.shtml)
-- 2026-06-30 03:27 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/060355.shtml)
-- 2026-06-30 03:17 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/3551548.shtml)
-- 2026-06-30 03:36 - [日本 高位逼抢](https://www.share.minike.top/Article/details/02495415.shtml)
-- 2026-06-30 03:18 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/7525020271.shtml)
-- 2026-06-30 03:12 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/022985158183.shtml)
-- 2026-06-30 03:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/05999493.shtml)
-- 2026-06-30 03:41 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/23544.shtml)
-- 2026-06-30 03:25 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/7916436812.shtml)
-- 2026-06-30 03:18 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/4898572765.shtml)
+- 2026-06-30 03:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/9732689037.shtml)
+- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/361901656.shtml)
+- 2026-06-30 03:18 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/618967.shtml)
+- 2026-06-30 03:47 - [巴西扳平比分](https://www.blog.minike.top/Article/details/210709.shtml)
+- 2026-06-30 03:41 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/623398.shtml)
+- 2026-06-30 03:29 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/185962222.shtml)
+- 2026-06-30 03:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/718349151.shtml)
+- 2026-06-30 03:35 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/016395570.shtml)
+- 2026-06-30 03:27 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/472971.shtml)
+- 2026-06-30 03:33 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/85627187.shtml)
+- 2026-06-30 03:31 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/439549786855.shtml)
+- 2026-06-30 03:47 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/58460.shtml)
+- 2026-06-30 03:41 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/4935451682.shtml)
+- 2026-06-30 03:44 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/866028.shtml)
+- 2026-06-30 03:21 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/388697569100.shtml)

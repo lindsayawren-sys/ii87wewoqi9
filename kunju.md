@@ -1,56 +1,56 @@
-# 钨退钼进，势不可挡？
+# 广东多举措防御强降雨
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。 这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠
+中新网广州5月4日电 (记者 王坚)据广东省应急管理厅4日消息，广东近期遭遇持续强降雨过程，各相关部门多举措做好本轮强降雨防御工作。截至3日17时，全省河道水位均在警戒水位以下，水情平稳；无人员伤亡，全省平安。 广东省应急管理厅介绍，气象部门监测显示，5月3日凌晨2时开始，全省出现新一轮大雨局部暴雨或大暴雨的强降雨强对流过程，湛江徐闻下洋镇录得最大累积雨量145.5毫米和最大小
 
 ## 正文
 
-专题：AI超级周期未结束 重新审视避险资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州5月4日电 (记者 王坚)据广东省应急管理厅4日消息，广东近期遭遇持续强降雨过程，各相关部门多举措做好本轮强降雨防御工作。
 
-半导体行业观察 近日，据韩国媒体The Elec报道，SK海力士已顺利完成下一代V10系列375层3D NAND闪存的生产验证工作，并计划于今年年底前在韩国清州M15工厂正式实现量产。
+截至3日17时，全省河道水位均在警戒水位以下，水情平稳；无人员伤亡，全省平安。
 
-这款产品最初在SK海力士内部被称为“400层级”NAND闪存，但因超高层数堆叠工艺面临的技术挑战，尤其是沟道孔蚀刻等关键制程难度指数级上升，最终将实际量产层数下修至375层。
+广东省应急管理厅介绍，气象部门监测显示，5月3日凌晨2时开始，全省出现新一轮大雨局部暴雨或大暴雨的强降雨强对流过程，湛江徐闻下洋镇录得最大累积雨量145.5毫米和最大小时雨量84.7毫米，湛江遂溪乐民镇录得最大阵风27.6米/秒(10级)。
 
-然而，相较于层数的微调，真正令业界关注的关键变革，隐藏在一个细节里：这款375层NAND闪存首次在字线金属栅极中引入了钼（Mo）材料，取代了传统上已沿用了十余年的钨（W）薄膜。
+广东省三防办加强综合会商，提前印发防御工作通知和提醒函，召开全省视频会议，进一步研判部署强降雨防御工作，持续调度降雨严重地区提醒做好防御工作。
 
-然而，SK海力士的技术转向，并非孤例。
+广东省水利厅按照水利防汛四级应急响应要求组织防御工作，加强重点部位和薄弱环节的监测预报预警和一线巡查防守，处置山洪灾害编号预警15个。
 
-在此之前，三星电子、美光等存储巨头就已布局了采用钼材料的相关产品；全球半导体设备龙头泛林半导体也明确表态，钨向钼的技术切换，是高层数3D NAND演进的唯一可行路径。
+广东省水文局发布水文预报9份，水情简报16份，水情快报141份，水情预警短信27754次，防御会商7次。
 
-随着行业巨头相继从钨转向钼，行业释放出一个清晰的信号：曾在存储芯片行业沿用十余年的钨材料体系迎来替代拐点。
+广东省消防救援总队组织3.8万人、5700车、1174艘舟艇保持待命状态，3支重型、8支中型、12支轻型水域救援队和23支抗洪抢险编队随时做好跨区域增援准备。
 
-钼金属一跃成为支撑300层以上超高堆叠NAND闪存落地的核心关键材料。
+广东消防救援机动总队在广州、韶关、河源、东莞等8市前置部署790人。
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 03:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 03:20 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 03:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 03:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 03:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 03:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 03:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 03:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 03:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 03:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 03:24 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 03:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 03:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 03:34 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 03:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 03:38 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 03:19 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 03:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 03:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [小娘惹](https://www.share.minike.top/Article/details/462314107.shtml)
-- 2026-06-30 03:23 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/75286932.shtml)
-- 2026-06-30 03:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/1523713.shtml)
-- 2026-06-30 03:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/23551.shtml)
-- 2026-06-30 03:29 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/0099133.shtml)
-- 2026-06-30 03:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/373369803.shtml)
-- 2026-06-30 03:21 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/48238571307.shtml)
-- 2026-06-30 03:35 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/441706325322.shtml)
-- 2026-06-30 03:24 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/0529606410.shtml)
-- 2026-06-30 03:34 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/275708501999.shtml)
-- 2026-06-30 03:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/34000.shtml)
-- 2026-06-30 03:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6178084168.shtml)
-- 2026-06-30 03:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/035221684.shtml)
-- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/5186686.shtml)
-- 2026-06-30 03:27 - [乔家的儿女](https://www.share.minike.top/Article/details/90925.shtml)
+- 2026-06-30 03:47 - [周生如故](https://www.share.minike.top/Article/details/223654239.shtml)
+- 2026-06-30 03:42 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/522301.shtml)
+- 2026-06-30 03:32 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/3995889024.shtml)
+- 2026-06-30 03:30 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/456054.shtml)
+- 2026-06-30 03:39 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/76981397.shtml)
+- 2026-06-30 03:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/665412.shtml)
+- 2026-06-30 03:22 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/95509.shtml)
+- 2026-06-30 03:47 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/99712805485.shtml)
+- 2026-06-30 03:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/25310737.shtml)
+- 2026-06-30 03:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/814610643834.shtml)
+- 2026-06-30 03:26 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/9183595.shtml)
+- 2026-06-30 03:26 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/229665093018.shtml)
+- 2026-06-30 03:45 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/91851178.shtml)
+- 2026-06-30 03:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/9796279.shtml)
+- 2026-06-30 03:31 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/1296089.shtml)

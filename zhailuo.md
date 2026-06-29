@@ -1,56 +1,60 @@
-# 中国海军83舰编队起航执行远海综合实习访问任务
+# 朝媒发文批驳日本当局供奉和参拜靖国神社
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 由远洋航海训练舰戚继光舰和综合登陆舰昆仑山舰组成的中国海军83舰编队，15日上午从山东青岛某军港解缆起航，开始执行远海综合实习访问任务。 中国海军戚继光舰，舷号83，是目前中国自主研制的吨位最大、现代化水平最高的专业训练舰。该舰主要供海军院校学员、官兵进行海上实习训练，被誉为人民海军的“海上流动大学”。自2017年2月服役以来，戚继光舰航迹遍布四大洲、三
+近期，日本首相高市早苗向供奉有二战甲级战犯的靖国神社供奉祭品和祭祀费，大量日本政客集体参拜靖国神社。对此，朝鲜劳动党中央机关报《劳动新闻》、朝鲜中央通讯社先后发表文章予以批驳。 题为《鼓吹军国主义的参拜闹剧》的文章称，日本首相向靖国神社供奉祭品，政客们扎堆集体参拜，已然成为日本政坛的恶劣惯例。日本反动势力正借此美化、粉饰沾满鲜血的侵略历史，在全社会煽动复仇主义思潮。这绝非对历史
 
 ## 正文
 
-中新社北京6月15日电 由远洋航海训练舰戚继光舰和综合登陆舰昆仑山舰组成的中国海军83舰编队，15日上午从山东青岛某军港解缆起航，开始执行远海综合实习访问任务。
+近期，日本首相高市早苗向供奉有二战甲级战犯的靖国神社供奉祭品和祭祀费，大量日本政客集体参拜靖国神社。
 
-中国海军戚继光舰，舷号83，是目前中国自主研制的吨位最大、现代化水平最高的专业训练舰。
+对此，朝鲜劳动党中央机关报《劳动新闻》、朝鲜中央通讯社先后发表文章予以批驳。
 
-该舰主要供海军院校学员、官兵进行海上实习训练，被誉为人民海军的“海上流动大学”。
+题为《鼓吹军国主义的参拜闹剧》的文章称，日本首相向靖国神社供奉祭品，政客们扎堆集体参拜，已然成为日本政坛的恶劣惯例。
 
-自2017年2月服役以来，戚继光舰航迹遍布四大洲、三大洋，先后到访葡萄牙、意大利、新西兰、越南等近30个国家和地区，总航程18余万海里。
+日本反动势力正借此美化、粉饰沾满鲜血的侵略历史，在全社会煽动复仇主义思潮。
 
-此次任务，83舰编队搭载400余名师生奔赴远海，开展实习访问。
+这绝非对历史罪责的反省，反而意在煽动复仇情绪，营造利于本国军事化扩张、图谋再度侵略的社会环境。
 
-随舰跟训的还有来自缅甸、巴西等10个国家的20名外军院校学员。
+日本一方面借靖国神社参拜，在全社会持续散播军国主义毒素；另一方面大肆歪曲历史、拆除束缚战争国家化的法律枷锁，疯狂扩充军备、强化武力。
 
-上午10时许，83舰编队解缆起航，缓缓驶离码头。
+日本应当摒弃不切实际的妄想，深刻反省沾满罪孽的侵略过往，走上改过自新、和平发展的正道。
 
-航渡期间，编队将组织开展地文航海、天文航海、共同科目、专业基础、岗位见习等五个模块的教学训练，结合航经海域开展现地教学、专业拓展等专题讲座。
+文章《召唤靖国神社亡魂的新型军国主义狂热分子》表示，靖国神社是日本军国主义的象征，集中承载着日本军国主义对包括朝鲜在内的亚洲众多国家犯下的不可饶恕的罪行。
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 03:28 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 03:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 03:39 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 03:17 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 03:19 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 03:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 03:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 03:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 03:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 03:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:25 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 03:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 03:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 03:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 03:39 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 03:20 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 03:37 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 03:45 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 03:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 03:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 03:27 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 03:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 03:27 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/07178554157.shtml)
-- 2026-06-30 03:13 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/8364633731.shtml)
-- 2026-06-30 03:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/74369793.shtml)
-- 2026-06-30 03:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/943066.shtml)
-- 2026-06-30 03:39 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/6817151274.shtml)
-- 2026-06-30 03:31 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/662274.shtml)
-- 2026-06-30 03:30 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/173023.shtml)
-- 2026-06-30 03:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/702037.shtml)
-- 2026-06-30 03:35 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/0089786.shtml)
-- 2026-06-30 03:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/174841.shtml)
-- 2026-06-30 03:32 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/64390.shtml)
-- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/0624275254.shtml)
-- 2026-06-30 03:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/3373309.shtml)
-- 2026-06-30 03:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1578021.shtml)
-- 2026-06-30 03:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/846541380.shtml)
+- 2026-06-30 03:22 - [恋与深空回应争议](https://www.share.minike.top/Article/details/27761.shtml)
+- 2026-06-30 03:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/199522.shtml)
+- 2026-06-30 03:36 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/90392.shtml)
+- 2026-06-30 03:30 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/129575.shtml)
+- 2026-06-30 03:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/34384.shtml)
+- 2026-06-30 03:34 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/08762.shtml)
+- 2026-06-30 03:42 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/11310.shtml)
+- 2026-06-30 03:43 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/446687903.shtml)
+- 2026-06-30 03:26 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/56792391989.shtml)
+- 2026-06-30 03:23 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/6824860283.shtml)
+- 2026-06-30 03:45 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/2425890911.shtml)
+- 2026-06-30 03:21 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/35083731.shtml)
+- 2026-06-30 03:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/130897310.shtml)
+- 2026-06-30 03:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/5544632054.shtml)
+- 2026-06-30 03:22 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/36818193976.shtml)

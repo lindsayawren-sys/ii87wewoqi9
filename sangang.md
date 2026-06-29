@@ -1,51 +1,56 @@
-# 辽宁省盘锦市原副市级干部孙占明被开除党籍
+# 前纽约联储行长Dudley支持鲍威尔在美联储遭“无情攻击”后留任理事
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据辽宁省纪委监委消息：日前，经辽宁省委批准，辽宁省纪委监委对辽宁省盘锦市原副市级干部孙占明严重违纪违法问题进行了立案审查调查。 经查，孙占明丧失理想信念，背弃初心使命，违反组织原则，不按规定报告个人有关事项，在干部选拔任用工作中为他人谋取利益；纵容、默许亲属利用本人职权谋取私利，违规收受礼金；纪法底线失守，利用职务上的便利，为他人在工程承揽、职务晋升等方面谋
+Bill Dudley表示，在总统唐纳德·特朗普持续施压要求降息之后，美联储主席杰罗姆·鲍威尔在主席任期结束后继续留任理事，将有助于安抚华尔街和公众情绪。 美联储一直受到“总统无情的攻击，其独立性受到质疑，”Dudley周一表示。Dudley曾任纽约联储行长，现为彭博观点专栏作家。“鲍威尔认为，继续留在美联储将有助于强化外界对美联储独立性的看法。如果他愿意留下来，我认为这样做是
 
 ## 正文
 
-中新网6月12日电 据辽宁省纪委监委消息：日前，经辽宁省委批准，辽宁省纪委监委对辽宁省盘锦市原副市级干部孙占明严重违纪违法问题进行了立案审查调查。
+Bill Dudley表示，在总统唐纳德·特朗普持续施压要求降息之后，美联储主席杰罗姆·鲍威尔在主席任期结束后继续留任理事，将有助于安抚华尔街和公众情绪。
 
-经查，孙占明丧失理想信念，背弃初心使命，违反组织原则，不按规定报告个人有关事项，在干部选拔任用工作中为他人谋取利益；纵容、默许亲属利用本人职权谋取私利，违规收受礼金；纪法底线失守，利用职务上的便利，为他人在工程承揽、职务晋升等方面谋取利益，非法收受财物。
+美联储一直受到“总统无情的攻击，其独立性受到质疑，”Dudley周一表示。
 
-孙占明严重违反党的组织纪律、廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+Dudley曾任纽约联储行长，现为彭博观点专栏作家。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经辽宁省纪委常委会会议研究并报辽宁省委批准，决定给予孙占明开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+“鲍威尔认为，继续留在美联储将有助于强化外界对美联储独立性的看法。
+
+如果他愿意留下来，我认为这样做是合理的。
+
+” 鲍威尔的理事任期持续到2028年，他选择在5月15日卸任主席后继续留在理事会，这在美联储历史上并不常见。
+
+数十年来未有先例。
+
+特朗普一直对鲍威尔及美联储提出严厉批评，威胁发起刑事调查、提起诉讼并解雇美联储官员。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 03:16 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 03:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 03:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 03:30 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 03:32 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 03:17 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 03:23 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 03:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 03:33 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 03:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 03:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 03:15 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 03:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 03:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 03:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 03:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 03:20 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 03:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 03:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 03:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 03:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/558397.shtml)
-- 2026-06-30 03:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/776381883717.shtml)
-- 2026-06-30 03:34 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/812502.shtml)
-- 2026-06-30 03:37 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/473506.shtml)
-- 2026-06-30 03:18 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/445674887.shtml)
-- 2026-06-30 03:35 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/6445181.shtml)
-- 2026-06-30 03:16 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/79973710.shtml)
-- 2026-06-30 03:23 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/7319646960.shtml)
-- 2026-06-30 03:22 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/446008013.shtml)
-- 2026-06-30 03:21 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/945816947566.shtml)
-- 2026-06-30 03:28 - [乔家的儿女](http://www.share.minike.top/Article/details/20062655.shtml)
-- 2026-06-30 03:28 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/14572459.shtml)
-- 2026-06-30 03:24 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/367156325.shtml)
-- 2026-06-30 03:34 - [千香](http://www.blog.kurohicncr.top/Article/details/62115747.shtml)
-- 2026-06-30 03:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/96906.shtml)
+- 2026-06-30 03:23 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/056651.shtml)
+- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/60646.shtml)
+- 2026-06-30 03:28 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/5694055.shtml)
+- 2026-06-30 03:41 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/8564347.shtml)
+- 2026-06-30 03:32 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/309219776.shtml)
+- 2026-06-30 03:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/91199724073.shtml)
+- 2026-06-30 03:47 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/9953224090.shtml)
+- 2026-06-30 03:43 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/1916717613.shtml)
+- 2026-06-30 03:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/825118753.shtml)
+- 2026-06-30 03:21 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/2609117.shtml)
+- 2026-06-30 03:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/262876.shtml)
+- 2026-06-30 03:18 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/1912728.shtml)
+- 2026-06-30 03:35 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/70343.shtml)
+- 2026-06-30 03:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/37930305.shtml)
+- 2026-06-30 03:29 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/1680265823.shtml)

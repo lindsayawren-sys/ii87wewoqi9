@@ -1,59 +1,57 @@
-# 港澳台青年南京赛龙舟迎端午 80名学子体验传统民俗
+# 牛市来了？比特币升破8万美元关口创年内新高 市场风险偏好回升
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网南京6月13日电(记者 徐珊珊)6月12日下午，“同粽同源·香飘两岸”2026年栖霞区第七届港澳台青年端午趣味运动会在南京大学仙林校区举行。来自南京大学、南京师范大学、南京中医药大学等高校的港澳台青年，与南京特殊教育师范学院民族学生及南京大学留学生共80人组成8支队伍，在传统体育竞技中感受端午文化。 运动会设置了击鼓颠球、趣味投壶等项目。其中旱地龙舟作为压轴项目，队员们肩
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。 数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。其他主流加密资产如以太坊和Solana也录得小幅上涨。
 
 ## 正文
 
-中新网南京6月13日电(记者 徐珊珊)6月12日下午，“同粽同源·香飘两岸”2026年栖霞区第七届港澳台青年端午趣味运动会在南京大学仙林校区举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自南京大学、南京师范大学、南京中医药大学等高校的港澳台青年，与南京特殊教育师范学院民族学生及南京大学留学生共80人组成8支队伍，在传统体育竞技中感受端午文化。
+来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。
 
-运动会设置了击鼓颠球、趣味投壶等项目。
+数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。
 
-其中旱地龙舟作为压轴项目，队员们肩并肩、脚绑脚，喊着口号向前冲锋，将现场气氛推向高潮。
+其他主流加密资产如以太坊和Solana也录得小幅上涨。
 
-击鼓颠球复刻龙舟竞渡的激昂节奏，投壶、捶丸等项目则让青年们在竞技中体验古人的雅趣。
+自美国与伊朗冲突升级以来，比特币累计上涨约20%，显示数字资产在地缘政治冲击及油价上涨背景下整体表现出较强韧性。
 
-除体育竞技外，现场还设有端午民俗体验专区。
+市场同时受到政策利好预期推动。
 
-青年们亲手编织五彩绳、缝制艾草香囊、绘制彩蛋、挑战端午立蛋，在粽香与药香中沉浸式感受传统节日的文化内涵。
+投资者对美国可能就稳定币收益相关条款达成协议持乐观态度，这或为加密货币相关立法在参议院推进扫清障碍，进一步提升市场情绪。
 
-作为栖霞区港澳台青年交流的品牌活动，端午趣味运动会已连续举办七届。
+衍生品市场数据显示，过去24小时内，加密市场空头头寸清算规模达到约3.59亿美元，远高于多头约1.5亿美元的清算规模，显示空头回补推动价格上行。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 03:25 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 03:14 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 03:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 03:25 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 03:29 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 03:41 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 03:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 03:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 03:25 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 03:41 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 03:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 03:17 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 03:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 03:38 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 03:32 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 03:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 03:34 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 03:46 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:33 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 03:41 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/99733022216.shtml)
-- 2026-06-30 03:35 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/3540744009.shtml)
-- 2026-06-30 03:28 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/32138.shtml)
-- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/718557620359.shtml)
-- 2026-06-30 03:41 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/34289.shtml)
-- 2026-06-30 03:41 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/8510926.shtml)
-- 2026-06-30 03:21 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/090350306.shtml)
-- 2026-06-30 03:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/034451.shtml)
-- 2026-06-30 03:23 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/115531.shtml)
-- 2026-06-30 03:34 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/853589078.shtml)
-- 2026-06-30 03:29 - [沙丘](https://www.share.minike.top/Article/details/819951866.shtml)
-- 2026-06-30 03:40 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/10048631.shtml)
-- 2026-06-30 03:41 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/519679060060.shtml)
-- 2026-06-30 03:41 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/16050.shtml)
-- 2026-06-30 03:14 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/46840.shtml)
+- 2026-06-30 03:38 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/134256805.shtml)
+- 2026-06-30 03:46 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/6252867.shtml)
+- 2026-06-30 03:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/86992976.shtml)
+- 2026-06-30 03:47 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/63182303.shtml)
+- 2026-06-30 03:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/4226715.shtml)
+- 2026-06-30 03:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/9248255.shtml)
+- 2026-06-30 03:19 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/693881.shtml)
+- 2026-06-30 03:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/50735978.shtml)
+- 2026-06-30 03:46 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/16915.shtml)
+- 2026-06-30 03:21 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/2090392744.shtml)
+- 2026-06-30 03:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0556866.shtml)
+- 2026-06-30 03:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/956415.shtml)
+- 2026-06-30 03:27 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/51286871.shtml)
+- 2026-06-30 03:24 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/926719.shtml)
+- 2026-06-30 03:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/208091222.shtml)

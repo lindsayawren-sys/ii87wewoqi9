@@ -1,53 +1,60 @@
-# 乌克兰：俄罗斯对基辅发动大规模袭击
+# 斯特姆·鲁格与贝雷塔达成战略合作 结束董事会之争
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据《基辅独立报》报道，乌克兰官员称，俄罗斯于当地时间6月15日凌晨对乌克兰首都基辅发动了大规模袭击。 社交媒体上发布的视频显示，基辅市内多辆汽车起火。 基辅市市长克利奇科表示，市区遭到无人机袭击，多栋多层住宅楼遭到袭击。该市至少有5人在袭击中受伤。
+美国枪械制造商斯特姆·鲁格公司周一宣布，已与最大股东贝雷塔控股公司达成战略合作协议，结束了双方数月来的控制权之争。 根据协议条款，鲁格将允许贝雷塔将其持股比例提高至公司已发行股份的25%。贝雷塔将以每股不低于44.80美元的价格发起部分要约收购，该价格较此前60天成交量加权平均价溢价约20%。作为交换，贝雷塔撤回了对鲁格2026年股东大会的四名董事提名，并承诺在约三年内不发起代
 
 ## 正文
 
-中新网6月15日电 据《基辅独立报》报道，乌克兰官员称，俄罗斯于当地时间6月15日凌晨对乌克兰首都基辅发动了大规模袭击。
+美国枪械制造商斯特姆·鲁格公司周一宣布，已与最大股东贝雷塔控股公司达成战略合作协议，结束了双方数月来的控制权之争。
 
-社交媒体上发布的视频显示，基辅市内多辆汽车起火。
+根据协议条款，鲁格将允许贝雷塔将其持股比例提高至公司已发行股份的25%。
 
-基辅市市长克利奇科表示，市区遭到无人机袭击，多栋多层住宅楼遭到袭击。
+贝雷塔将以每股不低于44.80美元的价格发起部分要约收购，该价格较此前60天成交量加权平均价溢价约20%。
 
-该市至少有5人在袭击中受伤。
+作为交换，贝雷塔撤回了对鲁格2026年股东大会的四名董事提名，并承诺在约三年内不发起代理权争夺或类似行动。
+
+协议还赋予贝雷塔在2026年股东大会后提名最多两名独立董事的权利，届时公司将暂时扩大董事会规模。
+
+贝雷塔的持股投票将基本与鲁格董事会推荐保持一致。
+
+鲁格董事会主席John Cosentino表示，该协议“提供了稳定性，避免了进一步的开支和干扰”，同时保持了鲁格的独立性。
+
+贝雷塔控股董事长Pietro Gussalli Beretta指出，此次合作符合集团加强美国市场布局的战略。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 03:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 03:17 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 03:39 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 03:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 03:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 03:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:20 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 03:31 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 03:21 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 03:24 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 03:25 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 03:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 03:20 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 03:41 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 03:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 03:39 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 03:38 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 03:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 03:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 03:38 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 03:34 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 03:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 03:29 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:19 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 03:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/53678290256.shtml)
-- 2026-06-30 03:30 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/89051.shtml)
-- 2026-06-30 03:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/8496361.shtml)
-- 2026-06-30 03:34 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/0771745.shtml)
-- 2026-06-30 03:39 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/6506657668.shtml)
-- 2026-06-30 03:37 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/24618557512.shtml)
-- 2026-06-30 03:22 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/95599.shtml)
-- 2026-06-30 03:26 - [逃狱兄弟](http://www.share.minike.top/Article/details/8646434.shtml)
-- 2026-06-30 03:27 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/413268800204.shtml)
-- 2026-06-30 03:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/5595289575.shtml)
-- 2026-06-30 03:40 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/276447964351.shtml)
-- 2026-06-30 03:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/3196962.shtml)
-- 2026-06-30 03:24 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/3949984479.shtml)
-- 2026-06-30 03:34 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/007818669380.shtml)
-- 2026-06-30 03:30 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/31350292.shtml)
+- 2026-06-30 03:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/725689164415.shtml)
+- 2026-06-30 03:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/190080.shtml)
+- 2026-06-30 03:24 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/609819951960.shtml)
+- 2026-06-30 03:18 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/9882722.shtml)
+- 2026-06-30 03:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/104853449.shtml)
+- 2026-06-30 03:33 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/936971521.shtml)
+- 2026-06-30 03:34 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/4754412066.shtml)
+- 2026-06-30 03:34 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/19537.shtml)
+- 2026-06-30 03:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/7214346.shtml)
+- 2026-06-30 03:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/85105.shtml)
+- 2026-06-30 03:28 - [女心理师](https://www.share.kurohicncr.top/Article/details/691139.shtml)
+- 2026-06-30 03:27 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/042055591.shtml)
+- 2026-06-30 03:29 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/122560897.shtml)
+- 2026-06-30 03:38 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/35291.shtml)
+- 2026-06-30 03:31 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/302210.shtml)

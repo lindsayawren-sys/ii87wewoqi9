@@ -1,55 +1,60 @@
-# 威海银行与恒源控股订立H股认购协议
+# 珠江流域遭遇强降雨 部分中小河流或有超警洪水
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。 本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约2
+中新网广州5月4日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)4日消息称，3日至5日，流域自西向东将有一次移动性强降雨过程，流域部分中小河流可能发生超警洪水，强降雨区内发生山洪灾害的风险较高。珠江委介绍，据预测，3日至5日，广西东部南部、广东大部、海南西北部等地累计降雨量将有25至50毫米，局地超过100毫米。受其影响，西江干流及支流郁江、桂江、贺江等河流将出现涨
 
 ## 正文
 
-威海银行（09677）发布公告，于2026年6月14日，该行与恒源控股订立H股认购协议，据此恒源控股有条件同意认购，且该行有条件同意配发及发行不超过1.5亿股H股，认购价为每股H股人民币3.29元，现金代价不超过人民币4.94亿元。
+中新网广州5月4日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)4日消息称，3日至5日，流域自西向东将有一次移动性强降雨过程，流域部分中小河流可能发生超警洪水，强降雨区内发生山洪灾害的风险较高。
 
-本次发行的发行价格为每股人民币3.29元（相当于每股3.61港元较紧接H股认购协议日期前最后交易日香港联交所所报收市价每股H股2.86港元溢价约26.22%。
+珠江委介绍，据预测，3日至5日，广西东部南部、广东大部、海南西北部等地累计降雨量将有25至50毫米，局地超过100毫米。
 
-本次发行根据股东于2025年9月29日召开的临时股东大会及类别股东会议授出的特别授权发行。
+受其影响，西江干流及支流郁江、桂江、贺江等河流将出现涨水过程，桂南沿海北仑河、防城河，粤西沿海平定水、袂花江，北流河支流杨梅河等中小河流可能发生超警洪水，强降雨区内发生山洪灾害的风险较高。
 
-本次发行募集的资金在扣除相关发行费用后的净额将全部用于补充该行核心一级资本。
+珠江委已于3日再次召开会商会，滚动研判当前雨情汛情发展态势，进一步部署水旱灾害防御工作。
 
-自2026年6月14日起，该行已采用替代门槛以符合香港上市规则第19A.28B条的规定。
+会商要求，要加强监测预报和会商研判，密切监视流域雨情、水情、汛情，滚动分析降雨强度及影响范围变化，精准靶向预警，点对点提醒地方做好防御工作。
 
-责任编辑：卢昱君
+要严防山洪灾害和中小河流洪水，聚焦旅游景区、农家乐、涉水施工工地、山洪沟道口、易受洪水冲击的交通道路等关键区域，督促地方加强重点区域和人员安全管控，确保群众生命安全。
+
+同时，要抓好水工程安全度汛，督促强降雨区内严格落实涉水在建工程、病险水库、中小水库等安全度汛责任和措施，加强风险隐患排查，确保工程安全度汛。
+
+要滚动研判云南、海南等地旱情发展变化，指导地方做好抗旱保供水工作。
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 03:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 03:15 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 03:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 03:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 03:30 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 03:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 03:33 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 03:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 03:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 03:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 03:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 03:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 03:34 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 03:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 03:43 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 03:21 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 03:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 03:37 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 03:38 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 03:45 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 03:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 03:20 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 03:30 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 03:43 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 03:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:38 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/3717050.shtml)
-- 2026-06-30 03:40 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/388745768.shtml)
-- 2026-06-30 03:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/999169964.shtml)
-- 2026-06-30 03:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/366649.shtml)
-- 2026-06-30 03:23 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/045827316.shtml)
-- 2026-06-30 03:29 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2293369888.shtml)
-- 2026-06-30 03:23 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/6515753.shtml)
-- 2026-06-30 03:38 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/744278838.shtml)
-- 2026-06-30 03:27 - [巴西扳平比分](https://www.share.minike.top/Article/details/023021225.shtml)
-- 2026-06-30 03:14 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/568939319133.shtml)
-- 2026-06-30 03:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/105111285.shtml)
-- 2026-06-30 03:23 - [我和我的家乡](http://www.share.minike.top/Article/details/86815677668.shtml)
-- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/99254.shtml)
-- 2026-06-30 03:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/32803189600.shtml)
-- 2026-06-30 03:18 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3706228.shtml)
+- 2026-06-30 03:30 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/45556800169.shtml)
+- 2026-06-30 03:47 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/21572.shtml)
+- 2026-06-30 03:21 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/13963915088.shtml)
+- 2026-06-30 03:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/75853611009.shtml)
+- 2026-06-30 03:39 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/45033.shtml)
+- 2026-06-30 03:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/042645.shtml)
+- 2026-06-30 03:41 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/7612757425.shtml)
+- 2026-06-30 03:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/005726393160.shtml)
+- 2026-06-30 03:31 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/9332904083.shtml)
+- 2026-06-30 03:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/636810482381.shtml)
+- 2026-06-30 03:44 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/725241752522.shtml)
+- 2026-06-30 03:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/390008292375.shtml)
+- 2026-06-30 03:21 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/140762145482.shtml)
+- 2026-06-30 03:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/296898803.shtml)
+- 2026-06-30 03:18 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/78336.shtml)

@@ -1,56 +1,45 @@
-# 马斯克敲钟，Space X的食堂阿姨都要变百万富翁了？
+# 主要产油国宣布6月增产
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：融中财经 导读 THECAPITAL 千呼万唤始出来 本文4988字，约7.1分钟 作者 | 王涛 编辑 | 吾人 来源 | #融中财经 （ID：thecapital） 美东时间6月12日，纳斯达克出现了一个历史性的场景。SpaceX上市，每股价格为1
+新华社快讯：主要产油国宣布6月增产 新华社快讯：石油输出国组织(欧佩克)3日发表声明说，7个“欧佩克+”主要产油国决定6月日均增产原油18.8万桶。这是“欧佩克+”在阿联酋正式退出后的首次决策。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社快讯：主要产油国宣布6月增产 新华社快讯：石油输出国组织(欧佩克)3日发表声明说，7个“欧佩克+”主要产油国决定6月日均增产原油18.8万桶。
 
-来源：融中财经 导读 THECAPITAL 千呼万唤始出来 本文4988字，约7.1分钟 作者 | 王涛 编辑 | 吾人 来源 | #融中财经 （ID：thecapital） 美东时间6月12日，纳斯达克出现了一个历史性的场景。
-
-SpaceX上市，每股价格为174美元/股，较发行价高开29%，截至发稿时市值为2.28万亿美元，是最大的IPO之一。
-
-而之前获得“最大IPO”的是阿里和沙特阿美，但是现在SpaceX的规模已经达到了前两者之和的三倍。
-
-IPO之后，SpaceX将会进入美国股市市值前十名，并且会排到马斯克自己公司的特斯拉前面。
-
-据称，在IPO之前SpaceX美国IPO散户认购金额已经突破了1000亿美金，直接超过公司750亿美金的融资目标。
-
-SpaceX会把至少20%的IPO股票分给个人投资者，而只会有不到10%的IPO股票被分配到海外客户那里去。
-
-大约有四百个股东将会拥有一个一亿美金左右的价值。
+这是“欧佩克+”在阿联酋正式退出后的首次决策。
 
 ## 相关推荐
 
-- 2026-06-30 03:31 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 03:28 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 03:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 03:39 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 03:14 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 03:33 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 03:25 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 03:32 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 03:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 03:43 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 03:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 03:42 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 03:22 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 03:40 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 03:21 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 03:38 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 03:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 03:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 03:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/496784608.shtml)
-- 2026-06-30 03:37 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/2616073.shtml)
-- 2026-06-30 03:30 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/733764.shtml)
-- 2026-06-30 03:21 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/74069215.shtml)
-- 2026-06-30 03:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/8488039.shtml)
-- 2026-06-30 03:22 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/094063437.shtml)
-- 2026-06-30 03:18 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/0385258661.shtml)
-- 2026-06-30 03:24 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/620097390.shtml)
-- 2026-06-30 03:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/47319264.shtml)
-- 2026-06-30 03:35 - [斛珠夫人](https://www.share.minike.top/Article/details/823058332.shtml)
-- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/4838085.shtml)
-- 2026-06-30 03:17 - [张凌赫 客串](https://www.share.minike.top/Article/details/44017196360.shtml)
-- 2026-06-30 03:35 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/1816047307.shtml)
-- 2026-06-30 03:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/92908230.shtml)
-- 2026-06-30 03:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/002462.shtml)
+- 2026-06-30 03:27 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/420748375.shtml)
+- 2026-06-30 03:32 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/646591410.shtml)
+- 2026-06-30 03:26 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/93095768127.shtml)
+- 2026-06-30 03:22 - [送你一朵小红花](http://www.share.minike.top/Article/details/76686.shtml)
+- 2026-06-30 03:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/427685.shtml)
+- 2026-06-30 03:18 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/846932.shtml)
+- 2026-06-30 03:45 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/1128251.shtml)
+- 2026-06-30 03:44 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/550398871.shtml)
+- 2026-06-30 03:23 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/177411012.shtml)
+- 2026-06-30 03:42 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/8676317498.shtml)
+- 2026-06-30 03:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/48218.shtml)
+- 2026-06-30 03:24 - [金刚川](https://www.blog.kurohicncr.top/Article/details/42522824234.shtml)
+- 2026-06-30 03:43 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/1081545302.shtml)
+- 2026-06-30 03:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/746792899902.shtml)
+- 2026-06-30 03:35 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/11878332.shtml)

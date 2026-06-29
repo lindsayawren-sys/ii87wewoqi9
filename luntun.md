@@ -1,60 +1,59 @@
-# 跟着电影赏非遗 湖南探索文化与产业双向赋能新路径
+# 算力硬件大爆发！光模块含量50%的创业板人工智能ETF华宝（159363）暴力猛攻超4%，资金持续净流入
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月12日电(张家星)12日，“湘韵非遗·光影匠心”湖南省2026年“跟着电影赏非遗”系列活动在长沙启动。活动以电影为媒介、以非遗为内核，通过“沉浸观展+深度观影”的复合场景营造，探索文化与产业双向赋能的新路径。 湖南省文化馆(湖南省非物质文化遗产保护中心)党委书记、馆长、中心主任叶伟平表示，希望通过本次活动，让人民群众的每次观影成为一次非遗体验之旅，让影院成为展示湖
+5月首个交易日，光模块CPO、IDC算力租赁大爆发，创业板人工智能暴力上攻超4%。其中，东方国信20CM涨停，北京君正、铜牛信息、润泽科技、联特科技等多股大涨超10%，天孚通信涨超7%，中际旭创涨超3%。 热门ETF方面，光模块CPO含量占比50%的创业板人工智能ETF华宝（159363）场内暴力猛攻超4%，收复所有均线，实时放量成交超3亿元，资金近一周净流入超7亿元。 兴业证
 
 ## 正文
 
-中新网长沙6月12日电(张家星)12日，“湘韵非遗·光影匠心”湖南省2026年“跟着电影赏非遗”系列活动在长沙启动。
+5月首个交易日，光模块CPO、IDC算力租赁大爆发，创业板人工智能暴力上攻超4%。
 
-活动以电影为媒介、以非遗为内核，通过“沉浸观展+深度观影”的复合场景营造，探索文化与产业双向赋能的新路径。
+其中，东方国信20CM涨停，北京君正、铜牛信息、润泽科技、联特科技等多股大涨超10%，天孚通信涨超7%，中际旭创涨超3%。
 
-湖南省文化馆(湖南省非物质文化遗产保护中心)党委书记、馆长、中心主任叶伟平表示，希望通过本次活动，让人民群众的每次观影成为一次非遗体验之旅，让影院成为展示湖湘文化的重要窗口；也希望通过全省非遗保护机构与各大影院的持续深化合作，推动“非遗与影院融合”常态化、品牌化、体系化发展，为赓续湖湘文脉、建设文化强省注入更强动力。
+热门ETF方面，光模块CPO含量占比50%的创业板人工智能ETF华宝（159363）场内暴力猛攻超4%，收复所有均线，实时放量成交超3亿元，资金近一周净流入超7亿元。
 
-“电影不仅是讲好中国故事的重要载体，更是传播中华优秀传统文化的生动窗口。
+兴业证券表示，对于A股而言，随着假期期间美股科技对全球权益形成有效映射、叠加一季报继续验证相关方向业绩高增趋势，深度绑定海外科技巨头、与全球 AI 产业趋势高度共振的国内AI硬件产业链（以光通信、存储为代表）是映射最顺的方向，有望继续成为节后A股演绎的结构性亮点。
 
-”潇湘电影集团党委委员、副总经理、湖南省电影行业协会会长欧阳翀介绍，为致敬非遗代表性传承人的坚守与奉献，在今年文化和自然遗产日当天，湖南省四级非遗代表性传承人可在潇湘影城任一门店享受免费观影。
+此外，AI算力资本开支驱动，光模块龙头有望维持超级景气！
 
-活动现场，湖南省文化馆(湖南省非遗保护中心)与潇湘影投公司完成战略合作签约，长沙市非遗产保护中心与长沙市电影业协会同步签约，四方将围绕沉浸式展演体验、非遗视听内容展映、票根双向联动等领域开展深度合作，推动“非遗与影院融合”常态化、品牌化、体系化发展。
+国盛证券表示，光通信行业处于AI算力驱动的超级景气周期，在全球化交付能力、技术平台化布局、供应链前瞻锁定、资金实力上建立优势的头部企业，有望持续受益于AI带来的长期增长红利，强者恒强的格局仍将延续。
 
-走出影厅，影院大堂已不再是传统意义上的售票与等候区，而成为一座微缩的“非遗博物馆”。
+一键布局光模块CPO龙头机会，建议重点关注含“光”量超50%的创业板人工智能ETF华宝（159363）及场外联接（A类023407、C类023408），标的指数最新光模块含量约50%，“易中天”一网打尽，约三成仓位布局AI应用，不止是算力核心，也是AI应用代表。
 
-20个非遗摊位依次排开，湘绣、菊花石雕、女书、长沙面塑等非遗代表性项目集中亮相。
+值得注意的是，截至2026.4.30，创业板人工智能ETF华宝（159363）最新规模突破70亿元创新高，规模居全市场双创AI赛道首位！
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 03:12 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 03:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 03:39 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 03:13 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 03:36 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 03:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 03:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 03:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 03:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 03:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 03:26 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:13 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 03:18 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 03:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 03:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 03:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 03:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 03:23 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 03:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 03:27 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 03:24 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:37 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 03:42 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 03:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 03:33 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 03:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/973015568.shtml)
-- 2026-06-30 03:14 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/9133194653.shtml)
-- 2026-06-30 03:18 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/65470048.shtml)
-- 2026-06-30 03:13 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/276002.shtml)
-- 2026-06-30 03:28 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/95779.shtml)
-- 2026-06-30 03:26 - [月亮](http://www.blog.kurohicncr.top/Article/details/505931701415.shtml)
-- 2026-06-30 03:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/448004435021.shtml)
-- 2026-06-30 03:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/20726.shtml)
-- 2026-06-30 03:17 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/00644084160.shtml)
-- 2026-06-30 03:14 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/56634399.shtml)
-- 2026-06-30 03:17 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/1903812889.shtml)
-- 2026-06-30 03:24 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/1833064.shtml)
-- 2026-06-30 03:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/46925.shtml)
-- 2026-06-30 03:32 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/78770135.shtml)
-- 2026-06-30 03:17 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/502703710571.shtml)
+- 2026-06-30 03:44 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/967417606549.shtml)
+- 2026-06-30 03:31 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/57239137231.shtml)
+- 2026-06-30 03:47 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/545918033170.shtml)
+- 2026-06-30 03:42 - [巴西扳平比分](https://www.share.minike.top/Article/details/74950250.shtml)
+- 2026-06-30 03:25 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/112343172378.shtml)
+- 2026-06-30 03:34 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/567012.shtml)
+- 2026-06-30 03:24 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/3690879.shtml)
+- 2026-06-30 03:36 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/415156.shtml)
+- 2026-06-30 03:40 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/790581385747.shtml)
+- 2026-06-30 03:20 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/831271802.shtml)
+- 2026-06-30 03:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/842546746223.shtml)
+- 2026-06-30 03:35 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/728701.shtml)
+- 2026-06-30 03:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/273745522.shtml)
+- 2026-06-30 03:37 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/803217.shtml)
+- 2026-06-30 03:23 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/7937028834.shtml)

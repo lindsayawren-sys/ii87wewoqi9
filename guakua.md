@@ -1,45 +1,49 @@
-# 特朗普批评以色列“干扰”美伊签署协议
+# 【小新的Vlog】“五一”来香港怎么玩？跟着小新打卡法定古迹
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:50 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月03日 16:54 来源：中国新闻网 谁说来香港只能购物？这个“五一”，让小新带你解锁香港的另一种打开方式——游览法定古迹。从监狱改造的大馆，到充满故事感的九龙寨城公园，再到本地人常去的天后庙，每一处都藏着香江的记忆，一起来看看吧！(记者 周圣昀 程宇 温孟馨） 责任编辑：【王凯】
 
 ## 正文
 
-发布时间：2026年06月15日 10:50 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年05月03日 16:54 来源：中国新闻网 谁说来香港只能购物？
+
+这个“五一”，让小新带你解锁香港的另一种打开方式——游览法定古迹。
+
+从监狱改造的大馆，到充满故事感的九龙寨城公园，再到本地人常去的天后庙，每一处都藏着香江的记忆，一起来看看吧！
+
+(记者 周圣昀 程宇 温孟馨） 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 03:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 03:38 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 03:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 03:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 03:36 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 03:16 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 03:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 03:14 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 03:26 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 03:35 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 03:23 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 03:25 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 03:27 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 03:30 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 03:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 03:41 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 03:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 03:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 03:34 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 03:34 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:38 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/6054862087.shtml)
-- 2026-06-30 03:16 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/790801.shtml)
-- 2026-06-30 03:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/4421113863.shtml)
-- 2026-06-30 03:22 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/77320657612.shtml)
-- 2026-06-30 03:34 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/20807.shtml)
-- 2026-06-30 03:22 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/322814410.shtml)
-- 2026-06-30 03:31 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/4521392336.shtml)
-- 2026-06-30 03:18 - [锐评T1零封KC](http://www.share.minike.top/Article/details/821701076203.shtml)
-- 2026-06-30 03:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/13966029.shtml)
-- 2026-06-30 03:12 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/2020579.shtml)
-- 2026-06-30 03:13 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/14521.shtml)
-- 2026-06-30 03:19 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/5170926055.shtml)
-- 2026-06-30 03:32 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/53533.shtml)
-- 2026-06-30 03:14 - [日本16强魔咒](https://www.share.minike.top/Article/details/70150.shtml)
-- 2026-06-30 03:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/3241247.shtml)
+- 2026-06-30 03:35 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/125181233831.shtml)
+- 2026-06-30 03:30 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/8923241258.shtml)
+- 2026-06-30 03:37 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/774779968.shtml)
+- 2026-06-30 03:46 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/98486534891.shtml)
+- 2026-06-30 03:29 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/30491159.shtml)
+- 2026-06-30 03:43 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/192737883.shtml)
+- 2026-06-30 03:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/739298.shtml)
+- 2026-06-30 03:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/3112792233.shtml)
+- 2026-06-30 03:20 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/0057438.shtml)
+- 2026-06-30 03:32 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/30863374.shtml)
+- 2026-06-30 03:30 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/44165707724.shtml)
+- 2026-06-30 03:19 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/8111562.shtml)
+- 2026-06-30 03:23 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/8624199.shtml)
+- 2026-06-30 03:22 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/4492232.shtml)
+- 2026-06-30 03:44 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/389073.shtml)

@@ -1,56 +1,61 @@
-# 剑指“第一”造假、数据注水！新规如何堵住广告“文字游戏”漏洞？
+# 五一假期北京市属公园迎客超331万人次 文化科普丰富游园内涵
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-广告是广大经营主体参与市场竞争的重要手段之一。近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。针对此类乱象，市场监管总局日前发布了《广告引证
+中新网北京5月5日电(记者 徐婧)北京市公园管理中心5日介绍，今年五一假期(5月1日至5日)，北京市属公园及中国园林博物馆共接待游客331.1万人次，游客量排名前三位的是颐和园、天坛公园、景山公园。 面对假期大客流，各公园提前部署、科学疏导，全力保障游园秩序与安全。颐和园聚焦仁寿殿、画中游等重点区域与线路，强化警力布防，及时化解拥堵点位；天坛公园通过开启隔离栏杆、增设临时通道、
 
 ## 正文
 
-广告是广大经营主体参与市场竞争的重要手段之一。
+中新网北京5月5日电(记者 徐婧)北京市公园管理中心5日介绍，今年五一假期(5月1日至5日)，北京市属公园及中国园林博物馆共接待游客331.1万人次，游客量排名前三位的是颐和园、天坛公园、景山公园。
 
-近年来，部分经营者以明显量身定制的研究报告，甚至是虚假实验数据等作为依据，在广告宣传中进行“萝卜坑式引证”；有的商家使用添加各种定语后的“首创”“第一”等噱头或者口号；还有的在广告中采用“大字吸睛、小字免责”等手段，着力突出商品或服务卖点的同时，显著弱化可能影响消费者购买决策的不利信息。
+面对假期大客流，各公园提前部署、科学疏导，全力保障游园秩序与安全。
 
-针对此类乱象，市场监管总局日前发布了《广告引证内容执法指南》，剑指其中的各种乱象。
+颐和园聚焦仁寿殿、画中游等重点区域与线路，强化警力布防，及时化解拥堵点位；天坛公园通过开启隔离栏杆、增设临时通道、启用手持验票机等方式提升入园效率，优化游览动线；景山公园提前“削峰”疏导，梯次管控山体客流，在关键路口增派力量，对重点平台与广场实行间断放行，确保游园安全有序。
 
-新规具体将从哪些方面改善广告市场环境？
+文化与科普深度融合，让假日游园更有内涵。
 
-“某某地区、某某时段、某某品类——销量第一！
+假日期间，北京市属公园推出60余项特色文化与科普活动，让游客在赏景休闲中收获知识与乐趣。
 
-”这样的广告词，你熟悉吗？
+颐和园推出“山西出土两周时期文物精华展”等3项全新展览；天坛公园开展古建筑漫游科普研学，解锁古建文化密码；北海公园打造“印·静心”晚间文化活动，营造雅致夜游氛围。
 
-过去，不少商家以为，在“第一”前面堆上一长串限定词就能绕开监管。
+中山公园、香山公园、景山公园分别推出寄语劳动者、古树观察、小微盆景制作等互动体验。
 
-但这次发布的《广告引证内容执法指南》直接戳破了这种“定语游戏”。
+5月5日是立夏节气，玉渊潭公园举办以“立夏知时节·紫藤伴夏来”为主题的科普宣传活动。
 
 ## 相关推荐
 
-- 2026-06-30 03:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 03:30 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 03:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 03:36 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 03:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 03:40 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 03:36 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 03:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 03:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 03:34 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 03:24 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 03:25 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 03:34 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 03:25 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 03:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 03:46 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 03:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 03:46 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:38 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 03:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:47 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 03:20 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 03:30 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 03:23 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/265619.shtml)
-- 2026-06-30 03:23 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/948478473.shtml)
-- 2026-06-30 03:31 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/870272047.shtml)
-- 2026-06-30 03:15 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/757710.shtml)
-- 2026-06-30 03:16 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/18212.shtml)
-- 2026-06-30 03:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/24756.shtml)
-- 2026-06-30 03:33 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7562808.shtml)
-- 2026-06-30 03:22 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/790875.shtml)
-- 2026-06-30 03:34 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/93942876.shtml)
-- 2026-06-30 03:18 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/086454891.shtml)
-- 2026-06-30 03:20 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/524391878.shtml)
-- 2026-06-30 03:39 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/812886130.shtml)
-- 2026-06-30 03:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/3108450524.shtml)
-- 2026-06-30 03:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/9268173809.shtml)
-- 2026-06-30 03:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/09399.shtml)
+- 2026-06-30 03:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/89979.shtml)
+- 2026-06-30 03:44 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/32486.shtml)
+- 2026-06-30 03:24 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/2557978.shtml)
+- 2026-06-30 03:39 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/676405614.shtml)
+- 2026-06-30 03:24 - [女心理师](http://www.blog.kurohicncr.top/Article/details/09608940.shtml)
+- 2026-06-30 03:25 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/3972201403.shtml)
+- 2026-06-30 03:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/4448112453.shtml)
+- 2026-06-30 03:23 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/2991561.shtml)
+- 2026-06-30 03:23 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/02757.shtml)
+- 2026-06-30 03:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/209287714760.shtml)
+- 2026-06-30 03:24 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/8672507944.shtml)
+- 2026-06-30 03:21 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/52137.shtml)
+- 2026-06-30 03:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/9201151812.shtml)
+- 2026-06-30 03:23 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/19581356.shtml)
+- 2026-06-30 03:32 - [刘念回应](https://www.share.minike.top/Article/details/00288.shtml)

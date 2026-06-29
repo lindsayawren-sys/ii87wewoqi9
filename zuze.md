@@ -1,54 +1,60 @@
-# 星展：中国东方航空上升至“持有”评级 目标价维持2.9港元
+# 中银国际：美的集团目标价上调至94.7港元 维持“买入”评级
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-星展发布研报称，虽然2026财年对中国的航空公司而言仍将是艰难的一年，但近期行业股价大幅回调，已在很大程度上反映了市场对行业短期前景的悲观预期。 该行预计，虽然目前估值已反映出大部分下行风险，但中国东方航空（00670） 今年仍会录得亏损。该行表示，目前行业估值似乎较为合理，但一旦经营环境显著恶化，仍然无法排除股价进一步下挫的可能性。该行将东航评级上调至“持有”，目标价2.9港
+中银国际发布研报称，上调美的集团（00300）目标价2%，从92.8港元升至94.7港元，维持“买入”评级。美的2026年第一季收入和净利润分别年增2.5%和2%。该行认为这组数据实际上令人鼓舞，并有望为市场带来一些惊喜。 美的2026年第一季的业绩也表明，公司透过产品驱动的市场份额增长、更加多元化的业务结构以及更有效率的内部管理和成本控制，成功应对逆境。因此，尽管美的仍将面临
 
 ## 正文
 
-星展发布研报称，虽然2026财年对中国的航空公司而言仍将是艰难的一年，但近期行业股价大幅回调，已在很大程度上反映了市场对行业短期前景的悲观预期。
+中银国际发布研报称，上调美的集团（00300）目标价2%，从92.8港元升至94.7港元，维持“买入”评级。
 
-该行预计，虽然目前估值已反映出大部分下行风险，但中国东方航空（00670） 今年仍会录得亏损。
+美的2026年第一季收入和净利润分别年增2.5%和2%。
 
-该行表示，目前行业估值似乎较为合理，但一旦经营环境显著恶化，仍然无法排除股价进一步下挫的可能性。
+该行认为这组数据实际上令人鼓舞，并有望为市场带来一些惊喜。
 
-该行将东航评级上调至“持有”，目标价2.9港元不变。
+美的2026年第一季的业绩也表明，公司透过产品驱动的市场份额增长、更加多元化的业务结构以及更有效率的内部管理和成本控制，成功应对逆境。
 
-责任编辑：卢昱君
+因此，尽管美的仍将面临与同行相同的挑战，例如投入成本上升和地缘政治紧张局势，但该行预计美的能够更顺利地克服这些风险，其更强劲的现金流增长将支持更多提升股东回报的举措。
+
+该行表示，2026年第二季可能依然充满挑战，但美的已制定应对计划。
+
+除需求疲软（尤其是在中国市场）之外，该行认为第二季度最大的挑战将是成本上升，但美的可以通过以下方式缓解：1）提价，部分机型已在2026年第一季提价；2）将部分成本压力转嫁给原始设备制造商（OEM）客户；3）进行更多内部改革，例如渠道间整合库存共享，以及更加谨慎地选择供应商。
+
+近期，美的也与中集集团（02039）达成策略协议，锁定其货运价格，该行认为这使其比大多数同行定位更好。
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 03:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 03:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 03:37 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 03:28 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 03:38 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 03:28 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 03:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 03:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 03:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 03:28 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 03:16 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 03:12 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 03:16 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 03:35 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 03:44 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 03:23 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 03:34 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 03:19 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 03:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 03:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 03:24 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 03:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:34 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 03:19 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 03:35 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 03:31 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 03:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/054714.shtml)
-- 2026-06-30 03:31 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/88588198.shtml)
-- 2026-06-30 03:41 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/70603164.shtml)
-- 2026-06-30 03:25 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/143809629.shtml)
-- 2026-06-30 03:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/25925.shtml)
-- 2026-06-30 03:30 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/9470893.shtml)
-- 2026-06-30 03:27 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/4320934.shtml)
-- 2026-06-30 03:29 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/295791.shtml)
-- 2026-06-30 03:39 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/9724702136.shtml)
-- 2026-06-30 03:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/264933964857.shtml)
-- 2026-06-30 03:33 - [日本领先巴西](https://www.blog.minike.top/Article/details/61645020429.shtml)
-- 2026-06-30 03:24 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/4365625.shtml)
-- 2026-06-30 03:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/97801425.shtml)
-- 2026-06-30 03:41 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/219675105721.shtml)
-- 2026-06-30 03:29 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/92375662.shtml)
+- 2026-06-30 03:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/606342342.shtml)
+- 2026-06-30 03:25 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/180410.shtml)
+- 2026-06-30 03:24 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/582399648977.shtml)
+- 2026-06-30 03:41 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/81794.shtml)
+- 2026-06-30 03:30 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/0087045104.shtml)
+- 2026-06-30 03:42 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/951899.shtml)
+- 2026-06-30 03:47 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/5555967659.shtml)
+- 2026-06-30 03:23 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/230468.shtml)
+- 2026-06-30 03:22 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/968392.shtml)
+- 2026-06-30 03:39 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/468344.shtml)
+- 2026-06-30 03:34 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/48413268676.shtml)
+- 2026-06-30 03:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/788023187666.shtml)
+- 2026-06-30 03:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/699391810.shtml)
+- 2026-06-30 03:21 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/8087212.shtml)
+- 2026-06-30 03:44 - [绘画区你赢了](https://www.share.minike.top/Article/details/92538.shtml)

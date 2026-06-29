@@ -1,53 +1,56 @@
-# “上合之树”数字技术培训已达成1000人次目标
+# 中国各民族的人权，不用你们指手画脚！
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网新疆克拉玛依6月12日电 (袁鹏冲)记者从正在举行的2026年中国—上海合作组织数字技术合作发展论坛上获悉，中国—上海合作组织大数据合作中心与中国—上海合作组织大数据合作中心新疆分中心已共同完成1000人次培训任务。 “上合之树”数字技术培训计划由中国—上海合作组织大数据合作中心发起，自2023年正式落地实施，聚焦上合组织各国数字人才短缺、技术发展不均衡等痛点，面向成员国
+4月30日，欧洲议会通过涉中国新颁布民族团结进步促进法有关决议，这一决议以所谓人权和民族正义为借口，罔顾事实与法理，恶意抹黑、刻意曲解中国法律和民族政策，粗暴干涉中国内政，属于典型的民族领域“人权干预主义”，暴露出对中国的无知和偏见。 民族团结进步促进法在今年3月闭幕的第十四届全国人大四次会议上审议通过，将于2026年7月1日起施行，这既是时代的法治呼声，也是国家立法机关对于时
 
 ## 正文
 
-中新网新疆克拉玛依6月12日电 (袁鹏冲)记者从正在举行的2026年中国—上海合作组织数字技术合作发展论坛上获悉，中国—上海合作组织大数据合作中心与中国—上海合作组织大数据合作中心新疆分中心已共同完成1000人次培训任务。
+4月30日，欧洲议会通过涉中国新颁布民族团结进步促进法有关决议，这一决议以所谓人权和民族正义为借口，罔顾事实与法理，恶意抹黑、刻意曲解中国法律和民族政策，粗暴干涉中国内政，属于典型的民族领域“人权干预主义”，暴露出对中国的无知和偏见。
 
-“上合之树”数字技术培训计划由中国—上海合作组织大数据合作中心发起，自2023年正式落地实施，聚焦上合组织各国数字人才短缺、技术发展不均衡等痛点，面向成员国政府官员、企业技术人员、高校青年群体开展系统化培训。
+民族团结进步促进法在今年3月闭幕的第十四届全国人大四次会议上审议通过，将于2026年7月1日起施行，这既是时代的法治呼声，也是国家立法机关对于时代呼声的法治回应。
 
-克拉玛依市依托中国—上海合作组织大数据合作中心新疆分中心优势，深耕数字基建、跨境数据安全、低空经济等新兴赛道，以常态化培训为纽带，打破上合各国数字技术交流壁垒，为区域数字一体化发展提供可复制、可推广的合作模式。
+在中华民族伟大复兴的历史节点上，制定民族团结进步促进法，推进民族事务治理体系和治理能力现代化，以法治方式保障民族团结进步，促进人权保障事业，是新时代中国共产党治国理政的重大制度创新，是推进国家治理体系和治理能力现代化的重要举措，必将为新时代中华民族的伟大复兴与中国特色人权事业的健康发展注入强大动力。
 
-依托培训契机，克拉玛依本地院校、企业与海外机构累计签署40余份合作备忘录，落地人才培养、企业对接等多项合作成果。
+(一)彰显中国特色人权保障的独特优势 人权是各族人民普遍具有的法律权利。
 
-目前，当地联动海内外实训基地探索海外设点办训新路径，持续放大“上合之树”品牌效应。
+人权，是指人按其本质和尊严享有或应当享有的基本权利。
 
-(完)
+在我国，人权的内涵丰富而全面，不仅包括生存权、发展权等基本权利，还涵盖了政治权利、经济权利、文化权利等各个方面。
+
+制定民族团结进步促进法，是顺应时代发展潮流、保障各族人民根本利益和合法权益的重大决策，对于加强民族团结、促进人权保障、实现中华民族伟大复兴，具有不可替代的重大作用。
+
+必将成为我国民族工作和人权事业发展的一座重要里程碑，引领我国在民族和谐、人民幸福、国家富强的道路上不断前进。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 03:13 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 03:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 03:32 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 03:23 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 03:21 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 03:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 03:37 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 03:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 03:14 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 03:16 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 03:32 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 03:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 03:37 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 03:28 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 03:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 03:22 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 03:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 03:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 03:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 03:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/834758695.shtml)
-- 2026-06-30 03:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/20331.shtml)
-- 2026-06-30 03:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/21077316725.shtml)
-- 2026-06-30 03:13 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/78450772500.shtml)
-- 2026-06-30 03:16 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/06513749650.shtml)
-- 2026-06-30 03:39 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/140771170507.shtml)
-- 2026-06-30 03:37 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/52892016158.shtml)
-- 2026-06-30 03:12 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/338731151.shtml)
-- 2026-06-30 03:26 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/37618960286.shtml)
-- 2026-06-30 03:36 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/34273.shtml)
-- 2026-06-30 03:31 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/594584144072.shtml)
-- 2026-06-30 03:27 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/4632874.shtml)
-- 2026-06-30 03:22 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/66366.shtml)
-- 2026-06-30 03:21 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/340323.shtml)
-- 2026-06-30 03:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/29702.shtml)
+- 2026-06-30 03:44 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/546649222170.shtml)
+- 2026-06-30 03:42 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/76864.shtml)
+- 2026-06-30 03:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/22793.shtml)
+- 2026-06-30 03:28 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/57192.shtml)
+- 2026-06-30 03:37 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/0731154.shtml)
+- 2026-06-30 03:29 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/044808842.shtml)
+- 2026-06-30 03:43 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/91929609858.shtml)
+- 2026-06-30 03:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/724836779993.shtml)
+- 2026-06-30 03:47 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/79335.shtml)
+- 2026-06-30 03:24 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/7688828376.shtml)
+- 2026-06-30 03:30 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/2148391.shtml)
+- 2026-06-30 03:35 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/06715.shtml)
+- 2026-06-30 03:36 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/64771822823.shtml)
+- 2026-06-30 03:22 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/6636448130.shtml)
+- 2026-06-30 03:43 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/4319912373.shtml)

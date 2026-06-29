@@ -1,56 +1,60 @@
-# 专家称未来十年中国企业全球化将从规模扩张走向价值创造
+# 一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网上海6月13日电 (高志苗)“2026中国企业全球影响力对话”13日在上海举行。来自海内外产业界、投资界、国际组织、研究机构的代表齐聚一堂，共同探讨中国企业全球化发展的新趋势、新机遇与新路径。 《2026中国企业全球影响力年度报告》在活动上同期发布。“中国企业全球影响力100强”研究成果及年度企业、年度人物、年度产品等案例研究成果同步公布。 报告显示，联想集团、SHEIN
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：巴菲特2026年股东大会重磅来袭 美东时间5月2日下午至晚间，第十一届中美投资人酒会在奥马哈市中心万豪酒店如期举行。作为巴菲特股东大会期间的重要配套活动，这一由新浪财经主办的酒会汇聚来自全球的投资机构专家、商界精英与媒体代表，在深度思想交流之外，也为跨文化沟通提供了平台。 在今年的酒会现场，青花汾酒作为首席合作伙伴
 
 ## 正文
 
-中新网上海6月13日电 (高志苗)“2026中国企业全球影响力对话”13日在上海举行。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 专题：巴菲特2026年股东大会重磅来袭 美东时间5月2日下午至晚间，第十一届中美投资人酒会在奥马哈市中心万豪酒店如期举行。
 
-来自海内外产业界、投资界、国际组织、研究机构的代表齐聚一堂，共同探讨中国企业全球化发展的新趋势、新机遇与新路径。
+作为巴菲特股东大会期间的重要配套活动，这一由新浪财经主办的酒会汇聚来自全球的投资机构专家、商界精英与媒体代表，在深度思想交流之外，也为跨文化沟通提供了平台。
 
-《2026中国企业全球影响力年度报告》在活动上同期发布。
+在今年的酒会现场，青花汾酒作为首席合作伙伴身份亮相，以“青花汾酒，世界共赏，清香无界”为主题，贯穿整个活动进程。
 
-“中国企业全球影响力100强”研究成果及年度企业、年度人物、年度产品等案例研究成果同步公布。
+从嘉宾论坛到晚宴交流，来自东方的一缕清香，始终萦绕不绝，融入全球投资者的感官与记忆之中。
 
-报告显示，联想集团、SHEIN、字节跳动、比亚迪、中国石油、华为、洛阳钼业、立讯精密、海尔智家、中远海控、小米集团、阿里巴巴、OPPO、美的集团、大疆、拼多多、紫金矿业、奇瑞汽车、vivo、中国石化等企业位居中国企业全球影响力前列。
+奥马哈之约：一场跨越文化的品鉴体验 中美投资人酒会活动丰富，包括但不限于主办方致辞、论坛环节与晚宴等。
 
-中国出海企业协作联盟(CEGA)执行理事长余敬中表示，中国企业全球影响力100强主要依据企业全球经营规模、产品市场表现、品牌影响力和本地贡献等客观指标进行综合评价，入围企业海外年度收入原则上须达到10亿美元以上。
+围绕“财富创造与时代机遇”和“财富向善与价值共生”等议题，嘉宾们展开深入讨论，人工智能、先进制造、能源转型等关键词频频出现，勾勒出全球经济演进的关键方向。
 
-“百强看规模与实力，案例看创新与贡献。
+现场精彩纷呈，气氛热烈，也为随后的晚宴与品鉴营造出轻松而开放的交流氛围。
 
-”余敬中认为，如果说百强研究反映的是中国企业全球化发展的整体底盘，那么年度案例更关注那些正在创造新价值的实践者。
+品鉴活动现场，青花汾酒以极具中国韵味的蓝白瓷瓶，为会场带来一阵别样的清雅风韵。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 03:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 03:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 03:19 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 03:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 03:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 03:20 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 03:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 03:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 03:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 03:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:34 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 03:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 03:38 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 03:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 03:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 03:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 03:22 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 03:23 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 03:36 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 03:27 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 03:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/5180081467.shtml)
-- 2026-06-30 03:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/15816.shtml)
-- 2026-06-30 03:26 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/78376040.shtml)
-- 2026-06-30 03:18 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8062984.shtml)
-- 2026-06-30 03:24 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/740310136643.shtml)
-- 2026-06-30 03:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/0749683332.shtml)
-- 2026-06-30 03:29 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/1479267654.shtml)
-- 2026-06-30 03:17 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/43926950.shtml)
-- 2026-06-30 03:38 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/97659578158.shtml)
-- 2026-06-30 03:29 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/693377.shtml)
-- 2026-06-30 03:37 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/8333379.shtml)
-- 2026-06-30 03:18 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/10006738178.shtml)
-- 2026-06-30 03:32 - [巴西扳平比分](http://www.blog.minike.top/Article/details/007430.shtml)
-- 2026-06-30 03:32 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/7499819421.shtml)
-- 2026-06-30 03:18 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/228610349.shtml)
+- 2026-06-30 03:25 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/25157239351.shtml)
+- 2026-06-30 03:22 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/15096647787.shtml)
+- 2026-06-30 03:43 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/9414250.shtml)
+- 2026-06-30 03:23 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/7506922214.shtml)
+- 2026-06-30 03:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/447314659.shtml)
+- 2026-06-30 03:41 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/6486775917.shtml)
+- 2026-06-30 03:34 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/1798531643.shtml)
+- 2026-06-30 03:32 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/1843175324.shtml)
+- 2026-06-30 03:32 - [扬名立万](http://www.share.kurohicncr.top/Article/details/7361744.shtml)
+- 2026-06-30 03:21 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/706856860.shtml)
+- 2026-06-30 03:47 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/87534698400.shtml)
+- 2026-06-30 03:22 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/83413359.shtml)
+- 2026-06-30 03:27 - [沉睡花园](http://www.blog.minike.top/Article/details/4824391137.shtml)
+- 2026-06-30 03:27 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/29505.shtml)
+- 2026-06-30 03:38 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/84848143740.shtml)

@@ -1,60 +1,47 @@
-# SpaceX加密货币交易IPO合约一度大跌，如今反弹指向2.4万亿美元估值
+# 五角大楼签署涉密人工智能协议 Anthropic被排除在外
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。 该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交
+美国国防部签署协议，将Alphabet旗下谷歌（Google）、微软（Microsoft）、英伟达（Nvidia）、亚马逊（Amazon）、OpenAI等公司的人工智能用于“合法的作战用途”，同时将Anthropic排除在该项目之外。责任编辑：张俊 SF065
 
 ## 正文
 
-Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。
+美国国防部签署协议，将Alphabet旗下谷歌（Google）、微软（Microsoft）、英伟达（Nvidia）、亚马逊（Amazon）、OpenAI等公司的人工智能用于“合法的作战用途”，同时将Anthropic排除在该项目之外。
 
-该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。
-
-该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交易者正在下调对IPO首日涨幅的预期。
-
-Hyperliquid平台上该合约的未平仓量接近2.16亿美元，24小时交易量超过1.5亿美元。
-
-未平仓量指的是活跃或未平仓合约的美元价值。
-
-Hyperliquid的SPCX合约并不赋予持有人SpaceX的股票、配售权或任何对公司的索取权。
-
-它是一种以现金结算的衍生品。
-
-但由于SpaceX将其IPO定价固定在每股135美元，该合约已成为少数几个能显示交易者认为该股可能以什么价格开盘的实时市场之一。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 03:37 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 03:32 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 03:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 03:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 03:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 03:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 03:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 03:20 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 03:20 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 03:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 03:16 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 03:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 03:36 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 03:31 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 03:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 03:21 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 03:18 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 03:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 03:36 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 03:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 03:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 03:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 03:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 03:35 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 03:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/4870550752.shtml)
-- 2026-06-30 03:16 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/798701490.shtml)
-- 2026-06-30 03:22 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/975040464.shtml)
-- 2026-06-30 03:27 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/88145246.shtml)
-- 2026-06-30 03:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/5722025.shtml)
-- 2026-06-30 03:18 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/410559596653.shtml)
-- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/322374.shtml)
-- 2026-06-30 03:16 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/9388602.shtml)
-- 2026-06-30 03:12 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/274449544.shtml)
-- 2026-06-30 03:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/1252805.shtml)
-- 2026-06-30 03:40 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/03483028101.shtml)
-- 2026-06-30 03:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/85053326786.shtml)
-- 2026-06-30 03:21 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/50335546853.shtml)
-- 2026-06-30 03:36 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/15819.shtml)
-- 2026-06-30 03:29 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/57889419332.shtml)
+- 2026-06-30 03:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/33706903412.shtml)
+- 2026-06-30 03:27 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/693352119.shtml)
+- 2026-06-30 03:44 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/774814586783.shtml)
+- 2026-06-30 03:23 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/64509426.shtml)
+- 2026-06-30 03:27 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/030601.shtml)
+- 2026-06-30 03:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/045108.shtml)
+- 2026-06-30 03:29 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/3864914.shtml)
+- 2026-06-30 03:43 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/7772286397.shtml)
+- 2026-06-30 03:45 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/809939.shtml)
+- 2026-06-30 03:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/867556.shtml)
+- 2026-06-30 03:31 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4077818.shtml)
+- 2026-06-30 03:34 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/34227.shtml)
+- 2026-06-30 03:43 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/47994670.shtml)
+- 2026-06-30 03:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/56925529722.shtml)
+- 2026-06-30 03:28 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/6876548600.shtml)

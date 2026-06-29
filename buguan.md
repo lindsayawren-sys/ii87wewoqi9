@@ -1,58 +1,60 @@
-# 每天需要600人“挽袖” 长沙为生命搭建“流动的血库”
+# 《目瑙纵歌》刷屏背后：词曲作者解码“文化出圈”
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月14日电 (姜兰)“以前觉得献血只是我帮助别人，经历过生死才明白，无偿献血是‘我为人人、人人为我’的善意循环。”6月14日是第23个“世界献血者日”，曾因产后大出血被800毫升热血救回一命的市民王贤，以献血者和受血者的双重身份，在长沙2026年“世界献血者日”主题活动上分享了自己的故事。 王贤曾受“献血伤身体”的错误认知影响，不敢参与献血。2022年，在单位组织下
+中新网德宏5月3日电 (缪超 明雄忠 韦洁)“五一”假期，火爆网络的《目瑙纵歌》背后两位关键人物——古稀之年的景颇族曲作者石勒干与“80后”回族填词人“半夏水玉”(甄臻)，在云南省德宏傣族景颇族自治州陇川县线下相聚，首次共同解码这首跨越年龄、民族与技术的“文化爆款”背后的创作故事。 “小时候唱‘我们的祖国是花园’，到了德宏才知道，祖国真是一个大花园，不同颜色的花朵在这里各美其美
 
 ## 正文
 
-中新网长沙6月14日电 (姜兰)“以前觉得献血只是我帮助别人，经历过生死才明白，无偿献血是‘我为人人、人人为我’的善意循环。
+中新网德宏5月3日电 (缪超 明雄忠 韦洁)“五一”假期，火爆网络的《目瑙纵歌》背后两位关键人物——古稀之年的景颇族曲作者石勒干与“80后”回族填词人“半夏水玉”(甄臻)，在云南省德宏傣族景颇族自治州陇川县线下相聚，首次共同解码这首跨越年龄、民族与技术的“文化爆款”背后的创作故事。
 
-”6月14日是第23个“世界献血者日”，曾因产后大出血被800毫升热血救回一命的市民王贤，以献血者和受血者的双重身份，在长沙2026年“世界献血者日”主题活动上分享了自己的故事。
+“小时候唱‘我们的祖国是花园’，到了德宏才知道，祖国真是一个大花园，不同颜色的花朵在这里各美其美，各民族在此美美与共。
 
-王贤曾受“献血伤身体”的错误认知影响，不敢参与献血。
+”《目瑙纵歌》填词二创作者“半夏水玉”于“五一”假期首次踏足位于中国西南边陲的德宏，在陇川县体验目瑙纵歌的欢乐、品尝过手米线的美味后如是赞叹。
 
-2022年，在单位组织下，她首次捐献400毫升血液，献血后身体无任何不适，彻底打破了偏见。
+“半夏水玉”真名叫甄臻，是生活工作在北京的“80后”回族大男孩。
 
-2025年，王贤生孩子时突发大出血，危急时刻，800毫升爱心血液为她撑起生命希望。
+2025年，这名音乐人在网上看到有关目瑙纵歌节的视频，被万人同舞、共唱盛世的场景所吸引，更被节奏明快，曲调雄浑的音乐所感染。
 
-得益于无偿献血相关惠民政策，她的用血费用也顺利快速报销。
+今年2月，甄臻用了三周时间，在景颇族艺术家石勒干于1991年创作的《目瑙纵歌进行曲》基础上填写歌词，并运用AI技术在曲中加入适配当代传播的变奏和电子乐元素，最后，合成拟人演唱。
 
-“我们送出的是热血，守住的是生命最坚实的保障。
+目瑙纵歌节是生活在祖国西南边陲的景颇族最为隆重的传统民族节日。
 
-”她的真挚分享，让现场市民深受触动。
+2006年，被列入第一批中国国家级非物质文化遗产代表性项目名录。
 
 ## 相关推荐
 
-- 2026-06-30 03:35 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 03:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 03:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 03:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 03:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 03:27 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 03:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 03:26 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 03:20 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 03:34 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 03:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 03:46 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 03:35 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 03:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 03:33 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 03:47 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 03:40 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 03:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 03:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 03:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 03:24 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 03:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 03:27 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 03:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 03:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [时光音乐会](http://www.share.minike.top/Article/details/68268433967.shtml)
-- 2026-06-30 03:22 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/088939.shtml)
-- 2026-06-30 03:40 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/951470366.shtml)
-- 2026-06-30 03:36 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/602866.shtml)
-- 2026-06-30 03:35 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/136905.shtml)
-- 2026-06-30 03:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/8236819124.shtml)
-- 2026-06-30 03:24 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/392658735.shtml)
-- 2026-06-30 03:33 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/78193420311.shtml)
-- 2026-06-30 03:21 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/33087706.shtml)
-- 2026-06-30 03:13 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/065947444.shtml)
-- 2026-06-30 03:20 - [千香](https://www.share.kurohicncr.top/Article/details/07394592618.shtml)
-- 2026-06-30 03:39 - [巴西绝杀](http://www.blog.minike.top/Article/details/6613332.shtml)
-- 2026-06-30 03:20 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/97505.shtml)
-- 2026-06-30 03:40 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/9654220.shtml)
-- 2026-06-30 03:29 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/896361448.shtml)
+- 2026-06-30 03:30 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/8997076.shtml)
+- 2026-06-30 03:24 - [点菜也要教吗](http://www.blog.minike.top/Article/details/57266.shtml)
+- 2026-06-30 03:41 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/280438.shtml)
+- 2026-06-30 03:43 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/452517913653.shtml)
+- 2026-06-30 03:45 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/600204.shtml)
+- 2026-06-30 03:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/27298510.shtml)
+- 2026-06-30 03:31 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/098091.shtml)
+- 2026-06-30 03:20 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/186273.shtml)
+- 2026-06-30 03:44 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/790148189726.shtml)
+- 2026-06-30 03:40 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/50943665721.shtml)
+- 2026-06-30 03:21 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/319013168.shtml)
+- 2026-06-30 03:26 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/306396428295.shtml)
+- 2026-06-30 03:32 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/079363.shtml)
+- 2026-06-30 03:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/139156806526.shtml)
+- 2026-06-30 03:30 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/66318.shtml)

@@ -1,56 +1,54 @@
-# 宁夏固原启动高标准农田建设专项巡察 紧盯六大领域整治突出问题
+# 快讯：恒指高开1.4% 科指涨1.58% 科网股普涨 芯片股高开 汽车股活跃
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新网固原6月12日电 (记者 李佩珊)记者12日从宁夏固原市获悉，固原市正式启动高标准农田建设突出问题专项巡察工作。本轮巡察持续至7月上旬，将对西吉县、彭阳县、原州区开展“推磨式”提级交叉巡察。 据了解，本次专项巡察聚焦资金管理、招投标流程、廉洁从政、工程质量、项目规划、后期管护六大重点内容开展监督检查。巡察组将从严排查项目资金使用乱象，重点整治套取截留、挤占挪用项目资金等违
+美股上周五个别发展，油价高企拖低传统股份表现，科技股继续受到追捧，标普500指数及纳指再创历史新高，三大指数收市升跌不一。美元走势向下，美国十年期债息回落至4.37厘水平，金价低位反弹，油价则由高位回落。 今日港股三大指数集体高开，恒指开盘涨1.4%，报26138.34点，恒科指涨1.58%，国企指数涨1.23%。盘面上，科网股普涨，百度、网易涨超3%，哔哩哔哩、阿里巴巴涨超2
 
 ## 正文
 
-中新网固原6月12日电 (记者 李佩珊)记者12日从宁夏固原市获悉，固原市正式启动高标准农田建设突出问题专项巡察工作。
+美股上周五个别发展，油价高企拖低传统股份表现，科技股继续受到追捧，标普500指数及纳指再创历史新高，三大指数收市升跌不一。
 
-本轮巡察持续至7月上旬，将对西吉县、彭阳县、原州区开展“推磨式”提级交叉巡察。
+美元走势向下，美国十年期债息回落至4.37厘水平，金价低位反弹，油价则由高位回落。
 
-据了解，本次专项巡察聚焦资金管理、招投标流程、廉洁从政、工程质量、项目规划、后期管护六大重点内容开展监督检查。
+今日港股三大指数集体高开，恒指开盘涨1.4%，报26138.34点，恒科指涨1.58%，国企指数涨1.23%。
 
-巡察组将从严排查项目资金使用乱象，重点整治套取截留、挤占挪用项目资金等违规行为，健全资金全流程监管机制。
+盘面上，科网股普涨，百度、网易涨超3%，哔哩哔哩、阿里巴巴涨超2%；芯片股高开，天数智芯涨超12%；汽车股活跃，小鹏集团涨超2%；电力设备股普遍上涨，潍柴动力涨超6%。
 
-针对工程招投标环节，当地依托大数据监督手段，严查围标串标、层层转包、暗箱操作、虚假评标等问题，对高频中标企业、项目集中村镇加大核查力度。
-
-同时，本轮巡察紧盯权力运行关键环节，深挖领导干部违规插手工程项目、利益输送、吃拿卡要、内外勾结套取项目资金等违纪违法问题。
-
-针对2019年以来建成的高标准农田项目，巡察人员将逐田块、逐设施开展全面排查，纠治工程质量不达标、监理履职缺位、虚假验收、“带病”验收等突出问题，从严守牢工程质量底线。
-
-此外，巡察着力整治履职不力、作风不实等问题，重点查处项目规划脱离实际、配套设施不完善、拖欠工程款、虚报建设面积、重建轻管、农田撂荒等不作为、乱作为现象，督促属地扎实推进农田建设各项任务，推动项目规范落地、按期完成竣工验收。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 03:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 03:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 03:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 03:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 03:19 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 03:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 03:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 03:31 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 03:39 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 03:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 03:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 03:27 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 03:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 03:47 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 03:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 03:18 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 03:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 03:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 03:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 03:23 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 03:46 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 03:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [日本淘汰](http://www.blog.minike.top/Article/details/512037310526.shtml)
-- 2026-06-30 03:19 - [沙丘](https://www.share.kurohicncr.top/Article/details/7199728462.shtml)
-- 2026-06-30 03:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/785575.shtml)
-- 2026-06-30 03:19 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/4293593.shtml)
-- 2026-06-30 03:15 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/75707677.shtml)
-- 2026-06-30 03:30 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/8141040640.shtml)
-- 2026-06-30 03:12 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/87634.shtml)
-- 2026-06-30 03:29 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/796443.shtml)
-- 2026-06-30 03:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/781982.shtml)
-- 2026-06-30 03:30 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/46703200980.shtml)
-- 2026-06-30 03:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/879727494.shtml)
-- 2026-06-30 03:30 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/43517728.shtml)
-- 2026-06-30 03:18 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/24774.shtml)
-- 2026-06-30 03:36 - [日本进球](http://www.blog.minike.top/Article/details/416737.shtml)
-- 2026-06-30 03:31 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/722175.shtml)
+- 2026-06-30 03:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/25194.shtml)
+- 2026-06-30 03:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/56141.shtml)
+- 2026-06-30 03:35 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/36423002581.shtml)
+- 2026-06-30 03:18 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/482555582907.shtml)
+- 2026-06-30 03:31 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/728008.shtml)
+- 2026-06-30 03:21 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/0956249614.shtml)
+- 2026-06-30 03:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/747425231141.shtml)
+- 2026-06-30 03:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/559787683634.shtml)
+- 2026-06-30 03:26 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/588000507574.shtml)
+- 2026-06-30 03:30 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/161390434513.shtml)
+- 2026-06-30 03:46 - [起风了](http://www.share.kurohicncr.top/Article/details/3576419.shtml)
+- 2026-06-30 03:46 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/2518204066.shtml)
+- 2026-06-30 03:23 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/1384274664.shtml)
+- 2026-06-30 03:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/751781547.shtml)
+- 2026-06-30 03:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/67153645327.shtml)

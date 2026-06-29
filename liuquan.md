@@ -1,56 +1,50 @@
-# 瑞士全民公投：反对设定1000万人口上限
+# 世卫组织：正排查汉坦病毒死亡女乘客航班同机人员
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 伯尔尼消息：在当地时间14日举行的瑞士全民公投中，选民们否决了一项旨在将瑞士人口上限定为1000万人的提案。 综合瑞士资讯网、路透社报道，该提案由右翼的瑞士人民党倡导，规定瑞士人口在2050年前不得超过1000万人，以应对国家基础设施日益增大的压力。如果连续两年人口超过1000万，瑞士应终止与欧盟的人员自由流动协议。 据全国公投的初步统计结果显示，近55
+中新网5月5日电 据法新社报道，当地时间5日，世界卫生组织表示，目前正在追踪一架从圣赫勒拿岛飞往约翰内斯堡航班上的乘客，该航班上有一名涉疫邮轮乘客疑似感染汉坦病毒死亡。 据报道，这名荷兰籍女性的丈夫此前已在受困于佛得角海域的一艘豪华邮轮上因感染汉坦病毒死亡，她本人曾于4月24日在圣赫勒拿岛下船，当时表现出“胃肠道症状”。 世卫组织称，该女子的病情在飞往约翰内斯堡途中“恶化”，并
 
 ## 正文
 
-中新社北京6月15日电 伯尔尼消息：在当地时间14日举行的瑞士全民公投中，选民们否决了一项旨在将瑞士人口上限定为1000万人的提案。
+中新网5月5日电 据法新社报道，当地时间5日，世界卫生组织表示，目前正在追踪一架从圣赫勒拿岛飞往约翰内斯堡航班上的乘客，该航班上有一名涉疫邮轮乘客疑似感染汉坦病毒死亡。
 
-综合瑞士资讯网、路透社报道，该提案由右翼的瑞士人民党倡导，规定瑞士人口在2050年前不得超过1000万人，以应对国家基础设施日益增大的压力。
+据报道，这名荷兰籍女性的丈夫此前已在受困于佛得角海域的一艘豪华邮轮上因感染汉坦病毒死亡，她本人曾于4月24日在圣赫勒拿岛下船，当时表现出“胃肠道症状”。
 
-如果连续两年人口超过1000万，瑞士应终止与欧盟的人员自由流动协议。
+世卫组织称，该女子的病情在飞往约翰内斯堡途中“恶化”，并于4月26日去世。
 
-据全国公投的初步统计结果显示，近55%的瑞士选民反对该提案，45%的选民赞成。
+目前，针对该航班乘客的接触者追踪工作已经启动。
 
-本次公投的投票参与率为58.9%，显著高于平均水平。
-
-路透社称，瑞士人口目前已超910万人，其增长速度远超周边欧盟国家。
-
-外国人占瑞士总人口的近28%。
-
-瑞士联邦委员兼司法警察部长贝亚特·扬斯(Beat Jans)对公投结果表示赞赏。
+据此前报道，涉疫邮轮名叫“洪迪厄斯”号，世卫组织表示，截至5月4日，船上已累计报告7例汉坦病毒相关病例，其中3人死亡。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 03:22 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 03:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 03:23 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 03:32 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 03:15 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 03:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 03:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 03:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 03:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 03:37 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 03:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 03:46 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 03:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 03:45 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 03:27 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:37 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 03:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 03:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/29592979250.shtml)
-- 2026-06-30 03:36 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/16987.shtml)
-- 2026-06-30 03:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/95543324.shtml)
-- 2026-06-30 03:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/29374766.shtml)
-- 2026-06-30 03:23 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/767681744247.shtml)
-- 2026-06-30 03:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/099422506869.shtml)
-- 2026-06-30 03:29 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/8906785.shtml)
-- 2026-06-30 03:16 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/73423839515.shtml)
-- 2026-06-30 03:22 - [恋与深空 巧合](http://www.share.minike.top/Article/details/94779349.shtml)
-- 2026-06-30 03:21 - [世界杯](http://www.share.minike.top/Article/details/92562867.shtml)
-- 2026-06-30 03:15 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/88022.shtml)
-- 2026-06-30 03:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/72573285.shtml)
-- 2026-06-30 03:30 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/50569.shtml)
-- 2026-06-30 03:15 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/2890638.shtml)
-- 2026-06-30 03:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/656605073494.shtml)
+- 2026-06-30 03:45 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/02744027.shtml)
+- 2026-06-30 03:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/39557943.shtml)
+- 2026-06-30 03:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/802115.shtml)
+- 2026-06-30 03:34 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/1270418.shtml)
+- 2026-06-30 03:20 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/4650112.shtml)
+- 2026-06-30 03:18 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/99504725.shtml)
+- 2026-06-30 03:42 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/56789409.shtml)
+- 2026-06-30 03:37 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/07368411244.shtml)
+- 2026-06-30 03:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/020703.shtml)
+- 2026-06-30 03:42 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/71785037555.shtml)
+- 2026-06-30 03:23 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/7476045340.shtml)
+- 2026-06-30 03:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/00543.shtml)
+- 2026-06-30 03:24 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/4772906429.shtml)
+- 2026-06-30 03:43 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/56250.shtml)
+- 2026-06-30 03:46 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/324556218.shtml)

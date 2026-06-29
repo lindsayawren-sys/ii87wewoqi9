@@ -1,57 +1,60 @@
-# 钛媒体发布关于哈啰报警的声明，称所有信息均有据可查，有据可依
+# 首个、首次、首艘！本周我国硬核实力再“上新”
 
-> 更新时间：2026-06-30 03:42:02 UTC+8
+> 更新时间：2026-06-30 03:48:02 UTC+8
 
 ## 摘要
 
-专题：被曝“长期扣押竞争对手车辆”“欲对竞品员工使用暴力”等问题 哈啰回应已向有关主管部门提交举报 来源：钛媒体 ▎声明。 钛媒体平台发布的《困兽哈啰，全面失控》一文，作者为我司旗下一行研工作室资深分析师。本文是该行研工作室在长期跟踪共享出行及本地生活服务行业过程中，基于公开信息、行业调研及多方信息交叉印证后形成的阶段性研究成果，是对行业发展过程中值得关注的问题的系统性梳理与呈
+本周 我国在能源基建、交通工程、生物科技等 多个领域捷报频传 从算电协同绿电项目投运到牦牛克隆技术取得重大进展 一项项突破 彰显着中国科技创新的硬核实力 我国首个 算电协同绿电直供项目投运 5月2日，记者从中国大唐获悉，我国首个大规模“算电协同”绿电直供项目——中国大唐中卫云基地50万千瓦光伏电站正式投运。标志着我国“东数西算”工程实现了从沙漠风光电到数字算力的直连直通。 该项
 
 ## 正文
 
-专题：被曝“长期扣押竞争对手车辆”“欲对竞品员工使用暴力”等问题 哈啰回应已向有关主管部门提交举报 来源：钛媒体 ▎声明。
+本周 我国在能源基建、交通工程、生物科技等 多个领域捷报频传 从算电协同绿电项目投运到牦牛克隆技术取得重大进展 一项项突破 彰显着中国科技创新的硬核实力 我国首个 算电协同绿电直供项目投运 5月2日，记者从中国大唐获悉，我国首个大规模“算电协同”绿电直供项目——中国大唐中卫云基地50万千瓦光伏电站正式投运。
 
-钛媒体平台发布的《困兽哈啰，全面失控》一文，作者为我司旗下一行研工作室资深分析师。
+标志着我国“东数西算”工程实现了从沙漠风光电到数字算力的直连直通。
 
-本文是该行研工作室在长期跟踪共享出行及本地生活服务行业过程中，基于公开信息、行业调研及多方信息交叉印证后形成的阶段性研究成果，是对行业发展过程中值得关注的问题的系统性梳理与呈现，所有信息均有据可查，有据可依。
+该项目由50万千瓦光伏电站和150万千瓦风电场以及配套储能装置组成。
 
-本文初衷是希望促进行业生态的健康、良性发展，并无任何恶意，我们亦无在此过程中谋取任何利益。
+“绿电直供”能让算力园区用上清洁、低价、稳定的电力，既能降低企业运营成本，又减少碳排放，实现了经济效益与生态效益的双赢。
 
-针对文内相关内容，我们欢迎任何形式的法律质证，但不接受法律质证之外的任何其他威胁和打压手段。
+刷新纪录 我国抽水蓄能电站最深竖井全线贯通 5月2日，国家“十四五”规划重点能源项目——浙江松阳抽水蓄能电站两条深度超600米的竖井实现全线贯通，刷新我国抽水蓄能领域最深竖井工程纪录。
 
-让法律的归法律，商业的归商业，不要将行业野蛮竞争的打法，再带到舆论场的刑事报复、恐吓与打压上来。
+松阳抽水蓄能电站位于浙江省丽水市松阳县，设计安装4台单机容量35万千瓦的可逆式水轮发电机组。
 
-钛摩科技集团（钛媒体母公司） 2026年6月13日责任编辑：公司观察
+此次贯通的竖井，是电站能量转换的核心通道，其深度达637米，相当于将200多层楼的高度垂直嵌入山体，创下国内抽水蓄能领域同类工程之最。
+
+海南昌江核电二期3号机组 首次开启带核调试 4月30日，记者从中国华能获悉，海南自贸港首个“华龙一号”核电项目，华能昌江核电二期项目3号机组开始装载首炉核燃料，标志着该机组首次开启带核调试，进入并网发电前置核心流程。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 03:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 03:25 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 03:14 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 03:16 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 03:16 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 03:32 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 03:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 03:19 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 03:13 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 03:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 03:33 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 03:35 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 03:30 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 03:23 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 03:30 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 03:39 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 03:48 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 03:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 03:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 03:42 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 03:19 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 03:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/81217106809.shtml)
-- 2026-06-30 03:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/878312766.shtml)
-- 2026-06-30 03:28 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/910399.shtml)
-- 2026-06-30 03:34 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/86150136068.shtml)
-- 2026-06-30 03:34 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/805405.shtml)
-- 2026-06-30 03:28 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/59319.shtml)
-- 2026-06-30 03:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/043154.shtml)
-- 2026-06-30 03:40 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/423965.shtml)
-- 2026-06-30 03:32 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/37911.shtml)
-- 2026-06-30 03:16 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/427839302630.shtml)
-- 2026-06-30 03:21 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/7465815.shtml)
-- 2026-06-30 03:26 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/09713513762.shtml)
-- 2026-06-30 03:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/701333578160.shtml)
-- 2026-06-30 03:15 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/183626236.shtml)
-- 2026-06-30 03:41 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/5873022.shtml)
+- 2026-06-30 03:30 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/01323929.shtml)
+- 2026-06-30 03:35 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/4761914258.shtml)
+- 2026-06-30 03:41 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/257589.shtml)
+- 2026-06-30 03:24 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/54351879.shtml)
+- 2026-06-30 03:20 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/2997666.shtml)
+- 2026-06-30 03:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/68227849699.shtml)
+- 2026-06-30 03:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/89562691406.shtml)
+- 2026-06-30 03:29 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/60577203.shtml)
+- 2026-06-30 03:33 - [苗族银饰](http://www.blog.minike.top/Article/details/72533566.shtml)
+- 2026-06-30 03:24 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/75031.shtml)
+- 2026-06-30 03:22 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9253215581.shtml)
+- 2026-06-30 03:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/3734624951.shtml)
+- 2026-06-30 03:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/158134757302.shtml)
+- 2026-06-30 03:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/41749008249.shtml)
+- 2026-06-30 03:41 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/70992621.shtml)
