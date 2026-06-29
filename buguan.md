@@ -1,57 +1,45 @@
-# 拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款
+# 伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+发布时间：2026年05月11日 13:12 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
-
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
-
-经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
-
-上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
-
-案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
-
-国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕23号 当事人：赵佳臻 身份证件类型：居民身份证 身份证件号码：略 住址：略 上海寻梦信息技术有限公司存在未依法履行资质审查义务的违法行为，本局于2025年12月8日依法立案调查，当事人系该公司法定代表人。
-
-本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
-
-上海寻梦信息技术有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对上海寻梦信息技术有限公司给予行政处罚。
+发布时间：2026年05月11日 13:12 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:38 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:26 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:29 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:37 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:36 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:32 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:37 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:35 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:38 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:37 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:31 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:32 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:53 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:31 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:34 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:39 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:38 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:38 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:45 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:48 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:39 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:34 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:39 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.blog.kurohicncr.top/Article/details/6844360.shtml)
-- 2026-06-29 11:31 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](http://www.blog.kurohicncr.top/Article/details/4604759377.shtml)
-- 2026-06-29 11:28 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [A股“股王”更替见证中国经济新力量](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.share.minike.top/Article/details/51065348195.shtml)
-- 2026-06-29 11:33 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.share.kurohicncr.top/Article/details/9261168.shtml)
-- 2026-06-29 11:32 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.share.kurohicncr.top/Article/details/81476.shtml)
-- 2026-06-29 11:49 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.minike.top/Article/details/60319.shtml)
-- 2026-06-29 11:25 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.blog.kurohicncr.top/Article/details/60957680442.shtml)
-- 2026-06-29 11:35 - [港交所的新挑战与“护城河”](http://www.blog.minike.top/Article/details/973462.shtml)
-- 2026-06-29 11:25 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.blog.minike.top/Article/details/183717.shtml)
-- 2026-06-29 11:48 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.share.kurohicncr.top/Article/details/290730437281.shtml)
-- 2026-06-29 11:42 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.share.minike.top/Article/details/172698221497.shtml)
+- 2026-06-29 11:35 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.blog.minike.top/Article/details/07639388.shtml)
+- 2026-06-29 11:42 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](http://www.share.kurohicncr.top/Article/details/4970291.shtml)
+- 2026-06-29 11:50 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](http://www.share.kurohicncr.top/Article/details/30439529.shtml)
+- 2026-06-29 11:50 - [山西深挖气候资源潜力 释放气象数据价值](http://www.share.minike.top/Article/details/482139517.shtml)
+- 2026-06-29 11:43 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.minike.top/Article/details/841557341.shtml)
+- 2026-06-29 11:50 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.share.minike.top/Article/details/49208725044.shtml)
+- 2026-06-29 11:49 - [OpenAI的安全与治理受到严格审视](http://www.share.kurohicncr.top/Article/details/13339625700.shtml)
+- 2026-06-29 11:54 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [证监会严肃查处清越科技财务造假案件](http://www.blog.minike.top/Article/details/40383278.shtml)
+- 2026-06-29 11:41 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.share.minike.top/Article/details/471452068.shtml)
+- 2026-06-29 11:57 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.minike.top/Article/details/5942725514.shtml)
+- 2026-06-29 11:52 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.share.minike.top/Article/details/80176.shtml)
+- 2026-06-29 11:42 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)

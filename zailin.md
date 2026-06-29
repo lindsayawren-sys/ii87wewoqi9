@@ -1,61 +1,56 @@
-# A股“股王”更替见证中国经济新力量
+# 联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-4月17日，A股“股王”易主。 半导体行业的源杰科技大涨10.05%，股价最高触及1460元，超越贵州茅台，成为A股第一高价股。 与此同时，贵州茅台跌3.8%收报1407.24元。就在16日晚间，贵州茅台披露的2025年年报出现了罕见变化——自2001年上市以来，贵州茅台首次出现年度营收与净利润双双下滑情况。 而源杰科技2025年实现营收6.01亿元、净利润1.91亿元，虽然与
+联想控股（03396）午前涨超5%，截至发稿，股价上涨5.42%，现报10.51元，成交额4879.15万港元。 据联想控股官微消息，近日，在上海举行的ChinaBio生物医药产业国际合作大会上，联想控股与ATLATL飞镖创新中心（简称“ATLATL”）共同宣布，携手推出“人工智能时代生物医药虚拟孵化器”新模式，并探讨以全球BioTech黑客松大赛形式加速落地。此举标志着双方致
 
 ## 正文
 
-4月17日，A股“股王”易主。
+联想控股（03396）午前涨超5%，截至发稿，股价上涨5.42%，现报10.51元，成交额4879.15万港元。
 
-半导体行业的源杰科技大涨10.05%，股价最高触及1460元，超越贵州茅台，成为A股第一高价股。
+据联想控股官微消息，近日，在上海举行的ChinaBio生物医药产业国际合作大会上，联想控股与ATLATL飞镖创新中心（简称“ATLATL”）共同宣布，携手推出“人工智能时代生物医药虚拟孵化器”新模式，并探讨以全球BioTech黑客松大赛形式加速落地。
 
-与此同时，贵州茅台跌3.8%收报1407.24元。
+此举标志着双方致力于共同打造AI+Biotech创新赋能体系，旨在推动生物医药创业从“重资产、长周期、高风险”向“轻量化、高效率、低门槛”转型，助力前沿创新从“Idea”快速走向产品化。
 
-就在16日晚间，贵州茅台披露的2025年年报出现了罕见变化——自2001年上市以来，贵州茅台首次出现年度营收与净利润双双下滑情况。
+联想控股助理总裁纪朝峰指出，AI技术的深度渗透，正在让靶点发现、分子设计、临床前研究等关键环节效率大幅提升，为产业变革提供了关键支撑。
 
-而源杰科技2025年实现营收6.01亿元、净利润1.91亿元，虽然与贵州茅台1720.54亿元的营业总收入、823亿元的利润规模分别相差超过280倍、400倍，但能在股价层面实现超越，资本市场显然看重的是未来预期——AI算力驱动的结构性切换。
+联想控股体系在医疗健康领域深耕多年，累计投资110家企业，覆盖创新药研发、医疗器械制造、医疗服务落地等全产业链。
 
-从酱香到硅基，这场“股王”更替折射的，也是中国经济的深刻转型。
+尽管如此，上下游优质资源仍缺乏有效整合载体。
 
-近年来，中国在人工智能、高端制造和半导体等领域取得突破性进展的消息频传。
-
-2026年一季度中国GDP同比增长5.0%，在全球主要经济体中继续名列前茅。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:33 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:47 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:43 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:44 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:48 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:27 - [雄安智慧农业春日见闻：北斗定垄、AI种花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:35 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:38 - [第139届广交会一期到会境外采购商16.7万名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:52 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:29 - [乌克兰基辅发生枪击事件 致数人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:52 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:27 - [全球乱局中，中国这块“金字招牌”越来越亮了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:52 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:27 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:50 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:38 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:39 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:32 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:59 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:57 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:44 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:45 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:44 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:49 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:49 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:57 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.share.kurohicncr.top/Article/details/701902308839.shtml)
-- 2026-06-29 11:38 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [美国交通部长：空管岗位12小时内收到6000份申请](http://www.share.minike.top/Article/details/9368799422.shtml)
-- 2026-06-29 11:49 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.blog.minike.top/Article/details/19173.shtml)
-- 2026-06-29 11:43 - [高德公开全球首款开放环境全自主具身机器人，化身智能导盲犬守护视障人士](http://www.share.kurohicncr.top/Article/details/762734071952.shtml)
-- 2026-06-29 11:52 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.blog.minike.top/Article/details/476861.shtml)
-- 2026-06-29 11:29 - [侨见重庆武隆 觅文旅、康养合作机遇](http://www.share.kurohicncr.top/Article/details/24853.shtml)
-- 2026-06-29 11:43 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.blog.kurohicncr.top/Article/details/76184438787.shtml)
-- 2026-06-29 11:48 - [苹果在华复苏将安卓对手甩在身后 iPhone出货量增长20%](http://www.blog.minike.top/Article/details/664115.shtml)
-- 2026-06-29 11:51 - [第四届中国地方特色预制菜专题研讨会在江苏扬州召开](http://www.share.minike.top/Article/details/7356039.shtml)
-- 2026-06-29 11:30 - [机器人参加马拉松赛如何散热？高速悬浮泵液冷方案可有效应对](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [翰墨因缘聚花海 两岸书画家走进洛阳国家牡丹园采风](http://www.share.kurohicncr.top/Article/details/660204146429.shtml)
-- 2026-06-29 11:32 - [新易盛传考虑赴香港上市，计划募资30亿美元](http://www.share.kurohicncr.top/Article/details/1942868404.shtml)
-- 2026-06-29 11:39 - [LPR连续11个月“按兵不动”，年内还有降息空间吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [农业农村部部署2026年种业监管执法工作](http://www.share.minike.top/Article/details/44183315150.shtml)
+- 2026-06-29 11:57 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.blog.kurohicncr.top/Article/details/91041934456.shtml)
+- 2026-06-29 11:31 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/998729.shtml)
+- 2026-06-29 11:39 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.share.minike.top/Article/details/1990401146.shtml)
+- 2026-06-29 11:50 - [建国250周年之际，美国人逃离美国](http://www.share.kurohicncr.top/Article/details/26077036.shtml)
+- 2026-06-29 11:41 - [Canvas制造商报告重大数据泄露](http://www.blog.minike.top/Article/details/7847615.shtml)
+- 2026-06-29 11:30 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.share.kurohicncr.top/Article/details/97693030.shtml)
+- 2026-06-29 11:44 - [一季度我国黄金消费量同比增长4.41%](http://www.share.kurohicncr.top/Article/details/05928980252.shtml)
+- 2026-06-29 11:39 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.blog.minike.top/Article/details/489542.shtml)
+- 2026-06-29 11:50 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.share.minike.top/Article/details/252314450.shtml)
+- 2026-06-29 11:34 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.blog.minike.top/Article/details/6108955.shtml)
+- 2026-06-29 11:41 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.blog.minike.top/Article/details/33565785.shtml)
+- 2026-06-29 11:54 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.blog.kurohicncr.top/Article/details/497574.shtml)

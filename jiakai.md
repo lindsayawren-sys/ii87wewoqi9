@@ -1,56 +1,57 @@
-# 广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”
+# 新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网梧州4月18日电(张广权 严敏玉 庞广蛟)4月17日，2026年“三月三”岑溪市“四季村味·‘香’约岑溪”文旅体验活动在广西梧州岑溪市梨木镇河木村启动。 活动依托梨木镇河木村五星公社景区优质文旅资源，将非遗展演、茶香厨艺比拼、茶艺技能竞赛、山歌擂台、文明集市与趣味游园融为一体，以节造景、以食聚客，让八方游客在山水茶香间沉浸式感受岑溪民俗魅力与乡村文旅活力，奏响“美食传情、
+“不好意思，每次聊起这些我都想哭，真的……” 眼前这位在综艺舞台上闪闪发光、刚刚还在记者面前侃侃而谈的新疆姑娘，言语间难掩哽咽。 她用手给噙满泪水的眼睛扇着风，不想让泪水在众人面前落下，但大颗大颗的眼泪还是像断了线的珍珠，夺眶而落。 这位维吾尔族姑娘，正是今年因登上《乘风2026》而被熟知的“姐姐”、青年文艺工作者维妮娜。 此刻，她正在向记者讲述的，并非舞台上的故事，而是发生在
 
 ## 正文
 
-中新网梧州4月18日电(张广权 严敏玉 庞广蛟)4月17日，2026年“三月三”岑溪市“四季村味·‘香’约岑溪”文旅体验活动在广西梧州岑溪市梨木镇河木村启动。
+“不好意思，每次聊起这些我都想哭，真的……” 眼前这位在综艺舞台上闪闪发光、刚刚还在记者面前侃侃而谈的新疆姑娘，言语间难掩哽咽。
 
-活动依托梨木镇河木村五星公社景区优质文旅资源，将非遗展演、茶香厨艺比拼、茶艺技能竞赛、山歌擂台、文明集市与趣味游园融为一体，以节造景、以食聚客，让八方游客在山水茶香间沉浸式感受岑溪民俗魅力与乡村文旅活力，奏响“美食传情、文明聚邻、文旅赋能”的乡村振兴新乐章。
+她用手给噙满泪水的眼睛扇着风，不想让泪水在众人面前落下，但大颗大颗的眼泪还是像断了线的珍珠，夺眶而落。
 
-本次活动由中共岑溪市委宣传部、岑溪市总工会主办，旨在以“三月三”为契机，深挖梨木茶文化与乡村特色资源，激活景区文旅消费潜力，推动文旅产业与文明实践深度融合。
+这位维吾尔族姑娘，正是今年因登上《乘风2026》而被熟知的“姐姐”、青年文艺工作者维妮娜。
 
-整场活动民俗气息浓郁、节日氛围热烈，各类特色文艺展演轮番上演，尽显岑溪本土文化魅力。
+此刻，她正在向记者讲述的，并非舞台上的故事，而是发生在她身边、一个普通新疆棉农家庭在谣言肆虐时，面对生计断绝的真实困境。
 
-婉转民歌《呗侬情深》传唱乡土温情，非遗牛娘戏《茶媒》紧扣茶文化主题演绎经典桥段，传承百年民俗；雅致茶韵主题走秀搭配本地茶饼、特色茶具，古韵雅致相得益彰。
+留学时用课业论文 为新疆棉正名 维妮娜是一个性格开朗的姑娘，谈及她热爱的歌舞和家乡风物，一直手舞足蹈。
 
-灵动欢快的舞蹈舞动佳节喜悦，尽显民族风情。
+但当被问及西方反华势力针对新疆棉的抹黑时，维妮娜的神情变得严肃起来。
 
-山歌擂台热闹不停，全市14个乡镇代表队齐聚对歌台，以歌结缘、以歌传情，嘹亮歌声回荡在绿水青山间。
+她回忆起在海外留学的经历，当时有一门课程围绕世界经济与全球产业发展设置了一道开放式的毕业考题。
 
-全民竹竿舞欢乐互动，民众踊跃参与、尽情玩乐。
+在看到题目的那一刻，她几乎没有犹豫，当即决定选择以新疆棉为核心案例展开作答。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:38 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:53 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:44 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:38 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:33 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:44 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:49 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:25 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:46 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:48 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:55 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:55 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:52 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:32 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:37 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:49 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:46 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:33 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:46 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:44 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [中信建投：创业板新高后，还有多少空间？](http://www.share.minike.top/Article/details/752936379130.shtml)
-- 2026-06-29 11:33 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.blog.minike.top/Article/details/92025.shtml)
-- 2026-06-29 11:46 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.minike.top/Article/details/52196993933.shtml)
-- 2026-06-29 11:51 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.minike.top/Article/details/621522680.shtml)
-- 2026-06-29 11:28 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.blog.minike.top/Article/details/3467429.shtml)
-- 2026-06-29 11:30 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.share.kurohicncr.top/Article/details/251525931606.shtml)
-- 2026-06-29 11:25 - [美国精神航空公司考虑清算](http://www.share.minike.top/Article/details/559291078845.shtml)
-- 2026-06-29 11:35 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.blog.minike.top/Article/details/5259706773.shtml)
-- 2026-06-29 11:39 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.share.kurohicncr.top/Article/details/31530.shtml)
-- 2026-06-29 11:32 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.kurohicncr.top/Article/details/18816111846.shtml)
-- 2026-06-29 11:36 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.minike.top/Article/details/10308.shtml)
-- 2026-06-29 11:32 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.share.kurohicncr.top/Article/details/4744099294.shtml)
+- 2026-06-29 11:31 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.kurohicncr.top/Article/details/226885072.shtml)
+- 2026-06-29 11:48 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.blog.minike.top/Article/details/9809416.shtml)
+- 2026-06-29 11:48 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.blog.kurohicncr.top/Article/details/861677.shtml)
+- 2026-06-29 11:43 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.kurohicncr.top/Article/details/676685.shtml)
+- 2026-06-29 11:53 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.share.kurohicncr.top/Article/details/5805239.shtml)
+- 2026-06-29 11:50 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.share.kurohicncr.top/Article/details/168653225376.shtml)
+- 2026-06-29 11:36 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.minike.top/Article/details/13986.shtml)
+- 2026-06-29 11:55 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.kurohicncr.top/Article/details/83851047.shtml)
+- 2026-06-29 11:46 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](http://www.share.minike.top/Article/details/76160.shtml)
+- 2026-06-29 11:30 - [这个法国人，真让人刮目相看](http://www.blog.minike.top/Article/details/9043450365.shtml)
+- 2026-06-29 11:40 - [“十五五”期间 武汉将亮相一批文旅新地标](http://www.share.minike.top/Article/details/16116.shtml)
+- 2026-06-29 11:52 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.share.minike.top/Article/details/99874532198.shtml)
+- 2026-06-29 11:41 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.blog.minike.top/Article/details/40997007704.shtml)

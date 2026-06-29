@@ -1,56 +1,46 @@
-# 香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分
+# Sound Transit在345亿美元资金缺口下重塑项目
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，香港特区政府财政司司长陈茂波在开幕演讲中表示，香港将全力拥抱数字金融新时代，坚定支持新一代金融科技基建变革。 但同时强调，新技术融合发展必须确保系统安全。须由人类主控、人类干预，严防技术滥用、恶意操纵与系统性算法风险；同时须保证跨境监管闭环与权责落地，去中心化绝不代表监管放宽、责任弱
+这家西雅图地区机构 outline了轻轨扩建项目的分阶段实施和延期安排以与资金匹配，优先推进西雅图西、塔科马巨蛋和巴拉德初始段，同时将其他项目推至设计阶段或后期阶段。责任编辑：张俊 SF065
 
 ## 正文
 
-专题：2026香港Web3嘉年华 文/新浪财经香港站 赵岚 在2026香港Web3嘉年华活动中，香港特区政府财政司司长陈茂波在开幕演讲中表示，香港将全力拥抱数字金融新时代，坚定支持新一代金融科技基建变革。
+这家西雅图地区机构 outline了轻轨扩建项目的分阶段实施和延期安排以与资金匹配，优先推进西雅图西、塔科马巨蛋和巴拉德初始段，同时将其他项目推至设计阶段或后期阶段。
 
-但同时强调，新技术融合发展必须确保系统安全。
-
-须由人类主控、人类干预，严防技术滥用、恶意操纵与系统性算法风险；同时须保证跨境监管闭环与权责落地，去中心化绝不代表监管放宽、责任弱化，行业应以智能化手段嵌入合规风控，夯实金融体系整体稳健与诚信。
-
-陈茂波表示，Web3与人工智能交汇融合，将彻底改写全球金融运行逻辑。
-
-2026年是全球数字金融发展重要转折点，Web3 应用持续走向成熟，深度渗透实体经济各领域。
-
-目前，香港的传统金融产品货币、债券等，以及实体资产、未来收益等多元品类加速代币化流转，资产拆分更细碎、参与门槛更低，有效地拓宽了项目融资、大众投资与风险分散渠道。
-
-金融机构广泛运用数字资产与资产代币化技术，能够有效提升交易效率、压缩运营成本、缩短清算结算周期。
-
-而随着人工智能的应用持续拓宽，数字智能全面融入实体经济，智能体AI规模化崛起成为年度重大里程碑。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:43 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:47 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:37 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:36 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:49 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:46 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:44 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:53 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:38 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:50 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:32 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:32 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:33 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:57 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:50 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:39 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:35 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:31 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:58 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:42 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:44 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/228918344701.shtml)
-- 2026-06-29 11:49 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.kurohicncr.top/Article/details/30759.shtml)
-- 2026-06-29 11:29 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.minike.top/Article/details/440466281.shtml)
-- 2026-06-29 11:39 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.share.kurohicncr.top/Article/details/48538169.shtml)
-- 2026-06-29 11:40 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.blog.minike.top/Article/details/45998298.shtml)
-- 2026-06-29 11:45 - [三亚与7家境外经贸合作区集中签约](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.minike.top/Article/details/2322821646.shtml)
-- 2026-06-29 11:32 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.minike.top/Article/details/772976674.shtml)
-- 2026-06-29 11:40 - [OpenAI “Sora之父”宣布离职](http://www.share.kurohicncr.top/Article/details/46656856809.shtml)
-- 2026-06-29 11:50 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.kurohicncr.top/Article/details/372178796.shtml)
-- 2026-06-29 11:49 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.minike.top/Article/details/757623.shtml)
-- 2026-06-29 11:25 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.kurohicncr.top/Article/details/518465006148.shtml)
-- 2026-06-29 11:25 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/48227295.shtml)
-- 2026-06-29 11:29 - [吉林大学春花绽放春意浓](http://www.blog.kurohicncr.top/Article/details/7679363.shtml)
+- 2026-06-29 11:35 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/41576.shtml)
+- 2026-06-29 11:35 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.share.kurohicncr.top/Article/details/82982.shtml)
+- 2026-06-29 11:57 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.kurohicncr.top/Article/details/87171548.shtml)
+- 2026-06-29 11:58 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.minike.top/Article/details/9762828457.shtml)
+- 2026-06-29 11:59 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.kurohicncr.top/Article/details/1579402.shtml)
+- 2026-06-29 11:59 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.share.minike.top/Article/details/5411921432.shtml)
+- 2026-06-29 11:37 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.blog.minike.top/Article/details/50272863.shtml)
+- 2026-06-29 11:49 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.blog.minike.top/Article/details/09020857945.shtml)
+- 2026-06-29 11:58 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.share.minike.top/Article/details/837449289020.shtml)
+- 2026-06-29 11:37 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.share.kurohicncr.top/Article/details/186689931.shtml)
+- 2026-06-29 11:38 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.blog.minike.top/Article/details/9173838.shtml)
+- 2026-06-29 11:34 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/4243955732.shtml)
+- 2026-06-29 11:56 - [第23届世界乳腺健康大会在天津举行](http://www.blog.kurohicncr.top/Article/details/666488560216.shtml)
+- 2026-06-29 11:49 - [突发！美联储，降息预期生变！](http://www.blog.kurohicncr.top/Article/details/137600674.shtml)

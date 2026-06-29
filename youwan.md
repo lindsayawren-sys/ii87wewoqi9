@@ -1,58 +1,56 @@
-# 树立和践行正确政绩观丨知行合一 务求实效
+# 昌九高铁全线无砟轨道浇筑完成
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-树立和践行正确政绩观学习教育开展以来，各高校围绕“立党为公、为民造福、科学决策、真抓实干”总要求，扎实部署、统筹推进，持续深化理论武装、坚持学用结合，推动学习教育不断走深走实。 清华大学把树立和践行正确政绩观学习教育作为重要政治任务，原原本本读原著、学原文、悟原理，精心制定涵盖14项具体任务的学习教育实施方案。以上率下从严查摆问题，开展持续为基层减负、规章制度清理等5个专项行动
+中新网南昌5月8日电 (刘力鑫 汪翰)8日，在位于江西南昌新建区的昌九高铁机场二号隧道施工现场，随着最后一模混凝土顺利浇筑完成，标志着昌九高铁无砟轨道浇筑全部结束，为后续钢轨铺设完成及联调联试奠定坚实基础。 昌九高铁是国家《中长期铁路网规划》“八纵八横”高速铁路主通道中京港通道的重要组成部分，北起九江，南至南昌，正线全长约138公里，设计时速350公里。 无砟轨道作为高铁核心基
 
 ## 正文
 
-树立和践行正确政绩观学习教育开展以来，各高校围绕“立党为公、为民造福、科学决策、真抓实干”总要求，扎实部署、统筹推进，持续深化理论武装、坚持学用结合，推动学习教育不断走深走实。
+中新网南昌5月8日电 (刘力鑫 汪翰)8日，在位于江西南昌新建区的昌九高铁机场二号隧道施工现场，随着最后一模混凝土顺利浇筑完成，标志着昌九高铁无砟轨道浇筑全部结束，为后续钢轨铺设完成及联调联试奠定坚实基础。
 
-清华大学把树立和践行正确政绩观学习教育作为重要政治任务，原原本本读原著、学原文、悟原理，精心制定涵盖14项具体任务的学习教育实施方案。
+昌九高铁是国家《中长期铁路网规划》“八纵八横”高速铁路主通道中京港通道的重要组成部分，北起九江，南至南昌，正线全长约138公里，设计时速350公里。
 
-以上率下从严查摆问题，开展持续为基层减负、规章制度清理等5个专项行动，以实干担当推动学校高质量发展。
+无砟轨道作为高铁核心基础工程，对施工精度有着极致要求。
 
-清华大学党委副书记 许庆红：我们要深刻领悟“两个确立”的决定性意义、坚决做到“两个维护”，围绕落实立德树人根本任务、提升服务国家重大战略需求能力、深化教育科技人才一体发展等重点领域的深层次问题，深学真查实改，切实把学习教育成果转化为推动中国特色世界一流大学高质量发展的强大动力。
+此次浇筑作业中，轨道位置与高低误差均严格控制在2毫米以内，同时施工环境的温度、湿度也需全程精准管控，以此保障轨道结构的高稳定性与高平顺性。
 
-在树立和践行正确政绩观学习教育中，华中科技大学把育人质量与国家贡献作为政绩的根本标尺。
+针对隧道空间受限、施工物流组织难度大等痛点，项目团队创新采用分区同步施工模式，在保障施工进度的同时严控工程质量。
 
-坚持把人才培养质量作为检验政绩的第一标准，以“顶天”的科研高度支撑国家战略，以“立地”的服务深度赋能地方发展，切实将正确政绩观融入办学治校全过程，以学促干，建设中国特色世界一流大学。
+“我们同步引入智能精调装备，减少人为操作干扰，实现施工数据自动采集与伺服系统精准调节，确保混凝土浇筑后轨道几何形位完全符合高速铁路运营标准。
 
-华中科技大学党委副书记 张涛：我们在学习教育中，紧扣“为党育人、为国育才”使命，将学习教育与深入实施立德树人工程、自主培养拔尖创新人才结合起来，与服务国家高水平科技自立自强紧密结合起来，与持续深化教育评价改革、破除形式主义为师生解难题结合起来，切实将正确政绩观融入办学治校的全过程。
+”中铁十二局昌九4标项目部工程部部长艾旭说。
 
-四川大学将学习教育与推进教育强国建设三年行动、编制学校“十五五”事业发展规划等深度融合，聚焦国家重大战略，明确主攻方向，紧扣人才培养、师资队伍建设、科研创新、社会服务等重点工作谋篇布局，制定并动态更新问题清单，细化整改方案台账，在深学细照笃行中校准政绩坐标、检验学习成效。
+昌九城际铁路公司昌九指挥部副指挥长喻宇表示，昌九高铁全线无砟轨道浇筑的顺利完成，标志着昌九高铁铺轨通道已全面打通，为全线铺轨贯通和后续联调联试工作按下“快进键”。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:36 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:42 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:34 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:50 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:51 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:48 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:39 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:33 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:51 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:26 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:36 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:40 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:41 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:51 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:39 - [Sound Transit在345亿美元资金缺口下重塑项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:41 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:50 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:54 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:31 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:59 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.blog.kurohicncr.top/Article/details/38026.shtml)
-- 2026-06-29 11:30 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.share.kurohicncr.top/Article/details/89380.shtml)
-- 2026-06-29 11:40 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.minike.top/Article/details/323251760606.shtml)
-- 2026-06-29 11:49 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.blog.kurohicncr.top/Article/details/28425.shtml)
-- 2026-06-29 11:50 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.blog.minike.top/Article/details/814308053.shtml)
-- 2026-06-29 11:34 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.share.kurohicncr.top/Article/details/157581.shtml)
-- 2026-06-29 11:42 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.minike.top/Article/details/761092.shtml)
-- 2026-06-29 11:27 - [伊朗：将再次关闭霍尔木兹海峡](http://www.share.minike.top/Article/details/91885538.shtml)
-- 2026-06-29 11:42 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.blog.kurohicncr.top/Article/details/1858325244.shtml)
-- 2026-06-29 11:46 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/14532441.shtml)
-- 2026-06-29 11:44 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.minike.top/Article/details/8466914.shtml)
-- 2026-06-29 11:29 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.share.kurohicncr.top/Article/details/88721631.shtml)
-- 2026-06-29 11:47 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.blog.kurohicncr.top/Article/details/9869963397.shtml)
+- 2026-06-29 11:54 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/011989.shtml)
+- 2026-06-29 11:48 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.blog.kurohicncr.top/Article/details/73206479.shtml)
+- 2026-06-29 11:53 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.share.minike.top/Article/details/62281234878.shtml)
+- 2026-06-29 11:41 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.share.minike.top/Article/details/08278591.shtml)
+- 2026-06-29 11:53 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](http://www.blog.minike.top/Article/details/2015132.shtml)
+- 2026-06-29 11:39 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/860746845.shtml)
+- 2026-06-29 11:35 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.share.kurohicncr.top/Article/details/5228599572.shtml)
+- 2026-06-29 11:33 - [德国3月对美出口大幅下滑](http://www.blog.minike.top/Article/details/33967093.shtml)
+- 2026-06-29 11:37 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.share.kurohicncr.top/Article/details/5286131.shtml)
+- 2026-06-29 11:57 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.blog.minike.top/Article/details/809210856.shtml)
+- 2026-06-29 11:59 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.blog.minike.top/Article/details/74925325.shtml)
+- 2026-06-29 11:54 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.blog.minike.top/Article/details/70802535793.shtml)
+- 2026-06-29 11:42 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.share.minike.top/Article/details/419384.shtml)

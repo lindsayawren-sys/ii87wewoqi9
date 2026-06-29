@@ -1,57 +1,57 @@
-# 蓝莓价格走低 国产品种研发多点推进
+# IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社昆明4月19日电 (记者 韩帅南)这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元(人民币，下同)一斤的水果，如今在云南各大市场价格降至每公斤30元至60元。 价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。1983年，长白山试种美国引进的优质蓝莓品种，拉开中国蓝莓种植与研究的序幕。千禧年前后，山东青岛进行商业化和规模化的蓝莓种植，开启蓝莓产业化之路。目前，中国
+IP Strategy Holdings， Inc．宣布，由Poseidon开发的消费者应用程序Numo已上线抢先体验版。该应用旨在通过授权收集真实世界数据，扩大人工智能（AI）系统训练数据集规模，以应对行业日益增长的高质量数据需求。 当前，人工智能行业的数据需求正面临供应瓶颈。新一代AI系统的研发高度依赖反映人类真实言语、行为与互动的数据，此类高质量数据难以从开放互联网直接获
 
 ## 正文
 
-中新社昆明4月19日电 (记者 韩帅南)这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元(人民币，下同)一斤的水果，如今在云南各大市场价格降至每公斤30元至60元。
+IP Strategy Holdings， Inc．宣布，由Poseidon开发的消费者应用程序Numo已上线抢先体验版。
 
-价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。
+该应用旨在通过授权收集真实世界数据，扩大人工智能（AI）系统训练数据集规模，以应对行业日益增长的高质量数据需求。
 
-1983年，长白山试种美国引进的优质蓝莓品种，拉开中国蓝莓种植与研究的序幕。
+当前，人工智能行业的数据需求正面临供应瓶颈。
 
-千禧年前后，山东青岛进行商业化和规模化的蓝莓种植，开启蓝莓产业化之路。
+新一代AI系统的研发高度依赖反映人类真实言语、行为与互动的数据，此类高质量数据难以从开放互联网直接获取。
 
-目前，中国已成为全球第一大蓝莓生产国，2025年全国种植面积达158万亩，总产量81万吨。
+针对这一行业痛点，Numo应用允许用户通过移动设备完成简单任务以贡献数据，初期项目重点聚焦于代表性不足语言的语音采集。
 
-“中国对蓝莓的年需求量超100万吨，供需缺口约十余万吨。
+在合规性与可追溯性方面，相关数据一经提交，即通过Story平台进行来源核实与权利厘清，并依托链上授权机制，确保数据集具备即时商业应用价值与透明溯源能力。
 
-”吉林农业大学教授、资深蓝莓专家李亚东接受中新社记者采访时表示，产能扩张固然是降价推手，但真正支撑产业长远发展的，是种源自主化。
+此举有效规避了AI系统在实际生产应用中的所有权与合规争议。
 
-长期以来，中国蓝莓产业深陷“种源依赖”困境。
+初步市场数据显示，Numo平台上线首周已吸引逾1.5万名贡献者参与，生成四种语言共计17万余条语音录制。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:45 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:26 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:26 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:38 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:49 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:29 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:48 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:30 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:40 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:52 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:58 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:34 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:41 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:48 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:43 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:33 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:45 - [“中国式安全感”为何圈粉世界（人民时评）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:53 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:36 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:41 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:56 - [韩国产业部长与美方官员洽谈投资协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [美国精神航空公司考虑清算](http://www.blog.minike.top/Article/details/110693277087.shtml)
-- 2026-06-29 11:53 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.share.minike.top/Article/details/764576.shtml)
-- 2026-06-29 11:26 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/370214.shtml)
-- 2026-06-29 11:43 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/52924448118.shtml)
-- 2026-06-29 11:41 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.share.minike.top/Article/details/330079.shtml)
-- 2026-06-29 11:42 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.blog.kurohicncr.top/Article/details/027395306624.shtml)
-- 2026-06-29 11:38 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.kurohicncr.top/Article/details/812616.shtml)
-- 2026-06-29 11:48 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.share.minike.top/Article/details/72550774054.shtml)
-- 2026-06-29 11:30 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.blog.kurohicncr.top/Article/details/486495.shtml)
-- 2026-06-29 11:54 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.blog.minike.top/Article/details/9526858572.shtml)
-- 2026-06-29 11:38 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.blog.kurohicncr.top/Article/details/240778001712.shtml)
-- 2026-06-29 11:46 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.share.kurohicncr.top/Article/details/82733744718.shtml)
-- 2026-06-29 11:45 - [中国试飞院开放日 各型飞机引民众打卡](http://www.blog.kurohicncr.top/Article/details/3900949.shtml)
-- 2026-06-29 11:42 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](http://www.blog.minike.top/Article/details/1318672887.shtml)
-- 2026-06-29 11:44 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](http://www.blog.kurohicncr.top/Article/details/45295542.shtml)
+- 2026-06-29 11:44 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.blog.kurohicncr.top/Article/details/9941816010.shtml)
+- 2026-06-29 11:58 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.share.minike.top/Article/details/618740.shtml)
+- 2026-06-29 11:48 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.blog.kurohicncr.top/Article/details/84348362.shtml)
+- 2026-06-29 11:46 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [“十五五”期间 武汉将亮相一批文旅新地标](http://www.blog.kurohicncr.top/Article/details/6586173.shtml)
+- 2026-06-29 11:42 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.share.minike.top/Article/details/2236953.shtml)
+- 2026-06-29 11:46 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.blog.kurohicncr.top/Article/details/2686660.shtml)
+- 2026-06-29 11:58 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](http://www.share.kurohicncr.top/Article/details/34311581425.shtml)
+- 2026-06-29 11:38 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [直播海报：天舟十号货运飞船发射任务](http://www.share.minike.top/Article/details/012796305.shtml)
+- 2026-06-29 11:37 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](http://www.share.minike.top/Article/details/979810.shtml)

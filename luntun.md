@@ -1,58 +1,60 @@
-# 雄安智慧农业春日见闻：北斗定垄、AI种花
+# 中国银联与华为签署战略合作协议
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社河北雄安4月19日电 题：雄安智慧农业春日见闻：北斗定垄、AI种花 作者 陈林 艾广德 韩冰 工程机械设备安装北斗车载智能终端进行土地起垄，AI构建灌溉与水肥调控模型精准灌溉，芍药鲜切花按枝出售“乘”飞机出口……这是记者近日在河北雄安新区雄县国家现代农业产业园花卉种子育繁推基地内看到的情景。 芍药产业园区内，不同品种的芍药长势不一。在此进行技术帮扶的河北农业大学园艺学院副
+来源：中国银联发布 2026年5月7日，中国银联股份有限公司（以下简称“中国银联”）与华为技术有限公司（以下简称“华为”）在深圳签署战略合作协议，并联合发布自主创新与人工智能行动计划。中国银联董事长董俊峰，执行副总裁胡浩中，华为副董事长、轮值董事长汪涛，上海代表处代表郭奕昱等出席签约仪式。 自2020年启动战略合作以来，双方在筑牢系统安全底座、深化支付场景合作、拓展国际业务布局
 
 ## 正文
 
-中新社河北雄安4月19日电 题：雄安智慧农业春日见闻：北斗定垄、AI种花 作者 陈林 艾广德 韩冰 工程机械设备安装北斗车载智能终端进行土地起垄，AI构建灌溉与水肥调控模型精准灌溉，芍药鲜切花按枝出售“乘”飞机出口……这是记者近日在河北雄安新区雄县国家现代农业产业园花卉种子育繁推基地内看到的情景。
+来源：中国银联发布 2026年5月7日，中国银联股份有限公司（以下简称“中国银联”）与华为技术有限公司（以下简称“华为”）在深圳签署战略合作协议，并联合发布自主创新与人工智能行动计划。
 
-芍药产业园区内，不同品种的芍药长势不一。
+中国银联董事长董俊峰，执行副总裁胡浩中，华为副董事长、轮值董事长汪涛，上海代表处代表郭奕昱等出席签约仪式。
 
-在此进行技术帮扶的河北农业大学园艺学院副教授钱稷说，作为中国北方地区最大的芍药种质资源圃和种苗繁育基地，这里共收集各类芍药优良品种260多个。
+自2020年启动战略合作以来，双方在筑牢系统安全底座、深化支付场景合作、拓展国际业务布局、探索人工智能应用等方面深度协同。
 
-从种植前的整地到花卉灌溉、防霜，智慧农业技术在此广泛应用。
+通过ICT（信息与通信）基础设施建设与运维能力优化，共建开放领先的系统网络；依托 Huawei Pay、云网平台等移动支付产品，稳步推进海内外业务拓展，并积极探索人工智能与金融科技的融合。
 
-“起垄整地时，我们会借助北斗卫星定位系统，为工程机械设备安装北斗车载智能终端，通过‘智慧大脑’的详细经纬度坐标，达到垄距、垄高一致。
+本次签约标志着双方合作迈入全面深化的新阶段。
 
-” 钱稷表示，他们正以切花芍药为研究对象，在现有水肥一体化系统基础上，进一步融合无人机监测等多种信息，统一接入物联网平台，利用人工智能开展智能种植。
+双方将聚焦ICT基础设施升级、人工智能创新应用、终端支付及鸿蒙生态建设、国际化发展等重点方向，强化技术协同与资源整合，携手构建更安全、智能、便捷的支付服务体系。
 
-“通过AI构建灌溉与水肥调控模型，结合芍药生长状态、土壤墒情和环境变化，可实现更加精准的AI灌溉。
+同时，双方联合发布了《自主创新行动计划》与《人工智能行动计划》，以人工智能联合创新赋能金融业务智能化升级。
 
-” 不远处的芍药成品库车间，一束束加工好的芍药鲜切花整齐摆放在架子上，工作人员正在打包准备出口。
+银通全球共谱华章，联数智驱守正为先。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:32 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:34 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:38 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:28 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:50 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:25 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:29 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:53 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:26 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:35 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:29 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:37 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:35 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:56 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:40 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:49 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:56 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:41 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:53 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:45 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:45 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:36 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:41 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:52 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [LPR连续11个月“按兵不动”，年内还有降息空间吗？](http://www.blog.kurohicncr.top/Article/details/747710.shtml)
-- 2026-06-29 11:34 - [农业农村部部署2026年种业监管执法工作](http://www.blog.kurohicncr.top/Article/details/40356353.shtml)
-- 2026-06-29 11:43 - [赓续海归先贤精神 上海海归青年插画展开幕](http://www.share.kurohicncr.top/Article/details/714392245174.shtml)
-- 2026-06-29 11:39 - [中国高尔夫球巡回赛·绍兴站举行 多国选手挥杆竞逐](http://www.blog.minike.top/Article/details/162731180.shtml)
-- 2026-06-29 11:26 - [伊朗外长称霍尔木兹海峡开放 油气价格大跌](http://www.share.minike.top/Article/details/5878073.shtml)
-- 2026-06-29 11:39 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.share.kurohicncr.top/Article/details/68775898645.shtml)
-- 2026-06-29 11:47 - [百面崇阳铜鼓奏响“楚超”咸宁主场](http://www.share.kurohicncr.top/Article/details/2466083.shtml)
-- 2026-06-29 11:24 - [天喻信息（300205）被预处罚，股民索赔可期](http://www.blog.minike.top/Article/details/831688206640.shtml)
-- 2026-06-29 11:33 - [经济冲击逼近，以色列央行行长寄望和平](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.blog.minike.top/Article/details/10898975.shtml)
-- 2026-06-29 11:53 - [专家：金价翻倍没有悬念](http://www.blog.minike.top/Article/details/2449619171.shtml)
-- 2026-06-29 11:34 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.share.minike.top/Article/details/528482.shtml)
-- 2026-06-29 11:51 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.kurohicncr.top/Article/details/80375561211.shtml)
-- 2026-06-29 11:52 - [习言道｜让互联网更好造福国家和人民](http://www.share.minike.top/Article/details/23490728145.shtml)
-- 2026-06-29 11:39 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.blog.kurohicncr.top/Article/details/08783365792.shtml)
+- 2026-06-29 11:55 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.blog.minike.top/Article/details/844624299251.shtml)
+- 2026-06-29 11:54 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.blog.kurohicncr.top/Article/details/58432972845.shtml)
+- 2026-06-29 11:45 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.share.kurohicncr.top/Article/details/3938271167.shtml)
+- 2026-06-29 11:53 - [最高涨超875%！沪深两大龙头，来了](http://www.share.kurohicncr.top/Article/details/83247.shtml)
+- 2026-06-29 11:58 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.blog.minike.top/Article/details/95127.shtml)
+- 2026-06-29 11:58 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.blog.kurohicncr.top/Article/details/5116932.shtml)
+- 2026-06-29 11:50 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.minike.top/Article/details/338279.shtml)
+- 2026-06-29 11:50 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.share.minike.top/Article/details/1333743999.shtml)
+- 2026-06-29 11:36 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.blog.kurohicncr.top/Article/details/0227427.shtml)
+- 2026-06-29 11:45 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.minike.top/Article/details/3110841348.shtml)
+- 2026-06-29 11:35 - [无人机事件应对不力 拉脱维亚防长遭解职](http://www.share.kurohicncr.top/Article/details/26328027.shtml)
+- 2026-06-29 11:45 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.kurohicncr.top/Article/details/10251854.shtml)
+- 2026-06-29 11:47 - [特朗普将访华 中国外交部介绍具体安排](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.blog.kurohicncr.top/Article/details/559698.shtml)

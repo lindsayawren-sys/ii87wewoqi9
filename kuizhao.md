@@ -1,58 +1,56 @@
-# 吉林大学春花绽放春意浓
+# 突发！美联储，降息预期生变！
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公
+美国银行预测，美联储将推迟降息直至2027年下半年。 当地时间5月8日，美国劳工部公布的数据显示，美国4月非农就业岗位增加11.5万个，远超市场预估的6.5万个，但低于3月修订后的18.5万个。 具体来看，美国4月就业增长主要由医疗保健、运输与仓储以及零售业带动。其中，建筑业和休闲酒店业连续第二个月新增就业。经济学家指出，数据中心建设热潮或为今年建筑业劳动力需求提供支撑。信息部
 
 ## 正文
 
-为啥“100%果汁”，配料表第一位是水？
+美国银行预测，美联储将推迟降息直至2027年下半年。
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+当地时间5月8日，美国劳工部公布的数据显示，美国4月非农就业岗位增加11.5万个，远超市场预估的6.5万个，但低于3月修订后的18.5万个。
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+具体来看，美国4月就业增长主要由医疗保健、运输与仓储以及零售业带动。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+其中，建筑业和休闲酒店业连续第二个月新增就业。
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+经济学家指出，数据中心建设热潮或为今年建筑业劳动力需求提供支撑。
 
-开局良好！
+信息部门就业人数4月继续下降，为连续第16个月出现下滑，微软、Meta等大型科技公司正在缩减员工规模，部分原因在于抵消人工智能领域的高额投入。
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+当日公布的数据还把2月新增非农就业岗位数量从13.3万修订为15.6万，3月数据则从17.8万修订为18.5万。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+数据显示，美国4月失业率维持在4.3%不变，失业时间不到5周的人数环比增加35.8万至249.6万，长期失业人数小幅增加1.2万至183.3万。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:33 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:53 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:27 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:27 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:39 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:53 - [2026江苏省侨界中餐厨艺大赛在无锡启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:37 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:39 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:47 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:25 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:31 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:48 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:33 - [文化观察：AI时代 “美商”如何守住人的感知力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:30 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:35 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:44 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:55 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:34 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:37 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:42 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:57 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [村里有了“小而美” 游客爱上“慢时光”](http://www.share.minike.top/Article/details/1763234697.shtml)
-- 2026-06-29 11:40 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](http://www.blog.minike.top/Article/details/476569567.shtml)
-- 2026-06-29 11:39 - [雄安新区首个戏曲特色工人文化宫正式投用](http://www.blog.kurohicncr.top/Article/details/60155724.shtml)
-- 2026-06-29 11:29 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [习近平文化思想引领书香社会建设](http://www.blog.kurohicncr.top/Article/details/2423602896.shtml)
-- 2026-06-29 11:40 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [总书记引领强国之路｜共建美好网络家园](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [“霸王”助阵“苏超” 文旅体商融合新答卷](http://www.blog.kurohicncr.top/Article/details/34463520427.shtml)
-- 2026-06-29 11:44 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.blog.minike.top/Article/details/7277999.shtml)
-- 2026-06-29 11:38 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [谷雨：祛湿排浊，双臂“甩起来”](http://www.blog.minike.top/Article/details/94832689642.shtml)
-- 2026-06-29 11:40 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.share.kurohicncr.top/Article/details/26099098631.shtml)
-- 2026-06-29 11:36 - [牛弹琴：美伊这出戏，编剧都不敢这样写](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [伊朗驻华大使：我们不会忘记中国的帮助](http://www.blog.kurohicncr.top/Article/details/024947831307.shtml)
+- 2026-06-29 11:53 - [三星未来退市后售后与售卖仍如常？线下探店解答！](http://www.blog.minike.top/Article/details/30256.shtml)
+- 2026-06-29 11:59 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.kurohicncr.top/Article/details/593833.shtml)
+- 2026-06-29 11:58 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](http://www.blog.kurohicncr.top/Article/details/347619169.shtml)
+- 2026-06-29 11:47 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](http://www.share.minike.top/Article/details/532468.shtml)
+- 2026-06-29 11:50 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [福建武夷山迎来制茶繁忙季](http://www.blog.kurohicncr.top/Article/details/66748626.shtml)
+- 2026-06-29 11:50 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](http://www.blog.minike.top/Article/details/76391.shtml)
+- 2026-06-29 11:47 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](http://www.share.minike.top/Article/details/086671223539.shtml)
+- 2026-06-29 11:47 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](http://www.share.kurohicncr.top/Article/details/06375.shtml)
+- 2026-06-29 11:53 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.kurohicncr.top/Article/details/37171.shtml)
+- 2026-06-29 11:37 - [沪指开盘站上4200点 储存芯片概念股强势拉升](http://www.share.kurohicncr.top/Article/details/27099728957.shtml)
+- 2026-06-29 11:35 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.blog.kurohicncr.top/Article/details/53977511.shtml)
+- 2026-06-29 11:46 - [福州马尾至马祖“小三通”客运航线11日双向停航](http://www.share.kurohicncr.top/Article/details/83065442.shtml)

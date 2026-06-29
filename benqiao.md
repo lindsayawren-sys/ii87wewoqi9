@@ -1,56 +1,57 @@
-# 台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心
+# 陈文清在政法领导干部专题研讨班开班式上表示 树立和践行正确政绩观 建设德才兼备的高素质政法队伍
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网南宁4月17日电 题：台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心 记者 蒋雪林 “我是台湾花莲太鲁阁的小孩，也是广西忻城壮家的女儿。”在16日举行的中华一家亲——桂台各民族欢度“广西三月三”大联欢活动中，台湾花莲县陶朴阁美学才艺发展协会理事长连美惠以这样一句开场白，道出她与大陆跨越山海的深厚情缘。 连美惠展示了一份特殊的“家当”——她亲手编织并捐赠给广西壮族自治区博物
+新华社北京5月9日电 中共中央政治局委员、中央政法委书记陈文清8日在政法领导干部专题研讨班开班式上表示，政法机关要坚持以习近平新时代中国特色社会主义思想为指导，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，建设德才兼备的高素质政法队伍，坚决有力贯彻落实党中央重大决策部署，努力创造经得起实践、人民、历史检验的实绩。 陈文清指出，习近平总书记关于建设德才兼备高素
 
 ## 正文
 
-中新网南宁4月17日电 题：台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心 记者 蒋雪林 “我是台湾花莲太鲁阁的小孩，也是广西忻城壮家的女儿。
+新华社北京5月9日电 中共中央政治局委员、中央政法委书记陈文清8日在政法领导干部专题研讨班开班式上表示，政法机关要坚持以习近平新时代中国特色社会主义思想为指导，坚定拥护“两个确立”、坚决做到“两个维护”，树立和践行正确政绩观，建设德才兼备的高素质政法队伍，坚决有力贯彻落实党中央重大决策部署，努力创造经得起实践、人民、历史检验的实绩。
 
-”在16日举行的中华一家亲——桂台各民族欢度“广西三月三”大联欢活动中，台湾花莲县陶朴阁美学才艺发展协会理事长连美惠以这样一句开场白，道出她与大陆跨越山海的深厚情缘。
+陈文清指出，习近平总书记关于建设德才兼备高素质政法队伍的重要论述，深刻回答了为什么要建设高素质政法队伍、怎么样建设高素质政法队伍等重大问题。
 
-连美惠展示了一份特殊的“家当”——她亲手编织并捐赠给广西壮族自治区博物馆的“壮太锦”，如今已成为该馆的珍贵馆藏文物。
+政法领导干部要深入学习领会，坚决贯彻落实，在锤炼党性、加强学习、调查研究、投身实践上下苦功，不断提升能力素质，做到德才兼备。
 
-这一融合了广西壮锦与台湾太鲁阁锦的织品，是她十余年奔走两岸、以锦为桥的心血结晶。
+陈文清强调，要着力提升政治能力，对党绝对忠诚，确保“刀把子”牢牢掌握在党和人民手中。
 
-“2010年在厦门文博会上，我第一次见到壮锦，那种似曾相识的感觉深深打动了我。
+要着力提升做群众工作的能力，站稳人民立场，积极解决人民群众最关切的公共安全、公平正义、权益维护问题。
 
-”连美惠回忆道。
+要着力提升运用法治思维和法治方式的能力，带头尊法学法守法用法，做到有法必依、执法必严。
 
-太鲁阁人世代以织锦传家，纹路中藏着对山海与生活的理解；而壮锦同样承载着质朴热烈的民族情怀。
+要着力提升专业能力，完善制度建设，加强教育培训，做到业务精湛、本领高强。
 
-“那份共鸣不是巧合，因为我们同属中华民族，流淌着一样的血脉。
+要着力提升科技应用能力，向科技要警力、要战斗力。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:40 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:35 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:48 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:31 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:40 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:42 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:35 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:49 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:29 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:54 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:45 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:31 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:37 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:41 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:44 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:35 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:53 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:40 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:53 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:36 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.share.minike.top/Article/details/559338.shtml)
-- 2026-06-29 11:49 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.share.kurohicncr.top/Article/details/45705.shtml)
-- 2026-06-29 11:38 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.share.kurohicncr.top/Article/details/070382303.shtml)
-- 2026-06-29 11:50 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](http://www.blog.kurohicncr.top/Article/details/438984.shtml)
-- 2026-06-29 11:37 - [中国创新正在全方位加速突破](http://www.blog.kurohicncr.top/Article/details/24369389538.shtml)
-- 2026-06-29 11:50 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.blog.kurohicncr.top/Article/details/50305002872.shtml)
-- 2026-06-29 11:37 - [蓝莓价格走低 国产品种研发多点推进](http://www.share.minike.top/Article/details/9561605.shtml)
-- 2026-06-29 11:50 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/056950854.shtml)
-- 2026-06-29 11:43 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.blog.kurohicncr.top/Article/details/68322.shtml)
-- 2026-06-29 11:38 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.blog.kurohicncr.top/Article/details/991591.shtml)
-- 2026-06-29 11:36 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.blog.kurohicncr.top/Article/details/21232.shtml)
-- 2026-06-29 11:37 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.kurohicncr.top/Article/details/386619899074.shtml)
-- 2026-06-29 11:25 - [伊朗：将再次关闭霍尔木兹海峡](http://www.share.minike.top/Article/details/18602512515.shtml)
+- 2026-06-29 11:44 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.blog.kurohicncr.top/Article/details/30220597.shtml)
+- 2026-06-29 11:43 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.share.kurohicncr.top/Article/details/883275930.shtml)
+- 2026-06-29 11:53 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.share.kurohicncr.top/Article/details/422864.shtml)
+- 2026-06-29 11:43 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.share.minike.top/Article/details/06827836.shtml)
+- 2026-06-29 11:33 - [杨涛：智能体技术推动银行业智能化转型](http://www.share.minike.top/Article/details/95649676.shtml)
+- 2026-06-29 11:40 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.minike.top/Article/details/78221.shtml)
+- 2026-06-29 11:39 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.kurohicncr.top/Article/details/7208481295.shtml)
+- 2026-06-29 11:33 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.minike.top/Article/details/7259514996.shtml)
+- 2026-06-29 11:43 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.blog.minike.top/Article/details/150150.shtml)
+- 2026-06-29 11:38 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.share.minike.top/Article/details/118778605.shtml)
+- 2026-06-29 11:44 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](http://www.blog.minike.top/Article/details/337204.shtml)
+- 2026-06-29 11:50 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.minike.top/Article/details/6366117764.shtml)
+- 2026-06-29 11:59 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lisacumin64-arch)

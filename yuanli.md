@@ -1,59 +1,60 @@
-# 霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌
+# 我国营商环境持续改善
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-在伊朗宣布霍尔木兹海峡重新开放商业通航后，纽约股市周五开盘走高，延续了近期的反弹势头，而油价则大幅下跌。 道琼斯工业平均指数开盘上涨逾500点，标普500指数上涨约0.8%，科技股集中的纳斯达克综合指数上涨约0.9%。此前，标普500指数和纳斯达克指数已在周四创下收盘历史新高。 伊朗外交部长在社交媒体上宣布，配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向所有商船“完全开放”。美
+央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。 5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。 市场准入壁垒得到清理整治。全国累计梳理排查文件3.
 
 ## 正文
 
-在伊朗宣布霍尔木兹海峡重新开放商业通航后，纽约股市周五开盘走高，延续了近期的反弹势头，而油价则大幅下跌。
+央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。
 
-道琼斯工业平均指数开盘上涨逾500点，标普500指数上涨约0.8%，科技股集中的纳斯达克综合指数上涨约0.9%。
+5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。
 
-此前，标普500指数和纳斯达克指数已在周四创下收盘历史新高。
+《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。
 
-伊朗外交部长在社交媒体上宣布，配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向所有商船“完全开放”。
+市场准入壁垒得到清理整治。
 
-美国总统随后证实了这一消息，但同时表示针对伊朗的海上封锁仍将“完全有效”，只有在与伊朗达成和平协议后才会解除。
+全国累计梳理排查文件3.8万余件，修订或废止文件2300余件，有力保障了经营主体市场准入权利。
 
-油价应声暴跌，西德克萨斯中质原油和布伦特原油均大幅下挫，市场对能源供应中断和通胀压力的担忧明显缓解。
+招标投标监管体制机制更加完善。
 
-然而，个股方面，Netflix成为市场焦点，该股开盘下跌。
+2025年，中标企业总数超68.9万家，同比增长13.0%，民营企业中标项目数量占比达76.2%，市场活力持续增强。
 
-该公司此前公布的财报显示，尽管第一季度营收超预期，但第二季度业绩指引令人失望，同时联合创始人兼董事长宣布将在任期结束后不再寻求连任。
+五项“一件事”政务服务改革全面完成 市场监管总局5月8日表示，目前，企业变更登记、开办餐饮店等五项“一件事”政务服务改革已全面完成。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:42 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:40 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:30 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:53 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:33 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:27 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:35 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:36 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:38 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:25 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:43 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:27 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:37 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:52 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:45 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:31 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:46 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:36 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:54 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:44 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:51 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:56 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:36 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:30 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:53 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:49 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:53 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.blog.minike.top/Article/details/16301510.shtml)
-- 2026-06-29 11:43 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.share.kurohicncr.top/Article/details/92549.shtml)
-- 2026-06-29 11:44 - [吉林大学春花绽放春意浓](http://www.share.minike.top/Article/details/850877.shtml)
-- 2026-06-29 11:48 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.kurohicncr.top/Article/details/32984.shtml)
-- 2026-06-29 11:50 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.blog.minike.top/Article/details/885368386.shtml)
-- 2026-06-29 11:43 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.minike.top/Article/details/907407733.shtml)
-- 2026-06-29 11:25 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.blog.kurohicncr.top/Article/details/10863946184.shtml)
-- 2026-06-29 11:35 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.share.kurohicncr.top/Article/details/391155022274.shtml)
-- 2026-06-29 11:43 - [苏林、查波访华为何要去广西、湖南？](http://www.share.minike.top/Article/details/40561509.shtml)
-- 2026-06-29 11:40 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.blog.kurohicncr.top/Article/details/41361658.shtml)
-- 2026-06-29 11:34 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.share.kurohicncr.top/Article/details/6237136.shtml)
+- 2026-06-29 11:51 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.kurohicncr.top/Article/details/59281541.shtml)
+- 2026-06-29 11:31 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/61424.shtml)
+- 2026-06-29 11:34 - [第23届世界乳腺健康大会在天津举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [突发！美联储，降息预期生变！](http://www.share.minike.top/Article/details/710124078.shtml)
+- 2026-06-29 11:53 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.blog.minike.top/Article/details/82250.shtml)
+- 2026-06-29 11:34 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.share.minike.top/Article/details/34299609710.shtml)
+- 2026-06-29 11:35 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/9850626924.shtml)
+- 2026-06-29 11:41 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.minike.top/Article/details/900121.shtml)
+- 2026-06-29 11:43 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.blog.minike.top/Article/details/586885572411.shtml)
+- 2026-06-29 11:53 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.blog.kurohicncr.top/Article/details/615074.shtml)
+- 2026-06-29 11:44 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.share.minike.top/Article/details/745647906.shtml)
+- 2026-06-29 11:51 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.blog.minike.top/Article/details/86754966.shtml)
+- 2026-06-29 11:41 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.blog.minike.top/Article/details/46853516.shtml)
+- 2026-06-29 11:50 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.blog.kurohicncr.top/Article/details/96159104312.shtml)

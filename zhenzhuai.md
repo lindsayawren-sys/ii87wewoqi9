@@ -1,60 +1,60 @@
-# 中信建投：创业板新高后，还有多少空间？
+# 【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信建投证券研究 文|夏凡捷 何盛 近期，美伊谈判提上日程，全球市场反攻启动。目前A股核心进攻方向集中在创业板，本周创业板指跨越上一轮牛市高点，但是投资者对于创业板是否仍然有较大上涨空间产生了分歧。综合创业板指权重股算力和新能源的上涨潜力、创业板指数估值仍处于低位等情况来看，我们认为当下创业板指仍然是
+中国日报网5月9日电 今年是“十五五”规划开局之年，全球经济格局正站在十字路口。在单边主义和保护主义抬头的国际背景下，中国以开放、创新的姿态，成为全球经济的稳定力量与合作创新的高地，为世界经济的繁荣发展注入源源不断的动力，吸引全球企业在华深度布局并进行长期战略投入。近日，巴基斯坦经济学家、前联合国官员瓦卡尔·艾哈迈德(Vaqar Ahmed)在《中国日报》撰文指出，当一些传统经
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中国日报网5月9日电 今年是“十五五”规划开局之年，全球经济格局正站在十字路口。
 
-来源：中信建投证券研究 文|夏凡捷 何盛 近期，美伊谈判提上日程，全球市场反攻启动。
+在单边主义和保护主义抬头的国际背景下，中国以开放、创新的姿态，成为全球经济的稳定力量与合作创新的高地，为世界经济的繁荣发展注入源源不断的动力，吸引全球企业在华深度布局并进行长期战略投入。
 
-目前A股核心进攻方向集中在创业板，本周创业板指跨越上一轮牛市高点，但是投资者对于创业板是否仍然有较大上涨空间产生了分歧。
+近日，巴基斯坦经济学家、前联合国官员瓦卡尔·艾哈迈德(Vaqar Ahmed)在《中国日报》撰文指出，当一些传统经济大国退回保护主义的背后时，中国选择了截然不同的路径。
 
-综合创业板指权重股算力和新能源的上涨潜力、创业板指数估值仍处于低位等情况来看，我们认为当下创业板指仍然是A股中最有性价比的方向。
+中国不仅扩大了进口规模，更从根本上优化了进口结构，成为全球贸易的重要稳定力量，更是中国致力于高水平开放的体现。
 
-产业布局方面，建议对一季度高业绩板块进行挖掘，可关注板块有：新能源、储能、锂电材料、AI算力、创新药、半导体、消费等。
+在“十五五”规划引领下，中国对近1000类商品实施暂定税率下调，增强国内需求与全球供给的协同。
 
-近期，美伊谈判提上日程，全球市场反攻启动。
+5月1日起，中国对53个非洲建交国全面实施零关税举措，为发展中经济体融入全球价值链提供直接助力，避免其承受发达市场保护性壁垒的压力。
 
-目前A股核心进攻方向集中在创业板，本周创业板指跨越上一轮牛市高点，但是投资者对于创业板是否仍然有较大上涨空间产生了分歧。
+瓦卡尔认为，“出口中国”的涟漪效应正在世界范围显现，在此过程中，中国始终秉持共享增长原则。
 
-我们认为从产业格局、估值等方面来看，创业板 3600 点的当下价值被明显低估。
+瓦卡尔表示，这种建立在共享增长原则之上的“双轮驱动”开放机制——既降低关税和非关税壁垒，又通过进博会等平台对接全球创新与中国需求，证明了中国超大市场规模不是杠杆武器，而是合作平台，将中国更深地嵌入全球经济的同时，拉动伙伴共同向上。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:29 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:47 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:42 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:26 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:41 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:30 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:49 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:36 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:24 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:39 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:36 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:50 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:43 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:48 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:44 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:45 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:52 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:52 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:40 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:59 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:32 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:34 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:56 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:34 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:54 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:32 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:52 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.blog.minike.top/Article/details/87915949393.shtml)
-- 2026-06-29 11:26 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.share.kurohicncr.top/Article/details/92807201.shtml)
-- 2026-06-29 11:39 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.kurohicncr.top/Article/details/0621004054.shtml)
-- 2026-06-29 11:40 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.minike.top/Article/details/228315649.shtml)
-- 2026-06-29 11:51 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.minike.top/Article/details/8998455.shtml)
-- 2026-06-29 11:32 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.share.kurohicncr.top/Article/details/600478645203.shtml)
-- 2026-06-29 11:47 - [福特召回至多139万辆F-150皮卡](http://www.share.minike.top/Article/details/43658665.shtml)
-- 2026-06-29 11:49 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.blog.minike.top/Article/details/69684.shtml)
-- 2026-06-29 11:54 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.share.minike.top/Article/details/869777.shtml)
-- 2026-06-29 11:35 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.share.kurohicncr.top/Article/details/96587.shtml)
-- 2026-06-29 11:29 - [超3万名日本民众集会反对高市政权危险动向](http://www.blog.kurohicncr.top/Article/details/537777696558.shtml)
-- 2026-06-29 11:43 - [第44届香港电影金像奖红毯仪式举行](http://www.blog.minike.top/Article/details/7485652871.shtml)
-- 2026-06-29 11:40 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.share.kurohicncr.top/Article/details/4672200826.shtml)
-- 2026-06-29 11:41 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.blog.kurohicncr.top/Article/details/275097164323.shtml)
-- 2026-06-29 11:44 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.share.minike.top/Article/details/46996384.shtml)
+- 2026-06-29 11:31 - [福州马尾至马祖“小三通”客运航线11日双向停航](http://www.share.minike.top/Article/details/877254.shtml)
+- 2026-06-29 11:54 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [北京人形机器人唐剑：全面提升机器人的泛化能力](http://www.share.minike.top/Article/details/648936679.shtml)
+- 2026-06-29 11:37 - [中指研究院：4月北上深租金环比继续上涨](http://www.share.minike.top/Article/details/91992562755.shtml)
+- 2026-06-29 11:43 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](http://www.blog.kurohicncr.top/Article/details/1465324.shtml)
+- 2026-06-29 11:50 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [成都一中学举办科技节 硬核体验点燃科学梦](http://www.share.minike.top/Article/details/40822623.shtml)
+- 2026-06-29 11:30 - [四川成都：列车穿行紫色花海](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](http://www.blog.minike.top/Article/details/74080229519.shtml)
+- 2026-06-29 11:41 - [科学家为无人机安装“氢能心脏”破解续航难题](http://www.share.minike.top/Article/details/791733669719.shtml)
+- 2026-06-29 11:47 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/72895022993.shtml)
+- 2026-06-29 11:45 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](http://www.blog.kurohicncr.top/Article/details/575417154047.shtml)
+- 2026-06-29 11:38 - [2026中国田径街头巡回赛揭幕](http://www.share.minike.top/Article/details/1137843487.shtml)

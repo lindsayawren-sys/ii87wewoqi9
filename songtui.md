@@ -1,58 +1,56 @@
-# 受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁
+# Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-伊朗冲突大幅推高了对阿根廷小麦丰收至关重要的尿素化肥价格，在下月小麦播种季开始前数周，这让农民陷入两难境地。 这场2月底爆发的冲突导致尿素价格近乎翻倍，迫使当地许多种植户权衡是减少化肥施用量，还是放弃种植计划。 布宜诺斯艾利斯省佩尔加米诺镇的农业生产商罗曼・古铁雷斯表示：“前几天我们算了笔账，最终想法归结为两个选择：要么不种小麦，改种对我养殖有用的作物，比如大麦或燕麦；要么就种
+Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。以下是目前评分最高的10只外资公用事业股票。 排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。每只股票获得0至5分的综
 
 ## 正文
 
-伊朗冲突大幅推高了对阿根廷小麦丰收至关重要的尿素化肥价格，在下月小麦播种季开始前数周，这让农民陷入两难境地。
+Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。
 
-这场2月底爆发的冲突导致尿素价格近乎翻倍，迫使当地许多种植户权衡是减少化肥施用量，还是放弃种植计划。
+对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。
 
-布宜诺斯艾利斯省佩尔加米诺镇的农业生产商罗曼・古铁雷斯表示：“前几天我们算了笔账，最终想法归结为两个选择：要么不种小麦，改种对我养殖有用的作物，比如大麦或燕麦；要么就种，但只用极少的化肥，不追求高产。
+以下是目前评分最高的10只外资公用事业股票。
 
-” 化肥市场分析师古斯塔沃・丘林表示，尿素当前价格为每吨1000美元，而一个多月前仅约500美元。
+排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。
 
-他将价格暴涨归因于海湾国家全球尿素供应因战争收缩，以及冲突对经霍尔木兹海峡贸易的冲击。
+每只股票获得0至5分的综合量化评分，以及相应的量化评级（强买入、买入、持有、卖出、强卖出）。
 
-阿根廷主要谷物交易市场罗萨里奥谷物交易所的数据显示，上一季阿根廷小麦收获量创下2950万吨的纪录。
+所有股票均为在美国上市交易的外国公用事业公司。
 
-该机构尚未公布对即将到来的小麦收获季的预估。
+第1名：Companhia de Saneamento Básico do Estado de São Paulo（SBS） SABESP是巴西圣保罗州的水务和污水处理公司，是该地区的水处理和污水收集服务的主要提供商。
 
-尿素在作物产量中的关键作用 阿根廷每年约消耗250万吨尿素。
+该公司在该领域保持私有化状态，是拉丁美洲最大的水务公司。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:47 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:40 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:35 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:44 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:42 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:30 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:25 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:39 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:30 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:34 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:29 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:31 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:39 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:44 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:53 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:51 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:36 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:39 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:35 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:53 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:31 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/301879336881.shtml)
-- 2026-06-29 11:24 - [中信建投：创业板新高后，还有多少空间？](http://www.blog.kurohicncr.top/Article/details/06155.shtml)
-- 2026-06-29 11:53 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.minike.top/Article/details/6289794400.shtml)
-- 2026-06-29 11:41 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.blog.kurohicncr.top/Article/details/6317083568.shtml)
-- 2026-06-29 11:31 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [美国精神航空公司考虑清算](http://www.share.kurohicncr.top/Article/details/845714195824.shtml)
-- 2026-06-29 11:27 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.share.minike.top/Article/details/45528.shtml)
-- 2026-06-29 11:38 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/5803722.shtml)
-- 2026-06-29 11:29 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/68814908963.shtml)
-- 2026-06-29 11:50 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.share.kurohicncr.top/Article/details/556014496.shtml)
-- 2026-06-29 11:29 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](http://www.share.minike.top/Article/details/633311308178.shtml)
+- 2026-06-29 11:31 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.blog.kurohicncr.top/Article/details/285719062484.shtml)
+- 2026-06-29 11:53 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.minike.top/Article/details/26213.shtml)
+- 2026-06-29 11:52 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.share.minike.top/Article/details/84099.shtml)
+- 2026-06-29 11:53 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/12511180585.shtml)
+- 2026-06-29 11:32 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.blog.minike.top/Article/details/57064.shtml)
+- 2026-06-29 11:37 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.minike.top/Article/details/810135155.shtml)
+- 2026-06-29 11:56 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.share.kurohicncr.top/Article/details/3719400609.shtml)
+- 2026-06-29 11:49 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.blog.minike.top/Article/details/4329338295.shtml)
+- 2026-06-29 11:50 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.kurohicncr.top/Article/details/375555234.shtml)
+- 2026-06-29 11:40 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.kurohicncr.top/Article/details/93770382.shtml)
+- 2026-06-29 11:34 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [这个法国人，真让人刮目相看](http://www.blog.minike.top/Article/details/02675.shtml)

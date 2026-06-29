@@ -1,60 +1,58 @@
-# 多国客商齐聚河南长垣 共觅起重装备商机
+# 网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网新乡4月19日电 (王佳宁)“中国的起重装备非常出色。”为期三天的第十一届中国·长垣国际起重装备博览交易会18日在河南长垣落幕，来自俄罗斯的客商尼建国参展后如是说。 长垣国际起重装备博览交易会被业内人士称为“全国起重行业风向标展会”。本届博览会由中国重型机械工业协会指导，长垣市起重装备制造行业协会主办。来自海内外的330余家企业在展会上集中展示行业新产品、新技术、新服务，
+营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。 近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。 第一财经根
 
 ## 正文
 
-中新网新乡4月19日电 (王佳宁)“中国的起重装备非常出色。
+营业网点是商业银行经营的最小细胞，也是直接触达客户、创造价值的核心战场，其竞争力直接关系到银行经营效益的高低和可持续发展能力的强弱。
 
-”为期三天的第十一届中国·长垣国际起重装备博览交易会18日在河南长垣落幕，来自俄罗斯的客商尼建国参展后如是说。
+近年来，业内讨论最多的是银行营业网点的“消失”，但对于以国有银行、股份行为代表的全国性商业银行而言，网点的关停并非简单意义上的单向缩减，而是“有退有进”的布局优化，甚至半数全国性上市商业银行的网点不降反升，与行业整体格局形成鲜明对比。
 
-长垣国际起重装备博览交易会被业内人士称为“全国起重行业风向标展会”。
+第一财经根据上市银行年报统计，2025年，国有行、上市股份行拥有机构数量89507个，与2024年相比仅减少256个，在其庞大的机构数量面前，该细微变化几乎可以忽略不计。
 
-本届博览会由中国重型机械工业协会指导，长垣市起重装备制造行业协会主办。
+而且总数之下，半数全国性商业银行的机构数量有所增加，尤其是农业银行的基层网点数量已连增三年。
 
-来自海内外的330余家企业在展会上集中展示行业新产品、新技术、新服务，俄罗斯、印度、瑞士、西班牙等多国客商来此寻觅商机。
+从年报来看，大行网点的增量主要来自于下沉县乡镇等市场，或是升级特色场景等。
 
-“在这里，能感受到中国制造业发展如此之快。
+一边是关停低效网点，一边是区域下沉，这场“加减法”背后，大型商业银行正从“铺摊子”转向“精耕细作”。
 
-”来自印度的客商苏里亚第二次参加该博览会。
+全国性商业银行机构数近9万个 第一财经根据上市银行年报统计，2025年，六大行合计机构数量76092个，相比2023年减少了208个。
 
-他受访称，这里能看到最新的智能技术，还有一些专门服务钢铁行业、水泥行业的专用设备。
+其中，工商银行、建设银行、中国银行、邮储银行的机构总数均有所缩减，但基层网点数量下降的仅有建设银行、中国银行和邮储银行。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:26 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:26 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:44 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:36 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:30 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:45 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:42 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:34 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:33 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:24 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:25 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:37 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:46 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:59 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:44 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:32 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:44 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:56 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:58 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:43 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:58 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:31 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:39 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:32 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:37 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.share.minike.top/Article/details/83015.shtml)
-- 2026-06-29 11:45 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.blog.minike.top/Article/details/63073.shtml)
-- 2026-06-29 11:52 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.minike.top/Article/details/311295230332.shtml)
-- 2026-06-29 11:30 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/460644084031.shtml)
-- 2026-06-29 11:34 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.minike.top/Article/details/1179131.shtml)
-- 2026-06-29 11:25 - [福特召回至多139万辆F-150皮卡](http://www.blog.kurohicncr.top/Article/details/5433246.shtml)
-- 2026-06-29 11:34 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.share.minike.top/Article/details/707516097572.shtml)
-- 2026-06-29 11:29 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.share.kurohicncr.top/Article/details/9512621901.shtml)
-- 2026-06-29 11:42 - [超3万名日本民众集会反对高市政权危险动向](http://www.share.minike.top/Article/details/600132143072.shtml)
-- 2026-06-29 11:28 - [第44届香港电影金像奖红毯仪式举行](http://www.blog.kurohicncr.top/Article/details/7506539272.shtml)
-- 2026-06-29 11:29 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.blog.kurohicncr.top/Article/details/27787.shtml)
-- 2026-06-29 11:51 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.blog.minike.top/Article/details/722615.shtml)
-- 2026-06-29 11:50 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](http://www.blog.kurohicncr.top/Article/details/110127772.shtml)
-- 2026-06-29 11:25 - [国常会部署推动自贸试验区高质量发展](http://www.share.kurohicncr.top/Article/details/49367969.shtml)
+- 2026-06-29 11:46 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/4880440.shtml)
+- 2026-06-29 11:56 - [北京人形机器人唐剑：全面提升机器人的泛化能力](http://www.blog.minike.top/Article/details/538644.shtml)
+- 2026-06-29 11:34 - [中指研究院：4月北上深租金环比继续上涨](http://www.share.kurohicncr.top/Article/details/042220885216.shtml)
+- 2026-06-29 11:43 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](http://www.blog.minike.top/Article/details/6028180009.shtml)
+- 2026-06-29 11:53 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.kurohicncr.top/Article/details/27976746871.shtml)
+- 2026-06-29 11:50 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [四川成都：列车穿行紫色花海](http://www.blog.minike.top/Article/details/524106716.shtml)
+- 2026-06-29 11:32 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](http://www.share.minike.top/Article/details/594460.shtml)
+- 2026-06-29 11:53 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.blog.kurohicncr.top/Article/details/81504866.shtml)
+- 2026-06-29 11:48 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.kurohicncr.top/Article/details/39144692147.shtml)
+- 2026-06-29 11:58 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](http://www.share.minike.top/Article/details/67155441.shtml)
+- 2026-06-29 11:57 - [2026中国田径街头巡回赛揭幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.blog.minike.top/Article/details/354935927181.shtml)

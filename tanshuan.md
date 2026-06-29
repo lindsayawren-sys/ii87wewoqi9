@@ -1,52 +1,57 @@
-# 广西百色5岁走失男童已不幸身亡，当地通报
+# 北方大部迎强势升温 华北黄淮多地将现今年首个高温天
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网4月19日电 据“壮乡田阳”微信公众号消息，4月19日，广西百色田阳区那坡镇人民政府发布情况通报称，4月17日，田阳区那坡镇一名5岁男童走失。事发后，镇党委、政府第一时间组织干部群众与公安、应急等部门开展搜寻工作。 通报表示，经全力搜寻，于4月19日上午9时在右江河濑旺村下村屯下游找到该儿童，已无生命体征。目前，正在开展相关善后工作。
+中国天气网讯 今明天(5月9日至10日)，南方降雨将短暂收敛，内蒙古东南部、华北北部、东北地区中南部自西向东有雷阵雨天气过程。同时，北方气温开启强势冲高模式，30℃以上的范围快速扩大，下周暖热还会进一步升级，多地将迎来今年首个高温天，暖热程度超过南方。 南方降雨短暂收敛 华北北部东北中南部有雷雨 昨天南方降雨有所减弱，强降雨主要集中在华南沿海地区。监测显示，广东南部、福建中南部
 
 ## 正文
 
-中新网4月19日电 据“壮乡田阳”微信公众号消息，4月19日，广西百色田阳区那坡镇人民政府发布情况通报称，4月17日，田阳区那坡镇一名5岁男童走失。
+中国天气网讯 今明天(5月9日至10日)，南方降雨将短暂收敛，内蒙古东南部、华北北部、东北地区中南部自西向东有雷阵雨天气过程。
 
-事发后，镇党委、政府第一时间组织干部群众与公安、应急等部门开展搜寻工作。
+同时，北方气温开启强势冲高模式，30℃以上的范围快速扩大，下周暖热还会进一步升级，多地将迎来今年首个高温天，暖热程度超过南方。
 
-通报表示，经全力搜寻，于4月19日上午9时在右江河濑旺村下村屯下游找到该儿童，已无生命体征。
+南方降雨短暂收敛 华北北部东北中南部有雷雨 昨天南方降雨有所减弱，强降雨主要集中在华南沿海地区。
 
-目前，正在开展相关善后工作。
+监测显示，广东南部、福建中南部、云南东南部、台湾岛东北部和海南岛等地部分地区出现大雨或暴雨，其中海南琼中、乐东，广东阳江、茂名、湛江、汕尾，台湾新北等局地出现大暴雨。
+
+今明天，内蒙古东南部、华北北部、东北地区中南部自西向东有雷阵雨天气过程，部分地区雷雨时伴有6～8级短时阵风，局地可超过9级。
+
+同时，今天华南中南部仍有分散性强降水，广东西南部、广西东南部、海南岛中北部、云南南部以及台湾岛东部等地部分地区仍有分散性大到暴雨，局地有大暴雨。
+
+具体来看，今天西藏东部、青海南部、川西高原等地将有小到中雪或雨夹雪，局地有大到暴雪。
+
+广东西南部、广西东南部、海南岛中北部、云南南部以及台湾岛东部等地部分地区有大到暴雨，海南岛西北部局地有大暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:24 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:37 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:38 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:40 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:34 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:33 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:41 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:37 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:40 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:42 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:34 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:38 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:26 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:34 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:44 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:41 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:57 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:38 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:33 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:55 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:47 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:34 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:45 - [“中国式安全感”为何圈粉世界（人民时评）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [书香换花香 浙江杭州孔庙书市启幕](http://www.share.minike.top/Article/details/436648429736.shtml)
-- 2026-06-29 11:46 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.blog.kurohicncr.top/Article/details/973433.shtml)
-- 2026-06-29 11:43 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.share.kurohicncr.top/Article/details/93202.shtml)
-- 2026-06-29 11:37 - [美国精神航空公司考虑清算](http://www.blog.kurohicncr.top/Article/details/39606078308.shtml)
-- 2026-06-29 11:35 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/502761136.shtml)
-- 2026-06-29 11:40 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.blog.kurohicncr.top/Article/details/58680.shtml)
-- 2026-06-29 11:50 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.blog.kurohicncr.top/Article/details/34893650.shtml)
-- 2026-06-29 11:40 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.minike.top/Article/details/68146709.shtml)
-- 2026-06-29 11:47 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.minike.top/Article/details/5971829.shtml)
-- 2026-06-29 11:27 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.share.kurohicncr.top/Article/details/381607.shtml)
-- 2026-06-29 11:49 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.blog.kurohicncr.top/Article/details/5329857.shtml)
-- 2026-06-29 11:35 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.blog.minike.top/Article/details/202114.shtml)
+- 2026-06-29 11:58 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.blog.kurohicncr.top/Article/details/783529029085.shtml)
+- 2026-06-29 11:53 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.kurohicncr.top/Article/details/1634158.shtml)
+- 2026-06-29 11:37 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.blog.kurohicncr.top/Article/details/39414150.shtml)
+- 2026-06-29 11:48 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.blog.kurohicncr.top/Article/details/95800861.shtml)
+- 2026-06-29 11:41 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.kurohicncr.top/Article/details/31866128.shtml)
+- 2026-06-29 11:52 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.blog.minike.top/Article/details/83950398.shtml)
+- 2026-06-29 11:47 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](http://www.share.minike.top/Article/details/872453655729.shtml)
+- 2026-06-29 11:38 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [“十五五”期间 武汉将亮相一批文旅新地标](http://www.blog.minike.top/Article/details/783646068229.shtml)
+- 2026-06-29 11:34 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.blog.kurohicncr.top/Article/details/6235206864.shtml)
+- 2026-06-29 11:55 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.share.minike.top/Article/details/98102696871.shtml)
+- 2026-06-29 11:32 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](http://www.share.kurohicncr.top/Article/details/98668.shtml)
+- 2026-06-29 11:58 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](http://www.blog.kurohicncr.top/Article/details/178430.shtml)

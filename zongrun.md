@@ -1,49 +1,58 @@
-# 标普500闪现罕见上涨信号
+# 对话：数智共生 金融致远——科技赋能下的金融变革与未来生态
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-标普500指数在11个交易日内上涨了10%——自1962年以来仅出现过23次——一年后涨幅中位数为20%，尽管此前类似情况既包括牛市（1982年、2020年），也存在互联网泡沫风险（2000年）。责任编辑：张俊 SF065
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。国家金融科技风险监控中心总经理范贵甫，中国工商银行软件开发中心大数据和人工智能实验室资深经理黄炳，郑州银行总行零售业务部副总经理常晓斌，武汉农村商业银行零售信贷部总经理刘抒颖围绕 “数智共生 金融致远——科技赋能下的金融变革与未来生态”展开讨论，北京农商银行数字化转型推进
 
 ## 正文
 
-标普500指数在11个交易日内上涨了10%——自1962年以来仅出现过23次——一年后涨幅中位数为20%，尽管此前类似情况既包括牛市（1982年、2020年），也存在互联网泡沫风险（2000年）。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-责任编辑：张俊 SF065
+国家金融科技风险监控中心总经理范贵甫，中国工商银行软件开发中心大数据和人工智能实验室资深经理黄炳，郑州银行总行零售业务部副总经理常晓斌，武汉农村商业银行零售信贷部总经理刘抒颖围绕 “数智共生 金融致远——科技赋能下的金融变革与未来生态”展开讨论，北京农商银行数字化转型推进办公室副主任张陌担任主持。
+
+以下为对话实录： 主持人/张陌：很荣幸今天作为最后这个圆桌对话的主持人，我是北京农商银行数字化转型工作推进办公室副主任张陌，本次对话的主题是“数智共生 金融致远——科技赋能下的金融变革与未来生态”，除了我们常见的金融和科技这两个词，从变革、未来和生态我相信都是我们想要共同探讨的话题。
+
+当前，在“人工智能+”行动牵引下，金融业正经历从“数字化转型”向“数智化融合”的深刻演进。
+
+大模型、区块链、隐私计算等相关的技术，不仅是重塑风控、营销、运营等核心环节，更在普惠金融、绿色金融、产业金融等领域催生新业态。
+
+我们正处在一个由数据驱动、智能引领的时代。
+
+金融科技，已从最初的渠道创新，深入金融服务的核心肌理，重塑行业格局与未来。
+
+今天，我们非常有幸邀请到在金融科技领域深耕多年的领军人物，共同探讨科技如何赋能金融变革，以及我们如何构建未来生态。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:51 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:25 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:24 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:28 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:47 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:31 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:49 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:26 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:39 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:44 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:27 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:30 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:31 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:44 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:40 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:52 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:45 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:32 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:49 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:30 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:55 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:57 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:37 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:46 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:48 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.minike.top/Article/details/56828114420.shtml)
-- 2026-06-29 11:44 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.kurohicncr.top/Article/details/994136499.shtml)
-- 2026-06-29 11:26 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.blog.kurohicncr.top/Article/details/36913121509.shtml)
-- 2026-06-29 11:39 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.blog.minike.top/Article/details/45425885.shtml)
-- 2026-06-29 11:31 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/13101870279.shtml)
-- 2026-06-29 11:50 - [吉林大学春花绽放春意浓](http://www.blog.kurohicncr.top/Article/details/3990625734.shtml)
-- 2026-06-29 11:43 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.blog.kurohicncr.top/Article/details/2121764.shtml)
-- 2026-06-29 11:44 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.share.minike.top/Article/details/6903822.shtml)
-- 2026-06-29 11:47 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.blog.minike.top/Article/details/99379899.shtml)
-- 2026-06-29 11:35 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.kurohicncr.top/Article/details/45265271847.shtml)
-- 2026-06-29 11:52 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.blog.kurohicncr.top/Article/details/4871313.shtml)
-- 2026-06-29 11:27 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.share.kurohicncr.top/Article/details/837698046580.shtml)
-- 2026-06-29 11:31 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.share.minike.top/Article/details/40158.shtml)
-- 2026-06-29 11:24 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.share.kurohicncr.top/Article/details/4351867599.shtml)
-- 2026-06-29 11:39 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.blog.kurohicncr.top/Article/details/230754835563.shtml)
+- 2026-06-29 11:49 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.kurohicncr.top/Article/details/22603002379.shtml)
+- 2026-06-29 11:55 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [第23届世界乳腺健康大会在天津举行](http://www.blog.kurohicncr.top/Article/details/864630.shtml)
+- 2026-06-29 11:59 - [突发！美联储，降息预期生变！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.blog.kurohicncr.top/Article/details/50858399886.shtml)
+- 2026-06-29 11:52 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.blog.minike.top/Article/details/7571249.shtml)
+- 2026-06-29 11:30 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/7543730.shtml)
+- 2026-06-29 11:50 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.share.kurohicncr.top/Article/details/057423.shtml)
+- 2026-06-29 11:33 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.kurohicncr.top/Article/details/57195.shtml)
+- 2026-06-29 11:51 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/2174097429.shtml)
+- 2026-06-29 11:56 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.blog.kurohicncr.top/Article/details/24724.shtml)
+- 2026-06-29 11:50 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.share.minike.top/Article/details/29229747673.shtml)
+- 2026-06-29 11:47 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.blog.kurohicncr.top/Article/details/4764093509.shtml)

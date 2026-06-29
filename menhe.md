@@ -1,57 +1,61 @@
-# 全球乱局中，中国这块“金字招牌”越来越亮了
+# 云冈石窟8个晚期洞窟临时封闭 开展数字化采集
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网4月20日电(刘牧奇)世界越乱，安全越贵。 4月13日，前一轮美伊谈判无果而终后，中东局势再陷迷雾，国际油价重新冲上每桶100美元。与此同时，战争风险也迅速疯涨——路透社报道称，部分航运战争险保费一度飙至1000%。 油价上涨、保费飙升，地缘风险对现实世界的持续挤压所影响的，早已不只是远方的战场，还会从油价、航线、物流和市场情绪等各领域，一层层传递到普通人生活的方面面面。
+中新社山西大同5月11日电 (记者 胡健)11日，世界文化遗产云冈石窟第38至45窟实施临时封闭，开展数字化采集工作，旨在通过高精度数据记录，为石窟保护、研究与展示提供科学支撑。 第38至45窟位于云冈石窟群西部，开凿于北魏迁都洛阳之后(公元494年—525年)，属云冈晚期洞窟。这一时期大窟减少，中小型窟龛密布崖壁，造像风格一改早中期的雄浑华丽，呈现出“秀骨清像”的俊逸风貌：佛
 
 ## 正文
 
-中新网4月20日电(刘牧奇)世界越乱，安全越贵。
+中新社山西大同5月11日电 (记者 胡健)11日，世界文化遗产云冈石窟第38至45窟实施临时封闭，开展数字化采集工作，旨在通过高精度数据记录，为石窟保护、研究与展示提供科学支撑。
 
-4月13日，前一轮美伊谈判无果而终后，中东局势再陷迷雾，国际油价重新冲上每桶100美元。
+第38至45窟位于云冈石窟群西部，开凿于北魏迁都洛阳之后(公元494年—525年)，属云冈晚期洞窟。
 
-与此同时，战争风险也迅速疯涨——路透社报道称，部分航运战争险保费一度飙至1000%。
+这一时期大窟减少，中小型窟龛密布崖壁，造像风格一改早中期的雄浑华丽，呈现出“秀骨清像”的俊逸风貌：佛像面容清瘦、颈细肩削，褒衣博带；飞天身姿灵动，供养人已是汉族装束。
 
-油价上涨、保费飙升，地缘风险对现实世界的持续挤压所影响的，早已不只是远方的战场，还会从油价、航线、物流和市场情绪等各领域，一层层传递到普通人生活的方面面面。
+晚期雕刻融汇禅观思想，形象繁缛而富有意蕴，是云冈石窟不可或缺的重要组成部分。
 
-小到出行计划、大到企业的投资判断，甚至是全球资本对“哪里更适合落脚”的重新估值。
+其中，第38窟为方形平棊窟，是晚期洞窟的典型代表；第39窟内矗立一座五层中心塔柱，为仿中国传统木结构阁楼，斗拱、瓦垅俱全，被公认为研究北魏木构佛塔样式的重要实物；第40窟虽经后期加固，仍保留晚期窟形与三龛布局。
 
-当世界开始反复为供应链和市场预期的不确定性买单时，让人安心出行、放心经营、稳定生活的秩序感，才真正成为稀缺资源。
+云冈石窟位于山西大同，开凿于北魏时期，是中国规模最大的古代石窟群之一。
 
-这些年，西方一些舆论秉持旧有思维，仍把中国描述成“危险的”“不确定的”。
+石窟依山开凿，现存主要洞窟45个，大小造像5万余尊，融合中西艺术风格，被誉为“公元5世纪中国石刻艺术之冠”。
 
-可现实却越来越呈现出鲜明的反差：那些长期渲染“中国不安全”的西方国家，如今却在官方旅行提示中互相警示对方的安全风险：澳大利亚外交贸易部网站更新了最新的赴法旅行建议，提醒关注恐袭风险；英国政府的赴美旅行提示则明确写道，抗议在美国“很常见”，而且“可能演变为暴力”。
+2001年，云冈石窟被联合国教科文组织列入《世界遗产名录》。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:42 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:51 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:48 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:49 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:44 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:52 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:38 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:43 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:46 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:45 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:52 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:32 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:47 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:41 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:38 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:38 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:43 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:32 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:32 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:48 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:31 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:43 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:33 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:43 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:31 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:51 - [百面崇阳铜鼓奏响“楚超”咸宁主场](http://www.blog.minike.top/Article/details/16445593.shtml)
-- 2026-06-29 11:26 - [天喻信息（300205）被预处罚，股民索赔可期](http://www.blog.kurohicncr.top/Article/details/5540692.shtml)
-- 2026-06-29 11:43 - [经济冲击逼近，以色列央行行长寄望和平](http://www.blog.kurohicncr.top/Article/details/44671677.shtml)
-- 2026-06-29 11:42 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.share.kurohicncr.top/Article/details/20766297349.shtml)
-- 2026-06-29 11:44 - [专家：金价翻倍没有悬念](http://www.share.minike.top/Article/details/280315556.shtml)
-- 2026-06-29 11:51 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.share.kurohicncr.top/Article/details/382775.shtml)
-- 2026-06-29 11:30 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.minike.top/Article/details/2482319284.shtml)
-- 2026-06-29 11:33 - [习言道｜让互联网更好造福国家和人民](http://www.share.kurohicncr.top/Article/details/7272369050.shtml)
-- 2026-06-29 11:40 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.share.kurohicncr.top/Article/details/895716338.shtml)
-- 2026-06-29 11:41 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.share.kurohicncr.top/Article/details/478489012.shtml)
-- 2026-06-29 11:48 - [Astro Offshore新增MPSV，扩展水下作业能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.minike.top/Article/details/239751659.shtml)
-- 2026-06-29 11:43 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.share.minike.top/Article/details/53018309.shtml)
-- 2026-06-29 11:50 - [陈茂波：香港将公布第六批引进重点企业](http://www.share.minike.top/Article/details/69025071.shtml)
+- 2026-06-29 11:47 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.share.minike.top/Article/details/48449604438.shtml)
+- 2026-06-29 11:42 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.kurohicncr.top/Article/details/29348134419.shtml)
+- 2026-06-29 11:39 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.share.kurohicncr.top/Article/details/6720119.shtml)
+- 2026-06-29 11:37 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.kurohicncr.top/Article/details/1347282688.shtml)
+- 2026-06-29 11:50 - [无人机事件应对不力 拉脱维亚防长遭解职](http://www.share.kurohicncr.top/Article/details/520276456.shtml)
+- 2026-06-29 11:40 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.kurohicncr.top/Article/details/14738.shtml)
+- 2026-06-29 11:31 - [特朗普将访华 中国外交部介绍具体安排](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.blog.kurohicncr.top/Article/details/1783969811.shtml)
+- 2026-06-29 11:42 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.share.kurohicncr.top/Article/details/4101532.shtml)
+- 2026-06-29 11:56 - [特朗普：俄乌停火可能持续超过3天](http://www.share.kurohicncr.top/Article/details/5611028.shtml)
+- 2026-06-29 11:30 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.blog.kurohicncr.top/Article/details/2145327.shtml)
+- 2026-06-29 11:41 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.blog.kurohicncr.top/Article/details/6838709841.shtml)
+- 2026-06-29 11:31 - [湖北加速打造光电子信息产业世界级集群](http://www.share.kurohicncr.top/Article/details/487999.shtml)
+- 2026-06-29 11:42 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.minike.top/Article/details/754643.shtml)

@@ -1,52 +1,58 @@
-# 中国驻日使馆连遭威胁 外交部四字警告日方
+# 育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 20:27 来源：中国新闻网 当地时间4月16日，中国驻日本大使馆举行了新闻发布会，介绍了近段时间以来，驻日使馆接连遭受到恐怖威胁的情况。那根据驻日使馆披露的有关情况，当地时间3月5日，就有一个自称由前警察和前自卫队队员组成的组织向使馆寄出了恐吓信，使馆报警后，日本警方是既没有引起重视，也没有采取有力措施，到现在也没有查清事实，19天后，就发生
+育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是“红颜杀手”的预警 育龄阶段的女性正处于人生最美好的年华，却也容易被一种“偏爱”女性的疾病悄悄盯上——系统性红斑狼疮。很多人以为红斑狼疮只有面部红斑，其实它的早期信号十分隐匿、表现多样，常常被当成疲劳、过敏、感冒或普通关节炎而延误诊治。5月10日是世界狼疮日，记者采访了江苏省中医院风湿病科赵遐副主任医师，带大家认识红斑狼疮，读懂
 
 ## 正文
 
-发布时间：2026年04月17日 20:27 来源：中国新闻网 当地时间4月16日，中国驻日本大使馆举行了新闻发布会，介绍了近段时间以来，驻日使馆接连遭受到恐怖威胁的情况。
+育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是“红颜杀手”的预警 育龄阶段的女性正处于人生最美好的年华，却也容易被一种“偏爱”女性的疾病悄悄盯上——系统性红斑狼疮。
 
-那根据驻日使馆披露的有关情况，当地时间3月5日，就有一个自称由前警察和前自卫队队员组成的组织向使馆寄出了恐吓信，使馆报警后，日本警方是既没有引起重视，也没有采取有力措施，到现在也没有查清事实，19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国驻日使馆的严重事件，而就在闯馆事件发生仅仅一周后，又有一名自称应急预备自卫官的人向使馆发出了炸弹威胁。
+很多人以为红斑狼疮只有面部红斑，其实它的早期信号十分隐匿、表现多样，常常被当成疲劳、过敏、感冒或普通关节炎而延误诊治。
 
-针对此事，在4月17日举行的中国外交部例行记者会上，发言人郭嘉昆表示，如果对此类案件轻描淡写，甚至转移视线、混淆是非，只会从恶如崩，产生更为严重的后果，导致更多日本民众深受其害。
+5月10日是世界狼疮日，记者采访了江苏省中医院风湿病科赵遐副主任医师，带大家认识红斑狼疮，读懂身体发出的早期预警，守住健康第一道防线。
 
-我们再次敦促日方反思纠错、彻查整改，给中方一个负责任交代。
+红斑狼疮又被称为“红颜杀手”，因它高发于15~45岁育龄女性，女性患者数量是男性的9倍，与雌激素水平密切相关。
 
-我们注意到，发言人回应中用到了一个词叫从恶如崩，也就是说日方这种不严厉打击、不彻底追责、不严肃道歉的消极态度，只会让针对中国驻日使馆的威胁越来越多、越来越极端，最终酿成更大的安全事件，而纵容极端势力蔓延，不仅会冲击双边关系与地区安全，更会让日本社会陷入对立与动荡。
+在过去医疗不发达时，该病起病急、病情重，常因狼疮肾炎(肾衰竭)、严重感染、中枢神经系统狼疮(如癫痫、精神错乱)等危及生命。
 
-(记者 刘世炯） 责任编辑：【罗攀】
+但随着医学进步，它早已不再是“杀手”。
+
+规范治疗后，绝大多数患者能长期生存，与常人无异。
+
+狼疮早期症状多样无特异性，易误诊，育龄女性出现以下症状需及时排查，如不明原因持续发热(低热常见)，关节肿痛、晨僵，面部蝶形红斑，光过敏，口腔或鼻腔反复溃疡，脱发(非斑秃，弥漫性)；雷诺现象(手指、脚趾遇冷变白、变紫)，乏力、体重下降，胸膜炎、心包炎(深呼吸或躺下时胸痛)，尿泡沫增多、眼睑或下肢水肿(提示肾损害)等。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:50 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:48 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:37 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:38 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:50 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:47 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:38 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:47 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:37 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:45 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:59 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:46 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:50 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:52 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:55 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:35 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:37 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:40 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:49 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:55 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:31 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.blog.kurohicncr.top/Article/details/2929216564.shtml)
-- 2026-06-29 11:49 - [中信建投：创业板新高后，还有多少空间？](http://www.share.kurohicncr.top/Article/details/8805003652.shtml)
-- 2026-06-29 11:34 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.share.kurohicncr.top/Article/details/836437.shtml)
-- 2026-06-29 11:25 - [书香换花香 浙江杭州孔庙书市启幕](http://www.blog.minike.top/Article/details/13616985.shtml)
-- 2026-06-29 11:36 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.kurohicncr.top/Article/details/94159091902.shtml)
-- 2026-06-29 11:27 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.blog.kurohicncr.top/Article/details/47163.shtml)
-- 2026-06-29 11:38 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.share.minike.top/Article/details/34460390753.shtml)
-- 2026-06-29 11:42 - [美国精神航空公司考虑清算](http://www.share.kurohicncr.top/Article/details/725630.shtml)
-- 2026-06-29 11:50 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.blog.minike.top/Article/details/65025.shtml)
-- 2026-06-29 11:31 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.kurohicncr.top/Article/details/523831850594.shtml)
-- 2026-06-29 11:50 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/2154281993.shtml)
-- 2026-06-29 11:28 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.minike.top/Article/details/62919385.shtml)
-- 2026-06-29 11:31 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.minike.top/Article/details/240281944.shtml)
-- 2026-06-29 11:45 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.share.kurohicncr.top/Article/details/841334365625.shtml)
+- 2026-06-29 11:56 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.blog.minike.top/Article/details/01814907.shtml)
+- 2026-06-29 11:35 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.blog.minike.top/Article/details/12237.shtml)
+- 2026-06-29 11:55 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/6220642.shtml)
+- 2026-06-29 11:54 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.share.minike.top/Article/details/19995739198.shtml)
+- 2026-06-29 11:57 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.blog.minike.top/Article/details/879969077919.shtml)
+- 2026-06-29 11:50 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [中国首条深水油气装备工艺管线智能生产线建设完成](http://www.share.kurohicncr.top/Article/details/766183125967.shtml)
+- 2026-06-29 11:59 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.share.minike.top/Article/details/8139502.shtml)
+- 2026-06-29 11:56 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.kurohicncr.top/Article/details/186737705.shtml)
+- 2026-06-29 11:56 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.kurohicncr.top/Article/details/17142.shtml)
+- 2026-06-29 11:44 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](http://www.share.kurohicncr.top/Article/details/877031.shtml)
+- 2026-06-29 11:34 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.share.kurohicncr.top/Article/details/5590988.shtml)

@@ -1,56 +1,61 @@
-# 千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传
+# 人形机器人与上海创新创业青年对话“谈科创”
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网江西永修4月20日电 题：千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传 作者 姜涛 袁汝晶 袁勃兴 谷雨时节，海拔近千米的江西永修云居山上，云雾缭绕，满目青翠。千年古刹真如禅寺周边的上百亩茶园里，灰布短褂的僧众腰挎竹篓，十指翻飞，将一芽一叶的鲜嫩春茶采入篓中。 “一日不作，一日不食。”农禅宗风，初创于四祖道信，其后马祖道一建丛林、百丈怀海立清规，将农禅并重确立为丛林
+中新社上海5月10日电 (范宇斌)“上海青年创新创业者的气质绝对是敢闯敢拼敢创新，和这座城市共同成长。”第七届上海创新创业青年50人论坛10日在上海举办，智元灵犀X2人形机器人“申小元”如此评价上海青年创业者的气质。 在圆桌对话环节，“申小元”与三位上海创新创业青年同题共答、互动交流。“申小元”表示，上海包容试错的创业氛围、高效的产学研转化通道以及对硬科技领域的长期扶持耐心，是
 
 ## 正文
 
-中新网江西永修4月20日电 题：千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传 作者 姜涛 袁汝晶 袁勃兴 谷雨时节，海拔近千米的江西永修云居山上，云雾缭绕，满目青翠。
+中新社上海5月10日电 (范宇斌)“上海青年创新创业者的气质绝对是敢闯敢拼敢创新，和这座城市共同成长。
 
-千年古刹真如禅寺周边的上百亩茶园里，灰布短褂的僧众腰挎竹篓，十指翻飞，将一芽一叶的鲜嫩春茶采入篓中。
+”第七届上海创新创业青年50人论坛10日在上海举办，智元灵犀X2人形机器人“申小元”如此评价上海青年创业者的气质。
 
-“一日不作，一日不食。
+在圆桌对话环节，“申小元”与三位上海创新创业青年同题共答、互动交流。
 
-”农禅宗风，初创于四祖道信，其后马祖道一建丛林、百丈怀海立清规，将农禅并重确立为丛林制度。
+“申小元”表示，上海包容试错的创业氛围、高效的产学研转化通道以及对硬科技领域的长期扶持耐心，是科创发展最宝贵的软实力。
 
-千年之后，云居山真如禅寺依然完整保留着这一农耕与修行相结合的制度。
+论坛以“青年与城市共成长”为主题，聚焦青年科创发展，发布多项扶持政策与科创计划，搭建多元交流平台，全方位赋能青年创新创业。
 
-每年清明至谷雨，全寺上下“出坡”采茶，成为这处“农禅并重”典范最生动的春日光景。
+论坛联动斯坦福大学、新加坡国立大学、香港大学三所高校的校友同步举办青年创新创业主题活动。
 
-史料记载，云居山真如禅寺始建于公元808年，20世纪50年代，禅门泰斗虚云老和尚驻锡云居山，重振祖庭，带领僧众开荒种植，奠定了今日数百亩茶园与近千亩山场的格局。
+论坛面向全球推出“上海青年创新创业研修营”，为不同赛道青年创客提供多层次实战课程，结合导师辅导与项目训练，搭建从“想创业”到“会创业”的能力阶梯。
 
-如今，真如禅寺拥有山场近千亩，年产粮食数万斤、茶叶近千斤。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:31 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:53 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:33 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:37 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:32 - [习近平文化思想引领书香社会建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:27 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:41 - [总书记引领强国之路｜共建美好网络家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:39 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:59 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:36 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:55 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:44 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:33 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:43 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:50 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:54 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:52 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:40 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:49 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:44 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:34 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:48 - [沪指开盘站上4200点 储存芯片概念股强势拉升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:37 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.blog.kurohicncr.top/Article/details/59062.shtml)
-- 2026-06-29 11:37 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.blog.kurohicncr.top/Article/details/550728.shtml)
-- 2026-06-29 11:33 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](http://www.share.kurohicncr.top/Article/details/5524606116.shtml)
-- 2026-06-29 11:47 - [港交所的新挑战与“护城河”](http://www.blog.minike.top/Article/details/76233249770.shtml)
-- 2026-06-29 11:24 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.blog.kurohicncr.top/Article/details/8537593.shtml)
-- 2026-06-29 11:29 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](http://www.blog.kurohicncr.top/Article/details/21222.shtml)
-- 2026-06-29 11:50 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.share.minike.top/Article/details/72254777.shtml)
-- 2026-06-29 11:33 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.blog.kurohicncr.top/Article/details/894869511.shtml)
-- 2026-06-29 11:26 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [2026人形机器人半马：机器人领先人类19分钟冲线](http://www.blog.minike.top/Article/details/831748534.shtml)
-- 2026-06-29 11:26 - [雄安智慧农业春日见闻：北斗定垄、AI种花](http://www.share.kurohicncr.top/Article/details/8068793171.shtml)
-- 2026-06-29 11:43 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](http://www.share.kurohicncr.top/Article/details/3985912449.shtml)
-- 2026-06-29 11:42 - [第139届广交会一期到会境外采购商16.7万名](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](http://www.blog.kurohicncr.top/Article/details/59451020.shtml)
-- 2026-06-29 11:40 - [乌克兰基辅发生枪击事件 致数人死亡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [OpenAI的安全与治理受到严格审视](http://www.blog.minike.top/Article/details/616970342296.shtml)
+- 2026-06-29 11:49 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [证监会严肃查处清越科技财务造假案件](http://www.share.kurohicncr.top/Article/details/512432567403.shtml)
+- 2026-06-29 11:32 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.blog.kurohicncr.top/Article/details/91708.shtml)
+- 2026-06-29 11:55 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.share.kurohicncr.top/Article/details/5639726233.shtml)
+- 2026-06-29 11:36 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/697630041992.shtml)
+- 2026-06-29 11:47 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.blog.kurohicncr.top/Article/details/6612506690.shtml)
+- 2026-06-29 11:56 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [南京：钟山湖畔 鸭趣盎然](http://www.blog.kurohicncr.top/Article/details/68312.shtml)
+- 2026-06-29 11:34 - [中国银联与华为签署战略合作协议](http://www.share.kurohicncr.top/Article/details/8130658111.shtml)
+- 2026-06-29 11:57 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](http://www.share.minike.top/Article/details/863214.shtml)
+- 2026-06-29 11:54 - [消息人士称巴基斯坦已将伊朗回应传达给美国](http://www.share.minike.top/Article/details/268177.shtml)
+- 2026-06-29 11:38 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](http://www.share.minike.top/Article/details/38727136.shtml)
+- 2026-06-29 11:30 - [美军称向两艘“违反封锁”的伊朗油轮开火](http://www.blog.kurohicncr.top/Article/details/37159961.shtml)

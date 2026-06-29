@@ -1,55 +1,46 @@
-# 2026金鸡艺术电影展在上海举办
+# 训修实业将于6月8日派发末期股息每股0.027港元
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社上海4月19日电 (记者 许婧)2026金鸡艺术电影展19日在上海交通大学开幕。影展以“光影交响”为主题，特设金鸡艺术电影展映和上海电影展映两部分，共有10部中外电影集中展映。 据介绍，此次影展汇聚《破·地狱》《但愿人长久》《月光里的男孩》《翠湖》《大李小李和老李》《菜肉馄饨》等新老电影佳作。这些作品定格温情瞬间，深挖人文底蕴，展现当下中外电影创作多元面貌的同时，也承载了
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。责任编辑：卢昱君
 
 ## 正文
 
-中新社上海4月19日电 (记者 许婧)2026金鸡艺术电影展19日在上海交通大学开幕。
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。
 
-影展以“光影交响”为主题，特设金鸡艺术电影展映和上海电影展映两部分，共有10部中外电影集中展映。
-
-据介绍，此次影展汇聚《破·地狱》《但愿人长久》《月光里的男孩》《翠湖》《大李小李和老李》《菜肉馄饨》等新老电影佳作。
-
-这些作品定格温情瞬间，深挖人文底蕴，展现当下中外电影创作多元面貌的同时，也承载了当代电影人的艺术追求。
-
-展映期间还将举办电影美学对谈、名家导赏、上海电影创作研讨会等活动。
-
-本次影展由中国电影家协会、上海交通大学、上海电影(集团)有限公司共同主办，将持续至21日。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:28 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:45 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:43 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:40 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:33 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:40 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:32 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:53 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:32 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:58 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:30 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:59 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:39 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:36 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:50 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:43 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:44 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:51 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:31 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:45 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:33 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.blog.kurohicncr.top/Article/details/400593091617.shtml)
-- 2026-06-29 11:50 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/112398.shtml)
-- 2026-06-29 11:29 - [吉林大学春花绽放春意浓](http://www.blog.minike.top/Article/details/035183.shtml)
-- 2026-06-29 11:34 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.minike.top/Article/details/380770655.shtml)
-- 2026-06-29 11:38 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.share.minike.top/Article/details/346470010681.shtml)
-- 2026-06-29 11:29 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.blog.kurohicncr.top/Article/details/527775642.shtml)
-- 2026-06-29 11:24 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.share.kurohicncr.top/Article/details/4819232.shtml)
-- 2026-06-29 11:51 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.share.minike.top/Article/details/1399095809.shtml)
-- 2026-06-29 11:40 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.share.kurohicncr.top/Article/details/53899528.shtml)
-- 2026-06-29 11:42 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [苏林、查波访华为何要去广西、湖南？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.share.kurohicncr.top/Article/details/311037239392.shtml)
-- 2026-06-29 11:32 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.share.minike.top/Article/details/91430952785.shtml)
-- 2026-06-29 11:42 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.kurohicncr.top/Article/details/2204469799.shtml)
+- 2026-06-29 11:32 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/747408783583.shtml)
+- 2026-06-29 11:46 - [第23届世界乳腺健康大会在天津举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [突发！美联储，降息预期生变！](http://www.share.kurohicncr.top/Article/details/297157228.shtml)
+- 2026-06-29 11:56 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.share.minike.top/Article/details/819456548.shtml)
+- 2026-06-29 11:34 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.blog.kurohicncr.top/Article/details/177307301850.shtml)
+- 2026-06-29 11:31 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.kurohicncr.top/Article/details/24933014917.shtml)
+- 2026-06-29 11:48 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.blog.kurohicncr.top/Article/details/8853331356.shtml)
+- 2026-06-29 11:48 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.blog.minike.top/Article/details/244798190260.shtml)
+- 2026-06-29 11:39 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.share.minike.top/Article/details/7694034.shtml)
+- 2026-06-29 11:48 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.blog.minike.top/Article/details/65051957.shtml)
+- 2026-06-29 11:40 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.share.kurohicncr.top/Article/details/900912.shtml)
+- 2026-06-29 11:52 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](http://www.blog.minike.top/Article/details/464268723.shtml)
+- 2026-06-29 11:39 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.blog.kurohicncr.top/Article/details/68325.shtml)

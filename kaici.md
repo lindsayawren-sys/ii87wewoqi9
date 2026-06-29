@@ -1,56 +1,57 @@
-# 特朗普再批北约：“纸老虎”离远点儿
+# 第11届法国中国电影节在巴黎拉开帷幕
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网4月18日电 据外媒报道，美国总统特朗普当地时间17日在社交媒体上发文，批评北约“就是一只纸老虎”，“毫无用处”。 据报道，特朗普写道，“霍尔木兹海峡局势结束后，我接到北约的电话，问我们是否需要帮助。我告诉他们离远点，他们只想用石油装满他们的船。需要他们的时候，他们毫无用处，简直就是纸老虎！” 当地时间4月1日，特朗普接受英国媒体采访时曾强烈暗示，美国正在考虑是否退出北约
+中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。 中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。 邓励在致辞中表示，
 
 ## 正文
 
-中新网4月18日电 据外媒报道，美国总统特朗普当地时间17日在社交媒体上发文，批评北约“就是一只纸老虎”，“毫无用处”。
+中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。
 
-据报道，特朗普写道，“霍尔木兹海峡局势结束后，我接到北约的电话，问我们是否需要帮助。
+中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。
 
-我告诉他们离远点，他们只想用石油装满他们的船。
+邓励在致辞中表示，本届电影节既有《风云儿女》这样的里程碑式作品，也有体现当代思考的《浪浪山小妖怪》等创意新作，还有纪录片、虚拟现实影片等多种类型，体现了中国电影产业的多样性与创造力。
 
-需要他们的时候，他们毫无用处，简直就是纸老虎！
+希望选映影片能为法国观众们带来美好的观影体验，同时加深对中国和中国人的理解。
 
-” 当地时间4月1日，特朗普接受英国媒体采访时曾强烈暗示，美国正在考虑是否退出北约。
+秦振贵在致辞中说，本届电影节展映的10部新片，代表了中国电影最新成就；4部经典修复影片，彰显出技术赋能电影艺术传承。
 
-报道称，在被问及是否会考虑美国应不应该继续留在北约时，特朗普表示：“哦，是的。
+这些影片有助于加深法国观众对中国文化的了解，促进民心相通。
 
-我从未被北约所动摇。
+每年互办电影节，已成为两国人文交流的一大亮点。
 
-我一直都知道他们是纸老虎，顺便说一句，普京也知道这一点。
+迄今为止，法国中国电影节累计放映中国影片逾百部，覆盖法国观众超过25万人次。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [拟收购上海证券100%股权！东方证券，最新公告！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:43 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:26 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:27 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:44 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:42 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:34 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:37 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:26 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:24 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:53 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:42 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:54 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:48 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:58 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:55 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:59 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:54 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:50 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:31 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:34 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [泰国类鼻疽疫情今年已确诊732例死亡23例](http://www.blog.minike.top/Article/details/313650065.shtml)
-- 2026-06-29 11:33 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.share.kurohicncr.top/Article/details/516674862713.shtml)
-- 2026-06-29 11:27 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.blog.kurohicncr.top/Article/details/83287.shtml)
-- 2026-06-29 11:47 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.blog.minike.top/Article/details/782270339171.shtml)
-- 2026-06-29 11:46 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [中国创新正在全方位加速突破](http://www.blog.minike.top/Article/details/4327261.shtml)
-- 2026-06-29 11:50 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [蓝莓价格走低 国产品种研发多点推进](http://www.share.kurohicncr.top/Article/details/11662.shtml)
-- 2026-06-29 11:46 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.minike.top/Article/details/75416474.shtml)
-- 2026-06-29 11:33 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.share.kurohicncr.top/Article/details/98150221041.shtml)
-- 2026-06-29 11:27 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.blog.minike.top/Article/details/925352921184.shtml)
+- 2026-06-29 11:36 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.minike.top/Article/details/173721876.shtml)
+- 2026-06-29 11:33 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.share.kurohicncr.top/Article/details/2895649.shtml)
+- 2026-06-29 11:40 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.share.kurohicncr.top/Article/details/958665.shtml)
+- 2026-06-29 11:46 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.share.kurohicncr.top/Article/details/391048.shtml)
+- 2026-06-29 11:36 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.blog.minike.top/Article/details/499192979.shtml)
+- 2026-06-29 11:49 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.kurohicncr.top/Article/details/8260719513.shtml)
+- 2026-06-29 11:33 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.share.minike.top/Article/details/430544005.shtml)
+- 2026-06-29 11:39 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/82433.shtml)
+- 2026-06-29 11:55 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.blog.kurohicncr.top/Article/details/588763619.shtml)
+- 2026-06-29 11:53 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.minike.top/Article/details/58054548031.shtml)
+- 2026-06-29 11:31 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.kurohicncr.top/Article/details/56286564639.shtml)
+- 2026-06-29 11:35 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.blog.kurohicncr.top/Article/details/7411340.shtml)
+- 2026-06-29 11:50 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lisacumin64-arch)

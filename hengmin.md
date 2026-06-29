@@ -1,56 +1,48 @@
-# 去年翻倍赚钱的基金，今年怎么样了？
+# 保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%
 
-> 更新时间：2026-06-29 11:54:06 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-从2025年业绩翻倍到今年单位净值-17%，偏股产品遭遇赛道押注代价 2025年，A股科技赛道走出了一轮气势如虹的结构性行情。 AI算力、光模块、人形机器人等概念轮番爆发，重仓电子元器件、通信设备与半导体产业链的主动权益基金成为2025年A股市场的最大赢家。 据第一财经基于Wind数据统计，2025年全市场净值增长率超过99%的“翻倍基”共有94只（仅统计主代码），赚钱效应极为
+保利置业集团（00119）公布，2026年4月，置业集团实现合同销售金额约人民币42亿元，同比增长20%；合同销售面积约14.8万平方米，合同销售均价约人民币28，418元/平方米。 截至2026年4月，置业集团累计实现合同销售金额约人民币154亿元，同比减少13.97%。累计合同销售面积约54.3万平方米，合同销售均价约人民币28，253元/平方米。责任编辑：卢昱君
 
 ## 正文
 
-从2025年业绩翻倍到今年单位净值-17%，偏股产品遭遇赛道押注代价 2025年，A股科技赛道走出了一轮气势如虹的结构性行情。
+保利置业集团（00119）公布，2026年4月，置业集团实现合同销售金额约人民币42亿元，同比增长20%；合同销售面积约14.8万平方米，合同销售均价约人民币28，418元/平方米。
 
-AI算力、光模块、人形机器人等概念轮番爆发，重仓电子元器件、通信设备与半导体产业链的主动权益基金成为2025年A股市场的最大赢家。
+截至2026年4月，置业集团累计实现合同销售金额约人民币154亿元，同比减少13.97%。
 
-据第一财经基于Wind数据统计，2025年全市场净值增长率超过99%的“翻倍基”共有94只（仅统计主代码），赚钱效应极为显著。
+累计合同销售面积约54.3万平方米，合同销售均价约人民币28，253元/平方米。
 
-其中，永赢科技智选A以233.29%的年度涨幅登顶，中航机遇领航A、红土创新新兴产业A等产品同样斩获超过140%的高回报。
-
-然而，进入2026年，市场风格骤然切换。
-
-截至4月19日最新净值披露，已有8只去年的“翻倍基”今年以来收益转负。
-
-曾经风光无限的高收益基金，正在经历一场残酷的“压力测试”。
-
-翻倍基“退潮”：从净值翻倍到年内亏损 数据显示，在2025年业绩霸榜的科技主题基金中，部分产品今年以来的净值表现急转直下。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:41 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:26 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:40 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:46 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:47 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:48 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:43 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:27 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:26 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:39 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:44 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:45 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:46 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:36 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:39 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:45 - [索尼在PS5疲软情况下仍寻求利润增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:40 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:46 - [【每周经济观察】“两新”成绩单里的民生温度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.share.minike.top/Article/details/276900206.shtml)
-- 2026-06-29 11:49 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.blog.kurohicncr.top/Article/details/70821093.shtml)
-- 2026-06-29 11:30 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.kurohicncr.top/Article/details/7506471226.shtml)
-- 2026-06-29 11:42 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/276378827662.shtml)
-- 2026-06-29 11:50 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.blog.minike.top/Article/details/7988453288.shtml)
-- 2026-06-29 11:37 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.blog.minike.top/Article/details/19034.shtml)
-- 2026-06-29 11:49 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](http://www.share.kurohicncr.top/Article/details/3168211583.shtml)
-- 2026-06-29 11:44 - [习近平谈网络安全和信息化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](http://www.blog.minike.top/Article/details/028627378781.shtml)
-- 2026-06-29 11:27 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [白宫与Anthropic冰释前嫌，美政府拟推动Mythos模型落地](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [伊朗战争50天：5亿桶石油从市场“消失”，全球能源损失超500亿美元](http://www.share.minike.top/Article/details/9057203.shtml)
-- 2026-06-29 11:49 - [追觅俞浩：我是个极度谨慎的人](http://www.share.kurohicncr.top/Article/details/3252589708.shtml)
-- 2026-06-29 11:33 - [国际油价17日大幅下跌](http://www.share.minike.top/Article/details/126101.shtml)
-- 2026-06-29 11:35 - [维多集团受战事亏损拖累 第一季度仍盈利约20亿美元](http://www.blog.minike.top/Article/details/883755407.shtml)
+- 2026-06-29 11:30 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/3275744180.shtml)
+- 2026-06-29 11:34 - [湖北加速打造光电子信息产业世界级集群](http://www.blog.kurohicncr.top/Article/details/14720734.shtml)
+- 2026-06-29 11:51 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.kurohicncr.top/Article/details/753449.shtml)
+- 2026-06-29 11:49 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.share.minike.top/Article/details/270743961.shtml)
+- 2026-06-29 11:45 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.share.kurohicncr.top/Article/details/1144783.shtml)
+- 2026-06-29 11:51 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](http://www.blog.kurohicncr.top/Article/details/10098940.shtml)
+- 2026-06-29 11:56 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](http://www.share.minike.top/Article/details/52574686.shtml)
+- 2026-06-29 11:31 - [母亲节催热“带妈游”，两代人怎么玩更融洽？](http://www.blog.minike.top/Article/details/57023.shtml)
+- 2026-06-29 11:36 - [首家试点落地！金融数据跨境合规流通 赋能跨境金融业务](http://www.blog.minike.top/Article/details/103598.shtml)
+- 2026-06-29 11:30 - [美元跌破98大关！黄金多头卷土重来？](http://www.share.kurohicncr.top/Article/details/100454.shtml)
+- 2026-06-29 11:46 - [银行自营基金配置“刹车”！2025年行业缩水万亿，股份行城商行领跌](http://www.blog.kurohicncr.top/Article/details/36746562497.shtml)
+- 2026-06-29 11:36 - [原油：油价小幅上涨 海湾冲突威胁停火协议](http://www.blog.minike.top/Article/details/72388160.shtml)
+- 2026-06-29 11:54 - [重庆：桥下闲置空间变身运动场](http://www.blog.kurohicncr.top/Article/details/870385326.shtml)
+- 2026-06-29 11:58 - [武汉锚定多个世界级目标 绘就“十五五”科创发展蓝图](http://www.blog.kurohicncr.top/Article/details/7242026.shtml)

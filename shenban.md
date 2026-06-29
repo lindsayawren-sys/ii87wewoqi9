@@ -1,58 +1,52 @@
-# 丁薛祥出席土库曼斯坦鲁班工坊揭牌仪式并致辞
+# 2.4万标准箱甲醇双燃料集装箱船将开展海上试航
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-新华社阿什哈巴德4月17日电(记者安晓萌 周天翮)4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德出席土库曼斯坦鲁班工坊揭牌仪式并致辞。 丁薛祥表示，中国政府高度重视职业教育国际合作，习近平主席多次亲自推动中国同友好国家合作设立鲁班工坊。作为中国职业教育的知名品牌，鲁班工坊已在全球30多个国家落地生根，成为中外技能互通、人文交流的重要纽带。 丁薛祥指出，建设土库曼
+发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，2.4万标准箱甲醇双燃料集装箱船在江苏南通定名“东方智慧”轮，是目前全球最大级别甲醇双燃料集装箱船。 “东方智慧”轮总长399.99米，型宽61.3米，型深33.2米，最大载箱量约2.4万标准箱，载重22.5万吨，服务航速22.7节。船舶配备甲醇双燃料主机、副机与锅炉，可切换甲醇、燃油两种动力模式。据悉，
 
 ## 正文
 
-新华社阿什哈巴德4月17日电(记者安晓萌 周天翮)4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德出席土库曼斯坦鲁班工坊揭牌仪式并致辞。
+发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，2.4万标准箱甲醇双燃料集装箱船在江苏南通定名“东方智慧”轮，是目前全球最大级别甲醇双燃料集装箱船。
 
-丁薛祥表示，中国政府高度重视职业教育国际合作，习近平主席多次亲自推动中国同友好国家合作设立鲁班工坊。
+“东方智慧”轮总长399.99米，型宽61.3米，型深33.2米，最大载箱量约2.4万标准箱，载重22.5万吨，服务航速22.7节。
 
-作为中国职业教育的知名品牌，鲁班工坊已在全球30多个国家落地生根，成为中外技能互通、人文交流的重要纽带。
+船舶配备甲醇双燃料主机、副机与锅炉，可切换甲醇、燃油两种动力模式。
 
-丁薛祥指出，建设土库曼斯坦鲁班工坊是中土元首达成的重要共识，也是首届中国-中亚峰会的重要成果。
+据悉，该船使用绿色甲醇，每年可减少二氧化碳排放约15万吨。
 
-这一项目从蓝图变为现实，为双方加强友好合作注入了新的动力。
+该轮后续将开展海上试航，适时投入航运使用。
 
-丁薛祥对工坊建设提出3点希望：一是打造两国青年成长成才的重要平台，加强教育、科技和人才培训合作，突出“职普融通+产教融合”，积极为学生发展指引方向、拓展空间。
-
-二是打造能源合作提质升级的重要支撑，精准对接产业发展需求，围绕油气勘探开发等关键领域做好高素质技术技能人才定向培养，促进两国能源战略深度衔接、协同实施。
-
-三是打造中土友谊薪火相传的重要桥梁，促进不同文明互学互鉴，让越来越多的青年成为传承中土友好事业的使者，持续夯实中土命运共同体的民间友好基础。
+(彭常青 制作 葛勇） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [台湾织娘连美惠：一根丝线牵两岸 一幅织锦绣同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:35 - [欧洲央行管委Kazaks：下一步利率行动未必会是加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:41 - [CBA常规赛：辽宁主场收官战不敌浙江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:47 - [拟收购上海证券100%股权！东方证券，最新公告！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:31 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:40 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:41 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:26 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:50 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:51 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:41 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:28 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:30 - [陈文清在政法领导干部专题研讨班开班式上表示 树立和践行正确政绩观 建设德才兼备的高素质政法队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:42 - [涉汉坦病毒疫情邮轮抵达西班牙特内里费岛水域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:35 - [看图学习·人民之心丨读懂“为谁创造业绩”的根本立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:39 - [短道速滑世界冠军李佳军：每一滴拼搏的汗水都自有光芒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:39 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:33 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:35 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:43 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:43 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:59 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [吉韵东方入春城 中国华服周展示古韵风华](http://www.share.kurohicncr.top/Article/details/76244281.shtml)
-- 2026-06-29 11:44 - [中国经济圆桌会丨消博会是一个至关重要窗口](http://www.share.minike.top/Article/details/7829343516.shtml)
-- 2026-06-29 11:38 - [三问首季经济：形如何，亮在哪，势怎样？](http://www.blog.kurohicncr.top/Article/details/144975594339.shtml)
-- 2026-06-29 11:45 - [泰国类鼻疽疫情今年已确诊732例死亡23例](http://www.blog.minike.top/Article/details/1554578624.shtml)
-- 2026-06-29 11:46 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.share.kurohicncr.top/Article/details/883410319.shtml)
-- 2026-06-29 11:31 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.blog.kurohicncr.top/Article/details/087616064.shtml)
-- 2026-06-29 11:53 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.blog.kurohicncr.top/Article/details/26093722.shtml)
-- 2026-06-29 11:26 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.blog.kurohicncr.top/Article/details/851235801.shtml)
-- 2026-06-29 11:41 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.blog.minike.top/Article/details/30891890246.shtml)
-- 2026-06-29 11:25 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](http://www.blog.kurohicncr.top/Article/details/43636.shtml)
-- 2026-06-29 11:51 - [中国创新正在全方位加速突破](http://www.blog.minike.top/Article/details/03318.shtml)
-- 2026-06-29 11:30 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.share.kurohicncr.top/Article/details/68868.shtml)
-- 2026-06-29 11:46 - [蓝莓价格走低 国产品种研发多点推进](http://www.blog.kurohicncr.top/Article/details/705576971.shtml)
-- 2026-06-29 11:26 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.blog.kurohicncr.top/Article/details/858684.shtml)
+- 2026-06-29 11:31 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](http://www.blog.minike.top/Article/details/877248215.shtml)
+- 2026-06-29 11:52 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](http://www.share.kurohicncr.top/Article/details/0661340.shtml)
+- 2026-06-29 11:56 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](http://www.share.kurohicncr.top/Article/details/81985.shtml)
+- 2026-06-29 11:35 - [山东推进场景创新 2027年拟培育入库场景超500项](http://www.share.minike.top/Article/details/8243143.shtml)
+- 2026-06-29 11:45 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.blog.kurohicncr.top/Article/details/01522753907.shtml)
+- 2026-06-29 11:34 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.blog.minike.top/Article/details/4347874.shtml)
+- 2026-06-29 11:36 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.share.minike.top/Article/details/47643.shtml)
+- 2026-06-29 11:47 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.blog.minike.top/Article/details/36974208.shtml)
+- 2026-06-29 11:48 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.share.kurohicncr.top/Article/details/2172102.shtml)
+- 2026-06-29 11:31 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.kurohicncr.top/Article/details/53855379.shtml)
+- 2026-06-29 11:33 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.minike.top/Article/details/532042582.shtml)
+- 2026-06-29 11:35 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.blog.minike.top/Article/details/092795484874.shtml)
+- 2026-06-29 11:44 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/61512903.shtml)
+- 2026-06-29 11:45 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.share.kurohicncr.top/Article/details/206440672.shtml)
+- 2026-06-29 11:45 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.kurohicncr.top/Article/details/7883239.shtml)

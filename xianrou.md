@@ -1,61 +1,46 @@
-# 国元保险原董事长被查，收超400万罚单，成监管“重点户”
+# 中指研究院：4月北上深租金环比继续上涨
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-来源：燕梳师院 作者：萧晓 国元保险用十余年时间，完成了从行业新军到区域龙头的跨越。初创之时，公司专注于政策性农业保险，在江淮大地迅速建立服务网络，承保农作物曾超过1亿亩，一度成为地方险企标杆。 然而，就在公司乘势而上、筹备上市的关键节点，命运却急转直下。高管变动频繁，总经理一职长期虚位，监管罚单接踵而至，如今原董事长吴天更因涉嫌严重违纪违法被查。昔日荣光之下，合规经营已然成为
+人民财讯5月10日电，据中指研究院，近期，我国住房租赁市场在3月季节性回暖后，需求释放节奏逐步放缓，4月50城租金环比转跌；但北上深等核心城市租金保持环比上涨，市场表现明显好于去年同期，显示出核心城市的需求韧性依然较强。 责任编辑：石秀珍 SF183
 
 ## 正文
 
-来源：燕梳师院 作者：萧晓 国元保险用十余年时间，完成了从行业新军到区域龙头的跨越。
+人民财讯5月10日电，据中指研究院，近期，我国住房租赁市场在3月季节性回暖后，需求释放节奏逐步放缓，4月50城租金环比转跌；但北上深等核心城市租金保持环比上涨，市场表现明显好于去年同期，显示出核心城市的需求韧性依然较强。
 
-初创之时，公司专注于政策性农业保险，在江淮大地迅速建立服务网络，承保农作物曾超过1亿亩，一度成为地方险企标杆。
-
-然而，就在公司乘势而上、筹备上市的关键节点，命运却急转直下。
-
-高管变动频繁，总经理一职长期虚位，监管罚单接踵而至，如今原董事长吴天更因涉嫌严重违纪违法被查。
-
-昔日荣光之下，合规经营已然成为摆在公司面前的难解之题。
-
-01 原董事长被查 4月17日，据安徽省纪委监委消息，安徽国元金融控股集团有限公司原党委副书记、总经理吴天涉嫌严重违纪违法，目前正接受安徽省纪委监委纪律审查和监察调查。
-
-值得注意的是，吴天曾于2018年3月至2020年12月兼任国元保险党委书记、董事长，也正是他一手推动了公司的上市筹备工作。
-
-公开资料显示，吴天出生于1964年10月，职业生涯横跨政、企两界。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:33 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:41 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:43 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:47 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:53 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:31 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:36 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:32 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:38 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:41 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:36 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:26 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:41 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:31 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:51 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:50 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:57 - [2026中国田径街头巡回赛揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:55 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:50 - [恒瑞医药香港办公室正式启用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:50 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:31 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:38 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:55 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:33 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.share.minike.top/Article/details/94889174.shtml)
-- 2026-06-29 11:27 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.kurohicncr.top/Article/details/6614330404.shtml)
-- 2026-06-29 11:31 - [去年翻倍赚钱的基金，今年怎么样了？](http://www.share.kurohicncr.top/Article/details/689702109.shtml)
-- 2026-06-29 11:47 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.share.kurohicncr.top/Article/details/9242907.shtml)
-- 2026-06-29 11:40 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.blog.kurohicncr.top/Article/details/51473.shtml)
-- 2026-06-29 11:39 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [农业农村部：推动猪价合理回升](http://www.share.kurohicncr.top/Article/details/912393605.shtml)
-- 2026-06-29 11:44 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.blog.minike.top/Article/details/18339.shtml)
-- 2026-06-29 11:42 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.minike.top/Article/details/783993.shtml)
-- 2026-06-29 11:50 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.blog.kurohicncr.top/Article/details/47596002.shtml)
-- 2026-06-29 11:45 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](http://www.blog.minike.top/Article/details/104997.shtml)
-- 2026-06-29 11:25 - [西安直飞维也纳国际航线开通](http://www.blog.minike.top/Article/details/6092631730.shtml)
-- 2026-06-29 11:31 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/688844931575.shtml)
+- 2026-06-29 11:30 - [Molson Coors加拿大公司宣派每股0.65加元股息](http://www.share.minike.top/Article/details/71499420.shtml)
+- 2026-06-29 11:43 - [第十五届四川国际茶业博览会吸引民众参观](http://www.share.minike.top/Article/details/782426.shtml)
+- 2026-06-29 11:51 - [男子加油逃单同行人对监控比耶](http://www.share.minike.top/Article/details/9675406464.shtml)
+- 2026-06-29 11:43 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.kurohicncr.top/Article/details/626293821772.shtml)
+- 2026-06-29 11:38 - [酒价内参5月11日价格发布：青花郎上涨5元](http://www.blog.kurohicncr.top/Article/details/106470.shtml)
+- 2026-06-29 11:54 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](http://www.blog.kurohicncr.top/Article/details/217889.shtml)
+- 2026-06-29 11:55 - [公安部公布无人机影响铁路安全典型案例](http://www.blog.minike.top/Article/details/30590019899.shtml)
+- 2026-06-29 11:52 - [特斯拉与亚马逊有望领涨工业板块](http://www.share.minike.top/Article/details/248875.shtml)
+- 2026-06-29 11:48 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.blog.kurohicncr.top/Article/details/4327440.shtml)
+- 2026-06-29 11:33 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.share.kurohicncr.top/Article/details/6613731.shtml)
+- 2026-06-29 11:58 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.blog.kurohicncr.top/Article/details/9225770740.shtml)
+- 2026-06-29 11:30 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.share.minike.top/Article/details/039659.shtml)
+- 2026-06-29 11:57 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.blog.kurohicncr.top/Article/details/6644918300.shtml)
+- 2026-06-29 11:40 - [“续费刺客”如此“近视”，必撞南墻](http://www.share.minike.top/Article/details/16175949.shtml)

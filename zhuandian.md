@@ -1,57 +1,61 @@
-# 广西财政强化资金保障 筑牢基层应急管理“第一道防线”
+# 凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网南宁4月19日电(韦佳秀)广西壮族自治区财政厅近日发布消息称，“十四五”期间，广西财政累计筹措资金79.55亿元(人民币，下同)支持提升基层应急管理能力，着力筑牢基层安全应急管理防线。 据介绍，“十四五”期间，广西财政累计投入2.22亿元，用于市县安全生产基础设施等建设，推动安全隐患“早发现、早消除”；安排2.68亿元安全生产预防补助资金，重点支持8个化工园区开展危险化学
+ARK Invest创始人凯西·伍德对SpaceX和特斯拉表达了看涨观点，指出投资者对私人太空资产的强劲需求以及对自动驾驶技术日益增长的信心。 伍德在接受彭博社采访时表示，投资者对SpaceX预期中的IPO的胃口“非常强烈”，并称尽管该IPO据报规模达750亿美元，但需求仍可能超过可用股票数量。 伍德表示，SpaceX目前是ARK风险基金的最大持仓，并指出轨道数据中心等未来业务
 
 ## 正文
 
-中新网南宁4月19日电(韦佳秀)广西壮族自治区财政厅近日发布消息称，“十四五”期间，广西财政累计筹措资金79.55亿元(人民币，下同)支持提升基层应急管理能力，着力筑牢基层安全应急管理防线。
+ARK Invest创始人凯西·伍德对SpaceX和特斯拉表达了看涨观点，指出投资者对私人太空资产的强劲需求以及对自动驾驶技术日益增长的信心。
 
-据介绍，“十四五”期间，广西财政累计投入2.22亿元，用于市县安全生产基础设施等建设，推动安全隐患“早发现、早消除”；安排2.68亿元安全生产预防补助资金，重点支持8个化工园区开展危险化学品重大安全风险防控，推动60座煤矿及重点非煤矿山建设井下视频智能监控子系统，实施4个“头顶库”“无主库”闭库治理，坚决遏制重特大事故发生。
+伍德在接受彭博社采访时表示，投资者对SpaceX预期中的IPO的胃口“非常强烈”，并称尽管该IPO据报规模达750亿美元，但需求仍可能超过可用股票数量。
 
-为强化防灾减灾，提升预警能力，广西财政投入20.46亿元支持地质灾害综合治理、避险移民搬迁、综合防灾能力建设等，让民众“住得安心”；下达7.67亿元保障森林防火阻隔系统、防火基础设施建设和物资采购，筑牢森林“防火墙”。
+伍德表示，SpaceX目前是ARK风险基金的最大持仓，并指出轨道数据中心等未来业务可能会显著扩大该公司的长期收入机会。
 
-同时筹措19.89亿元，重点支持全区预警指挥能力提升、自然灾害应急能力提升工程。
+在特斯拉方面，伍德认为，该公司垂直整合的结构使其在 emerging 的自动驾驶出租车行业中拥有重大优势。
 
-广西财政“十四五”期间累计安排自然灾害救灾资金23.05亿元，有力保障应急抢险救援、排危除险、灾民救助等工作。
+她表示，ARK预计自动驾驶出行成本最终可能降至每英里约25美分，远低于当前的网约车价格。
 
-成功应对桂林“6·20”超历史纪录洪水、超强台风“摩羯”等重大灾害，最大限度减少人民群众财产损失。
+伍德还表示，特斯拉能够维持比Waymo等竞争对手更低的运营成本，因为其在内部控制了更多的制造和供应链运营。
 
-此外，广西财政下达3.58亿元，支持消防训练基地建设、消防车辆装备购置及财政困难地区消防基础设施改善，为消防救援队伍添装备、强支撑。
+投资者继续密切关注特斯拉自动驾驶的推出以及SpaceX可能上市的时间表，这两者都被视为ARK长期投资战略的主要催化剂。
 
-(完)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:44 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:45 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:27 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:42 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:28 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:49 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:42 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:26 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:45 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:34 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:58 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:59 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:50 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:58 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:37 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:44 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:54 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:42 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:58 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:49 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:55 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:49 - [“中国式安全感”为何圈粉世界（人民时评）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:50 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:53 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:56 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.blog.kurohicncr.top/Article/details/0451241.shtml)
-- 2026-06-29 11:52 - [书香换花香 浙江杭州孔庙书市启幕](http://www.blog.kurohicncr.top/Article/details/1295161.shtml)
-- 2026-06-29 11:53 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.blog.kurohicncr.top/Article/details/57904040526.shtml)
-- 2026-06-29 11:52 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.share.kurohicncr.top/Article/details/846626.shtml)
-- 2026-06-29 11:53 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.share.minike.top/Article/details/343622749855.shtml)
-- 2026-06-29 11:25 - [美国精神航空公司考虑清算](http://www.blog.kurohicncr.top/Article/details/10438565485.shtml)
-- 2026-06-29 11:50 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.blog.minike.top/Article/details/675471542.shtml)
-- 2026-06-29 11:32 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.blog.minike.top/Article/details/789149595757.shtml)
-- 2026-06-29 11:25 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](http://www.share.minike.top/Article/details/1165476.shtml)
-- 2026-06-29 11:36 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](http://www.share.kurohicncr.top/Article/details/58779.shtml)
-- 2026-06-29 11:26 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.share.kurohicncr.top/Article/details/4476264157.shtml)
-- 2026-06-29 11:49 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.minike.top/Article/details/201662.shtml)
-- 2026-06-29 11:37 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.blog.kurohicncr.top/Article/details/362490129.shtml)
+- 2026-06-29 11:53 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/4173707.shtml)
+- 2026-06-29 11:39 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.share.kurohicncr.top/Article/details/9052891950.shtml)
+- 2026-06-29 11:31 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](http://www.share.kurohicncr.top/Article/details/746598762.shtml)
+- 2026-06-29 11:56 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.blog.kurohicncr.top/Article/details/94500215924.shtml)
+- 2026-06-29 11:43 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.blog.minike.top/Article/details/109885.shtml)
+- 2026-06-29 11:31 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](http://www.blog.kurohicncr.top/Article/details/461024245.shtml)
+- 2026-06-29 11:31 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.blog.kurohicncr.top/Article/details/0843291424.shtml)
+- 2026-06-29 11:40 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [“十五五”期间 武汉将亮相一批文旅新地标](http://www.blog.kurohicncr.top/Article/details/773437979.shtml)
+- 2026-06-29 11:44 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.share.minike.top/Article/details/02412582.shtml)
+- 2026-06-29 11:31 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.blog.kurohicncr.top/Article/details/180617250107.shtml)
+- 2026-06-29 11:46 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](http://www.share.kurohicncr.top/Article/details/15660.shtml)

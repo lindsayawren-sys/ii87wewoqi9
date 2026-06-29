@@ -1,57 +1,58 @@
-# 废旧CT片回收能炼银？紧急提醒：污染环境还涉嫌违法
+# 青海省红十字会启动“守护守护者”项目
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-您家里是否还留存着过往就医时的CT片？如果有人高价回收你会动心吗？现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。记者调查发现，这些回收行为的一个最终目的是提炼白银。回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？我们又该
+中新网西宁5月9日电 (记者 孙睿)5月9日，青海省红十字会正式启动“守护守护者”专项公益项目，聚焦常年坚守在高海拔一线的生态管护员群体，以人道力量帮扶筑牢生态安全屏障，同步发布倡议视频与海报，面向社会公开筹款。 青海是长江、黄河、澜沧江发源地，被誉为“中华水塔”。自2012年青海省推行“一户一岗”生态管护员制度以来，数万当地农牧民主动转型，化身高原生态守护者，扎根平均海拔42
 
 ## 正文
 
-您家里是否还留存着过往就医时的CT片？
+中新网西宁5月9日电 (记者 孙睿)5月9日，青海省红十字会正式启动“守护守护者”专项公益项目，聚焦常年坚守在高海拔一线的生态管护员群体，以人道力量帮扶筑牢生态安全屏障，同步发布倡议视频与海报，面向社会公开筹款。
 
-如果有人高价回收你会动心吗？
+青海是长江、黄河、澜沧江发源地，被誉为“中华水塔”。
 
-现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。
+自2012年青海省推行“一户一岗”生态管护员制度以来，数万当地农牧民主动转型，化身高原生态守护者，扎根平均海拔4200米高寒缺氧地区，承担生态监测、防火巡护、反盗猎、环境清理等任务，用坚守守护高原生态安全。
 
-记者调查发现，这些回收行为的一个最终目的是提炼白银。
+青海省红十字会“守护守护者”项目，旨在通过向生态管护员发放和配备“一站、一包、一证、一衣”的核心路径，保障和护航高原生态管护员在日常巡护中遇到的健康、保暖等问题。
 
-回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？
+青海省红十字会党组成员副会长张永善介绍，“一站”是计划在全省每个生态保护站建设一个标准的红十字应急救护站。
 
-我们又该如何处理手中的废弃医用胶片呢？
+“一包”是高原应急救援包，涵盖急救用品和救援装备。
 
-记者在北京走访发现，在小区门口、医院周边、商超附近，悄然出现了一些医用胶片回收摊贩，开价1到2元回收一张CT片。
+“一证”是开展应急救护专项培训，确保每个管护员通过考核取得红十字救护员证，提升自救互救能力。
 
-在一家超市门前，有一块写着“回收CT胶片”的牌子，记者稍作停留，摊主就推销起她的“回收业务”。
+“一衣”是给生态管护员配发一件保暖冲锋衣。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [经济观察：新时期中德创新合作的机遇与前景在哪里？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:31 - [亚太卫星午前涨近9% 公司为中国卫通控股子公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:50 - [中共早期历史红色场馆联盟主题交流暨中共山东早期历史沉浸式思政课活动在济南举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:48 - [树立和践行正确政绩观丨知行合一 务求实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:31 - [百余人形机器人在京跑半马 “百家争鸣”彰显行业级跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:52 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:37 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:45 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:28 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:33 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:50 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:35 - [估值高企业绩萎靡，国晟科技提示四大核心风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:36 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:50 - [中美元首即将北京会晤，两国关系再迎重要时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:31 - [昌九高铁全线无砟轨道浇筑完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:41 - [AI造假潜入“买家秀” 消费权益如何守护？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:33 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:41 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:48 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:52 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:34 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:40 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:44 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](http://www.blog.minike.top/Article/details/645832969775.shtml)
-- 2026-06-29 11:46 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](http://www.blog.minike.top/Article/details/69833326436.shtml)
-- 2026-06-29 11:50 - [中国驻日使馆连遭威胁 外交部四字警告日方](http://www.share.minike.top/Article/details/153929492.shtml)
-- 2026-06-29 11:50 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](http://www.blog.kurohicncr.top/Article/details/288986451684.shtml)
-- 2026-06-29 11:49 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](http://www.blog.kurohicncr.top/Article/details/6052903211.shtml)
-- 2026-06-29 11:31 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [中国创新正在全方位加速突破](http://www.share.kurohicncr.top/Article/details/03680.shtml)
-- 2026-06-29 11:24 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](http://www.blog.minike.top/Article/details/280908399.shtml)
-- 2026-06-29 11:51 - [蓝莓价格走低 国产品种研发多点推进](http://www.share.minike.top/Article/details/792192.shtml)
-- 2026-06-29 11:52 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/21448.shtml)
-- 2026-06-29 11:38 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.blog.minike.top/Article/details/81084153235.shtml)
-- 2026-06-29 11:49 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/6271851.shtml)
-- 2026-06-29 11:35 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.share.minike.top/Article/details/57082889638.shtml)
+- 2026-06-29 11:48 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](http://www.share.kurohicncr.top/Article/details/9862679.shtml)
+- 2026-06-29 11:50 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](http://www.share.minike.top/Article/details/6519403576.shtml)
+- 2026-06-29 11:37 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](http://www.blog.kurohicncr.top/Article/details/81047626058.shtml)
+- 2026-06-29 11:33 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](http://www.blog.minike.top/Article/details/6195976433.shtml)
+- 2026-06-29 11:34 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](http://www.share.kurohicncr.top/Article/details/0351740699.shtml)
+- 2026-06-29 11:38 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.blog.kurohicncr.top/Article/details/98350870719.shtml)
+- 2026-06-29 11:40 - [赢家时尚附属透过中信证券认购5000万元基金份额](http://www.blog.minike.top/Article/details/793410339362.shtml)
+- 2026-06-29 11:55 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](http://www.share.minike.top/Article/details/94706613810.shtml)
+- 2026-06-29 11:51 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.minike.top/Article/details/870812123.shtml)
+- 2026-06-29 11:32 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.blog.kurohicncr.top/Article/details/236123.shtml)
+- 2026-06-29 11:58 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/0179533.shtml)
+- 2026-06-29 11:44 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.share.minike.top/Article/details/9938397218.shtml)
+- 2026-06-29 11:39 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.share.minike.top/Article/details/91092572.shtml)
+- 2026-06-29 11:41 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.share.minike.top/Article/details/08269799868.shtml)
+- 2026-06-29 11:33 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](http://www.blog.kurohicncr.top/Article/details/923213.shtml)

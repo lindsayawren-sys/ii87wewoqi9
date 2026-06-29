@@ -1,49 +1,59 @@
-# 实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节
+# Molson Coors加拿大公司宣派每股0.65加元股息
 
-> 更新时间：2026-06-29 11:54:06 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月19日 14:15 来源：中国新闻网 4月18日，第四届上饶“三月三”民族文化系列活动在有着“万里茶道第一镇”之称的江西铅山河口镇启幕。夜幕降临，各族群众手拉手围聚篝火，踏歌起舞，在跃动的火光中共叙民族团结情谊，共度民族传统佳节。 (王修君 刘占昆 俞嘉怡 制作 王嘉怡 ） 责任编辑：【李季】
+Molson Coors加拿大公司宣布，将派发每股0.65加元的季度现金股息。该股息将于2026年6月15日支付给2026年5月30日登记在册的股东，除息日为2026年5月30日。 股息详情 按周四收盘价计算，该股息对应的年化收益率约为3.2%。这是Molson Coors加拿大公司连续第8年保持每股0.65加元的季度股息水平，反映出公司在成本压力和消费环境变化下仍维持稳定的派
 
 ## 正文
 
-发布时间：2026年04月19日 14:15 来源：中国新闻网 4月18日，第四届上饶“三月三”民族文化系列活动在有着“万里茶道第一镇”之称的江西铅山河口镇启幕。
+Molson Coors加拿大公司宣布，将派发每股0.65加元的季度现金股息。
 
-夜幕降临，各族群众手拉手围聚篝火，踏歌起舞，在跃动的火光中共叙民族团结情谊，共度民族传统佳节。
+该股息将于2026年6月15日支付给2026年5月30日登记在册的股东，除息日为2026年5月30日。
 
-(王修君 刘占昆 俞嘉怡 制作 王嘉怡 ） 责任编辑：【李季】
+股息详情 按周四收盘价计算，该股息对应的年化收益率约为3.2%。
+
+这是Molson Coors加拿大公司连续第8年保持每股0.65加元的季度股息水平，反映出公司在成本压力和消费环境变化下仍维持稳定的派息能力。
+
+公司背景 Molson Coors加拿大公司是Molson Coors beverage公司的加拿大子公司，总部位于蒙特利尔，旗下品牌包括Coors Light、Molson Canadian和Carling等。
+
+公司在加拿大啤酒市场占有约40%的份额。
+
+财务表现 公司最近公布的季度财报显示，营收同比下降2%至11亿加元，主要受加拿大西部消费者支出疲软和精酿啤酒竞争加剧的影响。
+
+但通过成本削减措施，调整后每股收益达到1.15加元，高于市场预期的1.08加元。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:26 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:36 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:36 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:48 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:30 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:40 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:32 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:25 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:53 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:48 - [广西兴业县举办“三月三”民族团结系列活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:50 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:28 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:47 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:34 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:34 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:40 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:44 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:41 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:40 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:45 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:53 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:41 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:36 - [索尼在PS5疲软情况下仍寻求利润增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:41 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:40 - [【每周经济观察】“两新”成绩单里的民生温度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.blog.kurohicncr.top/Article/details/4179538187.shtml)
-- 2026-06-29 11:38 - [Astro Offshore新增MPSV，扩展水下作业能力](http://www.share.kurohicncr.top/Article/details/522548.shtml)
-- 2026-06-29 11:53 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.share.minike.top/Article/details/9194854.shtml)
-- 2026-06-29 11:39 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.kurohicncr.top/Article/details/693199089.shtml)
-- 2026-06-29 11:44 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [陈茂波：香港将公布第六批引进重点企业](http://www.share.minike.top/Article/details/87579674750.shtml)
-- 2026-06-29 11:45 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/803771.shtml)
-- 2026-06-29 11:51 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.share.minike.top/Article/details/65285519.shtml)
-- 2026-06-29 11:47 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.share.kurohicncr.top/Article/details/242762.shtml)
-- 2026-06-29 11:37 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [习近平谈网络安全和信息化](http://www.blog.kurohicncr.top/Article/details/48680.shtml)
-- 2026-06-29 11:33 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](http://www.share.kurohicncr.top/Article/details/80765079.shtml)
-- 2026-06-29 11:53 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](http://www.blog.minike.top/Article/details/290390499017.shtml)
-- 2026-06-29 11:30 - [白宫与Anthropic冰释前嫌，美政府拟推动Mythos模型落地](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [伊朗战争50天：5亿桶石油从市场“消失”，全球能源损失超500亿美元](http://www.blog.kurohicncr.top/Article/details/2982277407.shtml)
+- 2026-06-29 11:58 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.share.minike.top/Article/details/11045749464.shtml)
+- 2026-06-29 11:49 - [特朗普：俄乌停火可能持续超过3天](http://www.share.minike.top/Article/details/48500.shtml)
+- 2026-06-29 11:42 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.blog.kurohicncr.top/Article/details/990971020.shtml)
+- 2026-06-29 11:37 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/18943.shtml)
+- 2026-06-29 11:31 - [湖北加速打造光电子信息产业世界级集群](http://www.blog.minike.top/Article/details/1906276180.shtml)
+- 2026-06-29 11:41 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.minike.top/Article/details/3556376.shtml)
+- 2026-06-29 11:41 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](http://www.blog.kurohicncr.top/Article/details/640608505.shtml)
+- 2026-06-29 11:35 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.blog.kurohicncr.top/Article/details/289527803640.shtml)
+- 2026-06-29 11:44 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.share.minike.top/Article/details/119248.shtml)
+- 2026-06-29 11:56 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [母亲节催热“带妈游”，两代人怎么玩更融洽？](http://www.blog.kurohicncr.top/Article/details/79595.shtml)
+- 2026-06-29 11:44 - [首家试点落地！金融数据跨境合规流通 赋能跨境金融业务](http://www.blog.kurohicncr.top/Article/details/9709452603.shtml)
+- 2026-06-29 11:45 - [美元跌破98大关！黄金多头卷土重来？](http://www.blog.minike.top/Article/details/2420072832.shtml)
+- 2026-06-29 11:43 - [银行自营基金配置“刹车”！2025年行业缩水万亿，股份行城商行领跌](http://www.share.minike.top/Article/details/684865.shtml)

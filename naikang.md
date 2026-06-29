@@ -1,57 +1,56 @@
-# 券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道
+# 武汉融入“三个丝绸之路” 打造内陆开放新高地
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着国信证券于4月17日晚交出2025年成绩单，证券行业前十座次最终落定。 相较2024年，前十名单仍是老面孔，但排序发生变化：中信证券与国泰海通组成“两超”阵营，两者营收和净利润合计均占前十总量的近四成；广发证券净利润升至第四，招商证券退居第六。从业绩驱动看，自营与经纪业务构成增长双引擎，前十券商自营收入
+中新网武汉5月8日电 (记者 张芹)中共武汉市委副书记、市长熊征宇8日介绍，未来五年，武汉将通过重构高能级开放通道、建设高水平开放载体、发展高质量开放型经济等举措，加快建设国际交往中心，全力打造内陆开放新高地。 当日，湖北省政府新闻办召开“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场，介绍武汉全力打造“五个中心”、全面建设现代化大武汉，努力在全省支点建设中当好龙头
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网武汉5月8日电 (记者 张芹)中共武汉市委副书记、市长熊征宇8日介绍，未来五年，武汉将通过重构高能级开放通道、建设高水平开放载体、发展高质量开放型经济等举措，加快建设国际交往中心，全力打造内陆开放新高地。
 
-随着国信证券于4月17日晚交出2025年成绩单，证券行业前十座次最终落定。
+当日，湖北省政府新闻办召开“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会武汉专场，介绍武汉全力打造“五个中心”、全面建设现代化大武汉，努力在全省支点建设中当好龙头、走在前列的相关情况。
 
-相较2024年，前十名单仍是老面孔，但排序发生变化：中信证券与国泰海通组成“两超”阵营，两者营收和净利润合计均占前十总量的近四成；广发证券净利润升至第四，招商证券退居第六。
+武汉拥有得中独厚、“九省通衢”的交通区位优势。
 
-从业绩驱动看，自营与经纪业务构成增长双引擎，前十券商自营收入同比增长33%，经纪业务手续费收入同比增长48%，跨境业务也正成为第三大核心增长曲线。
+熊征宇表示，武汉将坚持以扩大开放拓空间、聚资源、增动能，聚焦打造陆海空“三条丝绸之路”重要节点，着力重构开放通道、重塑物流体系、提升开放平台、创新开放服务，加快建设国际性综合交通枢纽城市。
 
-展望未来，国际化与科技赋能成为头部券商竞争的关键赛道。
+在重构高能级开放通道方面，武汉将加快建设中欧班列华中区域集结中心、长江中游航运中心“双中心”，联动打造天河机场、花湖机场国际航空客货运“双枢纽”，健全“铁水公空”多式联运集疏运体系，打造“五型”国家物流枢纽、全球性国际邮政快递枢纽。
 
-在“建设一流投资银行”政策引领下，行业集中度有望进一步提升。
+在建设高水平开放载体方面，武汉将全面落实自由贸易试验区提升战略，推进3个综保区扩能提质，加强中法武汉生态示范城、中德国际产业园建设，抓好国家服务业扩大开放综合试点、市场采购贸易方式试点和服务贸易创新发展示范区建设，推动“四区、两园、N个试点”开放载体协同发展。
 
-“两超多强”格局形成 2025年，除华泰证券因2024年处置子公司带来一次性收益扰动外，其余头部券商业绩增速均在两位数。
+在发展高质量开放型经济方面，武汉将坚持内外贸一体化、贸易投资一体化发展，实施“抱团出海拓市场”行动，培育壮大外贸主体，加快发展跨境电商、服务贸易、数字贸易等外贸新业态，打造全球供应链组织中心。
 
-并且，得益于资金使用效率的提升，归母净利润增速均高于营收增速。
+与此同时，武汉还将深入实施“友城常青”工程和外籍人士“家在武汉”工程，持续营造国际化营商环境，全力提升对全球资本、人才、技术、数据等资源要素的配置能力，不断增强武汉国际交往的影响力、联通力、吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:43 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:37 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:36 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:33 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:32 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:45 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:53 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:42 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:24 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:31 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:51 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:44 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:33 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:34 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:50 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:59 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:33 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:31 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:50 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.share.kurohicncr.top/Article/details/73167.shtml)
-- 2026-06-29 11:49 - [OpenAI “Sora之父”宣布离职](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.kurohicncr.top/Article/details/50589.shtml)
-- 2026-06-29 11:26 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.minike.top/Article/details/301494548.shtml)
-- 2026-06-29 11:43 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.minike.top/Article/details/8495912.shtml)
-- 2026-06-29 11:30 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/800288.shtml)
-- 2026-06-29 11:38 - [吉林大学春花绽放春意浓](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.blog.minike.top/Article/details/134354724928.shtml)
-- 2026-06-29 11:42 - [“东北超”推动文旅体商融合 无形资产变红利](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.minike.top/Article/details/0310126.shtml)
-- 2026-06-29 11:34 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.share.minike.top/Article/details/45283.shtml)
-- 2026-06-29 11:33 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.share.minike.top/Article/details/768798311.shtml)
+- 2026-06-29 11:58 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.blog.kurohicncr.top/Article/details/461508903193.shtml)
+- 2026-06-29 11:48 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.kurohicncr.top/Article/details/5291137.shtml)
+- 2026-06-29 11:52 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.blog.minike.top/Article/details/06115.shtml)
+- 2026-06-29 11:56 - [第23届世界乳腺健康大会在天津举行](http://www.blog.kurohicncr.top/Article/details/269441.shtml)
+- 2026-06-29 11:37 - [突发！美联储，降息预期生变！](http://www.share.minike.top/Article/details/557605.shtml)
+- 2026-06-29 11:49 - [美好生活，“体验”一下——“经济新活力”系列评](http://www.share.kurohicncr.top/Article/details/2744246771.shtml)
+- 2026-06-29 11:47 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](http://www.share.kurohicncr.top/Article/details/50822808579.shtml)
+- 2026-06-29 11:56 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/95333968161.shtml)
+- 2026-06-29 11:41 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.kurohicncr.top/Article/details/2386190.shtml)
+- 2026-06-29 11:50 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.blog.minike.top/Article/details/2435230.shtml)
+- 2026-06-29 11:49 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/143249.shtml)
+- 2026-06-29 11:42 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](https://github.com/lisacumin64-arch)

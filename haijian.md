@@ -1,53 +1,58 @@
-# 让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用
+# 美国全球保险公司与伦敦劳合社达成战略分保合作
 
-> 更新时间：2026-06-29 11:54:06 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 00:54 来源：中国新闻网 4月19日，2026人形机器人半程马拉松赛在北京亦庄正式开赛。清华大学自动化系研究员赵明国在赛事期间接受采访时表示，当前机器人应用落地场景相对分散，市场需求也多种多样，现阶段尚未达到针对某一具体应用全面深耕的阶段。在这样的背景下，赛事能发挥的重要作用就是以竞赛带动技术发展，待技术成熟后，再向各领域进行转化应用。只有
+美国全球保险集团（American Global Group）宣布，其核心子公司美国全球保险公司（AGII）已与伦敦劳合社（Lloyd‘s of London）的两家头部辛迪加达成战略合作伙伴关系。自2026年1月1日起，劳合社将为AGII的医疗健康赔偿保险提供成数再保险支持。此举标志着AGII成为首家与劳合社建立合作关系的美国部落保险机构。 根据双方签署的再保险协议，劳合社的
 
 ## 正文
 
-发布时间：2026年04月20日 00:54 来源：中国新闻网 4月19日，2026人形机器人半程马拉松赛在北京亦庄正式开赛。
+美国全球保险集团（American Global Group）宣布，其核心子公司美国全球保险公司（AGII）已与伦敦劳合社（Lloyd‘s of London）的两家头部辛迪加达成战略合作伙伴关系。
 
-清华大学自动化系研究员赵明国在赛事期间接受采访时表示，当前机器人应用落地场景相对分散，市场需求也多种多样，现阶段尚未达到针对某一具体应用全面深耕的阶段。
+自2026年1月1日起，劳合社将为AGII的医疗健康赔偿保险提供成数再保险支持。
 
-在这样的背景下，赛事能发挥的重要作用就是以竞赛带动技术发展，待技术成熟后，再向各领域进行转化应用。
+此举标志着AGII成为首家与劳合社建立合作关系的美国部落保险机构。
 
-只有核心技术实现突破，才能从多维度拓展应用场景，例如未来小区安防巡检等场景，就对机器人的长时间运动能力提出了明确要求。
+根据双方签署的再保险协议，劳合社的上述两家辛迪加将承担AGII承保的医疗健康赔偿风险中50%的保费与损失。
 
-人形机器人半程马拉松比赛聚焦技术挑战，旨在推动机器人整体技术进步，并非是针对某一特定行业任务打造的行业专项竞赛。
+该协议的落地验证了AGII的承保能力，同时依托国际顶级再保险机构的信用背书，为AGII的保单持有人及被保险人提供了稳健的财务支持与保障。
 
-(记者 谢龙飞 董泽宇) 责任编辑：【李岩】
+AGII系美国全球保险集团旗下的核心机构，其注册及运营牌照由位于俄克拉何马州、获美国联邦政府承认的莫多克部族（Modoc Nation）保险部依法核发。
+
+在业务布局上，AGII主要面向中小型企业，提供符合《1974年雇员退休收入保障法案》（ERISA）及相关税务规定的补充健康与全额医疗赔偿保险计划，使其免受州和地方层面的特定监管。
+
+此外，该公司目前正在开发符合美国《平价医疗法案》（ACA）标准的新型医疗保健计划，并通过整合健康储蓄账户（HSA）为客户提供长期的资金保障与增值服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:52 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:51 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:52 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:49 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:52 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:52 - [西安直飞维也纳国际航线开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:29 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:47 - [2026年巴黎图书节拉开帷幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:48 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:41 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:51 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:55 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:32 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:58 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:52 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:30 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:49 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:33 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:38 - [“续费刺客”如此“近视”，必撞南墻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:32 - [视频|李大霄：警惕美债务风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:30 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:42 - [索尼在PS5疲软情况下仍寻求利润增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.share.kurohicncr.top/Article/details/502092712.shtml)
-- 2026-06-29 11:31 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.share.kurohicncr.top/Article/details/134482661759.shtml)
-- 2026-06-29 11:49 - [Astro Offshore新增MPSV，扩展水下作业能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.minike.top/Article/details/72222523.shtml)
-- 2026-06-29 11:24 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.kurohicncr.top/Article/details/952697681662.shtml)
-- 2026-06-29 11:28 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.share.kurohicncr.top/Article/details/06482437.shtml)
-- 2026-06-29 11:40 - [陈茂波：香港将公布第六批引进重点企业](http://www.blog.minike.top/Article/details/776382.shtml)
-- 2026-06-29 11:43 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.kurohicncr.top/Article/details/794242.shtml)
-- 2026-06-29 11:31 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](http://www.share.kurohicncr.top/Article/details/519400021846.shtml)
-- 2026-06-29 11:39 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.blog.kurohicncr.top/Article/details/18425.shtml)
-- 2026-06-29 11:44 - [行业性纵容！“幽灵外卖”黑产调查：7家电商平台“幽灵店铺”多达67604家](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [习近平谈网络安全和信息化](http://www.share.minike.top/Article/details/9619540.shtml)
-- 2026-06-29 11:36 - [涉宇树科技、胖东来等，最高法谈知识产权司法保护](http://www.blog.kurohicncr.top/Article/details/7289696.shtml)
-- 2026-06-29 11:40 - [伊朗谈判代表称以色列可能发动袭击，在和平会谈后由巴基斯坦护送回国](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [白宫与Anthropic冰释前嫌，美政府拟推动Mythos模型落地](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.share.kurohicncr.top/Article/details/6918738.shtml)
+- 2026-06-29 11:55 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.blog.minike.top/Article/details/098319.shtml)
+- 2026-06-29 11:32 - [特朗普：俄乌停火可能持续超过3天](http://www.share.minike.top/Article/details/125291969.shtml)
+- 2026-06-29 11:57 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.share.minike.top/Article/details/628154601283.shtml)
+- 2026-06-29 11:50 - [固生堂于5月8日斥资158.17万港元回购5.43万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [湖北加速打造光电子信息产业世界级集群](http://www.share.kurohicncr.top/Article/details/434739.shtml)
+- 2026-06-29 11:54 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.kurohicncr.top/Article/details/2840054.shtml)
+- 2026-06-29 11:52 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](http://www.share.kurohicncr.top/Article/details/31743.shtml)
+- 2026-06-29 11:49 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.share.kurohicncr.top/Article/details/07078136061.shtml)
+- 2026-06-29 11:51 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.blog.kurohicncr.top/Article/details/67942979444.shtml)
+- 2026-06-29 11:35 - [张文宏复盘“探险邮轮”聚集感染并提出：多国追踪不意味像流感或新冠般易传播](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高](http://www.share.kurohicncr.top/Article/details/6613880.shtml)
+- 2026-06-29 11:53 - [母亲节催热“带妈游”，两代人怎么玩更融洽？](http://www.share.minike.top/Article/details/39315.shtml)
+- 2026-06-29 11:30 - [首家试点落地！金融数据跨境合规流通 赋能跨境金融业务](http://www.share.minike.top/Article/details/17926769.shtml)
+- 2026-06-29 11:42 - [美元跌破98大关！黄金多头卷土重来？](http://www.blog.minike.top/Article/details/33199022.shtml)

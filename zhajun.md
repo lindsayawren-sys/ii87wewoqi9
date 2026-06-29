@@ -1,59 +1,54 @@
-# 林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴
+# 北约国家为特朗普从欧洲撤出更多部队做准备
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社香港4月17日电 (记者 邱兆翔)北京大学新结构经济学研究院院长林毅夫17日在香港珠海学院开讲，以 “中国式现代化的实现路径和对其他发展中国家的借鉴意义” 为主题展开分享。林毅夫表示，中国式现代化的成功实践，为全球发展中国家提供了重要借鉴。遵循自身比较优势发展是实现中国式现代化的关键路径。各国不应盲从西方理论，而应立足自身禀赋，发挥比较优势，走出符合本国国情的现代化道路。
+知情人士透露，在美国总统唐纳德·特朗普宣布将从德国撤出5000名士兵后，美国的欧洲盟友预计他将从欧洲撤出更多部队。 北约盟国的高级外交官预测，特朗普将宣布进一步缩减驻军规模，可能包括从意大利撤军，并取消一项可追溯至拜登总统任期的在德国部署远程导弹的计划。 知情人士称，其他可能的方案还包括美国停止参与某些军事演习，并将原本部署在那些令其不满国家的部队调往被视为更支持这位美国总统的
 
 ## 正文
 
-中新社香港4月17日电 (记者 邱兆翔)北京大学新结构经济学研究院院长林毅夫17日在香港珠海学院开讲，以 “中国式现代化的实现路径和对其他发展中国家的借鉴意义” 为主题展开分享。
+知情人士透露，在美国总统唐纳德·特朗普宣布将从德国撤出5000名士兵后，美国的欧洲盟友预计他将从欧洲撤出更多部队。
 
-林毅夫表示，中国式现代化的成功实践，为全球发展中国家提供了重要借鉴。
+北约盟国的高级外交官预测，特朗普将宣布进一步缩减驻军规模，可能包括从意大利撤军，并取消一项可追溯至拜登总统任期的在德国部署远程导弹的计划。
 
-遵循自身比较优势发展是实现中国式现代化的关键路径。
+知情人士称，其他可能的方案还包括美国停止参与某些军事演习，并将原本部署在那些令其不满国家的部队调往被视为更支持这位美国总统的国家。
 
-各国不应盲从西方理论，而应立足自身禀赋，发挥比较优势，走出符合本国国情的现代化道路。
+这一构想可追溯至特朗普首个任期，当时他曾考虑向波兰增派更多部队。
 
-林毅夫指出，第二次世界大战后，世界各国的普遍共识是：实现现代化应向发达国家学习。
+知情人士表示，他们对撤军的预测是基于特朗普的公开言论，以及北约官员与美国同行就北约未来计划所进行的对话。
 
-不少发展中国家希望通过借鉴发达国家的经验，实现自身的工业化和现代化。
-
-然而，结果却事与愿违。
-
-基于中国与其他发展中国家的经验，林毅夫提出“新结构经济学”。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:41 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:41 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:29 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:39 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:33 - [村里有了“小而美” 游客爱上“慢时光”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:34 - [广交会观察：中东局势扰动下参展商采购商同觅“新出路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:28 - [雄安新区首个戏曲特色工人文化宫正式投用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:30 - [伊朗最高领袖：伊朗海军已准备好给敌人“新的惨败”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:27 - [习近平文化思想引领书香社会建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:40 - [新疆和田县群众治沙：沙地成自家“聚宝盆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:41 - [总书记引领强国之路｜共建美好网络家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:49 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:57 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:59 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:45 - [把生姜当水果吃，1天1斤坚持多年？专家提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:34 - [文远知行-W于5月8日斥资133.11万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:57 - [伊朗驻华大使：我们不会忘记中国的帮助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:37 - [三星未来退市后售后与售卖仍如常？线下探店解答！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:46 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:54 - [外贸从沿海“独唱”转向全域协同发力 跨境供应链韧性持续增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:46 - [“仰望布达拉”敬庭尧绘画艺术展在拉萨开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:50 - [巴基斯坦拟首次发行熊猫债 规模至多为17.5亿元人民币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:52 - [海辰储能叶蓁：储能需求不是“跑马圈地”，而是电网刚需的真实拉动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:39 - [福建武夷山迎来制茶繁忙季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [A股“股王”更替见证中国经济新力量](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.blog.kurohicncr.top/Article/details/625311.shtml)
-- 2026-06-29 11:42 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.share.minike.top/Article/details/47513658.shtml)
-- 2026-06-29 11:31 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.share.kurohicncr.top/Article/details/832360653.shtml)
-- 2026-06-29 11:49 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [港交所的新挑战与“护城河”](http://www.share.kurohicncr.top/Article/details/264294505.shtml)
-- 2026-06-29 11:38 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](http://www.share.kurohicncr.top/Article/details/02671527.shtml)
-- 2026-06-29 11:32 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](http://www.share.minike.top/Article/details/2816436282.shtml)
-- 2026-06-29 11:33 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](http://www.share.minike.top/Article/details/571801.shtml)
-- 2026-06-29 11:43 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](http://www.blog.minike.top/Article/details/74521918.shtml)
-- 2026-06-29 11:41 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](http://www.share.minike.top/Article/details/81167128562.shtml)
-- 2026-06-29 11:25 - [2026人形机器人半马：机器人领先人类19分钟冲线](http://www.share.kurohicncr.top/Article/details/71294034797.shtml)
-- 2026-06-29 11:24 - [雄安智慧农业春日见闻：北斗定垄、AI种花](http://www.share.kurohicncr.top/Article/details/688350431587.shtml)
-- 2026-06-29 11:44 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](http://www.share.kurohicncr.top/Article/details/95763.shtml)
+- 2026-06-29 11:47 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.minike.top/Article/details/67212860350.shtml)
+- 2026-06-29 11:34 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.share.kurohicncr.top/Article/details/7556688.shtml)
+- 2026-06-29 11:55 - [OpenAI的安全与治理受到严格审视](http://www.blog.kurohicncr.top/Article/details/40547202.shtml)
+- 2026-06-29 12:00 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.blog.kurohicncr.top/Article/details/78475876605.shtml)
+- 2026-06-29 11:44 - [证监会严肃查处清越科技财务造假案件](http://www.blog.minike.top/Article/details/8270702.shtml)
+- 2026-06-29 11:52 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](http://www.blog.kurohicncr.top/Article/details/81951170.shtml)
+- 2026-06-29 11:55 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](http://www.blog.kurohicncr.top/Article/details/988251372.shtml)
+- 2026-06-29 11:46 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.blog.kurohicncr.top/Article/details/13020.shtml)
+- 2026-06-29 11:40 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](http://www.share.minike.top/Article/details/1935081967.shtml)
+- 2026-06-29 11:57 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](http://www.share.minike.top/Article/details/055247654515.shtml)
+- 2026-06-29 11:35 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](http://www.share.kurohicncr.top/Article/details/459565.shtml)
+- 2026-06-29 11:38 - [南京：钟山湖畔 鸭趣盎然](http://www.blog.kurohicncr.top/Article/details/592659.shtml)
+- 2026-06-29 11:51 - [中国银联与华为签署战略合作协议](http://www.share.minike.top/Article/details/2644251977.shtml)
+- 2026-06-29 11:49 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lisacumin64-arch)

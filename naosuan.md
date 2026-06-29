@@ -1,58 +1,60 @@
-# 英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业
+# 恒瑞医药香港办公室正式启用
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-据报道，欧盟正在计划放宽大型并购的审批路径，以优先培育能够与美国和中国竞争的全球冠军企业。 根据看到的草案指南，欧盟委员会将在审查交易时，更加重视并购对内部市场“创新、投资和韧性”的促进作用。 这一新思路仍可能调整，但凸显出欧洲观念的转变。在乌克兰战争和伊朗局势的背景下，欧洲对战略自主的关注不断上升。过去，布鲁塞尔曾阻止过德国西门子与法国阿尔斯通等企业的合并，一些人认为这削弱了
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：恒瑞医药 5月8日，恒瑞医药香港办公室启用仪式暨与大中华癌病基金会（Greater China Cancer Foundation，GCCF）慈善合作协议签署仪式于香港举行，香港特别行政区政府引进重点企业办公室（OASES）主任任景信先生；大中华癌病基金会创办人及董事局主席郑锦钟博士与恒瑞医药相关代表
 
 ## 正文
 
-据报道，欧盟正在计划放宽大型并购的审批路径，以优先培育能够与美国和中国竞争的全球冠军企业。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据看到的草案指南，欧盟委员会将在审查交易时，更加重视并购对内部市场“创新、投资和韧性”的促进作用。
+来源：恒瑞医药 5月8日，恒瑞医药香港办公室启用仪式暨与大中华癌病基金会（Greater China Cancer Foundation，GCCF）慈善合作协议签署仪式于香港举行，香港特别行政区政府引进重点企业办公室（OASES）主任任景信先生；大中华癌病基金会创办人及董事局主席郑锦钟博士与恒瑞医药相关代表及负责人出席。
 
-这一新思路仍可能调整，但凸显出欧洲观念的转变。
+今年4月20日，香港特区政府引进重点企业办公室（OASES，简称“引进办”）举行新一批重点企业签署仪式，恒瑞医药正式签约成为引进办新一批重点引进企业之一。
 
-在乌克兰战争和伊朗局势的背景下，欧洲对战略自主的关注不断上升。
+此次香港办公室正式启用，标志着恒瑞进一步完善港澳业务布局，强化服务粤港澳大湾区患者的在地能力，也体现了公司持续推进全球化发展的长期承诺。
 
-过去，布鲁塞尔曾阻止过德国西门子与法国阿尔斯通等企业的合并，一些人认为这削弱了欧洲企业与中美公司的竞争能力。
+引进办主任任景信先生表示：“代表引进重点企业办公室向恒瑞香港办公室开幕表示衷心的祝贺。
 
-此次对并购审查指南及更广泛反垄断执法框架的改革，正值跨大西洋在竞争执法问题上的摩擦加剧之际，同时也反映出反垄断政策日益政治化的趋势。
+香港拥有国际化监管体系、临床资源及人才优势，我们期待恒瑞将这些优势与自身创新能力相结合，为本地患者带来更多高质量创新疗法。
 
-欧盟委员会未立即回应置评请求。
+也期待恒瑞以香港作为拓展国际业务的桥梁，将创新药物带向全球市场。
 
-责任编辑：江学思
+” 恒瑞医药总裁冯佶女士表示：“作为中国创新药企代表，恒瑞医药始终坚持以患者为中心，致力于研制更多、更好的创新药，惠及更广泛的患者。
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:36 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:41 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:43 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:24 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:45 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:41 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:39 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:41 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:46 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:48 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:46 - [雄安智慧农业春日见闻：北斗定垄、AI种花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:44 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:41 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:53 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:30 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:48 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:42 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:54 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:59 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:36 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:33 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:51 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:36 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:54 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:51 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:53 - [江西南昌久雨初晴：市民户外享受春光](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/63144347232.shtml)
-- 2026-06-29 11:42 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.blog.kurohicncr.top/Article/details/611325458975.shtml)
-- 2026-06-29 11:34 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.blog.kurohicncr.top/Article/details/451147.shtml)
-- 2026-06-29 11:36 - [广西兴业县举办“三月三”民族团结系列活动](http://www.share.minike.top/Article/details/55947782.shtml)
-- 2026-06-29 11:51 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.blog.kurohicncr.top/Article/details/45564771.shtml)
-- 2026-06-29 11:46 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [美国交通部长：空管岗位12小时内收到6000份申请](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.share.minike.top/Article/details/875767803758.shtml)
-- 2026-06-29 11:33 - [高德公开全球首款开放环境全自主具身机器人，化身智能导盲犬守护视障人士](http://www.blog.kurohicncr.top/Article/details/76706173.shtml)
-- 2026-06-29 11:51 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.blog.kurohicncr.top/Article/details/28645621.shtml)
-- 2026-06-29 11:44 - [侨见重庆武隆 觅文旅、康养合作机遇](http://www.share.kurohicncr.top/Article/details/498854790.shtml)
-- 2026-06-29 11:39 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.blog.minike.top/Article/details/15646153688.shtml)
-- 2026-06-29 11:27 - [苹果在华复苏将安卓对手甩在身后 iPhone出货量增长20%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [第四届中国地方特色预制菜专题研讨会在江苏扬州召开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.blog.kurohicncr.top/Article/details/373569.shtml)
+- 2026-06-29 11:54 - [“续费刺客”如此“近视”，必撞南墻](http://www.share.kurohicncr.top/Article/details/5395390.shtml)
+- 2026-06-29 11:47 - [视频|李大霄：警惕美债务风险](http://www.blog.minike.top/Article/details/8916310924.shtml)
+- 2026-06-29 11:44 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.share.minike.top/Article/details/6641853.shtml)
+- 2026-06-29 11:49 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.minike.top/Article/details/96134019.shtml)
+- 2026-06-29 11:51 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.share.kurohicncr.top/Article/details/072141796.shtml)
+- 2026-06-29 11:42 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.minike.top/Article/details/111568381.shtml)
+- 2026-06-29 11:59 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](http://www.share.kurohicncr.top/Article/details/2828687710.shtml)
+- 2026-06-29 11:41 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.share.minike.top/Article/details/223957.shtml)
+- 2026-06-29 11:59 - [建国250周年之际，美国人逃离美国](http://www.share.minike.top/Article/details/93281781100.shtml)
+- 2026-06-29 11:43 - [Canvas制造商报告重大数据泄露](http://www.share.kurohicncr.top/Article/details/52275546791.shtml)
+- 2026-06-29 11:52 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.share.kurohicncr.top/Article/details/34273.shtml)
+- 2026-06-29 11:44 - [一季度我国黄金消费量同比增长4.41%](http://www.blog.kurohicncr.top/Article/details/882443.shtml)
+- 2026-06-29 11:34 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.blog.minike.top/Article/details/45533.shtml)
+- 2026-06-29 11:40 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](https://github.com/lisacumin64-arch)

@@ -1,61 +1,58 @@
-# AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径
+# 北京人形机器人唐剑：全面提升机器人的泛化能力
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网郑州4月17日电 (陈贵洋)当算力逐步成为基础设施，人工智能正在重塑创业的底层逻辑。“MEET INNOPORT·创见航空港”首期创业沙龙16日在河南郑州航空港经济综合实验区(以下简称郑州航空港区)青合众创青年创业园举行。 “MEET INNOPORT·创见航空港”是郑州航空港区重点打造的创业沙龙品牌。本次活动以“算力链接世界·青年定义未来”为主题，聚焦人工智能OPC(O
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。北京人形机器人创新中心有限公司CTO唐剑出席并演讲。 以下为演讲实录： 唐剑：今天非常荣幸代表北京人形机器人创新中心和大家分享一下我们在开源开放方面的工作。 基本上我的所有分享都是以莫拉维克悖论为开端，这是一个广泛认知的悖论，所谓悖论就是反常识，莫拉维克悖论原话我放在上面
 
 ## 正文
 
-中新网郑州4月17日电 (陈贵洋)当算力逐步成为基础设施，人工智能正在重塑创业的底层逻辑。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-“MEET INNOPORT·创见航空港”首期创业沙龙16日在河南郑州航空港经济综合实验区(以下简称郑州航空港区)青合众创青年创业园举行。
+北京人形机器人创新中心有限公司CTO唐剑出席并演讲。
 
-“MEET INNOPORT·创见航空港”是郑州航空港区重点打造的创业沙龙品牌。
+以下为演讲实录： 唐剑：今天非常荣幸代表北京人形机器人创新中心和大家分享一下我们在开源开放方面的工作。
 
-本次活动以“算力链接世界·青年定义未来”为主题，聚焦人工智能OPC(One Person Company，一人公司)“轻创业”新模式，吸引高校、科研院所、孵化器代表等逾百人参加。
+基本上我的所有分享都是以莫拉维克悖论为开端，这是一个广泛认知的悖论，所谓悖论就是反常识，莫拉维克悖论原话我放在上面，最简单的解读，人和机器是反着的，很多任务人觉得比较简单，但是机器觉得很复杂，反之亦然，这就是为什么机器已经把很复杂的任务，像下围棋给攻破了，但是一些简单的像2、3岁孩童能够做的开门、关门，一些简单的家务工作现在目前机器人还无法做。
 
-作为目前唯一由国务院批复设立的国家级航空经济发展先行区，郑州航空港区正锚定“青年创业乐园、国际创业之都”目标，系统构建“一赛、一会、一政策、十孵化器、N基金、30+生态合作伙伴”创业六要素体系。
+最核心的痛点问题就是，我这边有三页，总而言之就是泛化能力，现在整个具身智能行业解决最核心的问题就是全面提升机器人以及这些具身智能设备的泛化能力，之前机器人在上世纪50年代就已经出现了，当然形态各方面还在演进，即便到目前为止，还是存在场景演化能力差、任务泛化能力差，以及本体泛化能力差，这些痛点问题。
 
-目前已布局3家OPC人工智能创业社区、10家专业创业孵化器，推动科技产业社区建设，打造低成本、高赋能、全周期的创业生态。
+总而言之，基本上我们要解决在某一个场景下的一个任务，我们需要专门的某种机器人的本体，针对这个本体专门写一个程序，这个程序只能控制机器人在特定的场景下完成特定的任务。
 
-活动现场，创业导师杨晏提出，青年创业者“用工具替代人力、用算力替代经验”，核心是把重复性岗位转化为AI智能体工作流，让一个人借助工具矩阵完成原来三五个人才能做的事。
+现在大家说具身智能或者人形机器人特别火，主要大家在解决的问题就是通用性的问题，和AI是一样的，AI大家说目标就是AGI，这个G就是general的意思，整个具身智能也是为了全面提升机器人的泛化能力。
 
-他强调，OPC轻创业模式下，创业者应把80%精力放在场景定义上，算力基础设施由平台打包提供。
+我们创新中心基本上从创立之初，就定下了2个目标、2个任务或者2个产品也好，因为我们自己定位是一个平台型的生态公司，我们主要是希望服务整个具身智能应用以及人形机器人行业的这些开发者，帮助他们开发出能够赋能千行百业进入千家百户的机器人产品，所以我们公司的两个主要产品一个是具身天工，这是一个通用形态的人形机器人，还有慧思开物，我们基本上一直做这两件事情，不断迭代升级，下面跟大家分享一下最新的进展，特别是我们在开源开放方面的一些工作。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:32 - [超3万名日本民众集会反对高市政权危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:38 - [第44届香港电影金像奖红毯仪式举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:31 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:43 - [特朗普：若无法达成协议 或将不延长美伊临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:42 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:47 - [国常会部署推动自贸试验区高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:38 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:33 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:43 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:38 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:48 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:29 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:29 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:38 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:31 - [科学家为无人机安装“氢能心脏”破解续航难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:34 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:55 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:41 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:50 - [2026中国田径街头巡回赛揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:54 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:50 - [恒瑞医药香港办公室正式启用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:32 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:40 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:43 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:51 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](http://www.blog.minike.top/Article/details/1226053105.shtml)
-- 2026-06-29 11:47 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](http://www.blog.minike.top/Article/details/2835593.shtml)
-- 2026-06-29 11:39 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](http://www.share.minike.top/Article/details/0166539258.shtml)
-- 2026-06-29 11:49 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](http://www.share.kurohicncr.top/Article/details/93679623.shtml)
-- 2026-06-29 11:26 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](http://www.blog.minike.top/Article/details/8818623623.shtml)
-- 2026-06-29 11:46 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](http://www.blog.minike.top/Article/details/56615411196.shtml)
-- 2026-06-29 11:39 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](http://www.share.minike.top/Article/details/54172015364.shtml)
-- 2026-06-29 11:32 - [农业农村部：推动猪价合理回升](http://www.blog.minike.top/Article/details/3776398.shtml)
-- 2026-06-29 11:41 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.blog.kurohicncr.top/Article/details/7300534954.shtml)
-- 2026-06-29 11:46 - [国际能源署称中东能源产出恢复需两年时间](http://www.share.minike.top/Article/details/54245282530.shtml)
-- 2026-06-29 11:37 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.blog.kurohicncr.top/Article/details/51994180.shtml)
-- 2026-06-29 11:42 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [西安直飞维也纳国际航线开通](http://www.blog.minike.top/Article/details/51840640.shtml)
-- 2026-06-29 11:52 - [江西南昌久雨初晴：市民户外享受春光](http://www.blog.minike.top/Article/details/375295.shtml)
+- 2026-06-29 11:54 - [美国全球保险公司与伦敦劳合社达成战略分保合作](http://www.blog.kurohicncr.top/Article/details/32474727032.shtml)
+- 2026-06-29 11:47 - [Molson Coors加拿大公司宣派每股0.65加元股息](http://www.share.kurohicncr.top/Article/details/32728690.shtml)
+- 2026-06-29 11:32 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [男子加油逃单同行人对监控比耶](http://www.share.kurohicncr.top/Article/details/557709279458.shtml)
+- 2026-06-29 11:47 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.kurohicncr.top/Article/details/622909887831.shtml)
+- 2026-06-29 11:42 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](http://www.share.kurohicncr.top/Article/details/07557.shtml)
+- 2026-06-29 11:51 - [公安部公布无人机影响铁路安全典型案例](http://www.blog.kurohicncr.top/Article/details/3031060546.shtml)
+- 2026-06-29 11:46 - [特斯拉与亚马逊有望领涨工业板块](http://www.blog.kurohicncr.top/Article/details/76700.shtml)
+- 2026-06-29 11:38 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.share.kurohicncr.top/Article/details/6006431323.shtml)
+- 2026-06-29 11:34 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.blog.kurohicncr.top/Article/details/619122.shtml)
+- 2026-06-29 11:42 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.share.minike.top/Article/details/138399390513.shtml)
+- 2026-06-29 12:00 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.share.kurohicncr.top/Article/details/89645147.shtml)
+- 2026-06-29 11:33 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.share.minike.top/Article/details/253145.shtml)
+- 2026-06-29 11:54 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](https://github.com/lisacumin64-arch)

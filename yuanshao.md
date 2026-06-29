@@ -1,61 +1,58 @@
-# 四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻
+# 这个法国人，真让人刮目相看
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月20日（星期一），今日报刊头条主要内容精华如下： 中国证券报 商业不动产试点提速 REITs市场料持续扩容 近期，我国公募不动产投资信托基金（REITs）市场申报提速，以商业不动产REITs为代表的新品类不断扩容，多只标志性“首单”创新产品亮相。机构人士测算，随着商业不动产REIT
+政坛老将，第四次冲击总统宝座。更让人刮目相看的，是他对华的清醒表态 他就是梅朗雄，法国左翼政党的领导人。 这是一个老资格的法国政治家，74岁的他，可谓屡败屡战。在上次（2022）大选中，他以得票率22%列第三，仅次于法国总统马克龙和国民联盟领导人玛丽娜·勒庞。 老将再次出马，自然不同一般。 在日前接受媒体采访时，梅朗雄明确表示，如果他当选法国总统，他绝对不会支持武力介入“台海冲
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+政坛老将，第四次冲击总统宝座。
 
-4月20日（星期一），今日报刊头条主要内容精华如下： 中国证券报 商业不动产试点提速 REITs市场料持续扩容 近期，我国公募不动产投资信托基金（REITs）市场申报提速，以商业不动产REITs为代表的新品类不断扩容，多只标志性“首单”创新产品亮相。
+更让人刮目相看的，是他对华的清醒表态 他就是梅朗雄，法国左翼政党的领导人。
 
-机构人士测算，随着商业不动产REITs试点步入加速推进阶段，REITs市场将持续扩容。
+这是一个老资格的法国政治家，74岁的他，可谓屡败屡战。
 
-今年以来，交易所已受理的商业不动产REITs拟募集资金规模，已超过去年全年REITs发行总量。
+在上次（2022）大选中，他以得票率22%列第三，仅次于法国总统马克龙和国民联盟领导人玛丽娜·勒庞。
 
-今年新上市REITs规模有望达到千亿元量级，将在盘活存量资产、扩大有效投资、完善资本市场生态等方面发挥重要作用。
+老将再次出马，自然不同一般。
 
-A股罕见！
+在日前接受媒体采访时，梅朗雄明确表示，如果他当选法国总统，他绝对不会支持武力介入“台海冲突”。
 
-不到7万块钱就成陕西旅游第8大股东 4月19日晚，陕西旅游一纸年报引发市场热议。
+他还强调，殖民主义的时代已经终结，法国与中国打交道时需要摆正心态。
 
-持有不足7万元的股票，便能跻身上市公司前十大股东，这在A股实属罕见。
+一个西方政治家，能公开说出来这样一番话，难得，难得，真是很难得。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:36 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:35 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:30 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:40 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:53 - [国际传播纪录片《大道——永远的长征》在北京启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:50 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:34 - [灿能电力拟每10股派息1.66元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:40 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:50 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:52 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:34 - [天臣控股拟折让21.05%配售最多7000万股 净筹约1.03亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:46 - [西南大学120周年校庆高质量发展大会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:52 - [日本突发7.5级强震 震中附近有多个核电站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:51 - [青海果洛：凝聚青年力量 共育民族团结之花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:54 - [直播海报：天舟十号货运飞船发射任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:56 - [澳大利亚学者呼吁反思AUKUS代价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:41 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:54 - [北约国家为特朗普从欧洲撤出更多部队做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:49 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:55 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:52 - [人形机器人与上海创新创业青年对话“谈科创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:56 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:34 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:46 - [2026虹桥国际咖啡文化节启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:55 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:33 - [重庆巴南贴“陆”出海：变过路“流量”为发展“留量”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [第44届香港电影金像奖红毯仪式举行](http://www.share.kurohicncr.top/Article/details/605033.shtml)
-- 2026-06-29 11:33 - [巴西Simpar以1.215亿雷亚尔出售Ciclus Amazônia股份](http://www.share.kurohicncr.top/Article/details/5041570545.shtml)
-- 2026-06-29 11:53 - [特朗普：若无法达成协议 或将不延长美伊临时停火](http://www.share.kurohicncr.top/Article/details/4289482.shtml)
-- 2026-06-29 11:32 - [霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [国常会部署推动自贸试验区高质量发展](http://www.share.minike.top/Article/details/06115.shtml)
-- 2026-06-29 11:29 - [英国金融时报称欧盟拟放宽并购规则 培育全球冠军企业](http://www.blog.minike.top/Article/details/56216877.shtml)
-- 2026-06-29 11:39 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](http://www.share.kurohicncr.top/Article/details/18209148189.shtml)
-- 2026-06-29 11:26 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](http://www.blog.kurohicncr.top/Article/details/363463190414.shtml)
-- 2026-06-29 11:40 - [特朗普过去24小时都忙了什么？（2026-04-19）](http://www.blog.minike.top/Article/details/3826789494.shtml)
-- 2026-06-29 11:25 - [A股“股王”更替见证中国经济新力量](http://www.share.kurohicncr.top/Article/details/284846258.shtml)
-- 2026-06-29 11:35 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](http://www.blog.minike.top/Article/details/200826.shtml)
-- 2026-06-29 11:29 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](http://www.blog.minike.top/Article/details/89559703.shtml)
-- 2026-06-29 11:45 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](http://www.blog.minike.top/Article/details/75821.shtml)
-- 2026-06-29 11:32 - [4月20日人民币对美元中间价报6.8648 下调26个基点](http://www.share.minike.top/Article/details/851712309.shtml)
+- 2026-06-29 11:59 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.blog.kurohicncr.top/Article/details/3167553.shtml)
+- 2026-06-29 11:44 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/883987516914.shtml)
+- 2026-06-29 11:35 - [蚌埠竞逐商业航天产业赛道 已集聚23家相关企业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [2026中国田径街头巡回赛揭幕](http://www.share.kurohicncr.top/Article/details/172794120815.shtml)
+- 2026-06-29 11:45 - [5月8日增减持汇总：世纪华通等5家上市公司拟减持 暂无A股增持（表）](http://www.share.kurohicncr.top/Article/details/566480715.shtml)
+- 2026-06-29 11:38 - [恒瑞医药香港办公室正式启用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](http://www.blog.kurohicncr.top/Article/details/747503796482.shtml)
+- 2026-06-29 11:43 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [山西深挖气候资源潜力 释放气象数据价值](http://www.share.kurohicncr.top/Article/details/3380901536.shtml)
+- 2026-06-29 11:32 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/0127033.shtml)
+- 2026-06-29 11:35 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](http://www.share.kurohicncr.top/Article/details/710419288905.shtml)
+- 2026-06-29 11:57 - [OpenAI的安全与治理受到严格审视](http://www.blog.kurohicncr.top/Article/details/149057.shtml)
+- 2026-06-29 11:44 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](http://www.blog.kurohicncr.top/Article/details/66773.shtml)

@@ -1,61 +1,57 @@
-# 新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动
+# 证监会严肃查处清越科技财务造假案件
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网南宁4月20日电(林浩)为汇聚新的社会阶层人士力量，助力广西建设铸牢中华民族共同体意识示范区，4月18日—19日，“八桂新力量，汇聚建设力——寻美‘广西三月三’ 数智共铸民族情”主题交流活动在广西南宁市举行。 来自上海、江苏、浙江、广东、内蒙古、新疆、宁夏等地的新的社会阶层人士代表与广西各地新的社会阶层人士代表，沉浸式体验“广西三月三”文化，并围绕如何以创新技术赋能民族文
+中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。清越科技涉嫌触及重大违法强制退市情形，
 
 ## 正文
 
-中新网南宁4月20日电(林浩)为汇聚新的社会阶层人士力量，助力广西建设铸牢中华民族共同体意识示范区，4月18日—19日，“八桂新力量，汇聚建设力——寻美‘广西三月三’ 数智共铸民族情”主题交流活动在广西南宁市举行。
+中新网5月8日电 据证监会网站消息，近日，证监会对苏州清越光电科技股份有限公司(简称清越科技)财务造假案件作出行政处罚事先告知。
 
-来自上海、江苏、浙江、广东、内蒙古、新疆、宁夏等地的新的社会阶层人士代表与广西各地新的社会阶层人士代表，沉浸式体验“广西三月三”文化，并围绕如何以创新技术赋能民族文化保护传承，以智能应用促进民族地区经济社会发展等话题座谈交流。
+经查，清越科技2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。
 
-此次活动由广西壮族自治区党委统战部主办，广西新的社会阶层人士联谊会承办。
+证监会拟对上市公司罚款17,288万元，对4名责任人员合计罚款3,300万元并采取4-8年证券市场禁入措施。
 
-活动期间，与会嘉宾通过参加2026年“广西三月三·八桂嘉年华”活动、举办主题交流座谈会、参观广西民族博物馆、考察中国—东盟信息港股份有限公司等方式，深入了解广西民族文化特色和人工智能发展成效。
+清越科技涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
 
-在2026年“广西三月三·八桂嘉年华”活动主会场，看到机器人能够灵活自如地跳起竹竿舞，广东省新的社会阶层人士联合会副秘书长吴卫南鼓掌点赞。
+证监会已冻结清越科技募集资金相关账户，目前正在对中介机构执业情况开展调查。
 
-他说，广西在推动人工智能技术集成和应用方面成果显著，期待粤桂两地新阶层人士加强合作，共同推进人工智能技术在实体经济领域的规模化应用，探索构建发展新业态、新模式。
+对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定(二)》的规定移送公安机关。
 
-浙江省新的社会阶层人士联谊会副会长、浙江浙商健投资产管理有限公司董事长彭涛表示，将发挥浙江在人工智能产业技术、人才和资金方面的优势，推动浙桂企业实现深入合作。
+目前广发证券、立信会计师事务所、清越科技实际控制人已公开声明将对遭受损失的适格投资者先行赔付，将委托投资者保护机构依法做好支持服务工作。
 
-从事新媒体行业的江苏省无锡市新的社会阶层人士联谊会副会长、无锡每美文化传媒有限公司总经理唐顺涛沉浸式感受记录“广西三月三”文化魅力。
+有关信息后续可通过中国证券投资者保护基金网站(www.sipf.com.cn)专栏等渠道查询，相关投资者可及时关注。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [2026人形机器人半马：机器人领先人类19分钟冲线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:45 - [雄安智慧农业春日见闻：北斗定垄、AI种花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:53 - [第十九届坚果果干食品展盛大开幕 洽洽展位成为人气焦点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:34 - [第139届广交会一期到会境外采购商16.7万名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:39 - [杭州通报一诊所“用一个针头给多人采血”：涉事诊所已停业整顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:24 - [乌克兰基辅发生枪击事件 致数人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:38 - [全球乱局中，中国这块“金字招牌”越来越亮了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:37 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:34 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:46 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:31 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:28 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:52 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:45 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:42 - [南京：钟山湖畔 鸭趣盎然](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:48 - [中国银联与华为签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:50 - [百融智能陈树军：金融领域有用智能体的标准与落地路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:47 - [消息人士称巴基斯坦已将伊朗回应传达给美国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:51 - [中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:37 - [美军称向两艘“违反封锁”的伊朗油轮开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:41 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:53 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:42 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:43 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:44 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.blog.kurohicncr.top/Article/details/7165158.shtml)
-- 2026-06-29 11:50 - [侨见重庆武隆 觅文旅、康养合作机遇](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.share.minike.top/Article/details/14840191661.shtml)
-- 2026-06-29 11:40 - [苹果在华复苏将安卓对手甩在身后 iPhone出货量增长20%](http://www.blog.kurohicncr.top/Article/details/094094098762.shtml)
-- 2026-06-29 11:35 - [第四届中国地方特色预制菜专题研讨会在江苏扬州召开](http://www.blog.minike.top/Article/details/50520774.shtml)
-- 2026-06-29 11:42 - [机器人参加马拉松赛如何散热？高速悬浮泵液冷方案可有效应对](http://www.share.kurohicncr.top/Article/details/636821.shtml)
-- 2026-06-29 11:33 - [翰墨因缘聚花海 两岸书画家走进洛阳国家牡丹园采风](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [新易盛传考虑赴香港上市，计划募资30亿美元](http://www.share.minike.top/Article/details/53002.shtml)
-- 2026-06-29 11:46 - [LPR连续11个月“按兵不动”，年内还有降息空间吗？](http://www.share.kurohicncr.top/Article/details/14105.shtml)
-- 2026-06-29 11:51 - [农业农村部部署2026年种业监管执法工作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [赓续海归先贤精神 上海海归青年插画展开幕](http://www.blog.minike.top/Article/details/434913681.shtml)
-- 2026-06-29 11:31 - [中国高尔夫球巡回赛·绍兴站举行 多国选手挥杆竞逐](http://www.blog.minike.top/Article/details/5730236693.shtml)
-- 2026-06-29 11:53 - [伊朗外长称霍尔木兹海峡开放 油气价格大跌](http://www.blog.kurohicncr.top/Article/details/79345005.shtml)
-- 2026-06-29 11:38 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.blog.kurohicncr.top/Article/details/3159515045.shtml)
-- 2026-06-29 11:51 - [百面崇阳铜鼓奏响“楚超”咸宁主场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [Canvas制造商报告重大数据泄露](http://www.blog.kurohicncr.top/Article/details/9445304.shtml)
+- 2026-06-29 11:51 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.blog.kurohicncr.top/Article/details/58786284528.shtml)
+- 2026-06-29 11:42 - [一季度我国黄金消费量同比增长4.41%](http://www.blog.kurohicncr.top/Article/details/844469339.shtml)
+- 2026-06-29 11:49 - [古特雷斯呼吁美伊保持克制 避免局势进一步升级](http://www.share.kurohicncr.top/Article/details/663059642.shtml)
+- 2026-06-29 11:59 - [国际货币基金组织警告人工智能模型加剧金融系统网络风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [2026青海国际民族传统射箭精英赛系列赛火热开赛](http://www.blog.kurohicncr.top/Article/details/415062292648.shtml)
+- 2026-06-29 11:35 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.share.minike.top/Article/details/65231452712.shtml)
+- 2026-06-29 11:33 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.blog.minike.top/Article/details/16714151.shtml)
+- 2026-06-29 11:39 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](http://www.share.minike.top/Article/details/7267974.shtml)
+- 2026-06-29 11:53 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.blog.kurohicncr.top/Article/details/101087360.shtml)
+- 2026-06-29 11:43 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.blog.minike.top/Article/details/14446819789.shtml)
+- 2026-06-29 11:39 - [最高涨超875%！沪深两大龙头，来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.share.kurohicncr.top/Article/details/09546813646.shtml)
+- 2026-06-29 11:56 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](http://www.blog.minike.top/Article/details/767744064325.shtml)
+- 2026-06-29 11:40 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.blog.kurohicncr.top/Article/details/867058270.shtml)

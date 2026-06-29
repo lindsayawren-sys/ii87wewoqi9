@@ -1,57 +1,57 @@
-# 极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起
+# 美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-4月17日，豪华新能源品牌极氪旗下全新高性能旗舰SUV——极氪8X正式上市。据悉，极氪8X共推出Max版、Ultra版及Ultra+版三个版型，零售价分别为35.68万元起、37.68万元起、42.68万元起；权益后限时售价32.98万元起、34.98万元起、39.98万元起。极氪8X曜影于当日同步上市，零售价50.08万元起，权益后限时售价47.38万元。上市29分钟，大定突
+私营监狱运营商CoreCivic周四发布2026年全年业绩指引，预计调整后EBITDA在4.538亿至4.618亿美元之间，同时其监管设施服务合同预计将带来2.15亿至2.3亿美元的收入贡献。 财务展望 CoreCivic预计2026年全年营收在22亿至23亿美元之间。调整后EBITDA指引中位值为4.578亿美元，高于2025年的约4.2亿美元。公司同时预计全年运营现金流约为
 
 ## 正文
 
-4月17日，豪华新能源品牌极氪旗下全新高性能旗舰SUV——极氪8X正式上市。
+私营监狱运营商CoreCivic周四发布2026年全年业绩指引，预计调整后EBITDA在4.538亿至4.618亿美元之间，同时其监管设施服务合同预计将带来2.15亿至2.3亿美元的收入贡献。
 
-据悉，极氪8X共推出Max版、Ultra版及Ultra+版三个版型，零售价分别为35.68万元起、37.68万元起、42.68万元起；权益后限时售价32.98万元起、34.98万元起、39.98万元起。
+财务展望 CoreCivic预计2026年全年营收在22亿至23亿美元之间。
 
-极氪8X曜影于当日同步上市，零售价50.08万元起，权益后限时售价47.38万元。
+调整后EBITDA指引中位值为4.578亿美元，高于2025年的约4.2亿美元。
 
-上市29分钟，大定突破10000台。
+公司同时预计全年运营现金流约为3.5亿美元，自由现金流约为2亿美元。
 
-业内认为，极氪8X填补了中国品牌在高性能SUV领域的短板，因兼顾顶级性能、极致操控、高端舒适与前沿智能，极氪8X与宝马 M、奔驰 AMG、奥迪 RS等传统性能标杆直接竞争，被网友誉为“新公路之王”。
+CSP收入来源 新增的Custody, Security, and Programs（监禁、安保与项目服务,CSP）收入主要来自与美国法警署及移民与海关执法局签订的监管设施服务合同。
 
-以硬核实力铸就“新公路之王”，进入BBA核心优势领域 作为与极氪9X同源打造的旗舰车型，极氪8X具备SEP浩瀚超级电混、浩瀚AI数字底盘、浩瀚安全盔甲、千里浩瀚G-ASD辅助驾驶系统四大核心能力。
+公司表示，近期多份政府合同的续签和扩建为其提供了稳定的收入来源。
 
-在核心架构与动力性能上，新车基于浩瀚-S超级电混架构打造，搭载全球首个全栈900V高压混动架构、SEP浩瀚超级电混系统，配备6C混动电池、2.0T混动专用发动机及145kW同级高功率增程发电机，覆盖纯电、增程、混动多种驱动模式。
+此外，CoreCivic还受益于美墨边境拘留需求的增加。
 
-新车还采用行业首发的AI智慧能源管理系统，有效补齐燃油高性能车与传统增程车型在动力与能耗平衡方面的短板。
+资本配置计划 CoreCivic同时宣布了一项直至2027年底的5亿美元股票回购计划，并计划将2026年自由现金流的约50%用于回购和偿还债务。
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:36 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:26 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:38 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:41 - [产品业绩回撤38.53%，昔日百亿私募同犇投资最新回应：从来不是只买消费，AI产业链去年开始就有不少仓位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:50 - [金价下跌 霍尔木兹海峡再度中断引发通胀担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:33 - [农业农村部：推动猪价合理回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:31 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:34 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:51 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:24 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:56 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:47 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:52 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:47 - [酒价内参5月11日价格发布：青花郎上涨5元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:58 - [清越科技涉嫌欺诈发行、财务造假，拟被罚2亿元，中介机构、实控人声明：将先行赔付！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:37 - [公安部公布无人机影响铁路安全典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:47 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:34 - [普京谈与泽连斯基会面：不主动，不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:58 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:51 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:49 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.blog.kurohicncr.top/Article/details/42386004.shtml)
-- 2026-06-29 11:28 - [专家：金价翻倍没有悬念](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](http://www.blog.kurohicncr.top/Article/details/49223076670.shtml)
-- 2026-06-29 11:41 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.share.minike.top/Article/details/425532699717.shtml)
-- 2026-06-29 11:39 - [习言道｜让互联网更好造福国家和人民](http://www.share.kurohicncr.top/Article/details/756267728800.shtml)
-- 2026-06-29 11:33 - [消费升级+投资优化 一季度内需引擎动力增强](http://www.blog.kurohicncr.top/Article/details/086188313.shtml)
-- 2026-06-29 11:39 - [于和伟、张若昀纷纷声明！爱奇艺回应：入驻不等于授权](http://www.blog.kurohicncr.top/Article/details/29455933155.shtml)
-- 2026-06-29 11:52 - [Astro Offshore新增MPSV，扩展水下作业能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [美国债市：国债走高 交易员上调对美联储年内降息押注](http://www.blog.minike.top/Article/details/18435945.shtml)
-- 2026-06-29 11:49 - [松延动力创始人姜哲源揭秘参赛机器人技术升级：续航加强、扭矩提升超一倍](http://www.blog.minike.top/Article/details/9042794.shtml)
-- 2026-06-29 11:36 - [易方达如意安悦3个月持有混合（FOF）今日首发 打造多元配置新选择](http://www.blog.kurohicncr.top/Article/details/512247669755.shtml)
-- 2026-06-29 11:41 - [陈茂波：香港将公布第六批引进重点企业](http://www.share.minike.top/Article/details/76208012.shtml)
-- 2026-06-29 11:53 - [33岁确诊胃癌晚期，她错过了身体4次“求救信号”](http://www.blog.minike.top/Article/details/5660849220.shtml)
-- 2026-06-29 11:50 - [黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [宁波前湾新区文旅提质升级 打造长三角全域度假新高地](http://www.blog.kurohicncr.top/Article/details/6941757593.shtml)
+- 2026-06-29 11:37 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](http://www.share.kurohicncr.top/Article/details/7649198257.shtml)
+- 2026-06-29 11:37 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.minike.top/Article/details/7874706249.shtml)
+- 2026-06-29 11:36 - [无人机事件应对不力 拉脱维亚防长遭解职](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.minike.top/Article/details/25104093623.shtml)
+- 2026-06-29 11:59 - [特朗普将访华 中国外交部介绍具体安排](http://www.blog.kurohicncr.top/Article/details/421486077382.shtml)
+- 2026-06-29 11:34 - [国家统计局：4月份CPI温和回升，PPI涨幅扩大](http://www.share.minike.top/Article/details/9761903916.shtml)
+- 2026-06-29 11:38 - [重提审计美国最大金库！特朗普怀疑诺克斯堡金库中金条被偷](http://www.blog.minike.top/Article/details/48906111273.shtml)
+- 2026-06-29 11:44 - [特朗普：俄乌停火可能持续超过3天](http://www.share.kurohicncr.top/Article/details/21238031.shtml)
+- 2026-06-29 11:37 - [美银与高盛因通胀风险及就业数据，推迟下调美联储降息预期](http://www.share.kurohicncr.top/Article/details/186967.shtml)
+- 2026-06-29 11:31 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.blog.kurohicncr.top/Article/details/082931108760.shtml)
+- 2026-06-29 11:33 - [湖北加速打造光电子信息产业世界级集群](http://www.share.minike.top/Article/details/720712.shtml)
+- 2026-06-29 11:35 - [人工智能科技伦理审查与服务先导计划启动](http://www.share.kurohicncr.top/Article/details/0539643008.shtml)
+- 2026-06-29 11:57 - [存储芯片股持续飙升：美光与闪迪的上涨动力何在](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [美军称执行对伊海上封锁已使58艘商船改变航向](http://www.share.kurohicncr.top/Article/details/03313.shtml)
+- 2026-06-29 11:38 - [“存款搬家”了吗？多家银行定期存款占比继续攀升，业内：最多不同银行之间迁移](http://www.blog.minike.top/Article/details/048096061056.shtml)

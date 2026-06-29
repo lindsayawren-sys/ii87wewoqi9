@@ -1,49 +1,60 @@
-# 地平线机器人-W于4月17日斥资287.1万港元回购39.42万股
+# 东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-地平线机器人-W（09660）发布公告，于2026年4月17日斥资287.1万港元回购39.42万股。责任编辑：卢昱君
+中新社济南5月9日电 题：海峡两岸琉璃艺术如何共舞世界艺林？ ——专访台湾女演员、琉璃工房创始人、琉璃艺术家杨惠姗 中新社记者 李欣 2008年，琉璃烧制技艺入选第二批国家级非物质文化遗产名录。在两岸艺术家的携手耕耘下，中国琉璃走出国门，成为向世界讲述东方哲思的载体之一。 杨惠姗是中国现代琉璃艺术的重要推动者之一，她与张毅共同创办了琉璃工房，恢复了失传的琉璃脱蜡铸造法，创作出富
 
 ## 正文
 
-地平线机器人-W（09660）发布公告，于2026年4月17日斥资287.1万港元回购39.42万股。
+中新社济南5月9日电 题：海峡两岸琉璃艺术如何共舞世界艺林？
 
-责任编辑：卢昱君
+——专访台湾女演员、琉璃工房创始人、琉璃艺术家杨惠姗 中新社记者 李欣 2008年，琉璃烧制技艺入选第二批国家级非物质文化遗产名录。
+
+在两岸艺术家的携手耕耘下，中国琉璃走出国门，成为向世界讲述东方哲思的载体之一。
+
+杨惠姗是中国现代琉璃艺术的重要推动者之一，她与张毅共同创办了琉璃工房，恢复了失传的琉璃脱蜡铸造法，创作出富含中国表达与人文思想的琉璃作品。
+
+近日，杨惠姗接受中新社“东西问”专访，畅谈两岸琉璃艺术的传承创新与融合发展，讲述未来海峡两岸琉璃艺术如何共舞世界艺林。
+
+现将访谈实录摘要如下： 中新社记者：您从何时开始接触琉璃艺术？
+
+它吸引您的地方在哪里？
+
+琉璃工房目前在世界形成了怎样的发展规模和布局？
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:41 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:25 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:49 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:38 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:51 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:50 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:30 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:33 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:40 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:31 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:54 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:50 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:46 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:31 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:38 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:45 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:35 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:36 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:37 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:47 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:50 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:40 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:45 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:55 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:42 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:33 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:43 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:55 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](http://www.share.kurohicncr.top/Article/details/10840384.shtml)
-- 2026-06-29 11:32 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.kurohicncr.top/Article/details/790635.shtml)
-- 2026-06-29 11:54 - [三亚与7家境外经贸合作区集中签约](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.blog.minike.top/Article/details/743393090.shtml)
-- 2026-06-29 11:30 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.kurohicncr.top/Article/details/221555300653.shtml)
-- 2026-06-29 11:46 - [OpenAI “Sora之父”宣布离职](http://www.blog.minike.top/Article/details/634472332449.shtml)
-- 2026-06-29 11:26 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.kurohicncr.top/Article/details/41447979.shtml)
-- 2026-06-29 11:32 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.share.kurohicncr.top/Article/details/477587.shtml)
-- 2026-06-29 11:32 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.blog.minike.top/Article/details/110488282.shtml)
-- 2026-06-29 11:27 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.share.minike.top/Article/details/112064951250.shtml)
-- 2026-06-29 11:50 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.kurohicncr.top/Article/details/688856514754.shtml)
-- 2026-06-29 11:52 - [吉林大学春花绽放春意浓](http://www.share.kurohicncr.top/Article/details/53176.shtml)
-- 2026-06-29 11:47 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.share.minike.top/Article/details/588037.shtml)
-- 2026-06-29 11:42 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.share.kurohicncr.top/Article/details/6906175166.shtml)
-- 2026-06-29 11:34 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.kurohicncr.top/Article/details/24861647.shtml)
+- 2026-06-29 11:31 - [酒价内参5月11日价格发布：飞天茅台下跌2元](http://www.blog.minike.top/Article/details/444044.shtml)
+- 2026-06-29 11:47 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.kurohicncr.top/Article/details/395514194.shtml)
+- 2026-06-29 11:44 - [韩国产业部长与美方官员洽谈投资协议](http://www.share.minike.top/Article/details/089458788476.shtml)
+- 2026-06-29 11:56 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.share.kurohicncr.top/Article/details/22450951.shtml)
+- 2026-06-29 11:46 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.share.kurohicncr.top/Article/details/922855241.shtml)
+- 2026-06-29 11:58 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/52417.shtml)
+- 2026-06-29 11:41 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.share.kurohicncr.top/Article/details/847492967.shtml)
+- 2026-06-29 11:42 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.blog.kurohicncr.top/Article/details/802072128517.shtml)
+- 2026-06-29 11:49 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.share.kurohicncr.top/Article/details/153472774769.shtml)
+- 2026-06-29 11:31 - [第23届世界乳腺健康大会在天津举行](http://www.blog.kurohicncr.top/Article/details/0985197014.shtml)
+- 2026-06-29 11:42 - [突发！美联储，降息预期生变！](http://www.blog.kurohicncr.top/Article/details/700210968.shtml)
+- 2026-06-29 11:57 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/87205.shtml)

@@ -1,61 +1,60 @@
-# 2026全球豫商大会启幕 AI与机器人企业青睐河南机遇
+# 文化观察：AI时代 “美商”如何守住人的感知力？
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社郑州4月18日电 (王宇)2026全球豫商大会18日在郑州启幕，来自海内外的数百位豫商代表共谋发展之策，其中人工智能(AI)与智能机器人成为焦点。 由中共河南省委、河南省政府主办的本届豫商大会以“河南新发展 豫商新机遇”为主题，旨在搭建产业、智力、资源等多方面的合作平台，深化与海内外豫商的全方位合作。 自2026年央视春晚走红之后， 机器人产业备受关注，本届豫商大会亦不例
+中新网杭州5月8日电(林波)当人工智能开始在赋诗中吟咏风月，在画布上雕琢光影，技术迭代的速度似乎模糊了机器与艺术家之间的界限。算法可以精准复刻审美范式，却难以复刻人类对美的共情与思考；机器可以批量生成“完美”作品，却无法赋予作品背后的人文温度与精神内核。 在这股不可逆转的技术洪流中，一个审慎而急迫的文化命题浮出水面：当技术无限逼近甚至“超越”人类技能时，我们靠什么来守住作为“人
 
 ## 正文
 
-中新社郑州4月18日电 (王宇)2026全球豫商大会18日在郑州启幕，来自海内外的数百位豫商代表共谋发展之策，其中人工智能(AI)与智能机器人成为焦点。
+中新网杭州5月8日电(林波)当人工智能开始在赋诗中吟咏风月，在画布上雕琢光影，技术迭代的速度似乎模糊了机器与艺术家之间的界限。
 
-由中共河南省委、河南省政府主办的本届豫商大会以“河南新发展 豫商新机遇”为主题，旨在搭建产业、智力、资源等多方面的合作平台，深化与海内外豫商的全方位合作。
+算法可以精准复刻审美范式，却难以复刻人类对美的共情与思考；机器可以批量生成“完美”作品，却无法赋予作品背后的人文温度与精神内核。
 
-自2026年央视春晚走红之后， 机器人产业备受关注，本届豫商大会亦不例外。
+在这股不可逆转的技术洪流中，一个审慎而急迫的文化命题浮出水面：当技术无限逼近甚至“超越”人类技能时，我们靠什么来守住作为“人”的独特防线？
 
-今年3月中旬，河南首家人形机器人4S店在郑州正式开业。
+答案或许是“美”，是藏在人类骨子里的审美感知与精神追求。
 
-深圳市施罗德工业集团有限公司董事长宋有聚作为豫商代表发言时表示，具身智能特种机器人作为面向未来的创新产品，能替代人类完成“脏、险、难、重”任务，期望能在河南实现项目大发展。
+而这份追求的落地，离不开“美商”的培育与提升。
 
-会上，开勒环境科技(上海)股份有限公司董事长卢小波表示，公司正与河南本地高校、科研院所及企业深化合作，依托该省优势产业与特色场景，携手开发更多标杆性人工智能应用，塑造可复制、可推广的“河南模式”。
+5月8日，在杭州南山书屋举行的《美商》新书首发暨读者见面会上，来自图书馆、出版社、高校等领域的文化学者，试图从“美商”这一新鲜的量化概念中，寻找中华美学在当代的价值坐标，更探寻AI时代下，如何通过美商培养，守住人类独有的感知力，让审美成为区分人与机器、滋养精神世界的重要力量。
 
-深圳市众擎机器人科技有限公司CEO赵同阳称，当下人形机器人备受关注，河南正值战略机遇叠加期，政策支持有力，资源优势独特，期待更多AI领域黑科技、硬科技在河南落地应用。
+什么是美商？
 
-(完)
+在《美商》作者、浙江省图书馆副馆长张国樟看来，美商系美丽商数，是指人对美的事物的感知力、理解力、控制力、运用力、创造力。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:31 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:39 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:34 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:37 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:30 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:47 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:42 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:30 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:35 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:34 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:47 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:53 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:45 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:49 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:53 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:38 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:32 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:35 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:32 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:59 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:31 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:30 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:30 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:49 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:53 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:34 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:35 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:47 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.kurohicncr.top/Article/details/3241487.shtml)
-- 2026-06-29 11:43 - [“霸王”助阵“苏超” 文旅体商融合新答卷](http://www.blog.kurohicncr.top/Article/details/82784.shtml)
-- 2026-06-29 11:48 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.minike.top/Article/details/968451.shtml)
-- 2026-06-29 11:26 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.blog.kurohicncr.top/Article/details/93384796.shtml)
-- 2026-06-29 11:45 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.blog.kurohicncr.top/Article/details/8887126710.shtml)
-- 2026-06-29 11:45 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.blog.minike.top/Article/details/8441187.shtml)
-- 2026-06-29 11:36 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.minike.top/Article/details/86258.shtml)
-- 2026-06-29 11:40 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.blog.minike.top/Article/details/88596.shtml)
-- 2026-06-29 11:28 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/9865497.shtml)
-- 2026-06-29 11:25 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.kurohicncr.top/Article/details/310204728.shtml)
-- 2026-06-29 11:24 - [福特召回至多139万辆F-150皮卡](http://www.blog.minike.top/Article/details/4437365983.shtml)
-- 2026-06-29 11:50 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.blog.kurohicncr.top/Article/details/3427725.shtml)
-- 2026-06-29 11:53 - [伊朗民航组织宣布伊朗部分空域重新开放](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](http://www.blog.minike.top/Article/details/5462250.shtml)
+- 2026-06-29 11:40 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](http://www.share.minike.top/Article/details/084120779011.shtml)
+- 2026-06-29 11:33 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/67202158432.shtml)
+- 2026-06-29 11:47 - [沪指开盘站上4200点 储存芯片概念股强势拉升](http://www.blog.kurohicncr.top/Article/details/782610.shtml)
+- 2026-06-29 11:42 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.blog.kurohicncr.top/Article/details/0579105517.shtml)
+- 2026-06-29 11:56 - [福州马尾至马祖“小三通”客运航线11日双向停航](http://www.share.kurohicncr.top/Article/details/12598.shtml)
+- 2026-06-29 11:30 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/0565390339.shtml)
+- 2026-06-29 11:37 - [北京人形机器人唐剑：全面提升机器人的泛化能力](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [中指研究院：4月北上深租金环比继续上涨](http://www.blog.kurohicncr.top/Article/details/269471443.shtml)
+- 2026-06-29 11:41 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.kurohicncr.top/Article/details/9058261658.shtml)
+- 2026-06-29 11:51 - [成都一中学举办科技节 硬核体验点燃科学梦](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [四川成都：列车穿行紫色花海](http://www.share.kurohicncr.top/Article/details/36221708.shtml)
+- 2026-06-29 11:52 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](https://github.com/lisacumin64-arch)

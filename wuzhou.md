@@ -1,58 +1,59 @@
-# 超3万名日本民众集会反对高市政权危险动向
+# 科学家为无人机安装“氢能心脏”破解续航难题
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 07:34 来源：中国新闻网 当地时间4月19日，大批日本民众在位于东京的国会议事堂前集会，抗议高市早苗政府强推修宪、企图解禁杀伤性武器出口等破坏和平宪法的动向。 集会由反对修宪的日本市民团体组织举行。组织方表示，约3.6万人参加当日集会。 在集会现场，抗议者手持写有“守护宪法第九条”“不要战争”等字样的标语，高喊“反对修宪”“反对战争”“高市
+新华社大连5月10日电(记者蔡拥军、张博群)记者10日从中国科学院大连化学物理研究所获悉，当日，该所研发的“高比功率阴极闭合式风冷电堆”技术在大连通过科技成果鉴定。这款新型电堆是为工业级无人机量身打造的集轻量化、高功率、风冷散热等特点于一体的“氢能心脏”，可使工业级无人机续航时间提升2倍以上。随着低空经济快速发展，传统锂电池续航时间短、现有燃料电池系统较为笨重等问题成为制约无人
 
 ## 正文
 
-发布时间：2026年04月20日 07:34 来源：中国新闻网 当地时间4月19日，大批日本民众在位于东京的国会议事堂前集会，抗议高市早苗政府强推修宪、企图解禁杀伤性武器出口等破坏和平宪法的动向。
+新华社大连5月10日电(记者蔡拥军、张博群)记者10日从中国科学院大连化学物理研究所获悉，当日，该所研发的“高比功率阴极闭合式风冷电堆”技术在大连通过科技成果鉴定。
 
-集会由反对修宪的日本市民团体组织举行。
+这款新型电堆是为工业级无人机量身打造的集轻量化、高功率、风冷散热等特点于一体的“氢能心脏”，可使工业级无人机续航时间提升2倍以上。
 
-组织方表示，约3.6万人参加当日集会。
+随着低空经济快速发展，传统锂电池续航时间短、现有燃料电池系统较为笨重等问题成为制约无人机行业发展的瓶颈。
 
-在集会现场，抗议者手持写有“守护宪法第九条”“不要战争”等字样的标语，高喊“反对修宪”“反对战争”“高市政权下台”等口号，呼吁维护和平宪法。
+为此，经过多年攻关，大连化物所科研团队成功突破多项关键技术，为工业级无人机安装“氢能心脏”，有效破解续航难题。
 
-1947年施行的日本宪法因其第九条规定日本永远放弃以国权发动的战争、武力威胁或武力行使作为解决国际争端的手段，而被称为和平宪法。
+当日，搭载该电堆的氢能无人机成功试飞，关键性能指标表现优异，风冷电堆比功率高达1970瓦/千克，面功率密度达1.15瓦/平方厘米。
 
-日本首相、自民党总裁高市早苗近日在自民党大会上公然宣称，希望明年召开党大会时，能够在提出修宪动议方面取得一定进展，并强调“修宪比以往任何时候都更重要”。
+中国石油和化学工业联合会组织的科技成果鉴定委员会认为，该成果创新性强、技术指标先进，拥有自主知识产权，总体技术达到国际领先水平。
 
-这一表态在日本国内引发大量质疑。
+该项目技术负责人、大连化物所能源催化转化全国重点实验室主任陈忠伟介绍，该项目成功突破了3项关键技术，系统性解决了风冷燃料电池“保水”与“氧传质”的矛盾：一是催化层多尺度调控技术，如同在纳米至毫米尺度对电池反应区进行“立体精装修”，提升了催化活性；二是非对称水分传输技术，为电池内部装上了“单向导湿”的智能皮肤，消除了“干膜”与“水淹”的行业顽疾；三是微通道强化传热与水热耦合技术，将散热与水分管理有效结合，保障了电池在宽温域下的稳定运行。
 
-(朱晨曦 实习生 范珺华 制作 王雪尔） 责任编辑：【田博群】
+目前，该项目已构建起全链条自主研发体系，建成自动化生产线，具备规模化交付能力，成果已成功应用于电力巡检、应急救援等场景中。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [“90后”侨青走进上海虹口 读懂城市文脉与发展活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:43 - [“寒潮”来袭！理财产品规模一季度缩水1.38万亿，投资者收益同比降低21%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:50 - [一季度广东货物以海运方式经海南自贸港进出口同比增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:40 - [特朗普过去24小时都忙了什么？（2026-04-19）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:24 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:32 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:26 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:35 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:45 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:26 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:50 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:48 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:40 - [云创数据（920305）收到处罚告知书，投资者索赔继续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:40 - [东吴证券最新策略：除了算力 还能买什么？看好这两条思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:52 - [险资连续第五个季度加仓！红利类策略人气ETF获资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:32 - [山西深挖气候资源潜力 释放气象数据价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:37 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:47 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:52 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:57 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:56 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:52 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:50 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:42 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:46 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [农业农村部：推动猪价合理回升](http://www.blog.kurohicncr.top/Article/details/969312955.shtml)
-- 2026-06-29 11:41 - [鼎泰丰“回京”热度不减 稳中求进布局大陆北方市场](http://www.blog.minike.top/Article/details/04399698.shtml)
-- 2026-06-29 11:37 - [国际能源署称中东能源产出恢复需两年时间](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [直击广东消防救援力量多举措筑牢防汛救灾安全屏障](http://www.share.kurohicncr.top/Article/details/762691865346.shtml)
-- 2026-06-29 11:25 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [西安直飞维也纳国际航线开通](http://www.share.minike.top/Article/details/23674.shtml)
-- 2026-06-29 11:33 - [江西南昌久雨初晴：市民户外享受春光](http://www.share.kurohicncr.top/Article/details/06329314.shtml)
-- 2026-06-29 11:41 - [2026年巴黎图书节拉开帷幕](http://www.share.kurohicncr.top/Article/details/94635255.shtml)
-- 2026-06-29 11:33 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.share.minike.top/Article/details/6576954464.shtml)
-- 2026-06-29 11:36 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.share.minike.top/Article/details/1760801.shtml)
-- 2026-06-29 11:34 - [广西兴业县举办“三月三”民族团结系列活动](http://www.share.kurohicncr.top/Article/details/119441747232.shtml)
-- 2026-06-29 11:37 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.blog.minike.top/Article/details/8718517.shtml)
-- 2026-06-29 11:37 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [美国交通部长：空管岗位12小时内收到6000份申请](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.share.minike.top/Article/details/45399.shtml)
+- 2026-06-29 11:37 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [普京谈与泽连斯基会面：不主动，不拒绝](http://www.share.kurohicncr.top/Article/details/6616038533.shtml)
+- 2026-06-29 11:38 - [乘网约车救下脑梗司机 两名大学生捐出奖金传递善意](http://www.share.minike.top/Article/details/96078597911.shtml)
+- 2026-06-29 11:31 - [欧洲央行行长拉加德：正仔细权衡伊朗冲突对通胀的影响](http://www.blog.kurohicncr.top/Article/details/808763.shtml)
+- 2026-06-29 11:57 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](http://www.share.minike.top/Article/details/26143430.shtml)
+- 2026-06-29 11:48 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.blog.kurohicncr.top/Article/details/9592876.shtml)
+- 2026-06-29 11:32 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.share.kurohicncr.top/Article/details/630149799735.shtml)
+- 2026-06-29 11:41 - [“续费刺客”如此“近视”，必撞南墻](http://www.blog.kurohicncr.top/Article/details/02965025.shtml)
+- 2026-06-29 11:34 - [视频|李大霄：警惕美债务风险](http://www.blog.minike.top/Article/details/7844889.shtml)
+- 2026-06-29 11:41 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.blog.kurohicncr.top/Article/details/6928396.shtml)
+- 2026-06-29 11:57 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.minike.top/Article/details/77931183756.shtml)
+- 2026-06-29 11:42 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.share.minike.top/Article/details/778856.shtml)
+- 2026-06-29 11:55 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/19509848170.shtml)
+- 2026-06-29 11:52 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.blog.minike.top/Article/details/1342222.shtml)

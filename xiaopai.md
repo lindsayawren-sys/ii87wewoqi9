@@ -1,61 +1,61 @@
-# 琼台同胞欢舞乐聚共庆“三月三”
+# 压缩试验成本 我国室内最大全季冰雪汽车试验基地开建
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网海南东方4月20日电 (记者 符宇群)4月19日晚，2026年“海南三月三·山海同心圆”主会场活动在东方市开幕，台湾少数民族同胞与大陆同胞同台欢舞共庆“三月三”。 主会场开幕式文艺演出通过歌舞、情景表演等形式，以海南自由贸易港建设一线奋斗者的故事为原型，将海南聚焦“五向图强”打造新质生产力重要实践地等内容融入舞台叙事，艺术化呈现各族儿女在推动海南自由贸易港建设中的担当与奉
+昨天(8日)，我国室内最大的全季冰雪汽车试验基地在内蒙古呼伦贝尔开工建设。一年四季都能模拟冰雪环境，这对于汽车的试验有怎样的意义呢？ 记者了解到，这个能模拟全年冰雪的室内试验场景，重点测试智能网联新能源汽车，包括对新能源汽车的三电系统、底盘系统以及飞行汽车等五大功能进行试验。 中国汽车技术研究中心董事长 安铁成：这个试验基地制冷面积达到了14.6万平方米，可以满足智能网联新能源
 
 ## 正文
 
-中新网海南东方4月20日电 (记者 符宇群)4月19日晚，2026年“海南三月三·山海同心圆”主会场活动在东方市开幕，台湾少数民族同胞与大陆同胞同台欢舞共庆“三月三”。
+昨天(8日)，我国室内最大的全季冰雪汽车试验基地在内蒙古呼伦贝尔开工建设。
 
-主会场开幕式文艺演出通过歌舞、情景表演等形式，以海南自由贸易港建设一线奋斗者的故事为原型，将海南聚焦“五向图强”打造新质生产力重要实践地等内容融入舞台叙事，艺术化呈现各族儿女在推动海南自由贸易港建设中的担当与奉献，勾勒出海南各民族交往交流交融、同心奋斗的时代图景。
+一年四季都能模拟冰雪环境，这对于汽车的试验有怎样的意义呢？
 
-“看到这种场景，我们非常感动，就像‘台湾丰年祭’盛况。
+记者了解到，这个能模拟全年冰雪的室内试验场景，重点测试智能网联新能源汽车，包括对新能源汽车的三电系统、底盘系统以及飞行汽车等五大功能进行试验。
 
-”台湾少数民族同胞林金辉告诉中新网记者，他们抱着非常喜乐的心，与大陆同胞共舞，“代表着两岸一家亲，兄弟一条心”。
+中国汽车技术研究中心董事长 安铁成：这个试验基地制冷面积达到了14.6万平方米，可以满足智能网联新能源汽车低温冰雪环境下，共计60余项寒区测试工况需求。
 
-林金辉说，参加活动期间，他们还前往东方市民族地区参观交流，大家真切感受到两岸文化同根同源、一脉相承，许多习俗、技艺与审美都有着相通之处。
+中汽中心负责人表示，眼下智能新能源汽车快速发展，新技术不断迭代，新车型的研发周期已经缩短至18个月。
 
-他将把此行所见所闻分享给台湾的乡亲、朋友，并期待今后带更多台湾少数民族同胞前来，与大陆同胞共叙情谊、同欢同乐。
+在这18个月中，汽车研发要经历夏季高温、冬季高寒等试验验证。
 
-“三月三”是海南人民世代相传的传统佳节、各族群众共庆共享的文化活动，是中华优秀传统文化的重要组成部分，也是铸牢中华民族共同体意识、促进各民族交往交流交融的重要平台。
+而我国的冬季测试往往只有4个月的窗口期。
 
-2026年“海南三月三·山海同心圆”活动以“铸牢中华民族共同体意识 共启海南自贸港远航新程”为主题，设东方主会场及17个分会场，推出了一系列精彩的节目和活动。
+因此，建设这个全季冰雪试验基地，可以有效解决整车研发的高寒验证不再“看天吃饭”，压缩试验成本、提升研发效率。
 
 ## 相关推荐
 
-- 2026-06-29 11:49 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:24 - [中国驻日使馆连遭威胁 外交部四字警告日方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:33 - [广西岑溪“村味擂台”亮相“三月三” 民俗与文明集市“双向奔赴”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:46 - [广西财政强化资金保障 筑牢基层应急管理“第一道防线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:49 - [广西百色5岁走失男童已不幸身亡，当地通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:41 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:24 - [中国创新正在全方位加速突破](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:32 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:29 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:34 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:28 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:25 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:48 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:29 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:37 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:54 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:54 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:34 - [新疆女星维妮娜：新疆棉故事就是“民族团结”鲜活见证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:40 - [凯西·伍德看好SpaceX与特斯拉自动驾驶出租车需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:51 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:59 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:52 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:35 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:49 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:35 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:57 - [（乡村行·看振兴）方寸庭院生“金”记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:44 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:45 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:34 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.share.kurohicncr.top/Article/details/881932190659.shtml)
-- 2026-06-29 11:46 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](http://www.blog.minike.top/Article/details/274272854.shtml)
-- 2026-06-29 11:44 - [涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万](http://www.share.minike.top/Article/details/96999872.shtml)
-- 2026-06-29 11:29 - [2026全球豫商大会启幕 AI与机器人企业青睐河南机遇](http://www.share.kurohicncr.top/Article/details/222376.shtml)
-- 2026-06-29 11:28 - [苏林、查波访华为何要去广西、湖南？](http://www.blog.minike.top/Article/details/65096782.shtml)
-- 2026-06-29 11:45 - [日本东北部沿海地区发生7.4级地震 已发布海啸警报](http://www.share.kurohicncr.top/Article/details/16719485428.shtml)
-- 2026-06-29 11:26 - [（文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟](http://www.share.minike.top/Article/details/8580931097.shtml)
-- 2026-06-29 11:37 - [度小满冠名《浪姐7》陷舆论反噬：透视助贷平台下沉的困局](http://www.share.minike.top/Article/details/362749851054.shtml)
-- 2026-06-29 11:39 - [2026江苏省侨界中餐厨艺大赛在无锡启动](http://www.share.minike.top/Article/details/8699096662.shtml)
-- 2026-06-29 11:28 - [中信建投：创业板新高后，还有多少空间？](http://www.blog.minike.top/Article/details/713666.shtml)
-- 2026-06-29 11:30 - [多国客商齐聚河南长垣 共觅起重装备商机](http://www.share.kurohicncr.top/Article/details/14470693.shtml)
-- 2026-06-29 11:27 - [书香换花香 浙江杭州孔庙书市启幕](http://www.blog.kurohicncr.top/Article/details/66892093.shtml)
-- 2026-06-29 11:47 - [2026年河南省篮球城市联赛在古都安阳开赛](http://www.share.minike.top/Article/details/821145148137.shtml)
-- 2026-06-29 11:32 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](http://www.share.minike.top/Article/details/5757608.shtml)
-- 2026-06-29 11:41 - [为投资者创收1619亿元！一季度理财“成绩单”来了](http://www.blog.minike.top/Article/details/8185830.shtml)
+- 2026-06-29 11:47 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.blog.minike.top/Article/details/83573267488.shtml)
+- 2026-06-29 11:36 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/141439753.shtml)
+- 2026-06-29 11:40 - [中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片](http://www.share.minike.top/Article/details/717431.shtml)
+- 2026-06-29 11:39 - [文化观察：AI时代 “美商”如何守住人的感知力？](http://www.blog.kurohicncr.top/Article/details/04337221968.shtml)
+- 2026-06-29 11:41 - [火箭公司业绩超预期，AI与收购加速扭亏为盈](http://www.blog.minike.top/Article/details/8158361.shtml)
+- 2026-06-29 11:54 - [广州827项度夏项目全面投运 筑牢夏季供电“安全堤”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [兴化股份（002109）遭证监会立案调查，受损股民可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:49 - [Datadog受AI驱动业绩超预期并上调指引，股价飙升](http://www.share.kurohicncr.top/Article/details/33894784.shtml)
+- 2026-06-29 11:50 - [摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求](http://www.share.kurohicncr.top/Article/details/088505.shtml)
+- 2026-06-29 11:41 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](http://www.blog.kurohicncr.top/Article/details/5523017952.shtml)
+- 2026-06-29 11:32 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](http://www.share.minike.top/Article/details/292061.shtml)
+- 2026-06-29 11:54 - [权威快报|增长14.9% 我国外贸延续良好增长态势](http://www.blog.kurohicncr.top/Article/details/336708560717.shtml)
+- 2026-06-29 11:46 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](http://www.share.kurohicncr.top/Article/details/10328941.shtml)
+- 2026-06-29 11:58 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](http://www.share.kurohicncr.top/Article/details/694486733.shtml)

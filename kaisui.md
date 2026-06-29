@@ -1,56 +1,53 @@
-# 旧金山联储行长戴利认为利率处于良好位置
+# 微软在非洲的数据中心因付款问题陷入困境
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-旧金山联邦储备银行行长玛丽·戴利表示，在政策制定者观望伊朗冲突进展之际，利率处于良好位置。 戴利在加利福尼亚州伯克利的活动上表示：“目前，政策处于非常好的位置—略具限制性，但并未对经济形成过度约束，以至于劳动力市场出现疲软”。 “我们今年完全可以保持这样，这将对通胀形成良好制约”。 “如果通胀真的大幅上升—这并非我的基准预期—那么我们就必须上调政策利率；如果发现劳动力市场走弱，
+知情人士表示，微软在东非的一个数据中心项目因该公司要求获得付款保障而与肯尼亚政府产生分歧，导致项目延期。 2024年，微软与总部位于阿联酋的人工智能公司G42合作，计划投资10亿美元在肯尼亚建设数据中心，作为其在东非拓展云计算服务的一部分。 据悉，微软和G42曾要求肯尼亚政府承诺每年购买一定容量的服务，但由于肯尼亚政府无法提供微软要求的保障水平，谈判最终破裂。责任编辑：李桐
 
 ## 正文
 
-旧金山联邦储备银行行长玛丽·戴利表示，在政策制定者观望伊朗冲突进展之际，利率处于良好位置。
+知情人士表示，微软在东非的一个数据中心项目因该公司要求获得付款保障而与肯尼亚政府产生分歧，导致项目延期。
 
-戴利在加利福尼亚州伯克利的活动上表示：“目前，政策处于非常好的位置—略具限制性，但并未对经济形成过度约束，以至于劳动力市场出现疲软”。
+2024年，微软与总部位于阿联酋的人工智能公司G42合作，计划投资10亿美元在肯尼亚建设数据中心，作为其在东非拓展云计算服务的一部分。
 
-“我们今年完全可以保持这样，这将对通胀形成良好制约”。
+据悉，微软和G42曾要求肯尼亚政府承诺每年购买一定容量的服务，但由于肯尼亚政府无法提供微软要求的保障水平，谈判最终破裂。
 
-“如果通胀真的大幅上升—这并非我的基准预期—那么我们就必须上调政策利率；如果发现劳动力市场走弱，或者冲突迅速结束、通胀开始回落，我们也可以作出调整”。
-
-“通常而言，人们会认为油价冲击会对通胀和增长都产生影响，但美国对能源的依赖程度没有那么高，因此对增长的影响可能较小，对通胀的影响可能更大”。
-
-责任编辑：何云
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:50 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:35 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:45 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:28 - [巴基斯坦内政部长前往美使馆讨论美伊第二轮谈判事宜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:43 - [避开昂贵汽油 电动汽车在欧洲主要市场销量飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:53 - [琼台同胞欢舞乐聚共庆“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:41 - [管弦藏诗意 民族交响乐持续拨动青年心弦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:46 - [吉韵东方入春城 中国华服周展示古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:49 - [中国经济圆桌会丨消博会是一个至关重要窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:43 - [三问首季经济：形如何，亮在哪，势怎样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:35 - [泰国类鼻疽疫情今年已确诊732例死亡23例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:35 - [受伊朗战争影响，尿素化肥价格高企，阿根廷小麦生产面临威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:46 - [视频｜李在明首次访印 涉霍尔木兹海峡 呼吁韩印联手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:56 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:33 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:48 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:58 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:59 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:45 - [广州欧美同学会、广州中华职教社非遗文化交流活动走进南沙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:58 - [压缩试验成本 我国室内最大全季冰雪汽车试验基地开建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:43 - [伊武装部队在霍尔木兹海峡水域与美军舰发生“零星冲突”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:43 - [左江科技（300799）起诉证监会败诉，投资者索赔已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:31 - [汤臣集团遭董事局主席徐枫增持22万股 每股作价约2.36港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:30 - [首度超越线下！传统险企线上渠道成购险第一入口 超四成互联网保险消费者用 AI对比产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:54 - [山东推进场景创新 2027年拟培育入库场景超500项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:34 - [Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:34 - [好评中国｜不只看风景，更要入戏：县域经济活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:00 - [育龄女性需警惕系统性红斑狼疮 这些不典型症状可能是预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.blog.minike.top/Article/details/1239875812.shtml)
-- 2026-06-29 11:36 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.share.kurohicncr.top/Article/details/913738324.shtml)
-- 2026-06-29 11:32 - [OpenAI “Sora之父”宣布离职](http://www.blog.minike.top/Article/details/82055887.shtml)
-- 2026-06-29 11:30 - [跨国药械企业竞逐“中国制造”新赛道](http://www.blog.minike.top/Article/details/29076584236.shtml)
-- 2026-06-29 11:30 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.blog.kurohicncr.top/Article/details/911532520726.shtml)
-- 2026-06-29 11:33 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.minike.top/Article/details/2278013020.shtml)
-- 2026-06-29 11:31 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.share.kurohicncr.top/Article/details/31296118.shtml)
-- 2026-06-29 11:42 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](http://www.blog.minike.top/Article/details/32000788775.shtml)
-- 2026-06-29 11:43 - [吉林大学春花绽放春意浓](http://www.share.minike.top/Article/details/22816432.shtml)
-- 2026-06-29 11:27 - [纽约汇市：美元第三周下跌 市场对伊朗和平前景乐观](http://www.blog.kurohicncr.top/Article/details/67622.shtml)
-- 2026-06-29 11:49 - [“东北超”推动文旅体商融合 无形资产变红利](http://www.blog.kurohicncr.top/Article/details/9001182.shtml)
-- 2026-06-29 11:28 - [台湾台中大甲妈祖起驾 开启九天八夜绕境活动](http://www.share.kurohicncr.top/Article/details/46527332604.shtml)
-- 2026-06-29 11:33 - [快讯：现货黄金回落至4750美元/盎司下方，日内跌1.76%](http://www.blog.minike.top/Article/details/530736355.shtml)
-- 2026-06-29 11:28 - [拾光纪·“让互联网更好造福人民、造福世界”，总书记这样嘱托](http://www.blog.minike.top/Article/details/24179583.shtml)
-- 2026-06-29 11:27 - [山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](http://www.share.minike.top/Article/details/69041307.shtml)
+- 2026-06-29 11:43 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [保时捷关停三家子公司裁员500人 持续推进业务转型](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.blog.minike.top/Article/details/68360693.shtml)
+- 2026-06-29 11:46 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.blog.kurohicncr.top/Article/details/82016.shtml)
+- 2026-06-29 11:56 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](http://www.share.kurohicncr.top/Article/details/41467138.shtml)
+- 2026-06-29 11:52 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](http://www.share.kurohicncr.top/Article/details/626013869.shtml)
+- 2026-06-29 11:56 - [第23届世界乳腺健康大会在天津举行](http://www.share.minike.top/Article/details/54664526.shtml)
+- 2026-06-29 11:34 - [突发！美联储，降息预期生变！](http://www.blog.minike.top/Article/details/77240813041.shtml)
+- 2026-06-29 11:46 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.share.minike.top/Article/details/109309613428.shtml)
+- 2026-06-29 11:31 - [OPPO母亲节文案引争议，中国广告协会：坚决抵制扭曲亲情等营销行为](http://www.blog.minike.top/Article/details/7016815.shtml)
+- 2026-06-29 11:46 - [涉疫邮轮20名英国公民回国接受隔离观察](http://www.share.minike.top/Article/details/820795506081.shtml)
+- 2026-06-29 11:52 - [福建推动闽台合作模式向“联合研发、共创品牌”升级](http://www.share.kurohicncr.top/Article/details/0892732601.shtml)

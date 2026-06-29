@@ -1,61 +1,60 @@
-# （文化中国行）千年山歌的“数字迁徙”：从广西唱响东盟
+# 兴化股份（002109）遭证监会立案调查，受损股民可索赔
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社广西柳州4月19日电 题：千年山歌的“数字迁徙”：从广西唱响东盟 作者 林馨 “三月三”假期期间，广西柳州市鱼峰山下歌声不断。身着布依族服饰的韦忠秀对着手机屏幕唱起山歌，直播间里来自中国各地的网友纷纷刷屏。 “90后”韦忠秀是贵州民族大学的硕士研究生，研究方向正是山歌。两年前，她在鱼峰山找到了更大的舞台。“这里有活态的歌圩，有爱歌的人。”韦忠秀回忆起初到鱼峰山时说，她唱了
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。 同日“三连击
 
 ## 正文
 
-中新社广西柳州4月19日电 题：千年山歌的“数字迁徙”：从广西唱响东盟 作者 林馨 “三月三”假期期间，广西柳州市鱼峰山下歌声不断。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。
 
-身着布依族服饰的韦忠秀对着手机屏幕唱起山歌，直播间里来自中国各地的网友纷纷刷屏。
+同日“三连击”：立案+会计差错更正+ST戴帽 初步索赔范围：实施日2025年4月24日至揭露日2026年4月29日之间买入股票，且在揭露日2026年4月29日收盘时仍持有，于2026年4月30日及之后卖出或继续持有而亏损的投资者。
 
-“90后”韦忠秀是贵州民族大学的硕士研究生，研究方向正是山歌。
+（最终以法院判决为准）（兴化股份维权入口） 索赔材料 一、买卖兴化股份（002109）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入兴化股份（002109）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
-两年前，她在鱼峰山找到了更大的舞台。
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
 
-“这里有活态的歌圩，有爱歌的人。
+牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
 
-”韦忠秀回忆起初到鱼峰山时说，她唱了一首歌，很多人就围过来。
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
-如今，她的直播间收获了百万“粉丝”。
+（本文由上海百悦律师事务所牛彬律师供稿，不代表新浪财经立场。
 
-韦忠秀的故事并非个例。
+牛彬律师，已执业25年。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:51 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:25 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:35 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:44 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:50 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:30 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:45 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:48 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:43 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:27 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:25 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:26 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:40 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:53 - [中国试飞院开放日 各型飞机引民众打卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:47 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:58 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:51 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:37 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:39 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:30 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:35 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:49 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:59 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:52 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:51 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:39 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:39 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:42 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.blog.kurohicncr.top/Article/details/88301720407.shtml)
-- 2026-06-29 11:36 - [谷雨：祛湿排浊，双臂“甩起来”](http://www.blog.minike.top/Article/details/214752.shtml)
-- 2026-06-29 11:50 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.blog.minike.top/Article/details/008434050819.shtml)
-- 2026-06-29 11:44 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.share.kurohicncr.top/Article/details/75278.shtml)
-- 2026-06-29 11:53 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.blog.minike.top/Article/details/16892950391.shtml)
-- 2026-06-29 11:28 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.minike.top/Article/details/33994921.shtml)
-- 2026-06-29 11:39 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.share.minike.top/Article/details/161767.shtml)
-- 2026-06-29 11:51 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/83731.shtml)
-- 2026-06-29 11:40 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.minike.top/Article/details/89193.shtml)
-- 2026-06-29 11:42 - [福特召回至多139万辆F-150皮卡](http://www.blog.minike.top/Article/details/43410369225.shtml)
-- 2026-06-29 11:25 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](http://www.share.minike.top/Article/details/688848626.shtml)
-- 2026-06-29 11:51 - [伊朗民航组织宣布伊朗部分空域重新开放](http://www.share.kurohicncr.top/Article/details/786893242.shtml)
-- 2026-06-29 11:49 - [李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 审议通过《中华人民共和国行政复议法实施条例（修订草案）》](http://www.blog.kurohicncr.top/Article/details/1997633556.shtml)
-- 2026-06-29 11:40 - [超3万名日本民众集会反对高市政权危险动向](http://www.blog.kurohicncr.top/Article/details/4268761.shtml)
-- 2026-06-29 11:45 - [第44届香港电影金像奖红毯仪式举行](http://www.share.kurohicncr.top/Article/details/78497105149.shtml)
+- 2026-06-29 11:42 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/0591157.shtml)
+- 2026-06-29 11:55 - [沪指开盘站上4200点 储存芯片概念股强势拉升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.share.kurohicncr.top/Article/details/61483143516.shtml)
+- 2026-06-29 11:40 - [福州马尾至马祖“小三通”客运航线11日双向停航](http://www.blog.minike.top/Article/details/39015235747.shtml)
+- 2026-06-29 11:46 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/91720819153.shtml)
+- 2026-06-29 11:45 - [北京人形机器人唐剑：全面提升机器人的泛化能力](http://www.share.kurohicncr.top/Article/details/164244.shtml)
+- 2026-06-29 11:37 - [中指研究院：4月北上深租金环比继续上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](http://www.blog.kurohicncr.top/Article/details/16680207862.shtml)
+- 2026-06-29 11:50 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.share.kurohicncr.top/Article/details/9328880846.shtml)
+- 2026-06-29 11:58 - [成都一中学举办科技节 硬核体验点燃科学梦](http://www.share.kurohicncr.top/Article/details/882416107.shtml)
+- 2026-06-29 11:48 - [四川成都：列车穿行紫色花海](http://www.blog.kurohicncr.top/Article/details/776859224.shtml)
+- 2026-06-29 11:47 - [一站打卡万余种文创 首届中国新文创市集暨潮玩游园会将在北京举办](http://www.blog.kurohicncr.top/Article/details/0819575.shtml)
+- 2026-06-29 11:56 - [新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾](http://www.share.kurohicncr.top/Article/details/8301911132.shtml)
+- 2026-06-29 11:42 - [科学家为无人机安装“氢能心脏”破解续航难题](http://www.blog.minike.top/Article/details/85792115919.shtml)
+- 2026-06-29 11:30 - [涉及上海绿捷校园餐事件 五起招投标领域系统整治典型案例公布](http://www.blog.kurohicncr.top/Article/details/309657007761.shtml)

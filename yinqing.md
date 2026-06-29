@@ -1,55 +1,57 @@
-# 亚太卫星午前涨近9% 公司为中国卫通控股子公司
+# 面向全球征集 空天信息领域十大前沿问题正式发布
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-亚太卫星（01045）早盘涨超8%，截至发稿，股价上涨8.71%，现报4.12港元，成交额3524.65万港元。 商业航天领域再度升温，在4月17日国家航天局举办的2026年“中国航天日”新闻发布会上，国家航天局相关负责人发布2026年重要任务信息。2026年，中国航天任务继续密集实施：天问二号将接近目标小行星，开展近距离探测；载人航天工程将实施神舟二十三号等载人飞船任务；多型
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。 空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领
 
 ## 正文
 
-亚太卫星（01045）早盘涨超8%，截至发稿，股价上涨8.71%，现报4.12港元，成交额3524.65万港元。
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。
 
-商业航天领域再度升温，在4月17日国家航天局举办的2026年“中国航天日”新闻发布会上，国家航天局相关负责人发布2026年重要任务信息。
+空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领域，对科技进步和产业升级意义重大。
 
-2026年，中国航天任务继续密集实施：天问二号将接近目标小行星，开展近距离探测；载人航天工程将实施神舟二十三号等载人飞船任务；多型重复使用火箭将开展飞行验证；商业航天将以高水平安全保障高质量发展。
+这次遴选发布的空天信息领域十大前沿问题具体包括： ——高性能太空原生芯片设计。
 
-公开资料显示，亚太卫星为中国卫通集团股份有限公司控股子公司。
+——极端环境下的柔性传感。
 
-亚太卫星集团当前运营亚太5C、亚太6C、亚太7号和亚太9号卫星，并通过联营公司运营亚太6D卫星及亚太6E卫星。
+——空天地融合网络无线通信安全认证。
 
-亚太卫星系统覆盖亚洲、欧洲、非洲和大洋洲等全球约75%人口之地区，为广播和电信客户提供优质的卫星转发器、卫星通信与卫星电视广播传输服务。
+——低/零发射功率下的雷达探测。
 
-责任编辑：卢昱君
+——让机器像人一样感知与导航。
+
+——卫星导航失效下的多源融合可信导航。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:48 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:25 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:24 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:37 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:26 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:50 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:36 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:40 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:29 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:46 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:52 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:35 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:39 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:59 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:34 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:59 - [Sound Transit在345亿美元资金缺口下重塑项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:48 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:42 - [下周，两大龙头来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:35 - [东西问丨杨惠姗：海峡两岸琉璃艺术如何共舞世界艺林？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:52 - [消息人士称目前霍尔木兹海峡周边地区局势平静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [蓝莓价格走低 国产品种研发多点推进](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/94871.shtml)
-- 2026-06-29 11:24 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.share.minike.top/Article/details/98141020.shtml)
-- 2026-06-29 11:52 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](http://www.share.kurohicncr.top/Article/details/587563.shtml)
-- 2026-06-29 11:36 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.share.kurohicncr.top/Article/details/5612054.shtml)
-- 2026-06-29 11:48 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.share.kurohicncr.top/Article/details/823160253098.shtml)
-- 2026-06-29 11:40 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.blog.minike.top/Article/details/55415290.shtml)
-- 2026-06-29 11:33 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](http://www.blog.kurohicncr.top/Article/details/38713292103.shtml)
-- 2026-06-29 11:29 - [伊朗：将再次关闭霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/481208.shtml)
-- 2026-06-29 11:36 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.blog.minike.top/Article/details/61949720.shtml)
-- 2026-06-29 11:40 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.kurohicncr.top/Article/details/58610.shtml)
-- 2026-06-29 11:37 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.blog.minike.top/Article/details/0015953141.shtml)
-- 2026-06-29 11:52 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [杨涛：智能体技术推动银行业智能化转型](http://www.blog.kurohicncr.top/Article/details/50733725764.shtml)
+- 2026-06-29 11:52 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](http://www.blog.kurohicncr.top/Article/details/59177.shtml)
+- 2026-06-29 11:44 - [台立法机构通过蓝白版“防务特别条例草案”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.blog.minike.top/Article/details/771514366152.shtml)
+- 2026-06-29 11:49 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](http://www.blog.kurohicncr.top/Article/details/1938175135.shtml)
+- 2026-06-29 11:44 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](http://www.share.kurohicncr.top/Article/details/22546.shtml)
+- 2026-06-29 11:35 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](http://www.blog.minike.top/Article/details/92147.shtml)
+- 2026-06-29 11:33 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.kurohicncr.top/Article/details/526425118308.shtml)
+- 2026-06-29 11:53 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.share.kurohicncr.top/Article/details/762965.shtml)
+- 2026-06-29 11:36 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [德国3月对美出口大幅下滑](http://www.blog.minike.top/Article/details/705721.shtml)
+- 2026-06-29 11:58 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.blog.kurohicncr.top/Article/details/643789066251.shtml)
+- 2026-06-29 11:51 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.blog.kurohicncr.top/Article/details/359058.shtml)

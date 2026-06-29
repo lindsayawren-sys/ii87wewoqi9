@@ -1,58 +1,59 @@
-# CBA常规赛第40轮：福建客场战胜广东
+# 穗港澳青少年家书抒怀 共品年味同守根脉
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社东莞4月18日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮18日晚在东莞继续进行。福建晋江文旅队(简称“福建队”)客场以95:83战胜广东东阳光队(简称“广东队”)。 从历史交锋来看，两队此前共交手53次，广东队49胜4负。上赛季两队交手2次，广东队两战皆胜。此役是两队本赛季首次交锋，双方展开了激烈对攻战。 比赛开始，广东队迅速进入
+中新网广州5月10日电 (记者 蔡敏婕)首届穗港澳青少年《一封家书·我爱中国年》征文大赛颁奖典礼10日在广州举行。来自广州、香港、澳门三地的教育界、文化界人士、获奖学生代表共聚一堂。 在朗诵表演环节，活动精选七篇优秀家书，开篇由六位少年依次引诵。 “我想把西关早茶的精致、澳门杏仁饼的香甜，装进年味礼盒，让世界看见我们的文化根脉。”来自广州市越秀区旧部前小学学生林语曈在《致穗港澳
 
 ## 正文
 
-中新社东莞4月18日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮18日晚在东莞继续进行。
+中新网广州5月10日电 (记者 蔡敏婕)首届穗港澳青少年《一封家书·我爱中国年》征文大赛颁奖典礼10日在广州举行。
 
-福建晋江文旅队(简称“福建队”)客场以95:83战胜广东东阳光队(简称“广东队”)。
+来自广州、香港、澳门三地的教育界、文化界人士、获奖学生代表共聚一堂。
 
-从历史交锋来看，两队此前共交手53次，广东队49胜4负。
+在朗诵表演环节，活动精选七篇优秀家书，开篇由六位少年依次引诵。
 
-上赛季两队交手2次，广东队两战皆胜。
+“我想把西关早茶的精致、澳门杏仁饼的香甜，装进年味礼盒，让世界看见我们的文化根脉。
 
-此役是两队本赛季首次交锋，双方展开了激烈对攻战。
+”来自广州市越秀区旧部前小学学生林语曈在《致穗港澳小伙伴的一封信》中表示，“我们不仅是年味的继承者，更是中华传统文化的传播者”。
 
-比赛开始，广东队迅速进入状态，奎因里外开花，麦考尔跳投得分、王少杰突破上篮得分，开局以13:4领先。
+“有很多年轻人通过‘云团圆’的方式和家人过年。
 
-随后，福建队奋起追分，邹阳、杨曦皓接连三分命中，布罗兹安斯基跳投得分，一度将分差缩小至5分。
+有人说这样年味变淡了，但我却不这么认为。
 
-末段，崔永熙命中三分稳住局面。
+新时代的春节文化，不是抛弃传统，而是用新的方式去守护传统。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [歼-10升空！防以色列袭击，巴基斯坦出动20多架飞机护送伊朗谈判代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:33 - [旧金山联储行长戴利认为利率处于良好位置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:46 - [券商前十座次重排！“两超多强”格局显现，两大业务成新关键赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:43 - [黑龙江干流黑河段平稳开江 较历年提前9天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:28 - [标普500闪现罕见上涨信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [卡沙甘油田就50亿美元哈萨克斯坦硫磺罚款上诉再遭驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:47 - [霍尔木兹海峡开放提振市场，华尔街周五开盘走高，原油价格大跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:38 - [2026金鸡艺术电影展在上海举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:32 - [ZFX山海证券:金矿合作拓展资源前景仍待验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:26 - [做具身智能的银河通用，为什么要花1500多万元向宇树科技买机器人？ | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:35 - [蓝色起源火箭可重复使用助推器着陆 但卫星偏离轨道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:26 - [霍尔木兹海峡开放后多艘船只尝试通行但未竟全功 不确定性犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:42 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:36 - [微软在非洲的数据中心因付款问题陷入困境](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:30 - [武汉融入“三个丝绸之路” 打造内陆开放新高地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:48 - [“文化中国·水立方杯”中文歌曲大赛印尼总决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:58 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:32 - [宏微科技：公司已于4月1日起对部分非核心产品实施调价，平均涨幅约10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:40 - [我国营商环境持续改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:59 - [训修实业将于6月8日派发末期股息每股0.027港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:39 - [第三十六届澳门艺术节揭幕 开启多元艺术之旅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:55 - [保时捷关停三家子公司、裁员500人 持续推进战略重组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:42 - [俄国防部称乌军违反停火安排 对乌军实施对等打击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:36 - [康菲石油获挪威批准重启大埃科菲斯克油田](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:58 - [三大指标领跑全球！中国船企加速布局绿色化智能化领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](http://www.blog.minike.top/Article/details/37919960.shtml)
-- 2026-06-29 11:34 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](http://www.blog.minike.top/Article/details/207180.shtml)
-- 2026-06-29 11:51 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](http://www.blog.minike.top/Article/details/213021405406.shtml)
-- 2026-06-29 11:47 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](http://www.blog.kurohicncr.top/Article/details/5027634103.shtml)
-- 2026-06-29 11:51 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](http://www.share.minike.top/Article/details/79026120.shtml)
-- 2026-06-29 11:38 - [三亚与7家境外经贸合作区集中签约](http://www.share.minike.top/Article/details/0172996.shtml)
-- 2026-06-29 11:39 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](http://www.share.kurohicncr.top/Article/details/97932566.shtml)
-- 2026-06-29 11:47 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](http://www.blog.minike.top/Article/details/41922.shtml)
-- 2026-06-29 11:46 - [OpenAI “Sora之父”宣布离职](http://www.share.kurohicncr.top/Article/details/116497266371.shtml)
-- 2026-06-29 11:50 - [跨国药械企业竞逐“中国制造”新赛道](http://www.share.kurohicncr.top/Article/details/71441.shtml)
-- 2026-06-29 11:29 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](http://www.share.minike.top/Article/details/70549.shtml)
-- 2026-06-29 11:35 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](http://www.share.minike.top/Article/details/99131583898.shtml)
-- 2026-06-29 11:50 - [建平台强队伍见实效 云南探路国企统战新模式](http://www.blog.kurohicncr.top/Article/details/7728078.shtml)
+- 2026-06-29 11:46 - [德国3月对美出口大幅下滑](http://www.blog.kurohicncr.top/Article/details/90769477.shtml)
+- 2026-06-29 11:55 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](http://www.blog.minike.top/Article/details/07428112271.shtml)
+- 2026-06-29 11:36 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](http://www.share.kurohicncr.top/Article/details/222339091708.shtml)
+- 2026-06-29 11:44 - [“中国式安全感”为何圈粉世界（人民时评）](http://www.share.kurohicncr.top/Article/details/4211780.shtml)
+- 2026-06-29 11:31 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](http://www.blog.minike.top/Article/details/49720520495.shtml)
+- 2026-06-29 11:32 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:52 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](http://www.blog.kurohicncr.top/Article/details/71240727.shtml)
+- 2026-06-29 11:58 - [韩国产业部长与美方官员洽谈投资协议](http://www.blog.kurohicncr.top/Article/details/58697886.shtml)
+- 2026-06-29 11:37 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](http://www.blog.minike.top/Article/details/24809468474.shtml)
+- 2026-06-29 11:43 - [保时捷关停三家子公司裁员500人 持续推进业务转型](http://www.share.kurohicncr.top/Article/details/405184.shtml)
+- 2026-06-29 11:49 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](http://www.share.kurohicncr.top/Article/details/383680.shtml)
+- 2026-06-29 11:45 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](http://www.share.kurohicncr.top/Article/details/1029101229.shtml)
+- 2026-06-29 11:36 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lisacumin64-arch)

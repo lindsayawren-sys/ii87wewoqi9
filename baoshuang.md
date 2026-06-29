@@ -1,58 +1,58 @@
-# 霍尔木兹海峡开放后油价大跌，欧洲斯托克600指数涨逾1%
+# 2026中国田径街头巡回赛揭幕
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-欧洲股市周五大幅走高，此前伊朗宣布在以色列与黎巴嫩停火期间开放霍尔木兹海峡，缓解了市场对能源供应中断的担忧，推动投资者重返风险资产。 泛欧斯托克600指数收盘上涨1.2%，多数板块录得涨幅。旅游和休闲板块表现突出，瑞安航空控股公司上涨4.3%。石油和天然气板块逆势下跌1.8%，成为唯一收跌的板块。 伊朗外交部长周五在社交媒体上宣布，配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向
+中新网南京5月10日电 2026中国田径街头巡回赛9日晚在江苏南京拉开新赛季大幕。 当晚，南京雨花万象天地被中国田径街头巡回赛的标识点亮，体育场与街头的次元壁被打破。由江苏本土名将、世界田径锦标赛季军石雨豪领衔，亚洲室内田径锦标赛冠军张溟鲲、全运会冠军舒衡等优秀选手亮相街头巡回赛赛场。 本次比赛是中国田径街头巡回赛2026赛季的首场赛事，由中国田径协会主办。中国田径街头巡回赛携
 
 ## 正文
 
-欧洲股市周五大幅走高，此前伊朗宣布在以色列与黎巴嫩停火期间开放霍尔木兹海峡，缓解了市场对能源供应中断的担忧，推动投资者重返风险资产。
+中新网南京5月10日电 2026中国田径街头巡回赛9日晚在江苏南京拉开新赛季大幕。
 
-泛欧斯托克600指数收盘上涨1.2%，多数板块录得涨幅。
+当晚，南京雨花万象天地被中国田径街头巡回赛的标识点亮，体育场与街头的次元壁被打破。
 
-旅游和休闲板块表现突出，瑞安航空控股公司上涨4.3%。
+由江苏本土名将、世界田径锦标赛季军石雨豪领衔，亚洲室内田径锦标赛冠军张溟鲲、全运会冠军舒衡等优秀选手亮相街头巡回赛赛场。
 
-石油和天然气板块逆势下跌1.8%，成为唯一收跌的板块。
+本次比赛是中国田径街头巡回赛2026赛季的首场赛事，由中国田径协会主办。
 
-伊朗外交部长周五在社交媒体上宣布，配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向所有商船完全开放通行。
+中国田径街头巡回赛携手南京九年，其中男子跳远项目曾举办4次，冠军成绩全部在8米以上。
 
-美国总统特朗普此前宣布以色列和黎巴嫩领导人同意停火10天，并表示伊朗战争“应该很快就会结束”。
+本次比赛竞争激烈，首轮试跳中，全国田径锦标赛季军袁陈龙率先发力，成为首位打开8米的选手。
 
-受此消息影响，原油价格大幅下跌，布伦特原油期货跌破每桶90美元。
+张溟鲲紧随其后，在第二跳跳出8.26米，实现突围，暂列前茅。
 
-市场对通胀压力和能源成本上升的担忧有所缓解，提振了更广泛的市场情绪。
+之后高潮迭起，袁陈龙在第三次试跳再度爆发，成功反超，最终他以8.33米的成绩，打破了石雨豪尘封十年的赛会纪录，强势夺冠，该成绩也是本赛季国内男子跳远最好成绩。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [A股“股王”更替见证中国经济新力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:53 - [北京：香椿宴带动京郊游 衍生品丰富山村体验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:47 - [又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:29 - [AI赋能文旅 2026西安丝路旅博会展示文旅科技新业态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:29 - [4月20日人民币对美元中间价报6.8648 下调26个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:38 - [新的社会阶层人士开展“寻美‘广西三月三’ 数智共铸民族情”活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:32 - [港交所的新挑战与“护城河”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:28 - [报告称中小微外贸企业出口保持韧性 定价权稳步提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:35 - [政策持续催化！绿电概念股4天2板，电力ETF华宝（159146）涨逾1%，超2.8亿资金悄悄加码！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:26 - [美军封锁期间 驱逐舰尾随满载伊朗原油的油轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:29 - [昆明至泰戈尔故乡加尔各答直飞航线复航 各方热盼新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:49 - [男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:44 - [联想控股午前涨超5% 与ATLATL发布AI时代虚拟孵化器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:42 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:33 - [当教育无问西东 温州肯恩大学签约创办20年结硕果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:45 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:55 - [云路股份：5月8日召开业绩说明会，网上公开接待日参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:34 - [证监会严肃查处清越科技财务造假案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:41 - [无人车全链路补能体系在山东青岛发布 可实现自动泊车、充电](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:49 - [浏阳烟花厂爆炸事故伤员病情向好 已有18人出院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:33 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:52 - [辽宁：创多项“中国第一” 工业机器人如何在高端焊装领域实现国产突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:33 - [民生银行拟4545万元受让上海松江民生村镇银行10%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:40 - [中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [印度卢比在亚币中表现最佳 央行据报道对油企购买美元进行窗口指导](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [西安直飞维也纳国际航线开通](http://www.blog.minike.top/Article/details/5565034.shtml)
-- 2026-06-29 11:37 - [江西南昌久雨初晴：市民户外享受春光](http://www.share.kurohicncr.top/Article/details/18294.shtml)
-- 2026-06-29 11:50 - [2026年巴黎图书节拉开帷幕](http://www.blog.minike.top/Article/details/899188647659.shtml)
-- 2026-06-29 11:28 - [韩国和美国一致认为，韩元汇率过度波动是不可取的](http://www.blog.kurohicncr.top/Article/details/82720819753.shtml)
-- 2026-06-29 11:26 - [新阶人士走进成都高新天府长岛 共话数字文创新未来](http://www.blog.kurohicncr.top/Article/details/110915765774.shtml)
-- 2026-06-29 11:42 - [广西兴业县举办“三月三”民族团结系列活动](http://www.share.minike.top/Article/details/475952616639.shtml)
-- 2026-06-29 11:33 - [纳微科技7.1亿元定增背后：账面“不差钱” 实控人方减持套现3.8亿](http://www.blog.kurohicncr.top/Article/details/91717.shtml)
-- 2026-06-29 11:29 - [多国学者：儒学与伊斯兰智慧 能解世界冲突之困](http://www.blog.minike.top/Article/details/51115987.shtml)
-- 2026-06-29 11:34 - [美国交通部长：空管岗位12小时内收到6000份申请](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [AI复合型人才成“香饽饽” 重庆“才聚两江·照母山”青年人才活动月启幕](http://www.blog.minike.top/Article/details/849392465.shtml)
-- 2026-06-29 11:35 - [高德公开全球首款开放环境全自主具身机器人，化身智能导盲犬守护视障人士](http://www.blog.kurohicncr.top/Article/details/1074599.shtml)
-- 2026-06-29 11:28 - [广西梧州半程马拉松火热开赛 万名跑者竞速“岭南古郡”](http://www.share.kurohicncr.top/Article/details/400384.shtml)
-- 2026-06-29 11:49 - [侨见重庆武隆 觅文旅、康养合作机遇](http://www.share.kurohicncr.top/Article/details/181864846.shtml)
-- 2026-06-29 11:24 - [美伊谈判在即，A股下周怎么走？8大机构最新研判](http://www.share.kurohicncr.top/Article/details/63874.shtml)
+- 2026-06-29 11:42 - [高市要建日版“中情局”？不仅是为了重启“军国主义”，还藏着这么多心思！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [美军说向两艘伊朗油轮开火，使其丧失航行能力](http://www.blog.kurohicncr.top/Article/details/8320354493.shtml)
+- 2026-06-29 11:48 - [高原旅行氧气瓶太占背包？充电式便携“充氧宝”提供新解决办法](http://www.share.minike.top/Article/details/29650765.shtml)
+- 2026-06-29 11:37 - [“续费刺客”如此“近视”，必撞南墻](http://www.blog.minike.top/Article/details/130100300.shtml)
+- 2026-06-29 11:32 - [视频|李大霄：警惕美债务风险](http://www.share.kurohicncr.top/Article/details/56618249684.shtml)
+- 2026-06-29 11:48 - [长江有色：11日铜价大涨 下游接货依旧表现谨慎](http://www.share.minike.top/Article/details/753699137.shtml)
+- 2026-06-29 11:52 - [索尼在PS5疲软情况下仍寻求利润增长](http://www.blog.kurohicncr.top/Article/details/663757257550.shtml)
+- 2026-06-29 11:41 - [中国男队3:0击败日本 斩获伦敦世乒赛男团冠军](http://www.share.kurohicncr.top/Article/details/9571005583.shtml)
+- 2026-06-29 11:42 - [【每周经济观察】“两新”成绩单里的民生温度](http://www.share.kurohicncr.top/Article/details/31121.shtml)
+- 2026-06-29 11:37 - [Akamai斩获18亿美元AI云订单，盘前股价飙升27%](http://www.share.kurohicncr.top/Article/details/8243702734.shtml)
+- 2026-06-29 11:30 - [中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等](http://www.blog.minike.top/Article/details/839924.shtml)
+- 2026-06-29 11:54 - [建国250周年之际，美国人逃离美国](http://www.blog.kurohicncr.top/Article/details/65875421245.shtml)
+- 2026-06-29 11:57 - [Canvas制造商报告重大数据泄露](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [银行组织架构优化观察：“瘦身”与“增肌”并举，后续系统支撑是成效关键](http://www.blog.minike.top/Article/details/909208521.shtml)
+- 2026-06-29 11:45 - [一季度我国黄金消费量同比增长4.41%](https://github.com/lisacumin64-arch)

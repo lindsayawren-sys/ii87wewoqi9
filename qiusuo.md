@@ -1,60 +1,51 @@
-# CBA常规赛：辽宁主场收官战不敌浙江
+# 看图学习·人民之心丨读懂“为谁创造业绩”的根本立场
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新社沈阳4月18日电 (记者 韩宏)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮继续进行，辽宁队18日晚主场迎战浙江队，最终以71比76不敌浙江队。 上赛季两队交手2次，辽宁队1胜1负。本赛季两队交手1次，辽宁队0胜1负。从历史交锋来看，辽宁队与浙江队历史上一共交手75次，辽宁队57胜18负。 比赛伊始，辽宁队迅速进入状态，凭借莫兰德与莱迪的双塔组合多次
+“创造业绩，必须解决好为谁创造业绩、创造什么样的业绩、怎样创造业绩的问题。” 习近平总书记在2022年春季学期中央党校(国家行政学院)中青年干部培训班开班式上这句话，深刻揭示了正确政绩观的核心内涵与践行路径，为广大党员干部干事创业指明方向。 从地方到中央，习近平总书记始终把人民放在心中最高位置。《看图学习》“人民之心”系列策划，和您一起重温习近平在地方工作时的点滴瞬间，共同感悟
 
 ## 正文
 
-中新社沈阳4月18日电 (记者 韩宏)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第40轮继续进行，辽宁队18日晚主场迎战浙江队，最终以71比76不敌浙江队。
+“创造业绩，必须解决好为谁创造业绩、创造什么样的业绩、怎样创造业绩的问题。
 
-上赛季两队交手2次，辽宁队1胜1负。
+” 习近平总书记在2022年春季学期中央党校(国家行政学院)中青年干部培训班开班式上这句话，深刻揭示了正确政绩观的核心内涵与践行路径，为广大党员干部干事创业指明方向。
 
-本赛季两队交手1次，辽宁队0胜1负。
+从地方到中央，习近平总书记始终把人民放在心中最高位置。
 
-从历史交锋来看，辽宁队与浙江队历史上一共交手75次，辽宁队57胜18负。
+《看图学习》“人民之心”系列策划，和您一起重温习近平在地方工作时的点滴瞬间，共同感悟总书记始终如一的为民情怀和求真务实的工作作风。
 
-比赛伊始，辽宁队迅速进入状态，凭借莫兰德与莱迪的双塔组合多次冲击浙江队内线得分，俞泽辰远投命中，威尔斯连投带罚接连得分，辽宁队一度以20比11领先。
-
-浙江队外援约翰逊登场后发挥关键作用，辽宁队进攻受阻，浙江队接连追分，首节辽宁队20比16领先。
-
-第二节双方互有攻守，辽宁队以41比36领先结束上半场。
-
-下半场浙江队发起反扑，打出7比0高潮并以43比41将比分反超。
+总监制：骆红秉 总策划：张军 于锋 监 制：伍刚 蔡荣波 王薇 策 划：赵净 关灵子 设 计：刘思岐 刘启阳
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [中越企业昆明面对面交流 碰撞合作机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:41 - [中国经济圆桌会丨群核科技：让更多企业和消费者体验高效便捷的空间智能服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:42 - [严惩“网络黑嘴”造谣诋毁 最高法例举涉胖某公司案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:46 - [演员何润东披项羽铠甲助阵“苏超”宿迁队新赛季首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:33 - [中国将对53个非洲建交国全面零关税 湖南对非贸易迎新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:48 - [特朗普称美国官员将赴巴基斯坦参与谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:48 - [受以色列-黎巴嫩停火消息影响，油价下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:46 - [CBA常规赛第40轮：福建客场战胜广东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:44 - [江苏扬州第十届“春的律动”举行：文艺添彩好地方](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:33 - [香港财政司司长陈茂波：Web3+AI重塑全球金融生态 须确保人类主控干预 完善跨境监管与权责划分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:53 - [联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:42 - [经济观察：轻食，重新定义“吃”的健康价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:36 - [地平线机器人-W于4月17日斥资287.1万港元回购39.42万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:45 - [中越青年相聚广西南宁分享友好故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:54 - [非遗进茶馆 重庆市民品茗感受巴渝文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:58 - [江苏省水利厅原一级巡视员朱海生接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:58 - [余额宝收益率为何跌破“1”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:50 - [西班牙发现一例汉坦病毒疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:45 - [福建龙岩：“绿巨人”矿卡奔赴西藏高原“上岗”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:38 - [河南洛阳：2000余株高山牡丹竞相绽放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:35 - [深圳出海中心正式进入实体化运营阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:39 - [穗港澳青少年家书抒怀 共品年味同守根脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:34 - [董事长、总经理同日换帅，中泰资管进入“双姜”时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:46 - [Sound Transit在345亿美元资金缺口下重塑项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:45 - [张精科即将入主董事会，杭州银行2026年业绩目标曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [广西百色5岁走失男童已不幸身亡，当地通报](http://www.blog.minike.top/Article/details/06862035264.shtml)
-- 2026-06-29 11:52 - [中国·荆州2026全国历史文化名城羽毛球邀请赛开幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [中国创新正在全方位加速突破](http://www.blog.minike.top/Article/details/8845102.shtml)
-- 2026-06-29 11:49 - [酒价内参4月20日价格发布：茅台系领涨 总价升至九日高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [蓝莓价格走低 国产品种研发多点推进](http://www.blog.kurohicncr.top/Article/details/295630985984.shtml)
-- 2026-06-29 11:36 - [宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行](http://www.share.kurohicncr.top/Article/details/52185124216.shtml)
-- 2026-06-29 11:25 - [“战火重燃”：船只遭扣押、遇袭，美伊停火协议濒临破裂](http://www.share.kurohicncr.top/Article/details/5956688432.shtml)
-- 2026-06-29 11:36 - [山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [曾黎、李志希领衔主演 话剧《寻味》登陆广州大剧院](http://www.blog.minike.top/Article/details/8388283481.shtml)
-- 2026-06-29 11:33 - [“10天订单涨2万+” 张雪机车夺冠后 广交会现场火爆吸睛](http://www.blog.kurohicncr.top/Article/details/05203408.shtml)
-- 2026-06-29 11:53 - [A股收评：超3400只个股飘红，沪指、深指收涨，创业板指收跌](http://www.blog.kurohicncr.top/Article/details/29678736.shtml)
-- 2026-06-29 11:32 - [油气价格大跌 受霍尔木兹海峡开放和止战希望影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [伊朗：将再次关闭霍尔木兹海峡](http://www.blog.minike.top/Article/details/736561738223.shtml)
-- 2026-06-29 11:41 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](http://www.share.kurohicncr.top/Article/details/1893910005.shtml)
-- 2026-06-29 11:49 - [伊朗称将对美军扣押伊朗商船作出回应](http://www.blog.minike.top/Article/details/00580309.shtml)
+- 2026-06-29 11:40 - [北方大部迎强势升温 华北黄淮多地将现今年首个高温天](http://www.share.minike.top/Article/details/95498788.shtml)
+- 2026-06-29 11:39 - [赢家时尚附属透过中信证券认购5000万元基金份额](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [鲁比奥：如果俄乌谈判再无进展 美方不愿再“浪费时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:53 - [杨涛：智能体技术推动银行业智能化转型](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.minike.top/Article/details/503555011.shtml)
+- 2026-06-29 11:48 - [（乡村行·看振兴）方寸庭院生“金”记](http://www.blog.kurohicncr.top/Article/details/218759600112.shtml)
+- 2026-06-29 11:30 - [力劲科技午后涨逾10% 力劲集团95吨超大型机床铸件亮相2026中国国际铸博会](http://www.blog.minike.top/Article/details/659576892103.shtml)
+- 2026-06-29 11:46 - [大美边疆看我家丨云南麻栗坡城子上村：古树奇石伴清泉，傣家水上话风情](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [快来接好运！3条锦鲤接连上岸 满满祝福送给你](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [小摩：比亚迪股份给予“增持”评级 目标价120港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [江西省政协原党组成员、副主席胡幼桃被提起公诉](http://www.blog.minike.top/Article/details/85611403.shtml)
+- 2026-06-29 11:36 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/9254018.shtml)
+- 2026-06-29 11:30 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](http://www.share.minike.top/Article/details/928342339.shtml)
+- 2026-06-29 11:59 - [德国3月对美出口大幅下滑](http://www.blog.minike.top/Article/details/73102.shtml)

@@ -1,52 +1,60 @@
-# 伊朗：将再次关闭霍尔木兹海峡
+# 宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网4月19日电 据英国广播公司(BBC)报道，伊朗伊斯兰革命卫队海军当地时间18日发表声明称，将再次关闭霍尔木兹海峡，禁止商船通行，任何靠近该海峡的船只都将成为攻击目标。 报道称，声明中警告：“任何船只都不得离开其在波斯湾或阿曼海的锚地。” 革命卫队声明称，自17日晚以来，已有数艘船只通过了海峡，但该海峡将再次关闭，直到美国停止对伊朗港口的封锁。 革命卫队补充说：“驶入霍尔
+中新网银川5月8日电 题：宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红” 中新网记者 于晶 5月8日，银川燕鸽湖颐养小镇社区食堂内，刚吃完晚饭的李建功老人走到电视大屏前，屏幕自动弹出测量血压的提醒。这不是人工设置，而是宁夏算力底座搭建的AI康养系统，依据老人健康档案主动推送的。这一幕，是宁夏以数字技术赋能智慧养老的缩影。 当前，中国60周岁及以上老年人口已达3.1亿
 
 ## 正文
 
-中新网4月19日电 据英国广播公司(BBC)报道，伊朗伊斯兰革命卫队海军当地时间18日发表声明称，将再次关闭霍尔木兹海峡，禁止商船通行，任何靠近该海峡的船只都将成为攻击目标。
+中新网银川5月8日电 题：宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红” 中新网记者 于晶 5月8日，银川燕鸽湖颐养小镇社区食堂内，刚吃完晚饭的李建功老人走到电视大屏前，屏幕自动弹出测量血压的提醒。
 
-报道称，声明中警告：“任何船只都不得离开其在波斯湾或阿曼海的锚地。
+这不是人工设置，而是宁夏算力底座搭建的AI康养系统，依据老人健康档案主动推送的。
 
-” 革命卫队声明称，自17日晚以来，已有数艘船只通过了海峡，但该海峡将再次关闭，直到美国停止对伊朗港口的封锁。
+这一幕，是宁夏以数字技术赋能智慧养老的缩影。
 
-革命卫队补充说：“驶入霍尔木兹海峡将被视为与敌人合作，违禁船只将成为打击目标。
+当前，中国60周岁及以上老年人口已达3.1亿，占总人口的22.0%，人口老龄化进程持续加快。
 
-”
+传统养老模式下，人力不足、服务效率偏低等问题日益突出，养老服务智能化转型成为大势所趋。
+
+今年的政府工作报告明确提出“打造智能经济新形态”。
+
+宁夏立足自身资源禀赋，深耕智慧康养赛道，以算力赋能民生养老，为破解老龄化社会难题探索出一条“西北路径”。
+
+作为国家算力网络枢纽和互联网交换“双中心”，宁夏拥有绿色算力成本低、运行稳定性强的显著优势，精准对接智能经济发展与民生养老需求，将算力资源优势转化为康养服务实效。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:46 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:45 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:37 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:39 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:31 - [OpenAI “Sora之父”宣布离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:52 - [跨国药械企业竞逐“中国制造”新赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:44 - [美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:41 - [霍尔木兹海峡开放消息提振米兰股市加速上涨，银行与奢侈品板块飙升，石油股下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:42 - [建平台强队伍见实效 云南探路国企统战新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:25 - [哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:33 - [吉林大学春花绽放春意浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:47 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:54 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:58 - [韩国产业部长与美方官员洽谈投资协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:53 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:51 - [【小新的Vlog】机器人界的“5S店”来了 一站式体验未来生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:51 - [保时捷关停三家子公司裁员500人 持续推进业务转型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:35 - [意大利摄影师埃琳娜在中国用镜头“采集梦想”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:32 - [背靠腾讯、跟阿里抢商标的淘车车，“流血”冲击港股IPO](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:48 - [人均奖金610万，门卫、司机也有？SK海力士天价奖金虚实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:47 - [黄健翔、邓亚萍等现身南京 共话城市文旅与体育事业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:39 - [第23届世界乳腺健康大会在天津举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:39 - [突发！美联储，降息预期生变！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:33 - [美好生活，“体验”一下——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:34 - [绿电概念早盘集体上扬 大唐发电涨超8%龙源电力涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.blog.minike.top/Article/details/80034643.shtml)
-- 2026-06-29 11:34 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.share.minike.top/Article/details/10213019.shtml)
-- 2026-06-29 11:29 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.share.kurohicncr.top/Article/details/794562.shtml)
-- 2026-06-29 11:38 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.share.kurohicncr.top/Article/details/57670761.shtml)
-- 2026-06-29 11:32 - [中国试飞院开放日 各型飞机引民众打卡](http://www.share.kurohicncr.top/Article/details/69054409.shtml)
-- 2026-06-29 11:28 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](http://www.blog.kurohicncr.top/Article/details/46074784.shtml)
-- 2026-06-29 11:42 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](http://www.share.kurohicncr.top/Article/details/2829107.shtml)
-- 2026-06-29 11:52 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](http://www.blog.kurohicncr.top/Article/details/84738.shtml)
-- 2026-06-29 11:49 - [湖北城市足球联赛点燃民众热情 赛事流量变消费增量](http://www.share.kurohicncr.top/Article/details/2376184814.shtml)
-- 2026-06-29 11:38 - [国际传播纪录片《大道——永远的长征》在北京启动](http://www.blog.kurohicncr.top/Article/details/583641.shtml)
-- 2026-06-29 11:35 - [千年古刹云居山谷雨见闻：一叶“攒林茶” 农禅指尖传](http://www.share.kurohicncr.top/Article/details/026220391.shtml)
-- 2026-06-29 11:48 - [灿能电力拟每10股派息1.66元](http://www.share.minike.top/Article/details/95146759276.shtml)
-- 2026-06-29 11:51 - [光鲜销售下的深层危机：亚盛医药的盈利困局与三大致命风险](http://www.blog.kurohicncr.top/Article/details/97371710254.shtml)
-- 2026-06-29 11:30 - [东方证券收购上海证券，又多了一家“前途未卜”的公募，上海证券持有100%股权的前海联合基金咋办？](http://www.blog.minike.top/Article/details/2826915971.shtml)
-- 2026-06-29 11:38 - [巴基斯坦称已为所有“特殊访客”做好特别安保安排](http://www.share.kurohicncr.top/Article/details/538791990277.shtml)
+- 2026-06-29 11:38 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](http://www.blog.kurohicncr.top/Article/details/07192.shtml)
+- 2026-06-29 11:59 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](http://www.blog.minike.top/Article/details/0228690.shtml)
+- 2026-06-29 11:49 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](http://www.blog.kurohicncr.top/Article/details/558619313340.shtml)
+- 2026-06-29 11:31 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](http://www.share.kurohicncr.top/Article/details/3008224.shtml)
+- 2026-06-29 11:35 - [直播海报：天舟十号货运飞船发射任务](http://www.share.minike.top/Article/details/59301916421.shtml)
+- 2026-06-29 11:43 - [澳大利亚学者呼吁反思AUKUS代价](http://www.share.kurohicncr.top/Article/details/100563020242.shtml)
+- 2026-06-29 11:52 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](http://www.blog.kurohicncr.top/Article/details/43410171725.shtml)
+- 2026-06-29 11:31 - [北约国家为特朗普从欧洲撤出更多部队做准备](http://www.blog.kurohicncr.top/Article/details/46827007331.shtml)
+- 2026-06-29 11:52 - [习言道｜父母是孩子的第一任老师](http://www.blog.kurohicncr.top/Article/details/1155645.shtml)
+- 2026-06-29 11:38 - [纳睿雷达完成董事会换届：包晓军当选董事长并任总裁](http://www.blog.minike.top/Article/details/021780042.shtml)
+- 2026-06-29 11:36 - [人形机器人与上海创新创业青年对话“谈科创”](http://www.share.kurohicncr.top/Article/details/160722.shtml)
+- 2026-06-29 11:55 - [一纸侨批跨越山海，《给阿嬷的情书》如何感动全网？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开](http://www.blog.kurohicncr.top/Article/details/55924.shtml)
+- 2026-06-29 11:50 - [2026虹桥国际咖啡文化节启动](http://www.share.kurohicncr.top/Article/details/71136478896.shtml)
+- 2026-06-29 11:52 - [连续8周32场“村超”足球赛在黑龙江集贤火热开赛](http://www.share.minike.top/Article/details/196828.shtml)

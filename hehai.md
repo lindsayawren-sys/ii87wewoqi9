@@ -1,59 +1,57 @@
-# 宁夏兴庆大漠黄河徒步大会启幕 千余人乐享春日文旅健身行
+# 台立法机构通过蓝白版“防务特别条例草案”
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-中新网银川4月18日电 (记者 李佩珊)4月18日，黄沙古渡首届大漠黄河春季徒步大会在宁夏黄沙古渡国家湿地公园启幕，作为“兴庆有约·乐享五一”兴庆区文旅体促消费系列活动首场活动，1000余名徒步爱好者踏上征程，在春日里穿行大漠、湿地与黄河岸线，用脚步丈量塞上独特生态风光。 春日的黄沙古渡，大漠褪去萧瑟，湿地草木萌新，黄河水缓缓流淌，原生态边塞风光尽收眼底。本次徒步活动打造12公
+中新网5月9日电(燕新台)综合台媒报道，8日，台立法机构表决通过7800亿新台币“防务特别条例草案”。民进党民意代表因不满1.25万亿元新台币巨额预算被削减，而集体投下弃权票。有岛内学者认为，相关预算或沦为“保护费”，却得不到切实的所谓“安全保障”。过去几个月，围绕这笔巨额军购预算，岛内已掀起激烈争论。 赖清德主张2030年前将台湾地区防务预算提升至GDP的5%，并计划8年内投
 
 ## 正文
 
-中新网银川4月18日电 (记者 李佩珊)4月18日，黄沙古渡首届大漠黄河春季徒步大会在宁夏黄沙古渡国家湿地公园启幕，作为“兴庆有约·乐享五一”兴庆区文旅体促消费系列活动首场活动，1000余名徒步爱好者踏上征程，在春日里穿行大漠、湿地与黄河岸线，用脚步丈量塞上独特生态风光。
+中新网5月9日电(燕新台)综合台媒报道，8日，台立法机构表决通过7800亿新台币“防务特别条例草案”。
 
-春日的黄沙古渡，大漠褪去萧瑟，湿地草木萌新，黄河水缓缓流淌，原生态边塞风光尽收眼底。
+民进党民意代表因不满1.25万亿元新台币巨额预算被削减，而集体投下弃权票。
 
-本次徒步活动打造12公里精品徒步路线，全程依自然地貌规划，串联补天石集散广场、湿地水车、月牙湖遗址、黄河古韵、古渡口等标志性景点，一步一景切换沙漠雄浑、湿地清幽、黄河壮阔的不同景致。
+有岛内学者认为，相关预算或沦为“保护费”，却得不到切实的所谓“安全保障”。
 
-徒步沿途，主办方设置8处特色打卡点、多处便民补给站均匀分布，既满足徒步爱好者健身打卡需求，也让全程行进更舒适顺畅，不少参与者边走边驻足观赏，用镜头记录大漠黄河相融的春日美景。
+过去几个月，围绕这笔巨额军购预算，岛内已掀起激烈争论。
 
-徒步过程中，爱好者们三两结伴、稳步前行，全程自觉践行“无痕徒步”理念，不随意丢弃垃圾、不破坏生态植被，与周边自然美景融为一体。
+赖清德主张2030年前将台湾地区防务预算提升至GDP的5%，并计划8年内投入总额400亿美元(约合1.25万亿元新台币，下同)用于对美军购。
 
-景区还在沿线推出《丝路长歌·渡口相逢》情景互动体验，设置昭君出塞、河西胡璇、黄河刀客三场情景演绎，一幕幕实景演绎依景展开，让徒步者在行进中与历史场景相遇，沉浸式感受古渡口的丝路文化与边塞风情。
+他还声称，这是因应地区安全局势、强化“不对称作战”能力的所谓“必要投资”。
 
-“一路风景都不一样，沙漠、湿地、黄河挨着走，既能运动健身，又能沉浸式感受宁夏的塞上风光，全程体验感特别好。
+但花费如此多，究竟能买来什么？
 
-”作为有着两年多徒步经验的银川市徒步登山协会会员王世梅，全程走完徒步路线，“这条路线坡度平缓，适合各类徒步爱好者，沿途的服务保障也十分贴心。
+岛内在野阵营、舆论对此提出强烈质疑。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [伊朗：将再次关闭霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:46 - [百胜中国于4月17日斥资773.82万港元回购2.07万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:41 - [伊朗称将对美军扣押伊朗商船作出回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:27 - [特朗普：霍尔木兹海峡已完全开放 但对伊朗海上封锁仍将持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:36 - [2026中小学“汉语桥”多伦多赛区选拔赛圆满收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:53 - [现场视频：美军人员从直升机顺绳而下，控制伊朗货船](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:39 - [贵州纳雍：玛瑙红樱桃迎采摘热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:29 - [从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:48 - [ATFX五度斩获ADVFN最佳拉美地区经纪商 区域领导力再获国际权威认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:45 - [三亚与7家境外经贸合作区集中签约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:46 - [三亚亚沙会临近 主媒体中心试运行赛事氛围渐浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:53 - [法国通过“文物归还法案”，260万件中国文物多少能回归？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:48 - [OpenAI “Sora之父”宣布离职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:39 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:37 - [REIT表现滞后但并非全貌：工业与数据中心的亮眼逆袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:33 - [德国3月对美出口大幅下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:34 - [宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:40 - [海南文昌：天舟十号货运飞船发射任务完成全区合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:45 - [“中国式安全感”为何圈粉世界（人民时评）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:49 - [赵晋平：海南自贸港能为RCEP开放发展提供强劲动力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:40 - [酒价内参5月11日价格发布：飞天茅台下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:39 - [美锦能源转债跌穿面值背后：货币资金无法覆盖未转股余额 业绩续亏氢能故事或难以为继](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:35 - [韩国产业部长与美方官员洽谈投资协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:56 - [神话与隐忧，泡泡玛特值得段永平“抄底”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](http://www.blog.kurohicncr.top/Article/details/50347.shtml)
-- 2026-06-29 11:50 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](http://www.share.minike.top/Article/details/5378962907.shtml)
-- 2026-06-29 11:28 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](http://www.share.kurohicncr.top/Article/details/3546330.shtml)
-- 2026-06-29 11:30 - [中国经济开局良好 外媒：高质量发展助力中国经济更具可持续性](http://www.blog.kurohicncr.top/Article/details/675022.shtml)
-- 2026-06-29 11:30 - [2026“发现宝藏山东”主题旅游年启幕 让宝藏可寻、可感、可品](http://www.blog.minike.top/Article/details/298626.shtml)
-- 2026-06-29 11:35 - [受伊朗局势缓和预期推动，美国股票基金持续获得资金流入](http://www.share.minike.top/Article/details/9149901.shtml)
-- 2026-06-29 11:33 - [中国美术馆与千问AI眼镜开启合作探索，观展迈向“边看边懂”](http://www.share.minike.top/Article/details/8945024.shtml)
-- 2026-06-29 11:53 - [上巳传笺 望江听涛：成都望江楼公园复原明代制笺古礼](http://www.blog.minike.top/Article/details/269166005.shtml)
-- 2026-06-29 11:50 - [拼多多因“幽灵外卖”被罚，法定代表人赵佳臻被处693.73万元罚款](http://www.blog.kurohicncr.top/Article/details/436703600.shtml)
-- 2026-06-29 11:39 - [中国试飞院开放日 各型飞机引民众打卡](http://www.blog.minike.top/Article/details/2083361113.shtml)
-- 2026-06-29 11:35 - [预测市场平台Polymarket计划募资4亿美元 估值达约150亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑](http://www.blog.minike.top/Article/details/035201898758.shtml)
-- 2026-06-29 11:39 - [林毅夫：中国式现代化的成功实践为全球发展中国家提供重要借鉴](http://www.share.kurohicncr.top/Article/details/57855070230.shtml)
+- 2026-06-29 11:31 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](http://www.blog.minike.top/Article/details/773232522854.shtml)
+- 2026-06-29 11:54 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](http://www.share.kurohicncr.top/Article/details/868436.shtml)
+- 2026-06-29 11:41 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [这个法国人，真让人刮目相看](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [“十五五”期间 武汉将亮相一批文旅新地标](http://www.blog.minike.top/Article/details/43132393.shtml)
+- 2026-06-29 11:52 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](http://www.blog.kurohicncr.top/Article/details/55226905656.shtml)
+- 2026-06-29 11:32 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [对话魏建军：长城汽车追求有质量的市场占有率，要坚持长期主义，不是看一招一式、短期的行为](http://www.share.minike.top/Article/details/4759325205.shtml)
+- 2026-06-29 11:45 - [德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度](http://www.share.kurohicncr.top/Article/details/9421989.shtml)
+- 2026-06-29 11:48 - [伊朗媒体报道称：伊朗提议美30天内撤销对伊石油销售制裁](http://www.blog.minike.top/Article/details/899588580898.shtml)
+- 2026-06-29 11:46 - [直播海报：天舟十号货运飞船发射任务](http://www.blog.minike.top/Article/details/04835319.shtml)
+- 2026-06-29 11:40 - [澳大利亚学者呼吁反思AUKUS代价](http://www.share.kurohicncr.top/Article/details/20898.shtml)
+- 2026-06-29 12:00 - [中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛](http://www.share.kurohicncr.top/Article/details/7110651318.shtml)
+- 2026-06-29 11:38 - [北约国家为特朗普从欧洲撤出更多部队做准备](http://www.share.kurohicncr.top/Article/details/134265201.shtml)

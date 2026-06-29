@@ -1,58 +1,61 @@
-# 涉“幽灵外卖”，抖音食品安全总监廖天博被罚超64万
+# 中外民众在京同乐邻里节 擦亮“世界家园·国际邻里”城市名片
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+中新网北京5月10日电 以“世界家园·国际邻里”为主题的北京市朝阳区建外街道第八届社区邻里节10日在建外外交公寓启幕。本次活动以中外文化交融为主线，吸引了来自多国的驻华使馆代表、中外居民、非遗代表性传承人及辖区企业代表，通过非遗展示、亲子共创、文艺展演等丰富环节，共同打造了一场融汇中外文化、国际风采与儿童创意的社区睦邻盛会。 推介多等国文化特色 由建外街道办事处与DRC外交公寓
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
+中新网北京5月10日电 以“世界家园·国际邻里”为主题的北京市朝阳区建外街道第八届社区邻里节10日在建外外交公寓启幕。
 
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
+本次活动以中外文化交融为主线，吸引了来自多国的驻华使馆代表、中外居民、非遗代表性传承人及辖区企业代表，通过非遗展示、亲子共创、文艺展演等丰富环节，共同打造了一场融汇中外文化、国际风采与儿童创意的社区睦邻盛会。
 
-国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕12号 当事人：廖天博 身份证件类型：居民身份证 身份证件号码：略 住址：略 北京抖音科技有限公司存在未依法履行资质审查义务的违法行为，本局于2025年11月20日依法立案调查，当事人系该公司食品安全总监。
+推介多等国文化特色 由建外街道办事处与DRC外交公寓联合举办的第八届社区邻里节，以文化为桥，搭建起了“家门口”的国际文化客厅。
 
-本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
+非遗展示、亲子共创、文艺展演等丰富环节依次开展，现场洋溢着友好、欢乐的温馨氛围。
 
-北京抖音科技有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对北京抖音科技有限公司给予行政处罚。
+“非遗薪传·数智赋能”板块是本次邻里节的特色板块，展现传统文化与现代科技的巧妙结合。
 
-北京抖音科技有限公司上述违法行为持续时间长、涉及店铺多、影响范围广、存在较高的食品安全风险，已构成《中华人民共和国食品安全法实施条例》第七十五条第一款第二项规定的“违法行为性质恶劣”情形。
+数字非遗体验区运用前沿技术打造沉浸式互动场景，让古老的非遗技艺在科技赋能下焕发新生机，吸引了众多中外友人驻足体验。
 
-经查，当事人是北京抖音科技有限公司的食品安全总监，作为该公司食品安全直接负责的主管人员，上一年度取得的相关收入（略）。
+戴上3D眼镜，抬头只见精美的非遗风筝在空中飘荡。
 
-上述事实，主要有以下证据证明：北京抖音科技有限公司的营业执照、增值电信业务经营许可证、网络食品交易第三方平台提供者备案、ICP备案、抖音APP和抖音商城APP的资质证照页面截图；北京抖音科技有限公司提供的《招商标准及入驻规范》《即时零售招商入驻管理规范》《食品饮料行业管理规范》、商家入驻和商品上架的审核逻辑图；对北京抖音科技有限公司委托代理人制作的询问笔录；454家店铺主页、商品页面和资质页面截图；电子数据；审计报告；当事人的身份证明文件、当事人的职务及任职证明材料、当事人上一年度收入证明材料等证据。
+这是利用元宇宙AR技术展示的精美非遗风筝，观众可通过Ymeta猿宇宙3D眼镜沉浸式360度“观看”非遗风筝在真实的天空中飞扬的场景。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [中信建投：创业板新高后，还有多少空间？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:53 - [多国客商齐聚河南长垣 共觅起重装备商机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:42 - [书香换花香 浙江杭州孔庙书市启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:38 - [2026年河南省篮球城市联赛在古都安阳开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:48 - [特斯拉：目前并无在上海超级工厂量产机器人的具体计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:33 - [为投资者创收1619亿元！一季度理财“成绩单”来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:32 - [美国精神航空公司考虑清算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:53 - [从汽车到易拉罐：伊朗战争如何冲击全球铝供应链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:52 - [东西问丨阿齐赞·巴哈鲁丁：“文明冲突论”必须让位于“和平共处论”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:25 - [侧记：一座园林连中法，解码园博会背后的“侨”味道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:31 - [海外华媒侨领走进世界自然遗产地 感受喀斯特地貌奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:27 - [四大证券报头版头条内容精华摘要_2026年4月20日_财经新闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:54 - [【东方潮启】“中国市场不可缺席”：美企纷纷深耕 开放中国何以成全球“稳定锚”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:56 - [网点关停潮？一半全国性银行机构数不降反升，看似“退店”实为“进村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:33 - [权威快报|增长14.9% 我国外贸延续良好增长态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:37 - [中企援助400名巴西贫困家庭子女学鼓乐跳芭蕾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:56 - [中外学者聚首重庆 共商区域国别研究与东盟法学教育合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:32 - [【东西问】中国国民党主席郑丽文同款中山装制作手艺：百年中山装 两岸密密缝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:35 - [中国首条深水油气装备工艺管线智能生产线建设完成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:37 - [（乡村行·看振兴）卖牛容易运牛难，内蒙古肉牛小镇兴起“托管调理所”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:50 - [油价回落，特朗普斥伊朗答复"完全不可接受"！市场却押注和谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:44 - [迟福林：全面实施RCEP规则，让更多市场主体分享更大红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:50 - [河南蒜薹“堆积如山”背后的真相：收购价低至2毛一斤，“买五斤送十斤”系段子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:37 - [这个法国人，真让人刮目相看](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:52 - [“十五五”期间 武汉将亮相一批文旅新地标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:49 - [605006，8天5板！600545，9天4板！A股多个板块爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:31 - [特朗普首席经济幕僚否认Gundlach说法 称不会重组美债票息结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [总书记引领强国之路｜共建美好网络家园](http://www.share.kurohicncr.top/Article/details/37308541906.shtml)
-- 2026-06-29 11:24 - [从多轮冻结到易主在即 兰州银行第三大股东清仓式法拍！3.01亿股5月13日开槌 起拍总价近7亿元](http://www.share.minike.top/Article/details/1906516.shtml)
-- 2026-06-29 11:48 - [“霸王”助阵“苏超” 文旅体商融合新答卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [价格大涨650%，国产光纤全球爆单，年内诞生3只翻倍股](http://www.share.kurohicncr.top/Article/details/262724.shtml)
-- 2026-06-29 11:25 - [“小阳春”热度延续，深圳二手房市场正转向“量稳价稳”新阶段](http://www.share.minike.top/Article/details/555715995.shtml)
-- 2026-06-29 11:31 - [谷雨：祛湿排浊，双臂“甩起来”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [中东股市：霍尔木兹海峡局势再起变数，停火乐观预期降温，海湾股指走势低迷](http://www.share.kurohicncr.top/Article/details/037216224.shtml)
-- 2026-06-29 11:38 - [牛弹琴：美伊这出戏，编剧都不敢这样写](http://www.share.minike.top/Article/details/0631640819.shtml)
-- 2026-06-29 11:45 - [强化长效约束，券商薪酬管理制度迎来重大修订](http://www.blog.kurohicncr.top/Article/details/6556403034.shtml)
-- 2026-06-29 11:38 - [AI算力重塑创业逻辑 郑州航空港区探索“轻创业”新路径](http://www.share.kurohicncr.top/Article/details/7305239014.shtml)
-- 2026-06-29 11:46 - [国元保险原董事长被查，收超400万罚单，成监管“重点户”](http://www.share.kurohicncr.top/Article/details/519142564.shtml)
-- 2026-06-29 11:48 - [美军在阿曼湾拦截并控制一艘伊朗货船](http://www.blog.kurohicncr.top/Article/details/545922.shtml)
-- 2026-06-29 11:49 - [优步以3.18亿美元交易增持外卖平台Delivery Hero股份](http://www.blog.kurohicncr.top/Article/details/6884300408.shtml)
-- 2026-06-29 11:50 - [福特召回至多139万辆F-150皮卡](http://www.share.minike.top/Article/details/2852426777.shtml)
-- 2026-06-29 11:26 - [文化中国行·联播一瞬丨谷雨：春去无憾 夏来有期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [福建武夷山迎来制茶繁忙季](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [飞行学员ICAO英语四级四次没考过 航司起诉要求支付近60万元培训费](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [吉林东辽河源头梨花漫谷 百年古梨风姿依旧](http://www.blog.minike.top/Article/details/8558474.shtml)
+- 2026-06-29 11:54 - [欧洲央行管委Kocher：能源形势若无大幅改善 欧洲央行加息不可避免](http://www.blog.kurohicncr.top/Article/details/415150.shtml)
+- 2026-06-29 11:42 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [沪指开盘站上4200点 储存芯片概念股强势拉升](http://www.blog.minike.top/Article/details/406156718717.shtml)
+- 2026-06-29 11:40 - [从撒网到巡岸 四川泸州退捕渔民的“身份之变”](http://www.share.minike.top/Article/details/82294525506.shtml)
+- 2026-06-29 11:36 - [福州马尾至马祖“小三通”客运航线11日双向停航](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [浙大“三剑客”县城创业：让中国芯用上“中国泵”](http://www.blog.kurohicncr.top/Article/details/1398190.shtml)
+- 2026-06-29 11:59 - [北京人形机器人唐剑：全面提升机器人的泛化能力](http://www.blog.minike.top/Article/details/890351697.shtml)
+- 2026-06-29 11:40 - [中指研究院：4月北上深租金环比继续上涨](http://www.share.minike.top/Article/details/50230618.shtml)
+- 2026-06-29 11:56 - [上市公司买理财年内大降2500+亿 配置多元化趋势凸显](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵](http://www.blog.minike.top/Article/details/089241129.shtml)
+- 2026-06-29 11:41 - [成都一中学举办科技节 硬核体验点燃科学梦](http://www.share.kurohicncr.top/Article/details/3329886982.shtml)
+- 2026-06-29 11:47 - [四川成都：列车穿行紫色花海](http://www.share.kurohicncr.top/Article/details/822171.shtml)

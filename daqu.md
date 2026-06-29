@@ -1,61 +1,59 @@
-# 男子潜伏通风管道9小时盗走百万黄金 3次换装终难逃法网
+# 中超第11轮：申花扳平铜梁龙 “京沪大战”握手言和
 
-> 更新时间：2026-06-29 11:54:05 UTC+8
+> 更新时间：2026-06-29 12:00:05 UTC+8
 
 ## 摘要
 
-一夜之间，金店内价值140余万的黄金饰品不翼而飞，这是发生在四川崇州的一起黄金窃案。 在现场，商场大门及周边并没有被破坏入侵的痕迹，窃贼为何能“来去自如”呢？不仅如此，这个狡猾的窃贼还精准地切断了金店内的电源，但他不曾料到，商场内其他店铺的安防视频记录下了他盗窃的全过程。 切断金店电源 盗走140万元金饰 事发当日商场内的视频画面显示，凌晨3点14分，一个蒙面的黑衣男子蹑手蹑脚
+中新社北京5月10日电 (刘梦青)2026赛季中超联赛10日结束第11轮较量。上海申花朱辰杰上演“梅开二度”，帮助球队2:2扳平重庆铜梁龙；北京国安与上海海港同样以2:2握手言和。 老牌劲旅上海申花坐镇主场迎战新军重庆铜梁龙，最终双方2:2战平。两队本赛季开局表现强势，但近期受密集赛程与主力球员伤病影响，成绩出现起伏。此役上半场迪马塔头球破门，肯帕努接迪马塔助攻抽射破门，助重庆
 
 ## 正文
 
-一夜之间，金店内价值140余万的黄金饰品不翼而飞，这是发生在四川崇州的一起黄金窃案。
+中新社北京5月10日电 (刘梦青)2026赛季中超联赛10日结束第11轮较量。
 
-在现场，商场大门及周边并没有被破坏入侵的痕迹，窃贼为何能“来去自如”呢？
+上海申花朱辰杰上演“梅开二度”，帮助球队2:2扳平重庆铜梁龙；北京国安与上海海港同样以2:2握手言和。
 
-不仅如此，这个狡猾的窃贼还精准地切断了金店内的电源，但他不曾料到，商场内其他店铺的安防视频记录下了他盗窃的全过程。
+老牌劲旅上海申花坐镇主场迎战新军重庆铜梁龙，最终双方2:2战平。
 
-切断金店电源 盗走140万元金饰 事发当日商场内的视频画面显示，凌晨3点14分，一个蒙面的黑衣男子蹑手蹑脚地从金店隔壁走了出来。
+两队本赛季开局表现强势，但近期受密集赛程与主力球员伤病影响，成绩出现起伏。
 
-此时，他手提塑料袋，脚上没有穿鞋，似乎在寻找着什么。
+此役上半场迪马塔头球破门，肯帕努接迪马塔助攻抽射破门，助重庆铜梁龙确立2:0领先优势。
 
-紧接着，这名男子走进了金店，准确地切断店内电源后，开始疯狂盗窃柜台内的黄金饰品。
+下半场申花反扑，第66分钟高天意主罚角球、朱辰杰冲顶破门，第74分钟谢鹏飞传中，朱辰杰再次抢点，完成头球“双响”，将比分扳平。
 
-上午九点半，金店的店员张女士前来开门营业时，柜台狼藉、金饰无踪的场景，让她大吃一惊。
+值得一提的是，自2018年正式亮相上海申花一线队，朱辰杰完成了代表申花出战各项赛事的第200场比赛里程碑。
 
-经过初步估计，店铺被盗金饰总重量达1800多克，根据时价，金店的损失起码在140万元以上。
+此外，伤停补时阶段上海申花外援马纳法染红罚下，这对阵容缺损的申花来说，无疑是雪上加霜。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [中国证监会就《违规转让证券案件行政处罚实施规则（征求意见稿）》公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:50 - [全球乱局中，中国这块“金字招牌”越来越亮了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:29 - [美菲启动年度联合军演，外交部：一味在安全上相互捆绑只会引火烧身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:52 - [2026年中国香港（地区）商会京港地铁体育嘉年华活动举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:45 - [极氪8X正式上市：首次搭载舱驾融合超级智能体，上市限时售价32.98万元起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:46 - [“患者被引荐至私立医院” 涉事医生被停止诊疗并终止聘用合同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:25 - [东方证券与上海证券筹划合并重组，加快推进一流现代投资银行建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:38 - [涉案金额2.6亿元，我国摧毁山西特大假酒网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:48 - [浦发银行与中国银联签署全面战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:37 - [让机器人跑马拉松有什么用？专家：先带动技术发展 再逐步落地应用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:37 - [实拍江西上饶“三月三”篝火联欢现场 民众踏歌起舞庆佳节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:40 - [万众期待的“霸王”来了！“宿迁子弟何在？”何润东身披甲胄亮相“苏超”现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:37 - [BOSS直聘-W于4月17日耗资约249.65万美元回购约34.97万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:52 - [去年翻倍赚钱的基金，今年怎么样了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:51 - [巴西、西班牙和墨西哥联合呼吁采取措施缓解古巴局势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:30 - [云冈石窟8个晚期洞窟临时封闭 开展数字化采集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:59 - [东博会秘书处携中国味道“出海”进东盟（印尼）专题展启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:57 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:40 - [美国私营监狱运营商CoreCivic预计2026年调整后EBITDA达4.54-4.62亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:55 - [全球调解峰会在港首办 赋能全球治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:38 - [威高股份第一季度收入约33.5亿元 同比增长约5.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:49 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:55 - [私募信贷的火爆行情已然落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:47 - [美国全球保险公司与伦敦劳合社达成战略分保合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:58 - [Molson Coors加拿大公司宣派每股0.65加元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:41 - [第十五届四川国际茶业博览会吸引民众参观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:45 - [男子加油逃单同行人对监控比耶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [翰墨因缘聚花海 两岸书画家走进洛阳国家牡丹园采风](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [新易盛传考虑赴香港上市，计划募资30亿美元](http://www.share.kurohicncr.top/Article/details/89252871.shtml)
-- 2026-06-29 11:43 - [LPR连续11个月“按兵不动”，年内还有降息空间吗？](http://www.blog.kurohicncr.top/Article/details/46007355507.shtml)
-- 2026-06-29 11:45 - [农业农村部部署2026年种业监管执法工作](http://www.share.minike.top/Article/details/2237193820.shtml)
-- 2026-06-29 11:29 - [赓续海归先贤精神 上海海归青年插画展开幕](http://www.blog.minike.top/Article/details/504335.shtml)
-- 2026-06-29 11:33 - [中国高尔夫球巡回赛·绍兴站举行 多国选手挥杆竞逐](http://www.share.kurohicncr.top/Article/details/748499872955.shtml)
-- 2026-06-29 11:46 - [伊朗外长称霍尔木兹海峡开放 油气价格大跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [“中国菠萝之乡”徐闻举办百年菠萝文化旅游嘉年华](http://www.share.minike.top/Article/details/930036.shtml)
-- 2026-06-29 11:33 - [百面崇阳铜鼓奏响“楚超”咸宁主场](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [天喻信息（300205）被预处罚，股民索赔可期](http://www.blog.minike.top/Article/details/970691440338.shtml)
-- 2026-06-29 11:28 - [经济冲击逼近，以色列央行行长寄望和平](http://www.blog.minike.top/Article/details/36724382.shtml)
-- 2026-06-29 11:52 - [中英文双语绘本《埃德加·斯诺的红星之旅》首发式在西安举行](http://www.share.kurohicncr.top/Article/details/563330475.shtml)
-- 2026-06-29 11:24 - [专家：金价翻倍没有悬念](http://www.blog.kurohicncr.top/Article/details/06892.shtml)
-- 2026-06-29 11:29 - [从反对到支持，台湾姑娘含泪读妈妈短信：在大陆追梦，为和平统一发光](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [斯诺克世锦赛：丁俊晖暂时领先吉尔伯特 肖国栋淘汰周跃龙晋级](http://www.blog.kurohicncr.top/Article/details/227811952516.shtml)
+- 2026-06-29 11:41 - [美联储降息理由正逐渐消失？分析师：通胀压力或令政策立场更加鹰派](http://www.share.kurohicncr.top/Article/details/663128590868.shtml)
+- 2026-06-29 11:43 - [美国“愚公”程高登：鼓岭家族跨越百年的中国情缘](http://www.share.minike.top/Article/details/745972255429.shtml)
+- 2026-06-29 11:39 - [特朗普：预计“很快”收到伊朗对美方最新和平方案的回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:51 - [外贸一线观察|江苏外贸实现“超预期”增长，这份底气从何而来？](http://www.share.kurohicncr.top/Article/details/092127951852.shtml)
+- 2026-06-29 11:30 - [“压力越大越胖”怎么破？ 专家开出“三层减重法”](http://www.share.kurohicncr.top/Article/details/49073.shtml)
+- 2026-06-29 11:48 - [最高涨超875%！沪深两大龙头，来了](http://www.blog.minike.top/Article/details/32485079149.shtml)
+- 2026-06-29 11:30 - [武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向](http://www.share.kurohicncr.top/Article/details/32318239444.shtml)
+- 2026-06-29 11:58 - [新华访谈｜外卖小哥、网约车司机的“新保障”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [南京门店欠租887万元？山姆回应：配合司法执行，不存在故意欠租](http://www.share.kurohicncr.top/Article/details/34239.shtml)
+- 2026-06-29 11:54 - [美联储高官：AI成了会加息，AI败了会滞胀！](http://www.blog.minike.top/Article/details/373306.shtml)
+- 2026-06-29 11:43 - [颐信科技洪晓彤：AI赋能、情报破局、金融服务新动力](http://www.share.minike.top/Article/details/30703260.shtml)
+- 2026-06-29 11:49 - [对冲基金人才截胡大战升温 明星交易员两度“鸽掉”Millennium](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [新修订《婚姻登记条例》施行一年 全国建成户外颁证点1330个](http://www.share.kurohicncr.top/Article/details/2829002.shtml)
+- 2026-06-29 11:48 - [无人机事件应对不力 拉脱维亚防长遭解职](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:50 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/675060164108.shtml)
