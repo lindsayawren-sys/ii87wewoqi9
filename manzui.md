@@ -1,57 +1,42 @@
-# 为什么有些人更容易上当？揭开伪科学“易感体质”的心理密码
+# 金色相框｜习近平朝鲜之行
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-我们身边似乎总有这样的人：在不同伪科学、保健品骗局中反复横跳消费。亲朋好友苦口婆心的劝说，敌不过推销员和“托儿”的花言巧语；科学的辟谣文章，打不破他们“万一有用”的幻想。 这背后，有一套作用于人性的心理机制，它与学历高低聪明与否无关，哪怕是高知人群，也会轻易掉入这样的陷阱。 今天，我们就来破译这份“易感体质”的心理密码。让我们先做个快速自测： 快速自测1.你是不是一看复杂解释就
+发布时间：2026年06月10日 14:45 来源：新华社 责任编辑：【杨彦宇】
 
 ## 正文
 
-我们身边似乎总有这样的人：在不同伪科学、保健品骗局中反复横跳消费。
-
-亲朋好友苦口婆心的劝说，敌不过推销员和“托儿”的花言巧语；科学的辟谣文章，打不破他们“万一有用”的幻想。
-
-这背后，有一套作用于人性的心理机制，它与学历高低聪明与否无关，哪怕是高知人群，也会轻易掉入这样的陷阱。
-
-今天，我们就来破译这份“易感体质”的心理密码。
-
-让我们先做个快速自测： 快速自测1.你是不是一看复杂解释就头大，总想有人直接告诉你该信啥？
-
-2.家人、朋友说好用的东西，你是不是会不自觉地跟着买？
-
-3.你是不是觉得那些花小钱办大事的好运，特别容易落到自己头上？
-
-如果你的答案中有“是”，那么这篇文章正是为你准备的“思想疫苗”。
+发布时间：2026年06月10日 14:45 来源：新华社 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 00:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 00:34 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 00:36 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 00:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 00:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 00:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 00:20 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 00:37 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:27 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 00:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 00:47 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 00:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 00:29 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 00:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 00:37 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 00:44 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 00:25 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 00:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 00:30 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/3923441.shtml)
-- 2026-06-30 00:19 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/6980499.shtml)
-- 2026-06-30 00:31 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/62000.shtml)
-- 2026-06-30 00:28 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/8228535.shtml)
-- 2026-06-30 00:37 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/241372.shtml)
-- 2026-06-30 00:18 - [扫黑风暴](https://www.blog.minike.top/Article/details/460963157.shtml)
-- 2026-06-30 00:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/116963889648.shtml)
-- 2026-06-30 00:38 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/2966842282.shtml)
-- 2026-06-30 00:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/8868928053.shtml)
-- 2026-06-30 00:24 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/68162.shtml)
-- 2026-06-30 00:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/770287065572.shtml)
-- 2026-06-30 00:27 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/95241131359.shtml)
-- 2026-06-30 00:33 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/0662151.shtml)
-- 2026-06-30 00:38 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/9194266066.shtml)
-- 2026-06-30 00:18 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/192652.shtml)
+- 2026-06-30 00:18 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/25637823621.shtml)
+- 2026-06-30 00:30 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/315647.shtml)
+- 2026-06-30 00:24 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/49324785449.shtml)
+- 2026-06-30 00:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/270083834.shtml)
+- 2026-06-30 00:21 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/6817879921.shtml)
+- 2026-06-30 00:26 - [世界杯](https://www.blog.kurohicncr.top/Article/details/292700.shtml)
+- 2026-06-30 00:32 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/35273.shtml)
+- 2026-06-30 00:25 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/253981748.shtml)
+- 2026-06-30 00:23 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/34949335.shtml)
+- 2026-06-30 00:44 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/960238340312.shtml)
+- 2026-06-30 00:30 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/820119629.shtml)
+- 2026-06-30 00:42 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/264859764.shtml)
+- 2026-06-30 00:33 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/3742571639.shtml)
+- 2026-06-30 00:21 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/993575496127.shtml)
+- 2026-06-30 00:46 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/6117941210.shtml)

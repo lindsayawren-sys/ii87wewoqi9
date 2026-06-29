@@ -1,60 +1,43 @@
-# 眸深智能陈涛：致力于在通用大脑赛道成为“中国的Skild AI”
+# 美法官裁定美政府抬高H-1B签证费违法
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。眸深智能首席科学家陈涛出席并演讲。 以下为演讲实录： 尊敬的各位领导、各位嘉宾，还有各位企业家朋友，大家好。很高兴向大家介绍一下我们成立于2025年1月份的眸深智能科技有限公司，以及我们最近取得的一些成果。 我们主要做的是数据和算力高效的机器人生成式运动大模型，从名称不难
+发布时间：2026年06月09日 13:24 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
-
-眸深智能首席科学家陈涛出席并演讲。
-
-以下为演讲实录： 尊敬的各位领导、各位嘉宾，还有各位企业家朋友，大家好。
-
-很高兴向大家介绍一下我们成立于2025年1月份的眸深智能科技有限公司，以及我们最近取得的一些成果。
-
-我们主要做的是数据和算力高效的机器人生成式运动大模型，从名称不难看出，我们聚焦当前备受关注的机器人产业，为本体打造最适合、性价比最高的 “大脑”。
-
-在这里，我想先通过一张图说明具身智能赛道的生态分布：最下方是专业机器人，其市场份额和毛利空间相对较小；中间是通用本体，涵盖灵巧手、机械臂到整机等，我们已对比中国的宇树、美国的波士顿动力（Boston Dynamics）、丰田等本体企业；最上方是机器人大脑，目前其市场份额和毛利空间都非常可观，且中美两国在该赛道竞争势头强劲，我们极具希望超越美国，在国际上占据一席之地。
-
-眸深智能就定位在通用大脑赛道，致力于成为 “中国的 Skild AI”。
-
-当前大脑市场面临两大核心挑战，可总结为具身数据的 Scaling Law 和算力的 Scaling Law。
+发布时间：2026年06月09日 13:24 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 00:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 00:17 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 00:24 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 00:35 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 00:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 00:35 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 00:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 00:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 00:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 00:18 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 00:25 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 00:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 00:13 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 00:24 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 00:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 00:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 00:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 00:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:26 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 00:32 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 00:41 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 00:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 00:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 00:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:22 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [第一炉香](https://www.blog.minike.top/Article/details/5304120.shtml)
-- 2026-06-30 00:24 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/57058427184.shtml)
-- 2026-06-30 00:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/7311776.shtml)
-- 2026-06-30 00:40 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/95622587182.shtml)
-- 2026-06-30 00:18 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/20422511118.shtml)
-- 2026-06-30 00:30 - [斛珠夫人](http://www.share.minike.top/Article/details/505812.shtml)
-- 2026-06-30 00:41 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/021381681749.shtml)
-- 2026-06-30 00:29 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/178697702.shtml)
-- 2026-06-30 00:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/32903154553.shtml)
-- 2026-06-30 00:30 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/758416.shtml)
-- 2026-06-30 00:12 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/014408139.shtml)
-- 2026-06-30 00:21 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/381995468.shtml)
-- 2026-06-30 00:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/27066416.shtml)
-- 2026-06-30 00:12 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/475273.shtml)
-- 2026-06-30 00:26 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/753709403.shtml)
+- 2026-06-30 00:21 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/11591.shtml)
+- 2026-06-30 00:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/5177006195.shtml)
+- 2026-06-30 00:31 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/023858.shtml)
+- 2026-06-30 00:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/170542.shtml)
+- 2026-06-30 00:46 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/690165.shtml)
+- 2026-06-30 00:19 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/58945434.shtml)
+- 2026-06-30 00:40 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/084425.shtml)
+- 2026-06-30 00:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/888336975.shtml)
+- 2026-06-30 00:37 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/1484347652.shtml)
+- 2026-06-30 00:40 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/76400.shtml)
+- 2026-06-30 00:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/59468456654.shtml)
+- 2026-06-30 00:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/06977429553.shtml)
+- 2026-06-30 00:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/074981.shtml)
+- 2026-06-30 00:19 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/92565.shtml)
+- 2026-06-30 00:44 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/900095.shtml)

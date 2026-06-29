@@ -1,58 +1,53 @@
-# 北京部分地铁线试点“携自行车上地铁”
+# 海口海关查获进境旅客携带珍珠958粒
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 18:01 来源：中国新闻网 5月9日，记者从北京市交通委获悉，5月10日起，在6号线、17号线、昌平线、S1线等4条线路的11座车站开展“轨道+骑行”试点服务。乘客可携带轮径不超过28英寸(约71cm)的两轮自行车进站乘车。试点服务时间为每周双休日全天运营时段(工作日及法定节假日不开放)。 本次试点实行专属骑行多样化票种票价管理，采用单一票价
+中新网6月10日电 据“海关发布”微信公众号消息，近日，海口海关所属海口美兰机场海关在监管进境航班时，发现一名选择“绿色通道”通关的旅客行李物品机检图像异常，随即对该名旅客进行拦截检查。经开箱查验，查获疑似珍珠958粒。经专业机构鉴定，上述物品为海水养殖珍珠，价值15.25万元。 目前，该案件已移交海关缉私部门做进一步处理。
 
 ## 正文
 
-发布时间：2026年05月09日 18:01 来源：中国新闻网 5月9日，记者从北京市交通委获悉，5月10日起，在6号线、17号线、昌平线、S1线等4条线路的11座车站开展“轨道+骑行”试点服务。
+中新网6月10日电 据“海关发布”微信公众号消息，近日，海口海关所属海口美兰机场海关在监管进境航班时，发现一名选择“绿色通道”通关的旅客行李物品机检图像异常，随即对该名旅客进行拦截检查。
 
-乘客可携带轮径不超过28英寸(约71cm)的两轮自行车进站乘车。
+经开箱查验，查获疑似珍珠958粒。
 
-试点服务时间为每周双休日全天运营时段(工作日及法定节假日不开放)。
+经专业机构鉴定，上述物品为海水养殖珍珠，价值15.25万元。
 
-本次试点实行专属骑行多样化票种票价管理，采用单一票价30元/人次。
-
-该票价包含乘客本人及1辆自行车当日单次试点线路通行权限，无超时限制。
-
-乘客可通过“亿通行App”购买近30个自然日内(含当日)常规双休日运营时段的车票。
-
-未使用的车票可在线退票，超过指定日期未使用将自动退票，票款按原渠道返还。
-
-根据规定，乘客所携车辆需车况完好、无尖锐突出部件及泥沙油污污染；所有电动自行车及其他带有动力装置的车辆不得进站。
+目前，该案件已移交海关缉私部门做进一步处理。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 00:29 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 00:38 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 00:35 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 00:23 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:24 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 00:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 00:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 00:21 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 00:23 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 00:23 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 00:24 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 00:47 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 00:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 00:38 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 00:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 00:23 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 00:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 00:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 00:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 00:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 00:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 00:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 00:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:18 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 00:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 00:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/629225005.shtml)
-- 2026-06-30 00:18 - [东方风云榜](https://www.blog.minike.top/Article/details/85065853.shtml)
-- 2026-06-30 00:41 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/01005126647.shtml)
-- 2026-06-30 00:33 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/811906.shtml)
-- 2026-06-30 00:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/40055861722.shtml)
-- 2026-06-30 00:33 - [东方风云榜](http://www.blog.minike.top/Article/details/41540128.shtml)
-- 2026-06-30 00:15 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/057262.shtml)
-- 2026-06-30 00:17 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/723054151.shtml)
-- 2026-06-30 00:16 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/40796.shtml)
-- 2026-06-30 00:19 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/031671145.shtml)
-- 2026-06-30 00:21 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/819594.shtml)
-- 2026-06-30 00:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/770015041807.shtml)
-- 2026-06-30 00:31 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/3460766679.shtml)
-- 2026-06-30 00:19 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/105495384.shtml)
-- 2026-06-30 00:34 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/2228445.shtml)
+- 2026-06-30 00:20 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/766345167.shtml)
+- 2026-06-30 00:21 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/652789919295.shtml)
+- 2026-06-30 00:37 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/062328891575.shtml)
+- 2026-06-30 00:43 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/76807131772.shtml)
+- 2026-06-30 00:44 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/87973.shtml)
+- 2026-06-30 00:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/764853391310.shtml)
+- 2026-06-30 00:47 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/71595058.shtml)
+- 2026-06-30 00:21 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/65351068.shtml)
+- 2026-06-30 00:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/976316.shtml)
+- 2026-06-30 00:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/30681072.shtml)
+- 2026-06-30 00:33 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/21217966.shtml)
+- 2026-06-30 00:44 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/9300137.shtml)
+- 2026-06-30 00:32 - [第一炉香](https://www.share.kurohicncr.top/Article/details/325316908.shtml)
+- 2026-06-30 00:33 - [张凌赫 客串](https://www.share.minike.top/Article/details/26838111610.shtml)
+- 2026-06-30 00:19 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/96058600.shtml)

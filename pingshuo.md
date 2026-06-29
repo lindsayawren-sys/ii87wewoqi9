@@ -1,56 +1,57 @@
-# 受电动汽车业务亏损和游戏业务疲软拖累，索尼季度利润下滑
+# 港股融资市场火爆！签字保荐人不够用了
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-索尼集团（Sony Group）公布，由于其与本田汽车（Honda Motor）的电动汽车合资企业出现亏损，加上游戏等业务疲软，第四财季净利润大幅下滑。 这家日本娱乐和电子公司周五表示，在截至3月份的第四财季，其净利润同比下降63%，至831.2亿日元（合5.296亿美元）。 该业绩低于分析师预估的2，022.4亿日元。 索尼集团表示，其与本田汽车的合资企业录得449亿日元的权
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。 Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。 与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。 融资热潮之下，企业赴港上市热情不
 
 ## 正文
 
-索尼集团（Sony Group）公布，由于其与本田汽车（Honda Motor）的电动汽车合资企业出现亏损，加上游戏等业务疲软，第四财季净利润大幅下滑。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家日本娱乐和电子公司周五表示，在截至3月份的第四财季，其净利润同比下降63%，至831.2亿日元（合5.296亿美元）。
+来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。
 
-该业绩低于分析师预估的2，022.4亿日元。
+Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。
 
-索尼集团表示，其与本田汽车的合资企业录得449亿日元的权益法投资损失，该合资企业已停止销售其电动汽车车型。
+与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。
 
-其游戏、电影和图像传感器业务的营业利润均出现下滑。
+融资热潮之下，企业赴港上市热情不减。
 
-其娱乐技术业务的营业亏损则有所收窄。
+截至6月8日，港交所处于正常聆讯状态的企业达到425家，其中385家于2026年递交上市申请，228家为首次递表企业。
 
-第四财季收入增长8.3%，至3.036万亿日元。
+不过，与企业排队上市形成鲜明对比的是，港股保荐资源正变得愈发紧张。
 
-对于4月份开始的财政年度，该公司预计收入将下降1.4%，至12.300万亿日元，净利润将增长12.5%，至1.160万亿日元。
+今年1月，香港证监会实施新规，要求每名签字主要人员（Signing Principal）最多只能同时负责5宗活跃上市项目，以提升上市文件质量和保荐工作规范性。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 00:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 00:37 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 00:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 00:17 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 00:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 00:41 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 00:14 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 00:25 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 00:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 00:22 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 00:34 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 00:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 00:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 00:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 00:30 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 00:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 00:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 00:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 00:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 00:19 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/210779537.shtml)
-- 2026-06-30 00:33 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/69590125052.shtml)
-- 2026-06-30 00:39 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/908495542165.shtml)
-- 2026-06-30 00:17 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/747591451423.shtml)
-- 2026-06-30 00:13 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/311609.shtml)
-- 2026-06-30 00:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/4713385917.shtml)
-- 2026-06-30 00:23 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/82304.shtml)
-- 2026-06-30 00:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/859317902.shtml)
-- 2026-06-30 00:18 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/177257.shtml)
-- 2026-06-30 00:13 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/1998580414.shtml)
-- 2026-06-30 00:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/1773256681.shtml)
-- 2026-06-30 00:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/065675623086.shtml)
-- 2026-06-30 00:35 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/18934674837.shtml)
-- 2026-06-30 00:35 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/9495921.shtml)
-- 2026-06-30 00:28 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/08309988881.shtml)
+- 2026-06-30 00:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/487824841.shtml)
+- 2026-06-30 00:38 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/896698.shtml)
+- 2026-06-30 00:30 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/589371.shtml)
+- 2026-06-30 00:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/573389.shtml)
+- 2026-06-30 00:32 - [逃狱兄弟](https://www.share.minike.top/Article/details/8299322480.shtml)
+- 2026-06-30 00:22 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/708141193215.shtml)
+- 2026-06-30 00:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/193677470969.shtml)
+- 2026-06-30 00:20 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/610725.shtml)
+- 2026-06-30 00:40 - [极限挑战第一季](http://www.share.minike.top/Article/details/668735078.shtml)
+- 2026-06-30 00:36 - [流金岁月](https://www.blog.minike.top/Article/details/27852912809.shtml)
+- 2026-06-30 00:37 - [炽夏](https://www.share.minike.top/Article/details/953097.shtml)
+- 2026-06-30 00:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/0323228750.shtml)
+- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/601873202464.shtml)
+- 2026-06-30 00:43 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/260876810662.shtml)
+- 2026-06-30 00:43 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/96754.shtml)

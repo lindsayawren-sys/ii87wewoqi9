@@ -1,58 +1,61 @@
-# A股机器人相关板块周五走强
+# 西安银行年度分红方案遭大股东全票 "弃权"，资产风险加速暴露
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 (记者 陈康亮)中国A股主要股指8日(周五)悉数下跌，但板块方面不乏亮点，机器人相关板块当天走强，表现亮眼。 根据金融数据服务商东方财富的统计，机器人执行器、机器人等板块当天涨幅居前。其中，机器人执行器板块当天上涨5.31%，领涨A股所有概念板块；个股方面，五洲新春、富春染织、雷赛智能、日发精机股价收获涨停板(涨幅约10%)。 消息面上，据媒体报道，今年一
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 5月22日，西安银行（600928.SH）2025年度股东大会审议通过了每10股派发现金股利1元（含税）的利润分配预案，但高达29.96%的弃权票在A股上市银行中极为罕见。此次弃权票全部来自第一大单一股东加拿大丰业银行，凸显出外资股东与公司管理层在分红水平上的分歧。 证券之星注意到，数据显示
 
 ## 正文
 
-中新社北京5月8日电 (记者 陈康亮)中国A股主要股指8日(周五)悉数下跌，但板块方面不乏亮点，机器人相关板块当天走强，表现亮眼。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据金融数据服务商东方财富的统计，机器人执行器、机器人等板块当天涨幅居前。
+来源：证券之星 5月22日，西安银行（600928.SH）2025年度股东大会审议通过了每10股派发现金股利1元（含税）的利润分配预案，但高达29.96%的弃权票在A股上市银行中极为罕见。
 
-其中，机器人执行器板块当天上涨5.31%，领涨A股所有概念板块；个股方面，五洲新春、富春染织、雷赛智能、日发精机股价收获涨停板(涨幅约10%)。
+此次弃权票全部来自第一大单一股东加拿大丰业银行，凸显出外资股东与公司管理层在分红水平上的分歧。
 
-消息面上，据媒体报道，今年一季度，中国机器人产业海外市场拓展步伐加快。
+证券之星注意到，数据显示，西安银行2025年现金分红比例仅为16.77%，在42家A股上市银行中排名倒数第二。
 
-各类单独列名的“机器人”合计出口额达113.2亿元(人民币，下同)，产品远销至全球148个国家和地区。
+与此同时，该行核心一级资本充足率连续两年下滑，资产质量隐忧逐步显现，2026年一季度关注类贷款更是出现大幅增长，不良贷款结构呈现恶化趋势。
 
-数据显示，中国具身智能产业的市场规模预计在2030年达到4000亿元。
+01． 分红方案引外资股东“温和抗议” 西安银行此次分红争议并非突发，早在董事会审议阶段就已显现分歧。
 
-兴业证券分析师张启尧表示，当前，机器人等产业已实现关键突破，进入技术迭代和商业化落地的关键阶段。
+4月22日，在西安银行第六届董事会第三十五次会议上，丰业银行派驻的两名非执行董事李勇和陈永健对《2025年度利润分配预案》投出弃权票。
 
-机器人等领域拥有较大规模的市场空间，并开始对经济社会产生广泛渗透，其二级市场的投资逻辑已从主题投资转向业绩兑现。
+他们在弃权理由中表示：“理解公司从长远发展角度拟定利润分配预案的综合考量，但希望公司未来能在业绩持续良好发展的基础上，进一步提升分红水平。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 00:25 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 00:25 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 00:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 00:38 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 00:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 00:12 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 00:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 00:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 00:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 00:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 00:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 00:26 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 00:36 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 00:44 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 00:22 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 00:18 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 00:18 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 00:26 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 00:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 00:21 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 00:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 00:18 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 00:33 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 00:37 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 00:35 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/5218821.shtml)
-- 2026-06-30 00:34 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/58785.shtml)
-- 2026-06-30 00:21 - [月亮](https://www.blog.kurohicncr.top/Article/details/40754136.shtml)
-- 2026-06-30 00:26 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/77416861.shtml)
-- 2026-06-30 00:28 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/3095423069.shtml)
-- 2026-06-30 00:34 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/7830953.shtml)
-- 2026-06-30 00:37 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/78551163.shtml)
-- 2026-06-30 00:34 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/7048809732.shtml)
-- 2026-06-30 00:30 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5935553930.shtml)
-- 2026-06-30 00:41 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/62679135.shtml)
-- 2026-06-30 00:34 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/51192925201.shtml)
-- 2026-06-30 00:21 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/659912.shtml)
-- 2026-06-30 00:30 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/7449540.shtml)
-- 2026-06-30 00:34 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/71297.shtml)
-- 2026-06-30 00:26 - [世界杯](http://www.share.kurohicncr.top/Article/details/2226825229.shtml)
+- 2026-06-30 00:35 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/594740.shtml)
+- 2026-06-30 00:20 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/02546672046.shtml)
+- 2026-06-30 00:18 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/854305.shtml)
+- 2026-06-30 00:20 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/501160446.shtml)
+- 2026-06-30 00:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/686570.shtml)
+- 2026-06-30 00:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/39639291.shtml)
+- 2026-06-30 00:28 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/754179383862.shtml)
+- 2026-06-30 00:36 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/183112987016.shtml)
+- 2026-06-30 00:18 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/8696424310.shtml)
+- 2026-06-30 00:33 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/97840851652.shtml)
+- 2026-06-30 00:31 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/47357384.shtml)
+- 2026-06-30 00:33 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/583516.shtml)
+- 2026-06-30 00:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/503786.shtml)
+- 2026-06-30 00:42 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/69335132251.shtml)
+- 2026-06-30 00:27 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/3543176106.shtml)

@@ -1,55 +1,51 @@
-# 2026年中国黑河至俄罗斯口岸明水期客运通航
+# 肖远企会见葡萄牙保险与养老金监管局（ASF）主席加布里埃尔·伯纳迪诺
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新社黑龙江黑河5月9日电 (记者 刘锡菊)2026年中国黑龙江省黑河至俄罗斯布拉戈维申斯克口岸明水期国际客船旅客运输9日正式启动。 此次明水期旅客运输，中方投入3艘客运船舶，俄方投入6艘客运船舶协同作业，每日可运送旅客超千人次。 相较气垫船，明水期普通客船运力提升、抗恶劣天气能力更强，不仅能满足持续增长的旅客跨境出行需求，还可搭载小型跨境货物，为中俄跨境电商、小额边贸提供便利
+近日，国家金融监督管理总局党委委员、副局长肖远企在澳门参加葡语国家（地区）保险监管研讨会期间会见葡萄牙保险与养老金监管局（ASF）主席加布里埃尔·伯纳迪诺（Gabriel Bernardino）。双方就国际金融保险监管最新发展及挑战、加强中葡双边监管合作等议题进行交流。责任编辑：王馨茹
 
 ## 正文
 
-中新社黑龙江黑河5月9日电 (记者 刘锡菊)2026年中国黑龙江省黑河至俄罗斯布拉戈维申斯克口岸明水期国际客船旅客运输9日正式启动。
+近日，国家金融监督管理总局党委委员、副局长肖远企在澳门参加葡语国家（地区）保险监管研讨会期间会见葡萄牙保险与养老金监管局（ASF）主席加布里埃尔·伯纳迪诺（Gabriel Bernardino）。
 
-此次明水期旅客运输，中方投入3艘客运船舶，俄方投入6艘客运船舶协同作业，每日可运送旅客超千人次。
+双方就国际金融保险监管最新发展及挑战、加强中葡双边监管合作等议题进行交流。
 
-相较气垫船，明水期普通客船运力提升、抗恶劣天气能力更强，不仅能满足持续增长的旅客跨境出行需求，还可搭载小型跨境货物，为中俄跨境电商、小额边贸提供便利。
-
-黑河市与布拉戈维申斯克市隔黑龙江相望，并称“中俄双子城”。
-
-中俄互免签证政策正式生效后，跨境旅客数量持续攀升。
-
-5月10日起，黑河口岸国际货运船舶也将陆续投入运营。
-
-(完)
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 00:25 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 00:27 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 00:41 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 00:19 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 00:27 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 00:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 00:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 00:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 00:17 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 00:36 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 00:42 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 00:26 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 00:29 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 00:19 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 00:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 00:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 00:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 00:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 00:35 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 00:28 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 00:31 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 00:21 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 00:34 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 00:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 00:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/30174234.shtml)
-- 2026-06-30 00:27 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/122835757811.shtml)
-- 2026-06-30 00:13 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/380000602.shtml)
-- 2026-06-30 00:33 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/34529.shtml)
-- 2026-06-30 00:29 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/49919650.shtml)
-- 2026-06-30 00:36 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/51474122.shtml)
-- 2026-06-30 00:34 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/8482210.shtml)
-- 2026-06-30 00:19 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/62897919530.shtml)
-- 2026-06-30 00:33 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/312109590878.shtml)
-- 2026-06-30 00:13 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/16445390981.shtml)
-- 2026-06-30 00:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/347098.shtml)
-- 2026-06-30 00:16 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/84525525.shtml)
-- 2026-06-30 00:12 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/50707777.shtml)
-- 2026-06-30 00:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/3807304.shtml)
-- 2026-06-30 00:38 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/13125.shtml)
+- 2026-06-30 00:41 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/9429272928.shtml)
+- 2026-06-30 00:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/38104572341.shtml)
+- 2026-06-30 00:45 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/8433140.shtml)
+- 2026-06-30 00:31 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/1097837.shtml)
+- 2026-06-30 00:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/81372.shtml)
+- 2026-06-30 00:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/219687069.shtml)
+- 2026-06-30 00:42 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/7332971.shtml)
+- 2026-06-30 00:28 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/65085787.shtml)
+- 2026-06-30 00:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/42781.shtml)
+- 2026-06-30 00:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/2137075.shtml)
+- 2026-06-30 00:41 - [送你一朵小红花](http://www.blog.minike.top/Article/details/2389466294.shtml)
+- 2026-06-30 00:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/3660889.shtml)
+- 2026-06-30 00:31 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/5794789998.shtml)
+- 2026-06-30 00:40 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2610433.shtml)
+- 2026-06-30 00:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/053043.shtml)

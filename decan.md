@@ -1,56 +1,56 @@
-# 飞絮点燃后秒变火球 这些安全提示要记牢→
+# “2026中国电影节”在莫斯科拉开帷幕
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-近一段时间以来，甘肃兰州、白银等地的杨柳絮进入高发期。大量轻盈蓬松的飞絮随风飞舞，堆积成团，不仅影响城市环境，还带来了火灾隐患。 杨柳絮漫天飞舞 警惕“白色火患” 在甘肃兰州，黄河两岸、雁滩公园、滨河路主干道等地杨柳絮随风飘浮，还有不少附着在草坪和树干上，让人体感不适。 市民 张俊涛：尤其是黄河边或者各小区里面都有。从小区单元门一出来就跟下雪一样，特别特别多。眼下，西北地区气候
+中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。多部中国影片与俄罗斯观众见面。 俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。我们很高兴延续每年都在文化交流框架内互办电影展映活
 
 ## 正文
 
-近一段时间以来，甘肃兰州、白银等地的杨柳絮进入高发期。
+中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。
 
-大量轻盈蓬松的飞絮随风飞舞，堆积成团，不仅影响城市环境，还带来了火灾隐患。
+多部中国影片与俄罗斯观众见面。
 
-杨柳絮漫天飞舞 警惕“白色火患” 在甘肃兰州，黄河两岸、雁滩公园、滨河路主干道等地杨柳絮随风飘浮，还有不少附着在草坪和树干上，让人体感不适。
+俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。
 
-市民 张俊涛：尤其是黄河边或者各小区里面都有。
+俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。
 
-从小区单元门一出来就跟下雪一样，特别特别多。
+我们很高兴延续每年都在文化交流框架内互办电影展映活动这一传统。
 
-眼下，西北地区气候干燥、降水稀少，杨柳絮高发时段与火险高发期高度重叠。
+中国驻俄罗斯大使馆公使衔参赞、莫斯科中国文化中心主任封立涛表示，电影是跨越国界的通用语言，也是促进不同国家人民沟通的桥梁。
 
-杨柳絮燃点极低，遇明火可在数秒内迅速燃烧，并随风扩散，极易引燃周边草坪、车辆及建筑物。
+俄罗斯“中国电影节”和中国“俄罗斯电影节”已连续举办多届，成为两国民众了解对方当代电影业的重要窗口，为增进两国人民的友好感情和相互理解发挥了重要作用。
 
-市民 张俊涛：打火机引燃或者是吸烟，柳絮基本上就全着了。
+本届电影节将持续至14日。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 00:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 00:17 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 00:20 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 00:37 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 00:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 00:22 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 00:40 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 00:18 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 00:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 00:21 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 00:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 00:19 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 00:36 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 00:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 00:22 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 00:34 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 00:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 00:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:19 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/72467101.shtml)
-- 2026-06-30 00:34 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/7450643913.shtml)
-- 2026-06-30 00:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/11118.shtml)
-- 2026-06-30 00:40 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/12468706875.shtml)
-- 2026-06-30 00:24 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/37993.shtml)
-- 2026-06-30 00:35 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/96253528435.shtml)
-- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/934753097.shtml)
-- 2026-06-30 00:15 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/969844667997.shtml)
-- 2026-06-30 00:28 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/73351598.shtml)
-- 2026-06-30 00:25 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/773121151.shtml)
-- 2026-06-30 00:37 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/952252.shtml)
-- 2026-06-30 00:30 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/258842128169.shtml)
-- 2026-06-30 00:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/56423.shtml)
-- 2026-06-30 00:39 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/129937243.shtml)
-- 2026-06-30 00:33 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/401106734.shtml)
+- 2026-06-30 00:47 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/3035097.shtml)
+- 2026-06-30 00:29 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/54865207279.shtml)
+- 2026-06-30 00:26 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/33343878305.shtml)
+- 2026-06-30 00:46 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/6932352969.shtml)
+- 2026-06-30 00:45 - [扬名立万](http://www.share.kurohicncr.top/Article/details/584916.shtml)
+- 2026-06-30 00:23 - [田曦薇没招了](https://www.blog.minike.top/Article/details/46488177.shtml)
+- 2026-06-30 00:34 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/51434.shtml)
+- 2026-06-30 00:42 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/4842605852.shtml)
+- 2026-06-30 00:24 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/20449908.shtml)
+- 2026-06-30 00:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/436113.shtml)
+- 2026-06-30 00:34 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/048194.shtml)
+- 2026-06-30 00:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/48881785.shtml)
+- 2026-06-30 00:25 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/94006822093.shtml)
+- 2026-06-30 00:38 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/5772150.shtml)
+- 2026-06-30 00:30 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/11033428.shtml)

@@ -1,56 +1,57 @@
-# 国产家电品牌强势崛起，三星家电告别中国市场
+# 利好！2570亿元中央资金力挺城市更新
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-打不过，索性离场。 5月6日，三星电子官网突然发布一条通知，核心只有一句：为应对急剧变化的市场环境，决定在中国大陆市场停止销售含电视、显示器在内的所有家电产品。 一个曾连续10多年位居中国市场电视销量第一的品牌，为何黯然离场？ 产业在线高级分析师王娟在接受三里河采访时分析，三星家电退出中国市场，是国内行业激烈竞争、企业自身战略转型以及全球产能布局重构三重因素叠加下的必然结果。
+记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。 今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。《规划》部署培育壮大城市发展新动能、
 
 ## 正文
 
-打不过，索性离场。
+记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。
 
-5月6日，三星电子官网突然发布一条通知，核心只有一句：为应对急剧变化的市场环境，决定在中国大陆市场停止销售含电视、显示器在内的所有家电产品。
+今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。
 
-一个曾连续10多年位居中国市场电视销量第一的品牌，为何黯然离场？
+《规划》部署培育壮大城市发展新动能、营造高品质城市生活空间、推动城市发展绿色低碳转型、增强城市安全韧性、促进城市文化繁荣发展、提升城市治理能力水平等6方面重点任务。
 
-产业在线高级分析师王娟在接受三里河采访时分析，三星家电退出中国市场，是国内行业激烈竞争、企业自身战略转型以及全球产能布局重构三重因素叠加下的必然结果。
+这也是城市更新领域的第一部国家级专项规划。
 
-三星对中国家电市场的失守，并非一日之寒。
+去年7月召开的中央城市工作会议明确，将“推进城市更新”作为实现城市内涵式发展的重要抓手。
 
-2010年前后，风头正盛的三星彩电市占率一度高达20%，而到了2025年，其年电视出货量已从高峰期的255万台萎缩至不足50万台。
+这份顶层设计文件的出台，使得城市更新领域的任务目标、规划与实施均更加清晰。
 
-据奥维云网数据，2026开年至4月26日，三星彩电在中国线上市占率仅剩1.33%，线下只有3.54%。
+作为一项系统工程，城市更新涵盖多项工作内容，涉及多个相关领域，也需要多部门协同推进。
 
-白色家电表现更是惨淡，其冰箱市场份额跌至0.41%，洗衣机跌至0.37%。
+针对《规划》中提到的城市地下管网改造、“好房子”建设等重点话题，以及配套支持政策、协同保障机制等，相关负责人均给出了详细解读。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 00:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 00:25 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 00:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 00:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 00:12 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 00:18 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 00:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 00:39 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 00:28 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 00:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 00:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 00:39 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 00:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 00:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 00:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 00:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 00:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 00:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 00:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/458476873.shtml)
-- 2026-06-30 00:14 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/415751207.shtml)
-- 2026-06-30 00:13 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/570715197.shtml)
-- 2026-06-30 00:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/77589.shtml)
-- 2026-06-30 00:28 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/73868351656.shtml)
-- 2026-06-30 00:23 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/30255880119.shtml)
-- 2026-06-30 00:37 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/3347140.shtml)
-- 2026-06-30 00:30 - [扬名立万](https://www.blog.minike.top/Article/details/65862341.shtml)
-- 2026-06-30 00:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/83576568413.shtml)
-- 2026-06-30 00:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/271293538.shtml)
-- 2026-06-30 00:33 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/3371909.shtml)
-- 2026-06-30 00:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/23434561.shtml)
-- 2026-06-30 00:23 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/0054499228.shtml)
-- 2026-06-30 00:19 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/893087819139.shtml)
-- 2026-06-30 00:36 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/786679782875.shtml)
+- 2026-06-30 00:26 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/51860.shtml)
+- 2026-06-30 00:37 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/95609946732.shtml)
+- 2026-06-30 00:18 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/6280498829.shtml)
+- 2026-06-30 00:23 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/5762552386.shtml)
+- 2026-06-30 00:24 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/89979211.shtml)
+- 2026-06-30 00:26 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/77243921.shtml)
+- 2026-06-30 00:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/832076123.shtml)
+- 2026-06-30 00:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/0472710.shtml)
+- 2026-06-30 00:41 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/341419318.shtml)
+- 2026-06-30 00:43 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/208698.shtml)
+- 2026-06-30 00:41 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/619561.shtml)
+- 2026-06-30 00:34 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/0784194818.shtml)
+- 2026-06-30 00:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/867826179189.shtml)
+- 2026-06-30 00:33 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/60907.shtml)
+- 2026-06-30 00:31 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/2756297.shtml)

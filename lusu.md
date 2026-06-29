@@ -1,55 +1,57 @@
-# 粤港澳大湾区仲裁协作机制文件首次研讨会在南沙召开
+# 穆迪：美国寿险公司持有8070亿美元流动性最差信贷资产
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。 会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。 据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相
+穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。 根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
 
 ## 正文
 
-中新网广州5月9日电 (方伟彬 叶亮)广州仲裁委员会9日发布消息，粤港澳大湾区仲裁联盟(以下简称“联盟”)协作机制文件首次研讨会日前在广州南沙的联盟秘书处顺利举办。
+穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。
 
-会议聚焦区域仲裁协作机制设计，对《粤港澳大湾区仲裁示范规则》等三份核心机制文件的征求意见稿进行了深入探讨，旨在助力粤港澳大湾区仲裁一体化发展。
+根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。
 
-据悉，本次会议采用线上线下相结合的方式，吸引了粤港澳三地十余家仲裁及相关机构派员参与，并邀请广东省司法厅及高校法学专家列席指导。
+在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
 
-与会代表围绕联盟协作机制、规则条款、程序衔接以及人才共享等关键议题展开讨论，达成广泛共识，为完善大湾区仲裁协作体系、提升跨境纠纷解决效能奠定了坚实基础。
+信用评级是保险业财务稳健的关键要素，因为评级决定了保险公司需要预留的资本规模，以确保能够履行对保单持有人的承诺，有时这些承诺的期限可能长达数十年。
 
-粤港澳大湾区仲裁联盟是由粤港澳三地仲裁机构共同发起成立的区域性协作组织，致力于推动三地仲裁规则、服务标准与实践经验的互联互通，为大湾区商事主体提供高效、便捷、专业的争议解决服务。
+“这一增长是由结构性和周期性因素共同推动的，其中包括在利率高企但波动剧烈的环境下，市场对更高风险调整后收益率的持续需求，以及私募信贷供应的增加。
 
-下一步，联盟将梳理汇总会议意见，加快推进协作机制文件修订，持续深化三地仲裁务实协作，努力打造具有全球影响力的湾区仲裁品牌，为大湾区的高质量发展提供优质仲裁服务保障。
+”以Manoj Jethani为首的穆迪分析师团队在报告中指出。
 
-(完)
+由于保险公司在私募信贷等另类投资中的持仓不断增加，目前正面临来自监管机构的审查。
+
+美国财政部已与直接监管该行业的各州监管机构会面，讨论保险公司对这一资产类别的风险敞口问题。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 00:16 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 00:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 00:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 00:19 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 00:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 00:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 00:12 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:36 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 00:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 00:19 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 00:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 00:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 00:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 00:46 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 00:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 00:45 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 00:23 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 00:41 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 00:33 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 00:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 00:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [急先锋](http://www.blog.kurohicncr.top/Article/details/37416175094.shtml)
-- 2026-06-30 00:29 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/56645.shtml)
-- 2026-06-30 00:13 - [扫黑风暴](https://www.blog.minike.top/Article/details/6237156502.shtml)
-- 2026-06-30 00:32 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/767650320.shtml)
-- 2026-06-30 00:25 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/13719.shtml)
-- 2026-06-30 00:16 - [小娘惹](http://www.share.kurohicncr.top/Article/details/584862912069.shtml)
-- 2026-06-30 00:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/87572901974.shtml)
-- 2026-06-30 00:19 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/655669665511.shtml)
-- 2026-06-30 00:39 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/7181208725.shtml)
-- 2026-06-30 00:14 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/318304.shtml)
-- 2026-06-30 00:41 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/532935935861.shtml)
-- 2026-06-30 00:30 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/46198825239.shtml)
-- 2026-06-30 00:23 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/20100817225.shtml)
-- 2026-06-30 00:16 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/0890228518.shtml)
-- 2026-06-30 00:31 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/408654.shtml)
+- 2026-06-30 00:38 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/45516212.shtml)
+- 2026-06-30 00:46 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/633907762966.shtml)
+- 2026-06-30 00:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/43304.shtml)
+- 2026-06-30 00:42 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/86955049559.shtml)
+- 2026-06-30 00:43 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/30934328.shtml)
+- 2026-06-30 00:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/561354623365.shtml)
+- 2026-06-30 00:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/180097.shtml)
+- 2026-06-30 00:22 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/369110.shtml)
+- 2026-06-30 00:19 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/31286.shtml)
+- 2026-06-30 00:37 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/66266724.shtml)
+- 2026-06-30 00:46 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/49358603.shtml)
+- 2026-06-30 00:32 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/66980295.shtml)
+- 2026-06-30 00:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/102225276.shtml)
+- 2026-06-30 00:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/4833536.shtml)
+- 2026-06-30 00:40 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/746123.shtml)

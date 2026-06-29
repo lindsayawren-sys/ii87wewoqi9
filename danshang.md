@@ -1,49 +1,56 @@
-# 百年人寿晋中中心支公司被罚18万元：编制、提供虚假的报告报表文件资料
+# 畜牧养殖股大面积上攻，华宝基金农牧渔ETF（159275）逆市显韧性！估值仍处历史低位，布局时机到了？
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。 责任编辑：曹睿潼
+农牧渔板块今日（6月10日）韧性彰显。全市场首只农牧渔ETF（159275）开盘后多数时间逆市飘红，截至发稿，场内价格微跌0.13%。 成份股方面，畜牧养殖、动保等板块部分个股表现亮眼。截至发稿，申联生物大涨超5%，巨星农牧、神农集团、中牧股份等亦涨幅居前。下跌方面，海南橡胶、生物股份、国联水产等跌幅居前，拖累板块走势。 中国银河证券表示，2026年，一方面考虑生猪养殖行业持续
 
 ## 正文
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。
+农牧渔板块今日（6月10日）韧性彰显。
 
-丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。
+全市场首只农牧渔ETF（159275）开盘后多数时间逆市飘红，截至发稿，场内价格微跌0.13%。
 
-责任编辑：曹睿潼
+成份股方面，畜牧养殖、动保等板块部分个股表现亮眼。
+
+截至发稿，申联生物大涨超5%，巨星农牧、神农集团、中牧股份等亦涨幅居前。
+
+下跌方面，海南橡胶、生物股份、国联水产等跌幅居前，拖累板块走势。
+
+中国银河证券表示，2026年，一方面考虑生猪养殖行业持续深度亏损带来的市场化去产能，另一方面考虑政策层面对产能去化的关注，行业产能大概率呈现持续去化的状态，叠加考虑养殖效率的潜在变化，2026年猪价承压，2027年或可迎来生猪养殖上行周期。
+
+中邮证券指出，三、四季度猪价低位反弹与行业产能去化并行。
+
+养猪行业已连续亏损近4个月，亏损幅度已超过上轮周期低点。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 00:17 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 00:12 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 00:27 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 00:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 00:28 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 00:32 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 00:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 00:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 00:30 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 00:39 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 00:39 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 00:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 00:43 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 00:41 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 00:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 00:43 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 00:40 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 00:36 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 00:21 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 00:20 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 00:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/9325602.shtml)
-- 2026-06-30 00:41 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/851620629.shtml)
-- 2026-06-30 00:19 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/1347987009.shtml)
-- 2026-06-30 00:21 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/286659521639.shtml)
-- 2026-06-30 00:41 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/277047294.shtml)
-- 2026-06-30 00:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/650868522.shtml)
-- 2026-06-30 00:16 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/5484917.shtml)
-- 2026-06-30 00:22 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/87730603.shtml)
-- 2026-06-30 00:19 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/437914.shtml)
-- 2026-06-30 00:15 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/57165029.shtml)
-- 2026-06-30 00:35 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/377388646.shtml)
-- 2026-06-30 00:40 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/400155034492.shtml)
-- 2026-06-30 00:37 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/41501280.shtml)
-- 2026-06-30 00:22 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/81219736.shtml)
-- 2026-06-30 00:37 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/0185059.shtml)
+- 2026-06-30 00:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/9321809.shtml)
+- 2026-06-30 00:43 - [第一炉香](https://www.share.kurohicncr.top/Article/details/982433286.shtml)
+- 2026-06-30 00:30 - [TOP Prada](https://www.share.minike.top/Article/details/500308.shtml)
+- 2026-06-30 00:26 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/88863.shtml)
+- 2026-06-30 00:21 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/630452668.shtml)
+- 2026-06-30 00:41 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/402724.shtml)
+- 2026-06-30 00:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/864254670.shtml)
+- 2026-06-30 00:21 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/60022191.shtml)
+- 2026-06-30 00:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/13905.shtml)
+- 2026-06-30 00:46 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/9946951614.shtml)
+- 2026-06-30 00:23 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/5346997.shtml)
+- 2026-06-30 00:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/843560.shtml)
+- 2026-06-30 00:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/01870756.shtml)
+- 2026-06-30 00:37 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/813727927276.shtml)
+- 2026-06-30 00:23 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/55775310.shtml)

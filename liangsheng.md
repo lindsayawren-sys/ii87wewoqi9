@@ -1,59 +1,51 @@
-# AI抢饭碗终成现实，美国多家科技公司宣布裁员
+# 为中朝传统友谊注入新的时代内涵和强劲动力，习近平提出“四个坚持”
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-随著人工智能（AI）深入美国企业界，一个话题引发了激烈辩论：AI究竟会像悲观主义者担心的那样大规模摧毁就业岗位，还是会如乐观派所愿，让员工得以解放出来去从事更有意义的工作？ 一些早期迹象表明，末日论者或许并非杞人忧天。仅在周四下午，就有至少三家上市公司透露了大规模裁员计划，以应对职场生态的变革。 零工经济平台Upwork宣布将裁减约四分之一的员工，该公司首席执行官海登．布朗（H
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 习近平指出，愿同金正恩总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。 总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘
 
 ## 正文
 
-随著人工智能（AI）深入美国企业界，一个话题引发了激烈辩论：AI究竟会像悲观主义者担心的那样大规模摧毁就业岗位，还是会如乐观派所愿，让员工得以解放出来去从事更有意义的工作？
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-一些早期迹象表明，末日论者或许并非杞人忧天。
+习近平指出，愿同金正恩总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。
 
-仅在周四下午，就有至少三家上市公司透露了大规模裁员计划，以应对职场生态的变革。
-
-零工经济平台Upwork宣布将裁减约四分之一的员工，该公司首席执行官海登．布朗（Hayden Brown）在致员工的公开信中表示：“AI意味著产品和工程团队能以更小的规模、不同的资源配置，爆发出前所未有的影响力。
-
-” 布朗还补充道，“‘两个披萨’团队已经成为历史”，这似乎是在暗指亚马逊（Amazon.com）的理念，即团队规模应控制在两个披萨就能喂饱的程度。
-
-但在Upwork看来，这样的规模依然显得臃肿：该公司目前正在“整合冗余工作并压缩工作流程，以减少交接环节”。
-
-网络安全公司Cloudflare周四披露，将裁员逾1，100人，根据其上一份年度文件公布的员工总数，此次裁员比例高达约20%。
-
-“仅在过去三个月里，Cloudflare的AI使用量就激增了600%以上”，联合创始人马修．普林斯（Matthew Prince）和米歇尔．扎特林（Michelle Zatlyn）在一封公开的致员工信中写道。
+总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘杨 编辑丨谭瑶 高少卓
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 00:29 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 00:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 00:13 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:35 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 00:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 00:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 00:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 00:12 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 00:32 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 00:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 00:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 00:22 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 00:23 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 00:20 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 00:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 00:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:27 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 00:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 00:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 00:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 00:31 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 00:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 00:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 00:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 00:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 00:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/4630097.shtml)
-- 2026-06-30 00:12 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/80651.shtml)
-- 2026-06-30 00:12 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/003931612.shtml)
-- 2026-06-30 00:19 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5257035507.shtml)
-- 2026-06-30 00:20 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/294834099.shtml)
-- 2026-06-30 00:13 - [世界杯](http://www.share.kurohicncr.top/Article/details/2801242301.shtml)
-- 2026-06-30 00:25 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/6983945048.shtml)
-- 2026-06-30 00:29 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/918629.shtml)
-- 2026-06-30 00:38 - [恋与深空 日服](https://www.share.minike.top/Article/details/25742830.shtml)
-- 2026-06-30 00:41 - [毒液2](https://www.blog.kurohicncr.top/Article/details/1153959213.shtml)
-- 2026-06-30 00:29 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/6862124136.shtml)
-- 2026-06-30 00:38 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/521892640.shtml)
-- 2026-06-30 00:25 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/579523.shtml)
-- 2026-06-30 00:13 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/01133247121.shtml)
-- 2026-06-30 00:38 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/0305916982.shtml)
+- 2026-06-30 00:26 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/6924932046.shtml)
+- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/1248919.shtml)
+- 2026-06-30 00:46 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/551575661.shtml)
+- 2026-06-30 00:27 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1893406.shtml)
+- 2026-06-30 00:40 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/5886667.shtml)
+- 2026-06-30 00:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/990674691859.shtml)
+- 2026-06-30 00:36 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/2476165.shtml)
+- 2026-06-30 00:29 - [金牌调解](https://www.share.kurohicncr.top/Article/details/7284212.shtml)
+- 2026-06-30 00:25 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/7680966.shtml)
+- 2026-06-30 00:26 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/59429.shtml)
+- 2026-06-30 00:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/218834606812.shtml)
+- 2026-06-30 00:18 - [扫黑风暴](http://www.blog.minike.top/Article/details/18995918.shtml)
+- 2026-06-30 00:46 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/634921964669.shtml)
+- 2026-06-30 00:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/470571.shtml)
+- 2026-06-30 00:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/9625902796.shtml)

@@ -1,58 +1,57 @@
-# 国内成品油价今晚上调，油价重返“9元时代”
+# 副总裁自曝离职钉钉：重现辉煌的代价，不应该是所有人用工作时长换油尽灯枯
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 田鹤琪 国内成品油价今晚迎来上调。 5月8日，国家发改委发布消息称，自24时起，国内汽油价格和柴油价格分别上调320元/吨、310元/吨。折合升价，92号汽油、95号汽油和0号柴油分别上调0.25元、0.27元、0.26元。 公众自驾通勤和出行消费支出将大幅增加。例如，油箱容量为50升的小型私家车加满一箱油，将比之前多花12.5元左右；物流行业，以月跑1万公里
+近日，来自阿里移动办公平台“钉钉”员工发布的万字离职信刷屏网络，引发职场群体广泛共鸣。 6月8日，钉钉副总裁、AI表格负责人马锐拉在个人公众号发布《置身钉外》一文，分享了自己读完阿里内网爆款长文《置身钉内》后的所思所感。他同时透露，自己已于5月15日正式办完离职手续，结束三年阿里生涯，离开钉钉。 就在上周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。作者是钉钉“O
 
 ## 正文
 
-界面新闻记者 | 田鹤琪 国内成品油价今晚迎来上调。
+近日，来自阿里移动办公平台“钉钉”员工发布的万字离职信刷屏网络，引发职场群体广泛共鸣。
 
-5月8日，国家发改委发布消息称，自24时起，国内汽油价格和柴油价格分别上调320元/吨、310元/吨。
+6月8日，钉钉副总裁、AI表格负责人马锐拉在个人公众号发布《置身钉外》一文，分享了自己读完阿里内网爆款长文《置身钉内》后的所思所感。
 
-折合升价，92号汽油、95号汽油和0号柴油分别上调0.25元、0.27元、0.26元。
+他同时透露，自己已于5月15日正式办完离职手续，结束三年阿里生涯，离开钉钉。
 
-公众自驾通勤和出行消费支出将大幅增加。
+就在上周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。
 
-例如，油箱容量为50升的小型私家车加满一箱油，将比之前多花12.5元左右；物流行业，以月跑1万公里，百公里油耗在38L的重型卡车为例，单辆车的燃油成本将增加428元左右。
+作者是钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅辛（花名“幽素”），在这篇长文中，她复盘了钉钉“ONE”这款AI产品从立项、DAU直冲300万，再到留存率断崖式下跌，最终收缩、拆分的全过程。
 
-本轮调价后，全国大多数地区车柴价格8.4-8.6元/升，92#汽油零售限价在8.5-8.6元/升，95号汽油价格将全面涨至“9元时代”。
+ONE项目是钉钉创始人陈航（花名“无招”）回归后主推的首个AI原生战略项目。
 
-调价周期内，国内参考的原油变化率处于正值内先扩大后收窄。
+去年8月，陈航发布该产品，期待其能通过Agent驱动的方式重组工作信息流，改变传统“人找事”的办公模式，由AI按优先级整理后，以信息流卡片的形式清晰呈现给用户。
 
-卓创资讯成品油分析师戴田东对界面新闻分析指出，前期由于霍尔木兹海峡危机结果悬而未决，且美伊谈判可能长期停滞，国际油价整体呈现震荡上涨，后期市场对美伊冲突可能结束的乐观情绪升温，国际油价连续三日下跌。
+按照上述7.5万字刷屏文章《置身钉内》的说法，该项目最终因定位迷失、底层基因冲突、设计逻辑脱节、组织内部高压管理等多重矛盾后走向收缩。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 00:14 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 00:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 00:24 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:36 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 00:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 00:34 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 00:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 00:40 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 00:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:17 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 00:39 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 00:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 00:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 00:24 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 00:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 00:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 00:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 00:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 00:38 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [逃狱兄弟](http://www.blog.minike.top/Article/details/07648795632.shtml)
-- 2026-06-30 00:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/12510.shtml)
-- 2026-06-30 00:20 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/264278370241.shtml)
-- 2026-06-30 00:33 - [恋与深空 日服](http://www.share.minike.top/Article/details/279439849.shtml)
-- 2026-06-30 00:34 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/558200.shtml)
-- 2026-06-30 00:35 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/256161053586.shtml)
-- 2026-06-30 00:36 - [炽夏](https://www.share.kurohicncr.top/Article/details/71894705351.shtml)
-- 2026-06-30 00:27 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/79121178.shtml)
-- 2026-06-30 00:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/911977818264.shtml)
-- 2026-06-30 00:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/8314160.shtml)
-- 2026-06-30 00:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/979874493.shtml)
-- 2026-06-30 00:14 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/10368820.shtml)
-- 2026-06-30 00:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/4425207553.shtml)
-- 2026-06-30 00:20 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/912166968557.shtml)
-- 2026-06-30 00:16 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/11427.shtml)
+- 2026-06-30 00:29 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/483768692877.shtml)
+- 2026-06-30 00:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/90689876477.shtml)
+- 2026-06-30 00:27 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/95354.shtml)
+- 2026-06-30 00:43 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/790846485.shtml)
+- 2026-06-30 00:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/5376921806.shtml)
+- 2026-06-30 00:22 - [巴西vs日本](http://www.blog.minike.top/Article/details/6136293.shtml)
+- 2026-06-30 00:26 - [逃狱兄弟](https://www.blog.minike.top/Article/details/0983752557.shtml)
+- 2026-06-30 00:31 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/32737620013.shtml)
+- 2026-06-30 00:25 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7511550057.shtml)
+- 2026-06-30 00:45 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/30452452.shtml)
+- 2026-06-30 00:35 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/96317.shtml)
+- 2026-06-30 00:23 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/1793160.shtml)
+- 2026-06-30 00:22 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/2358546668.shtml)
+- 2026-06-30 00:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/64621666222.shtml)
+- 2026-06-30 00:20 - [金牌调解](https://www.share.minike.top/Article/details/5334428.shtml)

@@ -1,59 +1,61 @@
-# 我国百余家单位将共建“太空云”生态
+# 专家解读：黄山对话会为何举办 空间考古如何构建新范式
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-在今天(5月9日)举行的第二届空天信息技术大会上，中国科学院空天信息创新研究院与百余家科研院所、高校等联合提出共建“太空云”生态、推动形成“太空云”天基信息服务系统。“太空云”未来有望在应急减灾、大众服务、新兴产业等多个领域发挥重要作用，提升天基资源智能化、体系化综合应用效能。“太空云”简单说就是把天上各种各样的卫星，比如遥感卫星、通信卫星、算力卫星，通过技术手段整合在一起，形
+中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。 作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪
 
 ## 正文
 
-在今天(5月9日)举行的第二届空天信息技术大会上，中国科学院空天信息创新研究院与百余家科研院所、高校等联合提出共建“太空云”生态、推动形成“太空云”天基信息服务系统。
+中新网北京6月9日电 (记者 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会(黄山对话会)近日顺利举办，中外学界和业界代表相聚安徽黄山，共商“数智技术驱动名录遗产可持续发展”大计。
 
-“太空云”未来有望在应急减灾、大众服务、新兴产业等多个领域发挥重要作用，提升天基资源智能化、体系化综合应用效能。
+作为大会组委会主席，中国科学院空天信息创新研究院研究员、联合国教科文组织自然与文化遗产空间技术国际中心(HIST)副主任王心源在会间接受记者采访，聚焦黄山对话会为何举办、五届以来收获哪些亮点成果、何以结缘双遗产地黄山等话题进行解读。
 
-“太空云”简单说就是把天上各种各样的卫星，比如遥感卫星、通信卫星、算力卫星，通过技术手段整合在一起，形成一个智能的天基信息服务系统，实现从“功能单星”向“智能星云”的跨越。
+他还以“从遥感考古到空间考古”为题作学术报告，为大数据、人工智能(AI)时代如何构建空间考古新范式建言献策。
 
-在应急减灾领域，“太空云”可大幅提升天基信息响应时效，为应急决策争取宝贵时间。
+影响力越来越大 王心源说，名录遗产是全人类共同的瑰宝，是历史文明的鲜活载体，也是联结过去、当下与未来的纽带，国际对话、交流、合作则是自然文化遗产全球治理的重要内容。
 
-过去发生洪涝、地震等灾害，防灾减灾相关部门要调用卫星去拍摄灾区图像，传回地面处理中心，处理完再分发，耗时很久。
+黄山对话会自2014年举办第一届以来，迄今已成功举办五届，主题从关注空间技术利用到监测气候变化对名录遗产影响，从强调天空地一体化到关注大数据、人工智能赋能名录遗产保护与可持续发展，对话水平越来越高，质量越来越好，影响力越来越大。
 
-有了“太空云”，卫星在天上就能快速协同，第一时间把信息传回，为应急决策争分夺秒。
+王心源指出，黄山是国际上具有重要知名度和广泛影响力的自然与文化双遗产地，也是世界地质公园、世界生物圈保护区，被列入世界遗产名录以来，黄山市在经费投入、研究管理等方面投入很大力量，成为联合国教科文组织名录遗产典型示范地。
 
-面向大众应用，有了“太空云”以后，人们拿着手机这样的便携终端，就能按需接入“太空云”，随时随地调用天上的数据和信息服务，就像我们现在用手机上网一样便利。
+一方面，双遗产地黄山如何处理好保护与高质量可持续发展，新的发展形势提出新的挑战。
 
-此外，“太空云”还可赋能低空经济、6G应用等新兴产业，构建天空地一体化信息服务平台，提供全天候、近实时的智能信息服务。
+另一方面，HIST的建设与发展，也需要建立一个国际同行深度对话、交流合作的学术平台。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:40 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 00:15 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 00:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 00:23 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 00:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 00:22 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 00:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 00:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 00:37 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 00:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 00:25 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 00:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 00:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 00:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 00:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 00:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 00:18 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 00:39 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 00:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 00:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 00:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 00:23 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 00:31 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 00:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 00:38 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 00:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 00:38 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/7294889307.shtml)
-- 2026-06-30 00:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/300502.shtml)
-- 2026-06-30 00:18 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/89183666491.shtml)
-- 2026-06-30 00:21 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/40723.shtml)
-- 2026-06-30 00:16 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/577871.shtml)
-- 2026-06-30 00:24 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/66420946692.shtml)
-- 2026-06-30 00:16 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/047475277.shtml)
-- 2026-06-30 00:35 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/581779.shtml)
-- 2026-06-30 00:41 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/18745148.shtml)
-- 2026-06-30 00:37 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/878522382237.shtml)
-- 2026-06-30 00:24 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/76205221.shtml)
-- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/95262.shtml)
-- 2026-06-30 00:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6368242160.shtml)
-- 2026-06-30 00:23 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/219358.shtml)
-- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/71217591200.shtml)
+- 2026-06-30 00:45 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/4560380.shtml)
+- 2026-06-30 00:43 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/2384737.shtml)
+- 2026-06-30 00:45 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/167843800.shtml)
+- 2026-06-30 00:33 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/8137335261.shtml)
+- 2026-06-30 00:46 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/6598853.shtml)
+- 2026-06-30 00:38 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/475635.shtml)
+- 2026-06-30 00:19 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/107746.shtml)
+- 2026-06-30 00:34 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/62796.shtml)
+- 2026-06-30 00:46 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/6592532546.shtml)
+- 2026-06-30 00:35 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/27259.shtml)
+- 2026-06-30 00:38 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/38637263393.shtml)
+- 2026-06-30 00:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/95288868.shtml)
+- 2026-06-30 00:21 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/971580.shtml)
+- 2026-06-30 00:28 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/25173019858.shtml)
+- 2026-06-30 00:22 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/328111.shtml)

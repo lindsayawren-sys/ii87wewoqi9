@@ -1,57 +1,56 @@
-# 湖北远安警方侦破26年前绑架杀人案
+# 告别“华贵”奔“小康” 罗振华出任小康人寿临时负责人
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网宜昌5月9日电 (董晓斌 董翌文 张骁臣)记者9日从湖北省远安县公安局获悉，该局近日在陕西西安成功抓获潜逃26年的绑架杀人案主犯陈某某。至此，这起发生于2000年的恶性案件终于画上句号。 2000年10月，陈某某伙同两人流窜至远安，合谋实施绑架勒索并致人死亡。案发后，远安县公安局迅速抓获两名同案犯，但陈某某闻风而逃，从此销声匿迹。 26年间，办案民警多次轮换，但追逃工作从
+每经记者|袁园 每经编辑|廖丹 小康人寿总经理一职在空悬10年后将迎来补位。 6月8日，小康人寿发布公告称，公司已聘任罗振华出任临时负责人。《每日经济新闻》记者注意到，小康人寿总精算师孙晓宇也于5月12日拿到任职资格批复。 目前小康人寿高管团队核心成员共5人：1名“60后”，1名“70后”，3名“80后”。 小康人寿的前身是中法人寿，成立于2005年。由于早期外资股东退出等问题
 
 ## 正文
 
-中新网宜昌5月9日电 (董晓斌 董翌文 张骁臣)记者9日从湖北省远安县公安局获悉，该局近日在陕西西安成功抓获潜逃26年的绑架杀人案主犯陈某某。
+每经记者|袁园 每经编辑|廖丹 小康人寿总经理一职在空悬10年后将迎来补位。
 
-至此，这起发生于2000年的恶性案件终于画上句号。
+6月8日，小康人寿发布公告称，公司已聘任罗振华出任临时负责人。
 
-2000年10月，陈某某伙同两人流窜至远安，合谋实施绑架勒索并致人死亡。
+《每日经济新闻》记者注意到，小康人寿总精算师孙晓宇也于5月12日拿到任职资格批复。
 
-案发后，远安县公安局迅速抓获两名同案犯，但陈某某闻风而逃，从此销声匿迹。
+目前小康人寿高管团队核心成员共5人：1名“60后”，1名“70后”，3名“80后”。
 
-26年间，办案民警多次轮换，但追逃工作从未中断。
+小康人寿的前身是中法人寿，成立于2005年。
 
-2026年，远安县公安局启动新一轮命案积案攻坚行动，成立专班重新梳理线索。
+由于早期外资股东退出等问题，在很长一段时间，公司因流动性危机而陷入偿付能力告急、连年亏损的状况，直到2020年在监管推动下进行重组，由鸿商集团、宁德时代、青山控股等股东注资，而后更名为“小康人寿”。
 
-专案组在陈某某户籍地公安机关找到一张其早年照片，并据此锁定化名“陈某”、藏匿于西安的犯罪嫌疑人。
+需要指出的是，虽然小康人寿更名后经营业绩逐步走向正轨，但其总经理人员一直迟迟未落听，若从中法人寿时代算起，该岗位已空悬约10年之久。
 
-4月28日下午，远安警方经过30多个小时蹲守，在陕西西安一栋老旧居民楼内将正在沙发上打盹的陈某某抓获。
+近期，小康人寿为该职位找到了合适人选。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 00:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 00:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 00:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 00:21 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 00:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 00:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:19 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 00:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 00:17 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 00:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 00:26 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 00:39 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 00:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 00:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 00:31 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 00:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 00:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 00:27 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 00:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/49233093.shtml)
-- 2026-06-30 00:18 - [毒液2](https://www.share.minike.top/Article/details/20566.shtml)
-- 2026-06-30 00:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/118282229996.shtml)
-- 2026-06-30 00:13 - [新官上任三把火](https://www.share.minike.top/Article/details/36015827967.shtml)
-- 2026-06-30 00:16 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/523846967.shtml)
-- 2026-06-30 00:38 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/11501737.shtml)
-- 2026-06-30 00:35 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/65755.shtml)
-- 2026-06-30 00:39 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/974882293703.shtml)
-- 2026-06-30 00:34 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/0689605496.shtml)
-- 2026-06-30 00:35 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/129227.shtml)
-- 2026-06-30 00:23 - [第一炉香](http://www.share.minike.top/Article/details/527233177761.shtml)
-- 2026-06-30 00:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/9010484513.shtml)
-- 2026-06-30 00:25 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/053950679.shtml)
-- 2026-06-30 00:40 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/678767144519.shtml)
-- 2026-06-30 00:39 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0198902.shtml)
+- 2026-06-30 00:40 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/6707540311.shtml)
+- 2026-06-30 00:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/683394776.shtml)
+- 2026-06-30 00:31 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/1035647.shtml)
+- 2026-06-30 00:25 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/2177672727.shtml)
+- 2026-06-30 00:30 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/1230149696.shtml)
+- 2026-06-30 00:47 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/3921813800.shtml)
+- 2026-06-30 00:24 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/25943284.shtml)
+- 2026-06-30 00:19 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/87801209133.shtml)
+- 2026-06-30 00:23 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/108109912464.shtml)
+- 2026-06-30 00:34 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/316945234592.shtml)
+- 2026-06-30 00:35 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/94605735765.shtml)
+- 2026-06-30 00:36 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/773367.shtml)
+- 2026-06-30 00:25 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/37110814106.shtml)
+- 2026-06-30 00:34 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/221446960801.shtml)
+- 2026-06-30 00:33 - [斛珠夫人](https://www.share.minike.top/Article/details/121662250562.shtml)

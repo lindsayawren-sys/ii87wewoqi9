@@ -1,57 +1,55 @@
-# 入股甘肃最大铝企、押注半导体材料，兴业银行AIC再落子
+# 守护碧海银滩 我国海洋生态经济协同发展
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-AIC（金融资产投资公司）股权投资再添新案例。近日，甘肃东兴铝业有限公司（以下简称“甘肃东兴铝业”）完成工商变更，新增5家AIC股东；成都科美特特种气体有限公司（以下简称“成都科美特”）亦发生股权调整，新增2家AIC股东。 值得一提的是，两家企业的新晋股东名单中，均出现了兴银投资的身影。这家由兴业银行设立的股份行AIC成立仅半年，已展现出较为积极的投资布局态势。 5家AIC联手
+今年以来，我国多项海洋生态重点工程加快推进，首批“和美海岛”打造初见成效，生态优势持续转化为海洋经济发展优势。 自然资源部发布的《中国海洋生态预警监测公报》显示，2025年，我国珊瑚礁、海草床、红树林、海岛生态系统状况以优良为主。 在广西涠洲岛生态修复海域，培育成活的珊瑚群落，今年首次实现规模化自然排卵繁育，标志着人工修复海域已构建完整生态自愈体系。 今年以来，我国蓝色海湾整治
 
 ## 正文
 
-AIC（金融资产投资公司）股权投资再添新案例。
+今年以来，我国多项海洋生态重点工程加快推进，首批“和美海岛”打造初见成效，生态优势持续转化为海洋经济发展优势。
 
-近日，甘肃东兴铝业有限公司（以下简称“甘肃东兴铝业”）完成工商变更，新增5家AIC股东；成都科美特特种气体有限公司（以下简称“成都科美特”）亦发生股权调整，新增2家AIC股东。
+自然资源部发布的《中国海洋生态预警监测公报》显示，2025年，我国珊瑚礁、海草床、红树林、海岛生态系统状况以优良为主。
 
-值得一提的是，两家企业的新晋股东名单中，均出现了兴银投资的身影。
+在广西涠洲岛生态修复海域，培育成活的珊瑚群落，今年首次实现规模化自然排卵繁育，标志着人工修复海域已构建完整生态自愈体系。
 
-这家由兴业银行设立的股份行AIC成立仅半年，已展现出较为积极的投资布局态势。
+今年以来，我国蓝色海湾整治、珊瑚礁修复等一批重点生态工程建设提速；与此同时，“和美海岛”创建示范也稳步推进，首批33个“和美海岛”初步形成岛绿、滩净、水清、物丰的“和美”新格局。
 
-5家AIC联手入股甘肃最大铝企 近日，一则工商变更信息，揭开了甘肃东兴铝业股权结构的一次调整。
+良好的滨海生态资源，促进了海洋新兴产业发展。
 
-企查查信息显示，近日，甘肃东兴铝业股东发生变更：大股东酒泉钢铁（集团）有限责任公司持股比例从100%下降至81.28%，新增9家机构股东，涵盖了银行系投资机构、资产管理公司等多种类型的资本力量。
+自然资源部海洋战略规划与经济司副司长 孟庆垒：1至4月，我国海洋经济向新向优发展，海洋客运量、海洋旅客周转量同比分别增长7.3%和11.1%；多款海洋新药获批临床试验。
 
-9家“新面孔”分别是谁？
-
-其中5家为AIC，分别是交银金融资产投资有限公司（持股4.68%）、建信金融资产投资有限公司（持股2.34%）、农银金融资产投资有限公司（持股1.12%）、中银金融资产投资有限公司（持股0.83%）、和兴银金融资产投资有限公司（持股0.83%）；两家为AMC（金融资产管理公司），分别是中国中信金融资产管理股份有限公司（持股0.97%）和中国东方资产管理股份有限公司（持股2.34%）；此外，还有两家其他投资机构，分别为甘肃国投工融结构调整股权投资基金合伙企业（有限合伙）和芜湖信肃股权投资有限公司，持股比例分别为4.21%、1.39%。
+下一步，我们将坚决守好碧海银滩，进一步夯实海洋资源可持续利用的蓝色根基。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 00:21 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 00:24 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 00:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 00:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 00:18 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 00:27 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 00:18 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 00:20 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 00:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 00:22 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 00:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 00:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 00:18 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 00:22 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 00:31 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 00:32 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 00:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 00:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 00:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 00:40 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 00:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/9347454364.shtml)
-- 2026-06-30 00:22 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/04509.shtml)
-- 2026-06-30 00:27 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/3565609100.shtml)
-- 2026-06-30 00:30 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/97802.shtml)
-- 2026-06-30 00:37 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/68246176043.shtml)
-- 2026-06-30 00:15 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/07450294.shtml)
-- 2026-06-30 00:17 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/096422019.shtml)
-- 2026-06-30 00:30 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/5738638102.shtml)
-- 2026-06-30 00:27 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/265470498.shtml)
-- 2026-06-30 00:20 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/2004247.shtml)
-- 2026-06-30 00:22 - [周生如故](https://www.share.kurohicncr.top/Article/details/097201775.shtml)
-- 2026-06-30 00:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/42049.shtml)
-- 2026-06-30 00:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/9998599559.shtml)
-- 2026-06-30 00:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/71982775.shtml)
-- 2026-06-30 00:31 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/0059390130.shtml)
+- 2026-06-30 00:35 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/043820.shtml)
+- 2026-06-30 00:33 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1092036890.shtml)
+- 2026-06-30 00:21 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/895849.shtml)
+- 2026-06-30 00:33 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/9554661785.shtml)
+- 2026-06-30 00:37 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6862652.shtml)
+- 2026-06-30 00:41 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/229266.shtml)
+- 2026-06-30 00:43 - [沙丘](http://www.blog.minike.top/Article/details/36568882.shtml)
+- 2026-06-30 00:30 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/69770596.shtml)
+- 2026-06-30 00:35 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/8643957909.shtml)
+- 2026-06-30 00:18 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/0262051753.shtml)
+- 2026-06-30 00:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/32660823506.shtml)
+- 2026-06-30 00:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/205829101328.shtml)
+- 2026-06-30 00:41 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/547899234.shtml)
+- 2026-06-30 00:29 - [世界杯](https://www.share.kurohicncr.top/Article/details/2309150549.shtml)
+- 2026-06-30 00:43 - [斗破苍穹](http://www.blog.minike.top/Article/details/641781043.shtml)

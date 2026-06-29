@@ -1,46 +1,56 @@
-# 中国外运将于6月29日派发末期股息每股0.1754港元
+# 习近平同格鲁吉亚总统卡韦拉什维利就中格建交34周年互致贺电并共同宣布将双边关系提升为全面战略伙伴关系
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。责任编辑：卢昱君
+新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。 习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。 习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看
 
 ## 正文
 
-中国外运（00598）发布公告，将于2026年6月29日派发截至2025年12月31日止年度末期股息每股0.1754港元。
+新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。
 
-责任编辑：卢昱君
+习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。
+
+2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。
+
+习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看待中格关系。
+
+借此机会，我愿同卡韦拉什维利总统共同宣布，将中格关系提升为全面战略伙伴关系。
+
+相信这将为中格关系发展开辟新前景，为两国传统友谊续写新篇章，为双方互利合作注入强劲动力，为中格人民创造更多福祉。
+
+卡韦拉什维利表示，回顾过去30余年，格中建立了长久友谊，双边关系在相互尊重、相互信任、建设性合作的基础上取得显著成就。
+
+在两国建交34周年之际，我们共同决定将格中关系提升至全面战略伙伴水平。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 00:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 00:12 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 00:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 00:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 00:18 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 00:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 00:33 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 00:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 00:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 00:26 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 00:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 00:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 00:25 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 00:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 00:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 00:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 00:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 00:41 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 00:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 00:31 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 00:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/43418469.shtml)
-- 2026-06-30 00:21 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/358579.shtml)
-- 2026-06-30 00:26 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/810146833248.shtml)
-- 2026-06-30 00:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/37938524849.shtml)
-- 2026-06-30 00:35 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/90474092.shtml)
-- 2026-06-30 00:33 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/29903569457.shtml)
-- 2026-06-30 00:16 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/22077751.shtml)
-- 2026-06-30 00:28 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/46973.shtml)
-- 2026-06-30 00:33 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/39279227.shtml)
-- 2026-06-30 00:40 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/23173.shtml)
-- 2026-06-30 00:27 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/679848.shtml)
-- 2026-06-30 00:18 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/04364126.shtml)
-- 2026-06-30 00:19 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/232854679983.shtml)
-- 2026-06-30 00:39 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/28512095.shtml)
-- 2026-06-30 00:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/36592003080.shtml)
+- 2026-06-30 00:19 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/98950258077.shtml)
+- 2026-06-30 00:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/30023.shtml)
+- 2026-06-30 00:20 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/707722924558.shtml)
+- 2026-06-30 00:35 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/065401147.shtml)
+- 2026-06-30 00:21 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/645122755.shtml)
+- 2026-06-30 00:36 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/21152.shtml)
+- 2026-06-30 00:24 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/22346282064.shtml)
+- 2026-06-30 00:30 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/69644473095.shtml)
+- 2026-06-30 00:30 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/8068345082.shtml)
+- 2026-06-30 00:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/23512.shtml)
+- 2026-06-30 00:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/39628875453.shtml)
+- 2026-06-30 00:40 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/788095.shtml)
+- 2026-06-30 00:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/3368645316.shtml)
+- 2026-06-30 00:34 - [乔家的儿女](http://www.share.minike.top/Article/details/2366659153.shtml)
+- 2026-06-30 00:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/32083966.shtml)

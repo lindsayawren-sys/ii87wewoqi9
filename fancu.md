@@ -1,57 +1,59 @@
-# 肯尼亚首批享受“零关税”出口中国货物抵达大连港
+# Rubrik推出云应用自主业务恢复解决方案
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。 今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。 辽宁晟麦实业
+数据安全与人工智能运营公司Rubrik近日在其Rubrik FORWARD大会上宣布，推出面向云应用的自主业务恢复解决方案。该方案是一款智能网络韧性工具，旨在全面恢复云应用，涵盖数据、网络、身份认证及配置信息，最终以机器速度重建企业的最低可行业务。 随着强大的人工智能模型将漏洞发现与利用之间的窗口从数月压缩至数秒，提前规划网络韧性变得至关重要。该解决方案由Rubrik的先发制人
 
 ## 正文
 
-中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。
+数据安全与人工智能运营公司Rubrik近日在其Rubrik FORWARD大会上宣布，推出面向云应用的自主业务恢复解决方案。
 
-今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。
+该方案是一款智能网络韧性工具，旨在全面恢复云应用，涵盖数据、网络、身份认证及配置信息，最终以机器速度重建企业的最低可行业务。
 
-辽宁晟麦实业股份有限公司董事长屈铭说，按2026年计划，该公司在肯尼亚的加工工厂将向中国出口2000吨肯尼亚牛油果油，货值约1000万美元。
+随着强大的人工智能模型将漏洞发现与利用之间的窗口从数月压缩至数秒，提前规划网络韧性变得至关重要。
 
-零关税政策预计为该企业直接减免关税成本1400万元人民币，使肯尼亚牛油果油相较墨西哥、法国、西班牙等传统供应国的同类产品拥有约20%的成本优势。
+该解决方案由Rubrik的先发制人恢复引擎驱动，能够在网络攻击发生之前自动发现应用程序及其依赖关系、验证干净恢复节点，并预先构建恢复方案。
 
-据统计，今年1-3月，辽宁与非洲国家贸易进出口108.8亿元，同比增长81.5%。
+当攻击来临时，恢复过程早已启动。
 
-“我们将以零关税举措落地实施为契机，指导企业准确适用原产货物判定标准和海关便利措施等，依托大数据跟踪开展关区享惠分析，支持更多企业依托该举措降低成本、打通市场、链接产能。
+Rubrik首席产品官Anneka Gupta表示：“恢复数据并不等于恢复业务。
 
-”大连海关关税处副处长刘伟说。
+如果应用程序无法正常运行，那么所谓的恢复就是失败的。
 
-(完)
+现代云应用是一系列代码、配置、密钥、身份及依赖关系的堆栈，机器速度的攻击已使传统的全有或全无恢复方式难以为继。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 00:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 00:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 00:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 00:25 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 00:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 00:22 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 00:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 00:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 00:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 00:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 00:40 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 00:46 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 00:36 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 00:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:19 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 00:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 00:38 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 00:21 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 00:41 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 00:41 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 00:18 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 00:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 00:32 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/019106.shtml)
-- 2026-06-30 00:23 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/52056588.shtml)
-- 2026-06-30 00:33 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/0463192.shtml)
-- 2026-06-30 00:32 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/711489.shtml)
-- 2026-06-30 00:22 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/24494732.shtml)
-- 2026-06-30 00:16 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/38096299138.shtml)
-- 2026-06-30 00:33 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/6611108269.shtml)
-- 2026-06-30 00:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/500139.shtml)
-- 2026-06-30 00:28 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/403790923787.shtml)
-- 2026-06-30 00:35 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/03707.shtml)
-- 2026-06-30 00:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/19900.shtml)
-- 2026-06-30 00:17 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/8394118.shtml)
-- 2026-06-30 00:15 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/487884.shtml)
-- 2026-06-30 00:27 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/680174991.shtml)
-- 2026-06-30 00:40 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/180640.shtml)
+- 2026-06-30 00:30 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/9961601.shtml)
+- 2026-06-30 00:35 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/50889388119.shtml)
+- 2026-06-30 00:47 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/548206369.shtml)
+- 2026-06-30 00:32 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/164633843111.shtml)
+- 2026-06-30 00:36 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/0508955.shtml)
+- 2026-06-30 00:35 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/6494119551.shtml)
+- 2026-06-30 00:31 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/7765480033.shtml)
+- 2026-06-30 00:21 - [毒液2](https://www.blog.kurohicncr.top/Article/details/6658439.shtml)
+- 2026-06-30 00:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/637600869178.shtml)
+- 2026-06-30 00:28 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/28492393442.shtml)
+- 2026-06-30 00:21 - [我们的少年时代2](http://www.blog.minike.top/Article/details/6486986938.shtml)
+- 2026-06-30 00:23 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/52038.shtml)
+- 2026-06-30 00:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/94418.shtml)
+- 2026-06-30 00:32 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/70913342165.shtml)
+- 2026-06-30 00:36 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/267394909352.shtml)

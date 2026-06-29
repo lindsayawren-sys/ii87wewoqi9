@@ -1,56 +1,56 @@
-# CoreWeave重申2026年营收120-130亿美元，上调年底运行率下限至180亿美元
+# 最新报告显示美国社保信托基金将于2032年底陷入资金枯竭
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-AI云计算基础设施公司CoreWeave重申2026年全年营收指引为120亿至130亿美元，同时将2026年底的营收运行率下限从170亿美元上调至180亿美元。 业绩回顾 公司此前公布的一季度营收为20.8亿美元，同比增长逾一倍，超出市场预期。调整后每股亏损1.12美元，逊于分析师预期的亏损0.90美元，主要因基础设施部署相关费用先于收入确认。 需求增长强劲 CoreWeave
+美国政府周二表示，数百万美国退休人员赖以生存的美国社会保障信托基金将于2032年底陷入资金枯竭，比此前预测的时间提前，部分原因是美国总统特朗普去年签署的标志性税改法案。 美国社会保障管理局的一份年度报告预测，用于支付退休福利的老年和遗属保险信托基金将于2032年第四季度面临资金枯竭，届时将无法支付100%的预定福利，而2025年年度报告中预测的时间为2033年第一季度。 届时，
 
 ## 正文
 
-AI云计算基础设施公司CoreWeave重申2026年全年营收指引为120亿至130亿美元，同时将2026年底的营收运行率下限从170亿美元上调至180亿美元。
+美国政府周二表示，数百万美国退休人员赖以生存的美国社会保障信托基金将于2032年底陷入资金枯竭，比此前预测的时间提前，部分原因是美国总统特朗普去年签署的标志性税改法案。
 
-业绩回顾 公司此前公布的一季度营收为20.8亿美元，同比增长逾一倍，超出市场预期。
+美国社会保障管理局的一份年度报告预测，用于支付退休福利的老年和遗属保险信托基金将于2032年第四季度面临资金枯竭，届时将无法支付100%的预定福利，而2025年年度报告中预测的时间为2033年第一季度。
 
-调整后每股亏损1.12美元，逊于分析师预期的亏损0.90美元，主要因基础设施部署相关费用先于收入确认。
+届时，该基金的预计收入仅够支付78%的预定福利，这意味着受益人每月社会保障退休收入将减少 22%。
 
-需求增长强劲 CoreWeave表示，订单积压已增至约1，000亿美元，同比增长近三倍。
+针对长期伤残补助申领者的伤残保险信托基金，其储备金在未来 75 年内可维持盈余，该结论与去年测算结果一致。
 
-公司最近与Meta、Anthropic和Jane Street签署了新的合作协议。
+不过，上述两项基金合计将在2034 年第三季度陷入资金枯竭状态，这一时间节点同样未较去年发生变化。
 
-尽管中东战争带来不确定性，但人工智能训练和推理的需求仍保持韧性。
+届时，合并后的基金收入仅能覆盖原定应发补助的 83%；到 2100 年，这一比例将进一步降至 65%。
 
-资本支出与融资 公司重申2026年资本支出指引为310亿至350亿美元，主要用于GPU采购和数据中心建设。
+该报告发现，特朗普和共和党控制的国会去年实施的减税政策导致社会保障福利金缴纳的所得税减少，从而削弱了这两个基金的关键收入来源。
 
-Nvidia最近披露又购买了CoreWeave约20亿美元的股权。
+报告还指出，美国出生率下降和净移民减少也是造成这一局面变化的原因之一。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 00:14 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 00:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 00:13 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 00:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 00:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 00:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 00:33 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 00:12 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 00:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 00:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 00:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 00:24 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 00:25 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 00:27 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 00:22 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 00:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 00:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/819395563097.shtml)
-- 2026-06-30 00:17 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/4506165.shtml)
-- 2026-06-30 00:32 - [金刚川](https://www.blog.minike.top/Article/details/94524.shtml)
-- 2026-06-30 00:30 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/60521.shtml)
-- 2026-06-30 00:12 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/15781849517.shtml)
-- 2026-06-30 00:26 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/746699.shtml)
-- 2026-06-30 00:41 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/55416466174.shtml)
-- 2026-06-30 00:31 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/2163520852.shtml)
-- 2026-06-30 00:34 - [张凌赫 客串](http://www.blog.minike.top/Article/details/2578134177.shtml)
-- 2026-06-30 00:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/56929.shtml)
-- 2026-06-30 00:27 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/83452.shtml)
-- 2026-06-30 00:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/69006.shtml)
-- 2026-06-30 00:32 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/61484.shtml)
-- 2026-06-30 00:19 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/85128999392.shtml)
-- 2026-06-30 00:39 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/924372049.shtml)
+- 2026-06-30 00:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0380968.shtml)
+- 2026-06-30 00:24 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/840851134.shtml)
+- 2026-06-30 00:35 - [月亮](http://www.blog.kurohicncr.top/Article/details/4920371.shtml)
+- 2026-06-30 00:41 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/512678812.shtml)
+- 2026-06-30 00:25 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/62023808.shtml)
+- 2026-06-30 00:24 - [送你一朵小红花](http://www.blog.minike.top/Article/details/4308743.shtml)
+- 2026-06-30 00:37 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/30570491.shtml)
+- 2026-06-30 00:21 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/7553643419.shtml)
+- 2026-06-30 00:42 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/570330157.shtml)
+- 2026-06-30 00:45 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/02234180600.shtml)
+- 2026-06-30 00:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/76702532649.shtml)
+- 2026-06-30 00:28 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/11104.shtml)
+- 2026-06-30 00:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/789388569.shtml)
+- 2026-06-30 00:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/007296209.shtml)
+- 2026-06-30 00:19 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/427132203.shtml)

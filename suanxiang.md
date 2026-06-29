@@ -1,56 +1,53 @@
-# 谷歌旗下Isomorphic Labs拟在新一轮融资中筹集逾20亿美元
+# 海外刷屏的国风上海豫园妆造，实测到底有多惊艳？
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，由Alphabet旗下谷歌DeepMind分拆出来的AI驱动药物研发公司Isomorphic Labs正进行深入谈判，计划在新一轮融资中筹集超过20亿美元。 上述知情人士透露，曾主导Isomorphic Labs去年首轮融资的风投机构Thrive Capital将牵头本轮新融资。由于信息尚未公开，这些人士要求匿名。其中一位人士表示，Alphabet也将参与，但融
+发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。 描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。(完)
 
 ## 正文
 
-据知情人士透露，由Alphabet旗下谷歌DeepMind分拆出来的AI驱动药物研发公司Isomorphic Labs正进行深入谈判，计划在新一轮融资中筹集超过20亿美元。
+发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。
 
-上述知情人士透露，曾主导Isomorphic Labs去年首轮融资的风投机构Thrive Capital将牵头本轮新融资。
+如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。
 
-由于信息尚未公开，这些人士要求匿名。
+描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。
 
-其中一位人士表示，Alphabet也将参与，但融资尚未最终完成。
+古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。
 
-Isomorphic Labs尝试将AI进展应用于加速药物发现并降低研发成本。
-
-做出此类尝试的公司越来越多，尽管硅谷在进军医疗和生命科学方面屡遭失败。
-
-谷歌竞争对手、同样获得Thrive支持的OpenAI，近期也推出了一款旨在加快药物研发的AI模型。
-
-这笔新增融资将是Alphabet长期以来将其前沿押注转化为独立业务计划的又一步。
+(完) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 00:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 00:34 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 00:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 00:18 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 00:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 00:28 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 00:19 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 00:26 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 00:28 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 00:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 00:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 00:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 00:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 00:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 00:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 00:39 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 00:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 00:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 00:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 00:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 00:36 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 00:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/882996201460.shtml)
-- 2026-06-30 00:13 - [炽夏](https://www.blog.minike.top/Article/details/00972516258.shtml)
-- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/38451822.shtml)
-- 2026-06-30 00:41 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/60463980.shtml)
-- 2026-06-30 00:22 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/30746.shtml)
-- 2026-06-30 00:33 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/875416672257.shtml)
-- 2026-06-30 00:16 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/4199506.shtml)
-- 2026-06-30 00:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3575305.shtml)
-- 2026-06-30 00:35 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/894842178.shtml)
-- 2026-06-30 00:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/82567877.shtml)
-- 2026-06-30 00:18 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/12526447009.shtml)
-- 2026-06-30 00:15 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/8944842277.shtml)
-- 2026-06-30 00:30 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/17241.shtml)
-- 2026-06-30 00:41 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/73389847.shtml)
-- 2026-06-30 00:38 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/081658.shtml)
+- 2026-06-30 00:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/75303550581.shtml)
+- 2026-06-30 00:32 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/22112332.shtml)
+- 2026-06-30 00:43 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/1727776.shtml)
+- 2026-06-30 00:41 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/837405591098.shtml)
+- 2026-06-30 00:47 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/99441.shtml)
+- 2026-06-30 00:33 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1692107031.shtml)
+- 2026-06-30 00:39 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/2704467.shtml)
+- 2026-06-30 00:19 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/644773246223.shtml)
+- 2026-06-30 00:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5464841401.shtml)
+- 2026-06-30 00:23 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/95820.shtml)
+- 2026-06-30 00:23 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/4834362.shtml)
+- 2026-06-30 00:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/898352027.shtml)
+- 2026-06-30 00:42 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/72760397.shtml)
+- 2026-06-30 00:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/8005294.shtml)
+- 2026-06-30 00:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/73080234483.shtml)

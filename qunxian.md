@@ -1,60 +1,61 @@
-# 绿意“缝合”伤疤，若尔盖的“人、草、畜”新故事
+# 迈威生物-B逆市涨近8% 9MW5211注射液临床试验申请获国家药监局批准
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-黑颈鹤、藏狐、土拨鼠在草原上悠然栖息，牧民赶着牦牛从远处缓缓走过，他们在这片湿地里共同奏响人与自然和谐共生的乐章。 4月份的若尔盖草原，积雪融化，湿地如镜。黑颈鹤悠然觅食，藏狐偶尔闪现，一派生机。 四川是长江上游重要水源涵养地，也是全球生物多样性保护重点地区。位于川西北的若尔盖湿地，被誉为中国“最美高寒湿地”，其生态状况关系长江流域水安全。然而，在气候变化和人为活动影响下，这里
+迈威生物-B（02493）早盘逆市涨超7%。截至发稿，股价上涨7.71%，现报24.04港元，成交额1026.04万港元。 迈威生物近期宣布，公司自主研发的抗体创新药9MW5211正式获得国家药品监督管理局批准，可针对炎症性肠病（IBD）开展临床试验。9MW5211在其靶点上是全球首款进入临床阶段的候选药物。此前，9MW5211已获FDA许可在美国开展针对IBD的临床试验。 值
 
 ## 正文
 
-黑颈鹤、藏狐、土拨鼠在草原上悠然栖息，牧民赶着牦牛从远处缓缓走过，他们在这片湿地里共同奏响人与自然和谐共生的乐章。
+迈威生物-B（02493）早盘逆市涨超7%。
 
-4月份的若尔盖草原，积雪融化，湿地如镜。
+截至发稿，股价上涨7.71%，现报24.04港元，成交额1026.04万港元。
 
-黑颈鹤悠然觅食，藏狐偶尔闪现，一派生机。
+迈威生物近期宣布，公司自主研发的抗体创新药9MW5211正式获得国家药品监督管理局批准，可针对炎症性肠病（IBD）开展临床试验。
 
-四川是长江上游重要水源涵养地，也是全球生物多样性保护重点地区。
+9MW5211在其靶点上是全球首款进入临床阶段的候选药物。
 
-位于川西北的若尔盖湿地，被誉为中国“最美高寒湿地”，其生态状况关系长江流域水安全。
+此前，9MW5211已获FDA许可在美国开展针对IBD的临床试验。
 
-然而，在气候变化和人为活动影响下，这里一度出现草原沙化、湿地萎缩等问题。
+值得注意的是，近日，在2026 ASCO上，迈威生物靶向Nectin-4ADC创新药9MW2821联合特瑞普利单抗用于治疗局部晚期或转移性尿路上皮癌（la/mUC）患者的Ib/II期临床研究结果进行了口头报告；联合特瑞普利单抗用于围手术期肌层浸润性膀胱癌（MIBC）的II期临床研究以壁报形式展示。
 
-中央第二轮环保督察指出，保护区内部分区域存在牲畜超载问题。
+两项研究均展现出令人鼓舞的疗效及良好的安全性。
 
-随后，当地迅速推进综合治理，实施“山水林田湖草沙冰”一体化修复，严格草畜平衡制度。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 00:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 00:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 00:13 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 00:18 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 00:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 00:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 00:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 00:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 00:36 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 00:36 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 00:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 00:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 00:17 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:28 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 00:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 00:30 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 00:42 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 00:46 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 00:23 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 00:18 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 00:23 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 00:38 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 00:22 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 00:46 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 00:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 00:45 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/65659321.shtml)
-- 2026-06-30 00:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/5113851.shtml)
-- 2026-06-30 00:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/41727306.shtml)
-- 2026-06-30 00:38 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/5628387008.shtml)
-- 2026-06-30 00:24 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/1264633856.shtml)
-- 2026-06-30 00:27 - [绘画区你赢了](http://www.blog.minike.top/Article/details/74492350.shtml)
-- 2026-06-30 00:31 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/4532310534.shtml)
-- 2026-06-30 00:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/524362964.shtml)
-- 2026-06-30 00:36 - [美股](https://www.blog.minike.top/Article/details/6324485.shtml)
-- 2026-06-30 00:28 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/6716562997.shtml)
-- 2026-06-30 00:15 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/037355.shtml)
-- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/68839073.shtml)
-- 2026-06-30 00:15 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/10150790260.shtml)
-- 2026-06-30 00:20 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/7669003680.shtml)
-- 2026-06-30 00:20 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/459952.shtml)
+- 2026-06-30 00:38 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/3702662.shtml)
+- 2026-06-30 00:37 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/55612.shtml)
+- 2026-06-30 00:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/12959964.shtml)
+- 2026-06-30 00:46 - [急先锋](https://www.share.minike.top/Article/details/707121989.shtml)
+- 2026-06-30 00:25 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/681177270997.shtml)
+- 2026-06-30 00:32 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/158325489.shtml)
+- 2026-06-30 00:39 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/59512.shtml)
+- 2026-06-30 00:43 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/281087836.shtml)
+- 2026-06-30 00:29 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/3904727907.shtml)
+- 2026-06-30 00:40 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/118158.shtml)
+- 2026-06-30 00:44 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/331087578800.shtml)
+- 2026-06-30 00:26 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/04847819.shtml)
+- 2026-06-30 00:24 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/39180119.shtml)
+- 2026-06-30 00:35 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/742284216368.shtml)
+- 2026-06-30 00:34 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/24678496.shtml)

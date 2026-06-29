@@ -1,54 +1,58 @@
-# 泰康人寿回应青岛分公司代理人涉案事件：对应承担的责任绝不推卸
+# Aker BP与Viridien深化北海地震勘探合作
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-作者 | 林汉垚 5月7日，泰康人寿就青岛分公司个人代理人被青岛市公安机关立案侦查一事发布声明。 泰康人寿表示，公司对此高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 泰康人寿称，公司始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。目前，已主动联系可能受影响的客
+Viridien与Aker BP已达成一项为期五年的战略合作伙伴协议，旨在加强在挪威大陆架勘探领域的多客户海底节点（OBN）地震采集、成像及技术开发方面的合作。 该协议建立了一个合作框架，旨在协调战略与创新工作，以提高勘探效率并支持挪威近海的未来发现。 根据合作协议，Aker BP的运营经验将与Viridien的地震成像技术和地球科学专业知识相结合。两家公司还计划扩大多客户OB
 
 ## 正文
 
-作者 | 林汉垚 5月7日，泰康人寿就青岛分公司个人代理人被青岛市公安机关立案侦查一事发布声明。
+Viridien与Aker BP已达成一项为期五年的战略合作伙伴协议，旨在加强在挪威大陆架勘探领域的多客户海底节点（OBN）地震采集、成像及技术开发方面的合作。
 
-泰康人寿表示，公司对此高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
+该协议建立了一个合作框架，旨在协调战略与创新工作，以提高勘探效率并支持挪威近海的未来发现。
 
-泰康人寿称，公司始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
+根据合作协议，Aker BP的运营经验将与Viridien的地震成像技术和地球科学专业知识相结合。
 
-目前，已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
+两家公司还计划扩大多客户OBN地震覆盖范围，以支持挪威大陆架的大规模勘探活动。
 
-泰康人寿表示，已深刻认识到代理人员管理的重要性，全面检视相关流程制度，加强合规培训与监督检查。
+此次合作将专注于推进地震采集、成像及处理技术，以提高地下数据质量，并支持勘探与油田开发活动。
 
-此前，有媒体报道，青岛市公安机关以“其他接触类诈骗案”对泰康人寿青岛分公司个人代理人任某某立案侦查。
+Aker BP勘探与油藏开发部门的Petter Sørhaug表示：“Aker BP认为，海底节点地震技术是在勘探和油田开发中改善成像效果、获取更高质量地下数据的关键。
 
-责任编辑：李琳琳
+与Viridien合作，我们将进一步增强在地震采集、成像及处理方面的能力，从而从我们的资产组合中释放更大价值。
+
+” Viridien地球数据部门负责人补充道：“这项多年期协议体现了Viridien长期合作及投资于挪威大陆架的战略。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 00:14 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 00:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 00:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 00:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 00:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 00:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:18 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 00:35 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 00:35 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 00:26 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 00:30 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 00:45 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 00:25 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 00:25 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 00:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 00:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 00:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 00:44 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 00:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 00:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 00:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/24063525.shtml)
-- 2026-06-30 00:25 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/3427037403.shtml)
-- 2026-06-30 00:41 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/667488275.shtml)
-- 2026-06-30 00:25 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2130015.shtml)
-- 2026-06-30 00:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/47245825213.shtml)
-- 2026-06-30 00:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/274070984.shtml)
-- 2026-06-30 00:38 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/22299.shtml)
-- 2026-06-30 00:23 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/1303514.shtml)
-- 2026-06-30 00:29 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/8993700.shtml)
-- 2026-06-30 00:41 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/9671995.shtml)
-- 2026-06-30 00:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/14333573.shtml)
-- 2026-06-30 00:17 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/92020944.shtml)
-- 2026-06-30 00:33 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/331743.shtml)
-- 2026-06-30 00:26 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/83083.shtml)
-- 2026-06-30 00:14 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/3400748158.shtml)
+- 2026-06-30 00:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/70007490.shtml)
+- 2026-06-30 00:40 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/047803.shtml)
+- 2026-06-30 00:25 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/8006364.shtml)
+- 2026-06-30 00:18 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/819370.shtml)
+- 2026-06-30 00:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/1689688999.shtml)
+- 2026-06-30 00:29 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/61000320582.shtml)
+- 2026-06-30 00:28 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/0885426.shtml)
+- 2026-06-30 00:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/694725339.shtml)
+- 2026-06-30 00:33 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/44385652.shtml)
+- 2026-06-30 00:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/888060164965.shtml)
+- 2026-06-30 00:36 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/041096121.shtml)
+- 2026-06-30 00:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/9332108.shtml)
+- 2026-06-30 00:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/46923.shtml)
+- 2026-06-30 00:24 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/6488550849.shtml)
+- 2026-06-30 00:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/36766.shtml)

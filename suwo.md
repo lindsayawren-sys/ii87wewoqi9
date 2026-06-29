@@ -1,57 +1,61 @@
-# 总投资超84亿元！多个家居建材企业密集扩产
+# 合肥“三战成名”，为何坚持下注长鑫科技？
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建
+长鑫科技 扭亏为盈，只是起点。 长鑫科技业绩爆发并加快上市节奏，让合肥这座城市又一次站在了聚光灯下。 谁曾想，如今成为中国第一大DRAM厂商，并创造科创板开板以来募资规模第二大IPO的长鑫科技，在十年前还是一个“无人敢接”的项目。 数据显示，2023年、2024年，长鑫科技归母净利润分别亏损163.4亿元、71.45亿元，2025年全年实现扭亏为盈。今年一季度，长鑫科技实现营收
 
 ## 正文
 
-过去一个多月，多家家居建材企业密集披露投资计划，相继拿地建设新总部或新生产基地，相关项目总投资金额已超过84亿元。
+长鑫科技 扭亏为盈，只是起点。
 
-从具体布局来看，顾家家居拟投资不超过11.88亿元，在杭州打造集智能制造、创新研发、全球运营与品牌展示于一体的综合性新总部；悍高集团则计划投入超20亿元建设新生产基地，以进一步扩大优势产品产能；志豪家具斥资2.36亿元竞得顺德龙江137亩工业用地，拟总投资20亿元建设现代化工厂。
+长鑫科技业绩爆发并加快上市节奏，让合肥这座城市又一次站在了聚光灯下。
 
-此外，千年舟、雍兴集团、宏誉盛、度尚家具等多家企业也纷纷推进新基地建设。
+谁曾想，如今成为中国第一大DRAM厂商，并创造科创板开板以来募资规模第二大IPO的长鑫科技，在十年前还是一个“无人敢接”的项目。
 
-从空间分布看，上述项目高度集中于佛山、杭州、肇庆等家居建材产业核心集聚区。
+数据显示，2023年、2024年，长鑫科技归母净利润分别亏损163.4亿元、71.45亿元，2025年全年实现扭亏为盈。
 
-在当前市场整体承压的背景下，这类逆势投资并非简单的规模扩张，而是头部企业通过强化核心能力，深化产业链协同，构筑更深层次的竞争壁垒，从而为下一轮增长周期抢占战略先机。
+今年一季度，长鑫科技实现营收508亿元，同比增长719%；归母净利润247.62亿元。
 
-顾家投11.88亿元打造新总部国内海外双线并进4月23日，顾家家居发布公告称，为满足公司未来发展规划对经营场所的需求，进一步优化资源配置并促进稳健可持续发展，公司计划投资建设产业总部项目。
+而部分市场机构对其市值的预测达到3万亿元。
 
-该项目选址于杭州东部湾新城大创小镇，总投资不超过11.88亿元，资金来源于自有及自筹资金。
+其高光背后，合肥作为最早、最重要的投资者和支持者，也迎来了收获期。
 
-项目用地面积约6万平方米(约90亩)，计划于2027年一季度开工建设，建设周期为4年，预计在2031年初竣工。
+依托长鑫科技的龙头带动效应，合肥已集聚超450家集成电路企业，形成完整的产业链生态，在全国集成电路产业版图中占据重要席位。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 00:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 00:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 00:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 00:29 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 00:19 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 00:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 00:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 00:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 00:23 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 00:40 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 00:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 00:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 00:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 00:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 00:21 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 00:43 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 00:34 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 00:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:42 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 00:22 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 00:47 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 00:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 00:20 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 00:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 00:32 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/633497.shtml)
-- 2026-06-30 00:42 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/395085702.shtml)
-- 2026-06-30 00:18 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/4916006.shtml)
-- 2026-06-30 00:18 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/574852952579.shtml)
-- 2026-06-30 00:16 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/749534247941.shtml)
-- 2026-06-30 00:19 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/4317842.shtml)
-- 2026-06-30 00:29 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/710529370.shtml)
-- 2026-06-30 00:31 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/350710698.shtml)
-- 2026-06-30 00:19 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/61561.shtml)
-- 2026-06-30 00:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/70927.shtml)
-- 2026-06-30 00:12 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/917257641.shtml)
-- 2026-06-30 00:13 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/10025.shtml)
-- 2026-06-30 00:26 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/604564705.shtml)
-- 2026-06-30 00:12 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/05212155895.shtml)
-- 2026-06-30 00:21 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/4203163.shtml)
+- 2026-06-30 00:47 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/713186187.shtml)
+- 2026-06-30 00:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/443270.shtml)
+- 2026-06-30 00:18 - [急先锋](https://www.blog.kurohicncr.top/Article/details/4725316.shtml)
+- 2026-06-30 00:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/30272.shtml)
+- 2026-06-30 00:25 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/63921857631.shtml)
+- 2026-06-30 00:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/03300.shtml)
+- 2026-06-30 00:24 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/81883627885.shtml)
+- 2026-06-30 00:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/51998320.shtml)
+- 2026-06-30 00:23 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/49966.shtml)
+- 2026-06-30 00:40 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/073460219.shtml)
+- 2026-06-30 00:39 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/314956543057.shtml)
+- 2026-06-30 00:20 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/137649166108.shtml)
+- 2026-06-30 00:36 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/82439.shtml)
+- 2026-06-30 00:20 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/849796549.shtml)
+- 2026-06-30 00:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/389537.shtml)

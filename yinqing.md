@@ -1,56 +1,60 @@
-# 连续三年财务造假！证监会对清越科技及4名高管开出2亿元罚单，公司将被强制退市
+# 美国经济展现韧性，但民众财务信心跌入低谷
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月8日晚间，ST清越（维权）（688496.SH，苏州清越光电科技股份有限公司）发布关于收到中国证监会《行政处罚事先告知书》的公告。公告称，公司于2025年10月31日收到中国证监会出具的《立案告知书》（编号：证监立案字0382025011号）。因公司涉嫌定期报告等财务数据虚假记载，根据《中华人民共和国证券法》《中华人民共和国
+汇通财经APP讯——美国整体经济运行态势优于市场预判，但民众对个人财务、就业前景的悲观情绪持续蔓延。结合纽约联邦储备银行两份最新调查数据来看，居民财务感受持续走弱，通胀压力、薪资缩水、债务风险多重问题叠加，同时市场对美联储货币政策走向也形成了明确预期，经济呈现出冷热分化的格局。 财务感受持续恶化，未来预期深陷低迷 纽约联储发布的消费者预期调查集中反映了民众心态变化。数据显示，5
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月8日晚间，ST清越（维权）（688496.SH，苏州清越光电科技股份有限公司）发布关于收到中国证监会《行政处罚事先告知书》的公告。
+汇通财经APP讯——美国整体经济运行态势优于市场预判，但民众对个人财务、就业前景的悲观情绪持续蔓延。
 
-公告称，公司于2025年10月31日收到中国证监会出具的《立案告知书》（编号：证监立案字0382025011号）。
+结合纽约联邦储备银行两份最新调查数据来看，居民财务感受持续走弱，通胀压力、薪资缩水、债务风险多重问题叠加，同时市场对美联储货币政策走向也形成了明确预期，经济呈现出冷热分化的格局。
 
-因公司涉嫌定期报告等财务数据虚假记载，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+财务感受持续恶化，未来预期深陷低迷 纽约联储发布的消费者预期调查集中反映了民众心态变化。
 
-5月8日，公司收到中国证券监督管理委员会下发的《行政处罚事先告知书》（处罚字\[2026\]13号）（以下简称“《告知书》”），具体情况如下：苏州清越光电科技股份有限公司（简称“清越科技”）涉嫌欺诈发行、信息披露违法违规一案，已调查完毕，依法拟对公司及相关人员作出行政处罚。
+数据显示，5月近48%的民众坦言当下财务状况不及去年同期，该比例创下2023年1月以来新高。
 
-经查明，清越科技及相关人员违法事实如下：2021年12月21日，清越科技披露《首次公开发行股票并在科创板上市招股说明书》（以下简称《招股说明书》）申报稿；2022年8月22日，清越科技披露《招股说明书》上会稿，将报告期更新为2019年至2021年；2022年9月9日，清越科技披露《招股说明书》注册稿；2022年11月11日，清越科技披露《关于同意清越科技首次公开发行股票注册的批复》；2022年12月27日，清越科技披露《首次公开发行股票科创板上市公告书》，2022年12月28日起在上交所科创板上市交易，发行募集资金总额为8.244亿元。
+细分维度中，认为财务状况大幅恶化的受访者占比达到13.3%，较4月提升2.7个百分点，为2022年7月之后的最高值；综合认为现状大幅或略有变差的人群，占比升至43.7%。
 
-2021年，清越科技通过故意少计存货跌价准备、虚假销售芯片等方式虚增利润总额1065.49万元，占《招股说明书》上会稿、注册稿披露的2021年度利润总额的21.72%。
+民众对未来一年的生活预期同样不容乐观，预判财务状况转差的受访者占比达36%，看好境况改善的仅有22.9%，多空预期差值跌至2022年10月以来低位，整体信心处于近阶段谷底。
 
-清越科技在公告的证券发行文件中编造重大虚假内容。
+通胀压力卷土重来，物价预期结构分化 受中东局势影响，油气价格大幅上涨，再度推升通胀风险。
 
-此外，2022年至2023年上半年，清越科技因故意少计存货跌价准备、少计应收账款减值损失、虚假销售显示模组、未及时对补缴税款进行会计处理等事项，导致2022年度利润总额虚增4540.2万元、占2022年年度报告披露利润总额的104.58%，导致2023年上半年利润总额虚增4753.6万元、占2023年半年度报告披露利润总额绝对值的145.10%。
+多家机构预测，本周三即将公布的5月居民消费价格指数，同比通胀率将升至4.2%，创下三年新高，核心通胀率也将达到2.9%，远高于美联储设定的2%通胀目标。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 00:31 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 00:14 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 00:30 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 00:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 00:12 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 00:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:17 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 00:21 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 00:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 00:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 00:26 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 00:45 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 00:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 00:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 00:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 00:27 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 00:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 00:36 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 00:32 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 00:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 00:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 00:19 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 00:26 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/753472142517.shtml)
-- 2026-06-30 00:18 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/799654438.shtml)
-- 2026-06-30 00:31 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/059347251.shtml)
-- 2026-06-30 00:34 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/47330.shtml)
-- 2026-06-30 00:37 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/76687.shtml)
-- 2026-06-30 00:38 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/2083283.shtml)
-- 2026-06-30 00:28 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/01773889027.shtml)
-- 2026-06-30 00:28 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/15394842.shtml)
-- 2026-06-30 00:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/0766066825.shtml)
-- 2026-06-30 00:15 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/047292815.shtml)
-- 2026-06-30 00:12 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/87582469.shtml)
-- 2026-06-30 00:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/549300715.shtml)
-- 2026-06-30 00:28 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/00102.shtml)
-- 2026-06-30 00:28 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/3652836519.shtml)
-- 2026-06-30 00:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/820187.shtml)
+- 2026-06-30 00:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/68432919852.shtml)
+- 2026-06-30 00:36 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/21305534.shtml)
+- 2026-06-30 00:36 - [乔家的儿女](http://www.blog.minike.top/Article/details/292323051080.shtml)
+- 2026-06-30 00:35 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/1188080.shtml)
+- 2026-06-30 00:18 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/86081895304.shtml)
+- 2026-06-30 00:21 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/4055884.shtml)
+- 2026-06-30 00:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/73526506.shtml)
+- 2026-06-30 00:43 - [美人鱼](http://www.share.kurohicncr.top/Article/details/6337416.shtml)
+- 2026-06-30 00:23 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/1345818486.shtml)
+- 2026-06-30 00:22 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/847269694.shtml)
+- 2026-06-30 00:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/431619.shtml)
+- 2026-06-30 00:41 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/30427548.shtml)
+- 2026-06-30 00:23 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/84843.shtml)
+- 2026-06-30 00:34 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/17578.shtml)
+- 2026-06-30 00:46 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/446832187344.shtml)

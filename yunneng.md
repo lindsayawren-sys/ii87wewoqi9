@@ -1,59 +1,50 @@
-# 我国首台双核原子量子计算机研制成功
+# 台湾有事菲律宾也敢有事？“小舰长”吕礼诗怒斥：赖清德遇日“腿软”，遇菲“骨松”
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-由中国科学院牵头，联合武汉大学、华中科技大学和武汉量子技术研究院等团队联合研发的国内首台双核原子量子计算机日前正式发布，这台量子计算机首次将量子处理器从“单核”升级为“双核”，为我国高端算力自主化提供了关键支撑。这台叫作“汉原2号”的超级计算机内部没有传统的芯片，它通过一套精密光学系统控制着200个原子进行运算。技术人员介绍，这200个原子就相当于200个超级大脑，分成两个方阵
+发布时间：2026年06月09日 10:01 来源：中国新闻网 近日，日本和菲律宾企图单方面在中国台湾岛以东海域开展“划界谈判”，引发两岸舆论批评。中国人民大学国际关系学院教授王义桅接受中新网“燕新台”工作室采访时表示，所谓“台湾有事，就是日本有事”升级为“台湾有事，就是日菲有事”，日菲勾连企图撬动台海稳定；中国大陆则以完整的法律体系和常态化行动反制外部干涉，挑衅者的图谋注定失
 
 ## 正文
 
-由中国科学院牵头，联合武汉大学、华中科技大学和武汉量子技术研究院等团队联合研发的国内首台双核原子量子计算机日前正式发布，这台量子计算机首次将量子处理器从“单核”升级为“双核”，为我国高端算力自主化提供了关键支撑。
+发布时间：2026年06月09日 10:01 来源：中国新闻网 近日，日本和菲律宾企图单方面在中国台湾岛以东海域开展“划界谈判”，引发两岸舆论批评。
 
-这台叫作“汉原2号”的超级计算机内部没有传统的芯片，它通过一套精密光学系统控制着200个原子进行运算。
+中国人民大学国际关系学院教授王义桅接受中新网“燕新台”工作室采访时表示，所谓“台湾有事，就是日本有事”升级为“台湾有事，就是日菲有事”，日菲勾连企图撬动台海稳定；中国大陆则以完整的法律体系和常态化行动反制外部干涉，挑衅者的图谋注定失败。
 
-技术人员介绍，这200个原子就相当于200个超级大脑，分成两个方阵形成双核架构，一个用来计算、另一个实时纠错，让效率翻了一倍。
+台退役少校舰长吕礼诗称，赖清德当局一遇到日本就腿软，没想到现在遇到菲律宾，骨头也硬不起来了。
 
-“汉原2号”相比两年前发布的“汉原1号”操作原子的准确率从90%提高到99%，原子稳定存活时间从20秒延长到100秒以上。
+在他看来，妄想日菲为“台独”保驾护航，可谓天方夜谭。
 
-与此同时，它的整机功耗不到7千瓦，无需低温制冷系统，在普通实验室环境就能稳定运行。
-
-研发团队还构建了从芯片生产到封装测试、从激光调制到相位噪声抑制的全链条研发体系，实现核心部件的国产化。
-
-据了解，量子计算能大幅提升密码破解等特定领域的计算效率，在股票的投资组合优化、蛋白质设计、新药研发等方向有广阔应用前景。
-
-目前，“汉原1号”已经在中国移动云平台投入运营，并将出口到海外，“汉原2号”也在加快商用进程。
+(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 00:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 00:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 00:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 00:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 00:24 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 00:41 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 00:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 00:38 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 00:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 00:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 00:35 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 00:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 00:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 00:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 00:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 00:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 00:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 00:43 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 00:32 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 00:40 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 00:29 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 00:34 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:36 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/3768369.shtml)
-- 2026-06-30 00:32 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/28241217056.shtml)
-- 2026-06-30 00:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/09435928.shtml)
-- 2026-06-30 00:16 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/49724304953.shtml)
-- 2026-06-30 00:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/061184.shtml)
-- 2026-06-30 00:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/2660657.shtml)
-- 2026-06-30 00:34 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/36583280.shtml)
-- 2026-06-30 00:38 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/47427125.shtml)
-- 2026-06-30 00:39 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/37600.shtml)
-- 2026-06-30 00:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/472182753.shtml)
-- 2026-06-30 00:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/248256282995.shtml)
-- 2026-06-30 00:14 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/981639.shtml)
-- 2026-06-30 00:40 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/405807709096.shtml)
-- 2026-06-30 00:32 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/55305462060.shtml)
-- 2026-06-30 00:23 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/5397988.shtml)
+- 2026-06-30 00:40 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/29429656815.shtml)
+- 2026-06-30 00:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/50320419.shtml)
+- 2026-06-30 00:43 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/7916712.shtml)
+- 2026-06-30 00:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/71271.shtml)
+- 2026-06-30 00:21 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/50272958.shtml)
+- 2026-06-30 00:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/9292815227.shtml)
+- 2026-06-30 00:41 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/19856.shtml)
+- 2026-06-30 00:22 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/0435613824.shtml)
+- 2026-06-30 00:21 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/61933.shtml)
+- 2026-06-30 00:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/80104.shtml)
+- 2026-06-30 00:30 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/9548591055.shtml)
+- 2026-06-30 00:37 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/90507775.shtml)
+- 2026-06-30 00:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/78714723.shtml)
+- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/67480709.shtml)
+- 2026-06-30 00:45 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/47934.shtml)

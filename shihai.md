@@ -1,60 +1,56 @@
-# 新闻1+1丨“五一”消费市场活力如何延续？
+# 存款产品变身金钱游戏，谁在大额存单转让区兴风作浪？
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。这个假期的消费市场，展现了哪些新特点？假日集中释放的消费活力，又怎样形成常态化的持续增长？“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任
+富贵险中求？ “抢购成功。”在某大额存单代购群中，一用户将刚刚通过群主抢购而来的2年期大额存单截图发了上来。截图显示，预测到期年利率高达3.28%，几乎是市场上2年期存款平均利率的2倍。而这个微信群的群主，正是大额存单的“代抢黄牛”。 近年来，随着银行存款利率持续走低，大额存单利率也全面下滑，年初以来，国有大行1年期大额存单利率甚至跌破1%，步入“0字头”。于是，大额存单转让区
 
 ## 正文
 
-五一假期结束，除了旅游产品的提质升级，还有消费市场的持续增长。
+富贵险中求？
 
-5月7日，文化和旅游部公布“五一”假期出游总花费同比增长2.9%，国家税务总局的消费数据也显示，五一假期服务消费增长快速，商品消费稳中有升。
+“抢购成功。
 
-这个假期的消费市场，展现了哪些新特点？
+”在某大额存单代购群中，一用户将刚刚通过群主抢购而来的2年期大额存单截图发了上来。
 
-假日集中释放的消费活力，又怎样形成常态化的持续增长？
+截图显示，预测到期年利率高达3.28%，几乎是市场上2年期存款平均利率的2倍。
 
-“五一”假期 人们愿意把钱花在哪 中国社会科学院财经战略研究院市场流通与消费研究室主任 依绍华：今年五一假期消费最明显的特点，是服务消费呈现快速爆发式的增长。
+而这个微信群的群主，正是大额存单的“代抢黄牛”。
 
-除此之外，夜经济、体验消费都呈现出快速的比较突出的增长。
+近年来，随着银行存款利率持续走低，大额存单利率也全面下滑，年初以来，国有大行1年期大额存单利率甚至跌破1%，步入“0字头”。
 
-除此之外，我们现在的服务消费由简单的打卡式消费向深度体验式消费转变。
+于是，大额存单转让区时不时蹦出来的高息存量产品成为储户追捧的对象。
 
-从简单的买服务向买体验、买情绪价值消费转变。
+在强烈的需求下，一条以大额存单转让为核心的灰色产业链悄然成形：“黄牛”或是直接接管储户的银行卡，用外挂软件“扫货”；或是先下单，再通过定向转让/协议转让的方式转卖给储户。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 00:14 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 00:23 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 00:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 00:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 00:33 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 00:35 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 00:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 00:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 00:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 00:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 00:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 00:15 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 00:41 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 00:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 00:35 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 00:32 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 00:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 00:25 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 00:34 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 00:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 00:35 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/16248.shtml)
-- 2026-06-30 00:37 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/65914001.shtml)
-- 2026-06-30 00:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/226567857.shtml)
-- 2026-06-30 00:30 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/33643.shtml)
-- 2026-06-30 00:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/059148.shtml)
-- 2026-06-30 00:14 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/963881662.shtml)
-- 2026-06-30 00:29 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/341620447.shtml)
-- 2026-06-30 00:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/434808324653.shtml)
-- 2026-06-30 00:14 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/5442686468.shtml)
-- 2026-06-30 00:15 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/08960434198.shtml)
-- 2026-06-30 00:31 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/52460.shtml)
-- 2026-06-30 00:38 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/56539167685.shtml)
-- 2026-06-30 00:34 - [起风了](http://www.share.minike.top/Article/details/67085692906.shtml)
-- 2026-06-30 00:22 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/843093523038.shtml)
-- 2026-06-30 00:26 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/039145906492.shtml)
+- 2026-06-30 00:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/77061797522.shtml)
+- 2026-06-30 00:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/0103068534.shtml)
+- 2026-06-30 00:30 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/224594210.shtml)
+- 2026-06-30 00:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/7134546622.shtml)
+- 2026-06-30 00:24 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/13263363667.shtml)
+- 2026-06-30 00:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/92565357201.shtml)
+- 2026-06-30 00:22 - [绘画区你赢了](http://www.blog.minike.top/Article/details/11783684.shtml)
+- 2026-06-30 00:34 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/3306797083.shtml)
+- 2026-06-30 00:27 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/333178.shtml)
+- 2026-06-30 00:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/796611232.shtml)
+- 2026-06-30 00:20 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/98842020071.shtml)
+- 2026-06-30 00:25 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/103380336041.shtml)
+- 2026-06-30 00:21 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/34419752525.shtml)
+- 2026-06-30 00:46 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/65056842.shtml)
+- 2026-06-30 00:33 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/1875185155.shtml)

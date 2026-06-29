@@ -1,45 +1,56 @@
-# 中国生物制药于5月8日斥资1005.5万港元回购186万股
+# “蓉深港”进口回程班列首发
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中国生物制药（01177）发布公告，于2026年5月8日斥资1005.5万港元回购186万股。责任编辑：卢昱君
+中新网成都6月9日电 (记者 张浪)成都国际铁路港9日消息：首列“蓉深港”进口回程班列满载巴西牛皮近日从深圳盐田港首发驶往成都。这标志着该海铁联运通道正式实现双向常态化运营，成都与深圳盐田港、香港之间的跨境物流闭环全面成形，补齐了进口回程短板。回程班列的开通，改变了以往“重出轻进、单向流通”的局面。去程班列助力“成都造”“四川造”机械配件、家居产品、电子零部件等远销全球200多
 
 ## 正文
 
-中国生物制药（01177）发布公告，于2026年5月8日斥资1005.5万港元回购186万股。
+中新网成都6月9日电 (记者 张浪)成都国际铁路港9日消息：首列“蓉深港”进口回程班列满载巴西牛皮近日从深圳盐田港首发驶往成都。
 
-责任编辑：卢昱君
+这标志着该海铁联运通道正式实现双向常态化运营，成都与深圳盐田港、香港之间的跨境物流闭环全面成形，补齐了进口回程短板。
+
+回程班列的开通，改变了以往“重出轻进、单向流通”的局面。
+
+去程班列助力“成都造”“四川造”机械配件、家居产品、电子零部件等远销全球200多个国家和地区；回程班列则为全球高端资源入川打通了便捷通道，为智能制造、跨境电商、大宗商品贸易等产业提供支撑。
+
+依托图定班列运营体系，“蓉深港”通道具备时效快、成本优、稳定性强等优势。
+
+目前，成都至盐田港铁路运输时间压缩至48小时内，3天可达香港港口。
+
+进口回程线路延续高效接驳，实现海运、港口、铁路无缝衔接，减少货物滞港与周转损耗，降低企业跨境物流及贸易合规成本。
+
+此次回程班列的首发，进一步完善了成都国际铁路港“公铁水空”多式联运体系，丰富了西部陆海物流通道矩阵，增强了成都作为内陆开放枢纽的辐射带动能力。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 00:28 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 00:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 00:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 00:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 00:39 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 00:31 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 00:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 00:36 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 00:19 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 00:23 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 00:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 00:22 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 00:31 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 00:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 00:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 00:28 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 00:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 00:36 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 00:29 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/27726.shtml)
-- 2026-06-30 00:34 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/345243755174.shtml)
-- 2026-06-30 00:37 - [千香](http://www.blog.kurohicncr.top/Article/details/27363619342.shtml)
-- 2026-06-30 00:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/3604987896.shtml)
-- 2026-06-30 00:19 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/030614.shtml)
-- 2026-06-30 00:17 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/799937778.shtml)
-- 2026-06-30 00:14 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/84187186358.shtml)
-- 2026-06-30 00:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/224692.shtml)
-- 2026-06-30 00:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/0546201.shtml)
-- 2026-06-30 00:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/03874807848.shtml)
-- 2026-06-30 00:21 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/8640236.shtml)
-- 2026-06-30 00:30 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/21147146099.shtml)
-- 2026-06-30 00:23 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/95422.shtml)
-- 2026-06-30 00:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/88409.shtml)
-- 2026-06-30 00:25 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/6790861.shtml)
+- 2026-06-30 00:39 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/73444437793.shtml)
+- 2026-06-30 00:29 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/715546.shtml)
+- 2026-06-30 00:34 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/328043410.shtml)
+- 2026-06-30 00:44 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/889444.shtml)
+- 2026-06-30 00:38 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/72142213963.shtml)
+- 2026-06-30 00:21 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/734253.shtml)
+- 2026-06-30 00:25 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/8719471.shtml)
+- 2026-06-30 00:32 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/545102825059.shtml)
+- 2026-06-30 00:42 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/10135032.shtml)
+- 2026-06-30 00:19 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/60010283.shtml)
+- 2026-06-30 00:24 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/70725.shtml)
+- 2026-06-30 00:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/3090840.shtml)
+- 2026-06-30 00:31 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/70037763042.shtml)
+- 2026-06-30 00:19 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/87320350621.shtml)
+- 2026-06-30 00:19 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/41437978.shtml)

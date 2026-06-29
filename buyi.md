@@ -1,60 +1,59 @@
-# 市场监管总局发布一批全国电子计价秤计量监管创新典型案例
+# 哈萨克斯坦简化外国游客赴拜科努尔航天发射场参观手续
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据市场监管总局网站消息，近日，市场监管总局发布40起全国电子计价秤计量监管创新典型案例，旨在总结推广各地在智慧监管、信用监管、网格化管理、协同监管、社会共治、机制创新等方面的全链条监管实践经验，切实守护人民群众“菜篮子”“钱袋子”，以高水平计量监管护航民生消费公平。智慧监管赋能，实现精准溯源高效管控。案例积极运用数字化、智能化技术破解监管瓶颈，推动监管模式从“
+中新网阿斯塔纳6月9日电(记者 单璐)哈萨克斯坦旅游和体育部部长梅尔扎博瑟诺夫9日在政府工作会议上表示，外国游客申请前往哈萨克斯坦境内的拜科努尔航天发射场参观的审批时间已缩短至10天，以进一步便利其到访。梅尔扎博瑟诺夫表示，拜科努尔航天发射场是哈萨克斯坦具有代表性的旅游目的地。为进一步挖掘其旅游潜力，哈政府已批准《2030年前拜科努尔综合体旅游发展构想》。 他表示，外国游客赴拜
 
 ## 正文
 
-中新网5月8日电 据市场监管总局网站消息，近日，市场监管总局发布40起全国电子计价秤计量监管创新典型案例，旨在总结推广各地在智慧监管、信用监管、网格化管理、协同监管、社会共治、机制创新等方面的全链条监管实践经验，切实守护人民群众“菜篮子”“钱袋子”，以高水平计量监管护航民生消费公平。
+中新网阿斯塔纳6月9日电(记者 单璐)哈萨克斯坦旅游和体育部部长梅尔扎博瑟诺夫9日在政府工作会议上表示，外国游客申请前往哈萨克斯坦境内的拜科努尔航天发射场参观的审批时间已缩短至10天，以进一步便利其到访。
 
-智慧监管赋能，实现精准溯源高效管控。
+梅尔扎博瑟诺夫表示，拜科努尔航天发射场是哈萨克斯坦具有代表性的旅游目的地。
 
-案例积极运用数字化、智能化技术破解监管瓶颈，推动监管模式从“人防”向“技防”“智防”转型。
+为进一步挖掘其旅游潜力，哈政府已批准《2030年前拜科努尔综合体旅游发展构想》。
 
-例如，河北省秦皇岛市针对旅游市场定制防作弊智慧秤，实现交易数据实时上传与异常自动预警，有效破解旅游旺季监管力量不足难题，显著提升监管质效。
+他表示，外国游客赴拜科努尔航天发射场参观的许可手续简化后，旅行社可更加便利地组织游客观摩火箭发射，并开发相关旅游产品。
 
-信用监管发力，实施分级分类精准施策。
+梅尔扎博瑟诺夫表示，拜科努尔航天发射场部分设施具有较大的旅游开发潜力，其中包括“加加林发射台”等。
 
-案例构建以信用为基础的新型监管机制，优化监管资源配置，强化守信激励与失信惩戒。
+为进一步开发相关旅游资源，这些设施仍需进行现代化改造。
 
-例如，上海市、浙江省台州市等地推行诚信计量分级分类监管，按信用等级设定差异化检查频次；江苏省无锡市、湖北省鄂州市建立“红黄牌”“红黑榜”公示制度，对失信商户公开警示、联合惩戒。
+他还表示，除观摩火箭发射外，哈方还计划在发射间歇期发展活动旅游，以吸引游客到访，并提高现有基础设施利用效率。
 
-网格化管理兜底，全域覆盖消除监管盲区。
+此前公布的数据显示，2026年以来，已有超过7500名游客前往拜科努尔航天发射场观看火箭发射。
 
 ## 相关推荐
 
-- 2026-06-30 00:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 00:36 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 00:26 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:34 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 00:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 00:19 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 00:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 00:40 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 00:18 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 00:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 00:41 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 00:30 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 00:39 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 00:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 00:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 00:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 00:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 00:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 00:47 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 00:21 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 00:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 00:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 00:43 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 00:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 00:27 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 00:44 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 00:22 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/210964422.shtml)
-- 2026-06-30 00:28 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/01883236.shtml)
-- 2026-06-30 00:24 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/838377496.shtml)
-- 2026-06-30 00:38 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/7876290.shtml)
-- 2026-06-30 00:40 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/572839.shtml)
-- 2026-06-30 00:23 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/012759396.shtml)
-- 2026-06-30 00:22 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/9577869810.shtml)
-- 2026-06-30 00:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/4994757163.shtml)
-- 2026-06-30 00:28 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/4971520.shtml)
-- 2026-06-30 00:35 - [千与千寻](https://www.share.kurohicncr.top/Article/details/580703761.shtml)
-- 2026-06-30 00:37 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/78321936.shtml)
-- 2026-06-30 00:40 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/85966986.shtml)
-- 2026-06-30 00:22 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/210874.shtml)
-- 2026-06-30 00:20 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/82562092.shtml)
-- 2026-06-30 00:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/8028853.shtml)
+- 2026-06-30 00:22 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/267454.shtml)
+- 2026-06-30 00:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/533986.shtml)
+- 2026-06-30 00:46 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/8568031.shtml)
+- 2026-06-30 00:21 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/284293778.shtml)
+- 2026-06-30 00:18 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/29733206.shtml)
+- 2026-06-30 00:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/568547.shtml)
+- 2026-06-30 00:25 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/669388.shtml)
+- 2026-06-30 00:25 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/852902.shtml)
+- 2026-06-30 00:35 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/09545664.shtml)
+- 2026-06-30 00:29 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/61799.shtml)
+- 2026-06-30 00:35 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/285509431.shtml)
+- 2026-06-30 00:30 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/4255567.shtml)
+- 2026-06-30 00:29 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/4916249716.shtml)
+- 2026-06-30 00:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/661178082.shtml)
+- 2026-06-30 00:28 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/42715.shtml)

@@ -1,56 +1,51 @@
-# 追光的你丨“青年建功正当其时”
+# 王传福：比亚迪今年海外销量有望超预期
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-“今年是‘十五五’开局之年，青年建功正当其时。希望你们胸怀远大理想，矢志拼搏奋斗，带动广大青年把个人追求融入国家发展大局，立足各自岗位不断创造新业绩，在新征程上贡献青春力量。”在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。 青年兴则国家兴。在习近平总书记心中，青年始终占据着重要位置。他勉励广大青年
+6月9日，比亚迪董事长兼总裁王传福在公司2025年度股东会上表示，随着公司技术、产品力提升及海外基地持续释放产量，比亚迪全年海外销量有望超预期。 据了解，比亚迪此前制定的海外销量目标为150万辆。2025年，公司海外销量约105万辆。责任编辑：刘万里 SF014
 
 ## 正文
 
-“今年是‘十五五’开局之年，青年建功正当其时。
+6月9日，比亚迪董事长兼总裁王传福在公司2025年度股东会上表示，随着公司技术、产品力提升及海外基地持续释放产量，比亚迪全年海外销量有望超预期。
 
-希望你们胸怀远大理想，矢志拼搏奋斗，带动广大青年把个人追求融入国家发展大局，立足各自岗位不断创造新业绩，在新征程上贡献青春力量。
+据了解，比亚迪此前制定的海外销量目标为150万辆。
 
-”在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。
+2025年，公司海外销量约105万辆。
 
-青年兴则国家兴。
-
-在习近平总书记心中，青年始终占据着重要位置。
-
-他勉励广大青年要“奋力书写为中国式现代化挺膺担当的青春篇章”。
-
-文案：彭静 剪辑：谭宇 资料来源：人民日报、新华社、央视新闻等
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 00:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 00:19 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 00:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 00:33 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 00:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 00:40 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 00:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 00:24 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:26 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 00:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 00:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 00:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 00:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 00:34 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 00:45 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 00:46 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 00:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 00:30 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 00:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 00:33 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 00:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 00:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 00:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:30 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/954286219.shtml)
-- 2026-06-30 00:29 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/2514683.shtml)
-- 2026-06-30 00:18 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/7803946537.shtml)
-- 2026-06-30 00:26 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/15559.shtml)
-- 2026-06-30 00:33 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/3724362916.shtml)
-- 2026-06-30 00:16 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/489332.shtml)
-- 2026-06-30 00:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/7800330.shtml)
-- 2026-06-30 00:35 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/83919199.shtml)
-- 2026-06-30 00:38 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/7784697.shtml)
-- 2026-06-30 00:19 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/8469671.shtml)
-- 2026-06-30 00:35 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/2602525.shtml)
-- 2026-06-30 00:17 - [张凌赫 客串](https://www.blog.minike.top/Article/details/388969241861.shtml)
-- 2026-06-30 00:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/2850725.shtml)
-- 2026-06-30 00:19 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/88448987.shtml)
-- 2026-06-30 00:34 - [新官上任三把火](https://www.share.minike.top/Article/details/1937917.shtml)
+- 2026-06-30 00:24 - [千与千寻](https://www.share.minike.top/Article/details/84040.shtml)
+- 2026-06-30 00:40 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/018054373907.shtml)
+- 2026-06-30 00:25 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/168316.shtml)
+- 2026-06-30 00:39 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/5388076.shtml)
+- 2026-06-30 00:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/1494651962.shtml)
+- 2026-06-30 00:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/95637.shtml)
+- 2026-06-30 00:43 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/58391643706.shtml)
+- 2026-06-30 00:22 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/4402116.shtml)
+- 2026-06-30 00:37 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/44941.shtml)
+- 2026-06-30 00:35 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/234559106.shtml)
+- 2026-06-30 00:18 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/3021544.shtml)
+- 2026-06-30 00:42 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/89473705.shtml)
+- 2026-06-30 00:38 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/03148992.shtml)
+- 2026-06-30 00:45 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/671421.shtml)
+- 2026-06-30 00:45 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/24400511833.shtml)

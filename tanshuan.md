@@ -1,61 +1,57 @@
-# 在洛杉矶“定义未来”：京东方SID 2026的技术叙事与出海战略
+# 习近平和彭丽媛观看朝鲜专场文艺演出
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-5月初，洛杉矶，全球显示行业最重要的技术秀场SID Display Week 2026正式开幕。中国企业京东方（BOE）连续第12年现身这一舞台，带来三十余项“全球首发”“行业首创”，并首次在海外独家主办AI主题论坛。 这是一次精心编排的技术展演，也是一次清晰可见的战略宣示。 一、65%首发率背后的信号 本届SID，BOE（京东方）的数据颇为抢眼：三十余项展品中，行业首发率高达
+中新社平壤6月8日电 当地时间6月8日晚，中共中央总书记、国家主席习近平和夫人彭丽媛在朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同下，在平壤体育馆同朝鲜各界群众一道观看专场文艺演出。 21时许，习近平夫妇和金正恩夫妇一同登上体育馆主席台。全场观众和演职员以热烈的掌声和欢呼声表达欢迎和致敬。 演出充满激情、气势恢宏，洋溢着中朝人民之间的友好情谊。演员们以歌曲、舞蹈、杂技等形
 
 ## 正文
 
-5月初，洛杉矶，全球显示行业最重要的技术秀场SID Display Week 2026正式开幕。
+中新社平壤6月8日电 当地时间6月8日晚，中共中央总书记、国家主席习近平和夫人彭丽媛在朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同下，在平壤体育馆同朝鲜各界群众一道观看专场文艺演出。
 
-中国企业京东方（BOE）连续第12年现身这一舞台，带来三十余项“全球首发”“行业首创”，并首次在海外独家主办AI主题论坛。
+21时许，习近平夫妇和金正恩夫妇一同登上体育馆主席台。
 
-这是一次精心编排的技术展演，也是一次清晰可见的战略宣示。
+全场观众和演职员以热烈的掌声和欢呼声表达欢迎和致敬。
 
-一、65%首发率背后的信号 本届SID，BOE（京东方）的数据颇为抢眼：三十余项展品中，行业首发率高达65%。
+演出充满激情、气势恢宏，洋溢着中朝人民之间的友好情谊。
 
-这个数字值得细品。
+演员们以歌曲、舞蹈、杂技等形式，表达对习近平时隔7年再次访问朝鲜的热烈欢迎，抒发期待巩固和发展中朝传统友好合作的真挚情感。
 
-在SID这个云集三星、LG等全球顶级显示厂商的平台上，首发率并不等同于“展品数量”，它考验的是技术储备的厚度与节奏控制的能力——什么时候拿出什么牌，在哪个场合定义哪个赛道，本身就是一种产业话语权的争夺。
+《我和我的祖国》《茉莉花》《红旗飘飘》等耳熟能详的歌曲引起全场强烈共鸣，赢得阵阵掌声。
 
-从产品线覆盖来看，BOE（京东方）此次实现了LCD、OLED、MLED三条主流技术路线的全覆盖，同时还把“AI+”这条新赛道单独列为主支柱。
+习近平和金正恩对演员们的精彩表演频频鼓掌致意。
 
-在显示行业被普遍视为存量竞争的当下，这种全线出击的姿态，传递的信号相当明确：不谋局部，谋全局。
+演出在《朝中友谊万古长青》的歌声中落下帷幕。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 00:16 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 00:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 00:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 00:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 00:38 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 00:39 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 00:21 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 00:28 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 00:41 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 00:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 00:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 00:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 00:18 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 00:30 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 00:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 00:42 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 00:25 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 00:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 00:47 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 00:22 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 00:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 00:35 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 00:25 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 00:24 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/159501596697.shtml)
-- 2026-06-30 00:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/3343473.shtml)
-- 2026-06-30 00:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/146134801886.shtml)
-- 2026-06-30 00:39 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/421037.shtml)
-- 2026-06-30 00:39 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/7865150.shtml)
-- 2026-06-30 00:20 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/983538.shtml)
-- 2026-06-30 00:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/2977935423.shtml)
-- 2026-06-30 00:16 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/885259019.shtml)
-- 2026-06-30 00:27 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/956735.shtml)
-- 2026-06-30 00:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/4641702.shtml)
-- 2026-06-30 00:39 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/78041527233.shtml)
-- 2026-06-30 00:30 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/203701.shtml)
-- 2026-06-30 00:38 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/74359595707.shtml)
-- 2026-06-30 00:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/415492.shtml)
-- 2026-06-30 00:27 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/0418908921.shtml)
+- 2026-06-30 00:43 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/34647881.shtml)
+- 2026-06-30 00:24 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/736017.shtml)
+- 2026-06-30 00:23 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/12422658459.shtml)
+- 2026-06-30 00:39 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/025131173.shtml)
+- 2026-06-30 00:37 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/3871560714.shtml)
+- 2026-06-30 00:20 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/9355138262.shtml)
+- 2026-06-30 00:35 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/19801667.shtml)
+- 2026-06-30 00:27 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/99347.shtml)
+- 2026-06-30 00:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/3191853306.shtml)
+- 2026-06-30 00:27 - [斗破苍穹](https://www.share.minike.top/Article/details/588957.shtml)
+- 2026-06-30 00:19 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/694403.shtml)
+- 2026-06-30 00:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/5835954602.shtml)
+- 2026-06-30 00:27 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/8462424128.shtml)
+- 2026-06-30 00:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/739167418.shtml)
+- 2026-06-30 00:39 - [急先锋](https://www.blog.kurohicncr.top/Article/details/856919041836.shtml)

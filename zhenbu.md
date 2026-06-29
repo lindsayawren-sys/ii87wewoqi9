@@ -1,60 +1,54 @@
-# 民盟东营市委会启动“爱心润星・益起同行”公益帮扶自闭症儿童行动
+# 习近平：时隔七年再次到访美丽的平壤 我感到十分高兴 也格外亲切
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-5月8日，民盟东营市委会在市养老中心启动“爱心润星·益起同行”民盟公益帮扶自闭症儿童行动。民盟市委会副主委兼秘书长、二级调研员王国柱，市民政局党组成员、二级调研员张国锋，市民政局儿童福利科负责人赵梦，市儿童福利院院长缪庆国，民盟滨海支部主委、东营区自由空间心理学推广中心主任冯杰，以及市民政局、市儿童福利院工作人员等参加活动。民盟市委会法制委员会主任陈琳主持活动。市民政局党组成员
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 习近平指出，时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。我愿同总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。 金正
 
 ## 正文
 
-5月8日，民盟东营市委会在市养老中心启动“爱心润星·益起同行”民盟公益帮扶自闭症儿童行动。
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-民盟市委会副主委兼秘书长、二级调研员王国柱，市民政局党组成员、二级调研员张国锋，市民政局儿童福利科负责人赵梦，市儿童福利院院长缪庆国，民盟滨海支部主委、东营区自由空间心理学推广中心主任冯杰，以及市民政局、市儿童福利院工作人员等参加活动。
+习近平指出，时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。
 
-民盟市委会法制委员会主任陈琳主持活动。
+我愿同总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。
 
-市民政局党组成员、二级调研员张国锋在致辞中指出，帮助“星星的孩子”更好地融入社会是政府和社会义不容辞的使命，此次公益行动是对政府救助工作的重要补充，是“政府+社会+专业力量”联动关爱服务新模式的有益探索。
+金正恩说：“习近平总书记同志今年首次出访就来到平壤，体现了对朝中关系的高度重视和友好情谊，对朝方是莫大的鼓舞。
 
-民盟市委会副主委兼秘书长、二级调研员王国柱在讲话中强调，民盟发起此项活动，其目的在于汇聚多领域专业力量，为自闭症儿童和家庭提供系统性帮助，为孩子们提供专业疏导和引导，为盟内专业人士搭建公益平台，以及提升社会关注与包容度。
+我们认为，总书记同志此访再次清晰表明，朝中两国始终站在自主和正义的历史正确一边，并向世界彰显，无论国际形势如何风云变幻，久经考验的朝中关系是多么牢不可破。
 
-在与会人员的共同见证下，双方代表签订合作备忘录，标志着“爱心润星·益起同行”公益帮扶行动正式启动。
-
-随后，民盟滨海支部主委冯杰作为盟内心理专家代表进行了发言。
-
-启动仪式结束后，与会人员跟随工作人员一同前往市儿童福利院进行参观并为孩子们送上生活用品。
+” 总监制丨申勇 监制丨龚雪辉 记者丨王鹏飞 李晓周 彭汉明 王冰 黎兵 摄像丨李铮 钟锋 石伟明 王哈男 章猛 钟锐 金雨秋 凌枫 录音丨程爱华 翻译丨宋辉 韩昌松
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 00:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 00:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 00:16 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 00:25 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 00:16 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 00:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 00:33 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 00:20 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 00:39 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 00:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 00:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 00:26 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 00:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 00:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 00:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 00:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 00:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 00:27 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 00:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 00:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:25 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 00:32 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 00:47 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/141207091.shtml)
-- 2026-06-30 00:38 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/45769790226.shtml)
-- 2026-06-30 00:20 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/74421848860.shtml)
-- 2026-06-30 00:23 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/62552.shtml)
-- 2026-06-30 00:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/063147470.shtml)
-- 2026-06-30 00:22 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/6584923.shtml)
-- 2026-06-30 00:31 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/7704945.shtml)
-- 2026-06-30 00:38 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/7896544962.shtml)
-- 2026-06-30 00:39 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/337337769448.shtml)
-- 2026-06-30 00:13 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/298818194981.shtml)
-- 2026-06-30 00:22 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/9812613.shtml)
-- 2026-06-30 00:21 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/6508344.shtml)
-- 2026-06-30 00:28 - [速度与激情9](https://www.blog.minike.top/Article/details/135090000585.shtml)
-- 2026-06-30 00:17 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/54092220009.shtml)
-- 2026-06-30 00:37 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/258762484.shtml)
+- 2026-06-30 00:46 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/2561541220.shtml)
+- 2026-06-30 00:18 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/57597.shtml)
+- 2026-06-30 00:19 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/810125583351.shtml)
+- 2026-06-30 00:28 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/620298276.shtml)
+- 2026-06-30 00:35 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/542752376.shtml)
+- 2026-06-30 00:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/9321537743.shtml)
+- 2026-06-30 00:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/7249019.shtml)
+- 2026-06-30 00:40 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/5822367611.shtml)
+- 2026-06-30 00:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/024459.shtml)
+- 2026-06-30 00:40 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/80370.shtml)
+- 2026-06-30 00:40 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/637962.shtml)
+- 2026-06-30 00:38 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/238817427.shtml)
+- 2026-06-30 00:47 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/30234917589.shtml)
+- 2026-06-30 00:31 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/790132.shtml)
+- 2026-06-30 00:44 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/7946810650.shtml)

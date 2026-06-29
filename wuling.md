@@ -1,56 +1,59 @@
-# 4月非农今夜来袭：市场预期新增6.5万，领先指标暗示超预期可能
+# 派拉蒙1100亿美元巨额并购遭反垄断调查 美多州拟联合起诉阻断审查
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美国4月非农就业报告将于周五（5月7日）美国东部时间上午8：30（北京时间20：30）发布。市场普遍预期新增就业6.5万人、平均时薪环比上涨0.3%（同比3.8%）、失业率维持在4.3%。 然而，综合多项领先指标来看，本月非农可能存在上行风险，新增就业或落在11-15万人区间。与此同时，欧元/美元在4月下半月回落后，过去两周已显现企稳回升迹象。 就业市场韧性
+综合外媒报道，美国派拉蒙（Paramount）拟以1100亿美元收购华纳兄弟探索公司（Warner Bros． Discovery）的巨额并购案，正面临日益严峻的反垄断法律与监管阻力。由加利福尼亚州牵头、多个州深度参与的州检察长联盟目前正在密集筹备联合诉讼，计划于一个月内正式起诉，以阻止这一可能颠覆全球传媒与娱乐业格局的垄断性交易。 最新消息显示，硅谷顶尖诉讼律师罗伯特·范·内
 
 ## 正文
 
-汇通财经APP讯——美国4月非农就业报告将于周五（5月7日）美国东部时间上午8：30（北京时间20：30）发布。
+综合外媒报道，美国派拉蒙（Paramount）拟以1100亿美元收购华纳兄弟探索公司（Warner Bros． Discovery）的巨额并购案，正面临日益严峻的反垄断法律与监管阻力。
 
-市场普遍预期新增就业6.5万人、平均时薪环比上涨0.3%（同比3.8%）、失业率维持在4.3%。
+由加利福尼亚州牵头、多个州深度参与的州检察长联盟目前正在密集筹备联合诉讼，计划于一个月内正式起诉，以阻止这一可能颠覆全球传媒与娱乐业格局的垄断性交易。
 
-然而，综合多项领先指标来看，本月非农可能存在上行风险，新增就业或落在11-15万人区间。
+最新消息显示，硅谷顶尖诉讼律师罗伯特·范·内斯特（Robert Van Nest）正与加州总检察长罗布·邦塔（Rob Bonta）办公室就出任该案州政府方首席顾问律师进行深度磋商。
 
-与此同时，欧元/美元在4月下半月回落后，过去两周已显现企稳回升迹象。
+范·内斯特此前曾成功代理谷歌、OpenAI、网飞（Netflix）等科技巨头的多起标志性重大诉讼，并曾在高通反垄断案中扭转乾坤，在反垄断和知识产权诉讼领域拥有深厚背景。
 
-就业市场韧性犹存，降息预期基本消退 低招低辞格局延续 年初至今，尽管面临伊朗战争、能源价格翻倍、AI对就业冲击等不利因素，美国劳动力市场仍保持相对健康。
+若其最终确认加入，将与派拉蒙聘请的美国反垄断法权威杰弗里·凯斯勒（Jeffrey Kessler）以及特朗普政府时期负责反垄断事务的前助理司法部长马坎·德拉希姆（Makan Delrahim）展开直接对垒。
 
-今年月均新增就业约7万人，足以维持失业率稳定在4.3%的历史低位。
+知情人士透露，尽管起诉书最终主张仍有变数，但原告方目前已将审查重点聚焦于电影发行、流媒体以及新闻服务三大核心市场。
 
-市场预期本次报告将延续“低招聘、低裁员”格局：温和的就业增长、稳定的失业率、薪资渐进上涨。
+美方监管重点正密切评估合并对哥伦比亚广播公司（CBS）以及华纳旗下有线电视新闻网（CNN）等主流媒体整合后所产生的垄断性行业冲击。
 
-降息预期基本消退 在霍尔木兹海峡持续关闭、通胀加速高于美联储2%目标的背景下，市场已基本抹去今年进一步降息的预期。
+除加州外，纽约、科罗拉多、俄勒冈、内华达、华盛顿、康涅狄格和田纳西等州均在开展加入起诉的深入谈判。
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 00:39 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 00:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 00:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 00:30 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 00:14 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 00:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 00:14 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 00:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 00:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 00:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 00:20 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 00:18 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 00:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 00:36 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 00:26 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 00:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 00:32 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 00:44 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 00:28 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 00:47 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 00:30 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 00:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:12 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/4193040.shtml)
-- 2026-06-30 00:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/0207820303.shtml)
-- 2026-06-30 00:13 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/284112440555.shtml)
-- 2026-06-30 00:34 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/503512684.shtml)
-- 2026-06-30 00:30 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/1603136.shtml)
-- 2026-06-30 00:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/23050.shtml)
-- 2026-06-30 00:32 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/70791979773.shtml)
-- 2026-06-30 00:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/41154.shtml)
-- 2026-06-30 00:32 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/8539097627.shtml)
-- 2026-06-30 00:26 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/59298101534.shtml)
-- 2026-06-30 00:20 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/49979314.shtml)
-- 2026-06-30 00:24 - [明星大侦探第四季](https://www.share.minike.top/Article/details/3054107040.shtml)
-- 2026-06-30 00:17 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/1445679416.shtml)
-- 2026-06-30 00:30 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/07229.shtml)
-- 2026-06-30 00:22 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/21415846838.shtml)
+- 2026-06-30 00:36 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/4523488.shtml)
+- 2026-06-30 00:39 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/99460.shtml)
+- 2026-06-30 00:37 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/42975.shtml)
+- 2026-06-30 00:26 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/7289744619.shtml)
+- 2026-06-30 00:20 - [美人鱼](http://www.blog.minike.top/Article/details/9248780619.shtml)
+- 2026-06-30 00:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/654520.shtml)
+- 2026-06-30 00:23 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/586704.shtml)
+- 2026-06-30 00:30 - [TOP Prada](https://www.share.minike.top/Article/details/0189314288.shtml)
+- 2026-06-30 00:23 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/7144718.shtml)
+- 2026-06-30 00:24 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/538413386761.shtml)
+- 2026-06-30 00:35 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/635786660.shtml)
+- 2026-06-30 00:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/785957155247.shtml)
+- 2026-06-30 00:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/282814.shtml)
+- 2026-06-30 00:30 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/557148.shtml)
+- 2026-06-30 00:39 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/179422.shtml)

@@ -1,56 +1,59 @@
-# 一个昔日国家级贫困县的脱贫经验为何赢得多国官员点赞？
+# SpaceX发布首颗轨道数据中心卫星，马斯克称其“比星链卫星简易得多”
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。与会人
+SpaceX于周一晚间在 X 平台发布视频，正式公布第一代轨道数据中心卫星，命名为 AI1。此次发布是该公司推进核心重大项目的第一步，而本周五 SpaceX 即将登陆纳斯达克完成上市。 AI1 卫星峰值算力 150 千瓦，平均算力 120 千瓦，整机能效达到每吨 70 千瓦。卫星搭载的算力硬件支持灵活替换，SpaceX 不会将该航天器绑定单一芯片厂商。 能源由一套峰值 150
 
 ## 正文
 
-中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。
+SpaceX于周一晚间在 X 平台发布视频，正式公布第一代轨道数据中心卫星，命名为 AI1。
 
-”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。
+此次发布是该公司推进核心重大项目的第一步，而本周五 SpaceX 即将登陆纳斯达克完成上市。
 
-“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。
+AI1 卫星峰值算力 150 千瓦，平均算力 120 千瓦，整机能效达到每吨 70 千瓦。
 
-与会人士在会前参观多家行唐企业，实地了解当地脱贫经验。
+卫星搭载的算力硬件支持灵活替换，SpaceX 不会将该航天器绑定单一芯片厂商。
 
-一个曾经的国家级贫困县，为何能赢得多国官员点赞？
+能源由一套峰值 150 千瓦太阳能帆板供给，单位面积发电功率 250 瓦 / 平方米，太阳能相关技术由 SpaceX 位于 CEW 厂区自主研发制造。
 
-答案藏在行唐这些年的蜕变之中。
+该卫星体型庞大，太阳能帆板展开翼展 70 米（230 英尺），整机展开高度 20 米（66 英尺）。
 
-行唐县素有“五山二坡三分田”之称，2011年贫困发生率达24.5%。
+整机架构以单一算力模块为核心，两侧搭配大型可展开太阳能帆板与可展开液冷散热温控系统。
 
-行唐县于2019年正式脱贫摘帽，2020年实现贫困村和贫困人口“双清零”目标。
+SpaceX 介绍，卫星散热依靠可展开液冷辐射器，搭载冗余泵送回路，并配备微流星体防护层，以此解决太空算力最难攻克的难题之一：真空环境下的热量散逸。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 00:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 00:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 00:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 00:13 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 00:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 00:33 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 00:26 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 00:28 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 00:41 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 00:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 00:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:26 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 00:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 00:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 00:44 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 00:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 00:47 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 00:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 00:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 00:36 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 00:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/158515.shtml)
-- 2026-06-30 00:15 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/843154866876.shtml)
-- 2026-06-30 00:29 - [TOP Prada](https://www.blog.minike.top/Article/details/4788975.shtml)
-- 2026-06-30 00:27 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/620900.shtml)
-- 2026-06-30 00:25 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/519520699893.shtml)
-- 2026-06-30 00:29 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/48601991977.shtml)
-- 2026-06-30 00:15 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/3971310.shtml)
-- 2026-06-30 00:33 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/306525088.shtml)
-- 2026-06-30 00:19 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/386994141.shtml)
-- 2026-06-30 00:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/2837163655.shtml)
-- 2026-06-30 00:12 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/62712233656.shtml)
-- 2026-06-30 00:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/66449490.shtml)
-- 2026-06-30 00:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/252386380309.shtml)
-- 2026-06-30 00:34 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/86994369539.shtml)
-- 2026-06-30 00:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/48850167576.shtml)
+- 2026-06-30 00:33 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/8197729.shtml)
+- 2026-06-30 00:39 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/3792365599.shtml)
+- 2026-06-30 00:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/6831067.shtml)
+- 2026-06-30 00:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/50470.shtml)
+- 2026-06-30 00:40 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/331518.shtml)
+- 2026-06-30 00:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/691538.shtml)
+- 2026-06-30 00:32 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/32449960.shtml)
+- 2026-06-30 00:28 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/8025755.shtml)
+- 2026-06-30 00:32 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/041432231.shtml)
+- 2026-06-30 00:44 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/103891.shtml)
+- 2026-06-30 00:32 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/3648238712.shtml)
+- 2026-06-30 00:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/232765444.shtml)
+- 2026-06-30 00:27 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4264212911.shtml)
+- 2026-06-30 00:31 - [恋与深空 巧合](https://www.share.minike.top/Article/details/342855047589.shtml)
+- 2026-06-30 00:24 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/61662706203.shtml)

@@ -1,48 +1,57 @@
-# 渣打集团于5月7日斥资1467.8万英镑回购77万股
+# Sempra Infrastructure任命前利安德巴塞尔CEO Patel为新任掌门人
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-渣打集团（02888）发布公告，于2026年5月7日斥资1467.8万英镑回购77万股。责任编辑：卢昱君
+Sempra Infrastructure于6月8日宣布，Bhavesh “Bob” Patel将出任公司下一任首席执行官，该任命将在KKR牵头的财团完成对该公司多数股权的收购后正式生效。Patel同时还将加入Sempra Infrastructure的董事会。 Patel在全球化工与能源领域拥有近四十年的领导经验。他最近担任Standard Industries总裁，此前曾在
 
 ## 正文
 
-渣打集团（02888）发布公告，于2026年5月7日斥资1467.8万英镑回购77万股。
+Sempra Infrastructure于6月8日宣布，Bhavesh “Bob” Patel将出任公司下一任首席执行官，该任命将在KKR牵头的财团完成对该公司多数股权的收购后正式生效。
 
-责任编辑：卢昱君
+Patel同时还将加入Sempra Infrastructure的董事会。
+
+Patel在全球化工与能源领域拥有近四十年的领导经验。
+
+他最近担任Standard Industries总裁，此前曾在2015年至2021年间出任利安德巴塞尔首席执行官，该公司是全球最大的塑料、化工及炼油企业之一。
+
+在利安德巴塞尔任职期间，Patel主导建设了多个世界级生产设施，推动亚洲市场扩张，并完成了多项战略收购。
+
+更早之前，他曾在雪佛龙及雪佛龙菲利普斯化工公司任职约20年，先后在新加坡和美国担任领导职务。
+
+Sempra Infrastructure现任首席执行官Justin Bird将继续履职至收购交割完成，此后他将转任母公司Sempra的执行副总裁，同时继续担任Sempra Infrastructure董事会成员。
+
+Bird表示，Bob是一位成就卓著、备受尊敬的全球高管，在领导复杂的能源、化工和工业业务方面拥有深厚经验，相信他是带领Sempra Infrastructure进入下一增长篇章的合适领导者。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:33 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 00:25 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 00:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 00:25 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 00:35 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 00:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 00:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 00:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 00:25 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 00:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 00:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 00:26 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 00:44 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 00:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 00:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 00:21 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 00:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 00:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 00:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 00:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 00:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/488955.shtml)
-- 2026-06-30 00:21 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/843748799.shtml)
-- 2026-06-30 00:23 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/0425946008.shtml)
-- 2026-06-30 00:25 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/84871845312.shtml)
-- 2026-06-30 00:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/897715.shtml)
-- 2026-06-30 00:35 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/258270.shtml)
-- 2026-06-30 00:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/88920543280.shtml)
-- 2026-06-30 00:31 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/136351775.shtml)
-- 2026-06-30 00:40 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/979861.shtml)
-- 2026-06-30 00:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/15045.shtml)
-- 2026-06-30 00:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/805000.shtml)
-- 2026-06-30 00:20 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/40846922.shtml)
-- 2026-06-30 00:32 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/10189.shtml)
-- 2026-06-30 00:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/92378092621.shtml)
-- 2026-06-30 00:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/437753029201.shtml)
+- 2026-06-30 00:40 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/77488.shtml)
+- 2026-06-30 00:30 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/92228096.shtml)
+- 2026-06-30 00:38 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/9892266256.shtml)
+- 2026-06-30 00:26 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/30271940132.shtml)
+- 2026-06-30 00:31 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/19663239559.shtml)
+- 2026-06-30 00:39 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/2396943010.shtml)
+- 2026-06-30 00:20 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/25708815481.shtml)
+- 2026-06-30 00:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/764971264.shtml)
+- 2026-06-30 00:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/036872344585.shtml)
+- 2026-06-30 00:22 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/17523.shtml)
+- 2026-06-30 00:34 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/24759508.shtml)
+- 2026-06-30 00:40 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/134497340794.shtml)
+- 2026-06-30 00:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/747567.shtml)
+- 2026-06-30 00:22 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/11789.shtml)
+- 2026-06-30 00:21 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/4139477892.shtml)

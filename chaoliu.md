@@ -1,54 +1,60 @@
-# 国恩科技午前涨超7% 公司塑料板块销量增长出海长期成长确定性高
+# 特朗普称与伊朗的谈判仍在进行 一两天后至少会有眉目
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-国恩科技（02768）午前涨超7%，截至发稿，股价上涨7.60%，现报50.70港元，成交额3977.04万港元。 近日，国恩股份披露26年首季度业绩，申万宏源指出，26Q1公司实现营业收入为53.77亿元（yoy+22%，QoQ-7%），归母净利润为2.57亿元（yoy+131%，QoQ+13%），扣非后归母净利润为2.55亿元（yoy+149%，QoQ+13%），业绩超预期
+美国总统唐纳德·特朗普再次宣称，结束与伊朗冲突的谈判已取得进展；他先前促成以色列和伊朗停火并缓解了可能破坏更广泛和平努力的紧张局势。 特朗普周二在纽约告诉记者，“我们正处于一项非常、非常好协议的最后阶段。一两天后至少会有眉目。” 特朗普讲话之前的数小时，伊朗和以色列在经历了一场双方都发射数波弹道导弹的冲突升级后，同意停止相互攻击。特朗普曾多次提及一项旨在结束这场战争的临时协议。
 
 ## 正文
 
-国恩科技（02768）午前涨超7%，截至发稿，股价上涨7.60%，现报50.70港元，成交额3977.04万港元。
+美国总统唐纳德·特朗普再次宣称，结束与伊朗冲突的谈判已取得进展；他先前促成以色列和伊朗停火并缓解了可能破坏更广泛和平努力的紧张局势。
 
-近日，国恩股份披露26年首季度业绩，申万宏源指出，26Q1公司实现营业收入为53.77亿元（yoy+22%，QoQ-7%），归母净利润为2.57亿元（yoy+131%，QoQ+13%），扣非后归母净利润为2.55亿元（yoy+149%，QoQ+13%），业绩超预期。
+特朗普周二在纽约告诉记者，“我们正处于一项非常、非常好协议的最后阶段。
 
-该行预计公司业绩同比高增主要系产品涨价，塑料板块销量增长，及国恩一塑持续放量所致。
+一两天后至少会有眉目。
 
-申万宏源续指，公司成功实现H股上市，募集资金将用于泰国基地建设，以及香港石化技改。
+” 特朗普讲话之前的数小时，伊朗和以色列在经历了一场双方都发射数波弹道导弹的冲突升级后，同意停止相互攻击。
 
-海外改性塑料市场空间大，盈利能力强，公司将跟随下游企业出海建立先发优势，长期成长确定性高。
+特朗普曾多次提及一项旨在结束这场战争的临时协议。
 
-此外，公司正积极推进香港石化及国恩东明的产能恢复工作，根据公司年报，部分核心项目进度已超过85%，后续增量值得期待。
+这场战争始于今年2月，当时美国和以色列开始轰炸伊朗。
 
-责任编辑：卢昱君
+一项停火协议已生效约两个月，但美国、伊朗和以色列之间零星的冲突仍在继续，凸显出在缺乏持久和平协议的情况下，重返全面战争的风险。
+
+以色列总理本雅明·内塔尼亚胡周一在电视讲话中表示，他目前将对伊朗保持克制，但如果德黑兰再次发动攻击，他将回应。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 00:22 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:30 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 00:16 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 00:40 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 00:26 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 00:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 00:35 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 00:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 00:31 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 00:28 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 00:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 00:22 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 00:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 00:28 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 00:36 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 00:25 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 00:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 00:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 00:19 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 00:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 00:24 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 00:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 00:43 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2415528.shtml)
-- 2026-06-30 00:37 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/12780120214.shtml)
-- 2026-06-30 00:40 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/96972287.shtml)
-- 2026-06-30 00:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/22125696.shtml)
-- 2026-06-30 00:29 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/06577.shtml)
-- 2026-06-30 00:17 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/64919880.shtml)
-- 2026-06-30 00:25 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/75483412.shtml)
-- 2026-06-30 00:24 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/96387255.shtml)
-- 2026-06-30 00:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/0312152827.shtml)
-- 2026-06-30 00:37 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/003692.shtml)
-- 2026-06-30 00:25 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/989810013.shtml)
-- 2026-06-30 00:33 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/7761439730.shtml)
-- 2026-06-30 00:14 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/6725880.shtml)
-- 2026-06-30 00:33 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/17405959485.shtml)
-- 2026-06-30 00:19 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/131592675280.shtml)
+- 2026-06-30 00:23 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/68787003273.shtml)
+- 2026-06-30 00:23 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/6794461683.shtml)
+- 2026-06-30 00:33 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/703170992.shtml)
+- 2026-06-30 00:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/54298712.shtml)
+- 2026-06-30 00:28 - [刘念回应](https://www.share.minike.top/Article/details/6489956892.shtml)
+- 2026-06-30 00:39 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/050670.shtml)
+- 2026-06-30 00:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/9171748059.shtml)
+- 2026-06-30 00:39 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/456116926556.shtml)
+- 2026-06-30 00:22 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7292386.shtml)
+- 2026-06-30 00:43 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/0818135.shtml)
+- 2026-06-30 00:25 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/52768147799.shtml)
+- 2026-06-30 00:20 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/957338023416.shtml)
+- 2026-06-30 00:21 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/676434729.shtml)
+- 2026-06-30 00:30 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/7162661.shtml)
+- 2026-06-30 00:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/048255338335.shtml)

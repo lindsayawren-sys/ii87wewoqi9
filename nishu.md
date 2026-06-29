@@ -1,60 +1,59 @@
-# 摩根士丹利为何加码职业运动员与演艺人士的复杂财富需求
+# 国家防总办公室继续组织多部门会商部署防汛救灾工作
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-摩根士丹利全球体育与娱乐业务主管桑德拉·理查兹近日接受采访时表示，该行正大幅扩展服务职业运动员和演艺人士的团队，以应对这一高净值客户群体日益复杂的财富管理需求。该部门管理的客户资产规模已从2020年的约250亿美元增长至当前的约600亿美元。 客户群体的特殊性 职业运动员的职业生涯通常只有3至5年，且收入曲线极为陡峭。一名23岁的NBA新秀可能在几年内赚取数千万美元，退役后却面
+中新网6月9日电 据应急管理部微信公众号消息，6月9日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房城乡建设部、交通运输部等多部门联合值守和联合会商，分析研判近期防汛形势，研究部署重点地区防汛救灾工作。国家防总维持针对云南、福建、广东、广西的防汛四级应急响应。会商指出，本轮强降雨过程已趋于结束，但福建、广东、云南等省份部分地区降雨持续，局地有暴雨、大暴雨。
 
 ## 正文
 
-摩根士丹利全球体育与娱乐业务主管桑德拉·理查兹近日接受采访时表示，该行正大幅扩展服务职业运动员和演艺人士的团队，以应对这一高净值客户群体日益复杂的财富管理需求。
+中新网6月9日电 据应急管理部微信公众号消息，6月9日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房城乡建设部、交通运输部等多部门联合值守和联合会商，分析研判近期防汛形势，研究部署重点地区防汛救灾工作。
 
-该部门管理的客户资产规模已从2020年的约250亿美元增长至当前的约600亿美元。
+国家防总维持针对云南、福建、广东、广西的防汛四级应急响应。
 
-客户群体的特殊性 职业运动员的职业生涯通常只有3至5年，且收入曲线极为陡峭。
+会商指出，本轮强降雨过程已趋于结束，但福建、广东、云南等省份部分地区降雨持续，局地有暴雨、大暴雨。
 
-一名23岁的NBA新秀可能在几年内赚取数千万美元，退役后却面临收入骤降。
+另据气象部门预测，12日起我国南方地区将迎新一轮强降雨过程。
 
-同时，他们常常成为金融欺诈和不良投资建议的目标。
+近年来极端天气多发频发，多地出现突破历史极值的强降雨。
 
-理查兹表示，Morgan Stanley现在不仅仅是管理投资，还会帮助客户建立财务预算、规划退役后的现金流，并设立信托来保护资产。
+当前部分地区仍处高考时段，要坚决克服麻痹思想和侥幸心理，扎实做好防汛救灾各项工作。
 
-团队扩张计划 摩根士丹利计划在未来18个月内将该部门的客户顾问团队扩大约30%，从当前的约100人增至130人。
+会商要求，要逐级压实防汛责任，严格落实各项防范应对措施。
 
-新增人员将专注于合同谈判咨询、税务优化、品牌管理和慈善规划等专业领域。
+要强化风险隐患排查，盯紧重点部位和关键领域，动态调整隐患清单，做到真查真改、闭环管理。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 00:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 00:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 00:13 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 00:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 00:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 00:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 00:40 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 00:31 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 00:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:33 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 00:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 00:25 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 00:17 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 00:46 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 00:46 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 00:21 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 00:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 00:24 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 00:26 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 00:47 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 00:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 00:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 00:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 00:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 00:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/42082.shtml)
-- 2026-06-30 00:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/954252829.shtml)
-- 2026-06-30 00:39 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/787865160.shtml)
-- 2026-06-30 00:40 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/407130778892.shtml)
-- 2026-06-30 00:40 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/40691293621.shtml)
-- 2026-06-30 00:32 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/47628670068.shtml)
-- 2026-06-30 00:35 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/927453.shtml)
-- 2026-06-30 00:19 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/58734248332.shtml)
-- 2026-06-30 00:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/10159.shtml)
-- 2026-06-30 00:35 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/232851306555.shtml)
-- 2026-06-30 00:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/7004438.shtml)
-- 2026-06-30 00:32 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/84262.shtml)
-- 2026-06-30 00:17 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/892952.shtml)
-- 2026-06-30 00:41 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/12243429772.shtml)
-- 2026-06-30 00:18 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/423351657883.shtml)
+- 2026-06-30 00:36 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/6091649879.shtml)
+- 2026-06-30 00:25 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/632952430.shtml)
+- 2026-06-30 00:31 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/71506876.shtml)
+- 2026-06-30 00:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/202083.shtml)
+- 2026-06-30 00:42 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/75048012.shtml)
+- 2026-06-30 00:28 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/63866794487.shtml)
+- 2026-06-30 00:22 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/2773804214.shtml)
+- 2026-06-30 00:32 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/82398251.shtml)
+- 2026-06-30 00:42 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/3829005136.shtml)
+- 2026-06-30 00:35 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/63316519410.shtml)
+- 2026-06-30 00:31 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/4519687848.shtml)
+- 2026-06-30 00:41 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/86480795063.shtml)
+- 2026-06-30 00:35 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/245793197.shtml)
+- 2026-06-30 00:38 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/6800054.shtml)
+- 2026-06-30 00:35 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/689575.shtml)

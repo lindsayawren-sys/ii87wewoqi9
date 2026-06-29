@@ -1,61 +1,59 @@
-# 中欧班列开行突破13万列 发送货值超5200亿美元
+# 经参调查丨境外发包、境内导流、组团“收割”：起底跨境色情黑产链条
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-记者从中国国家铁路集团有限公司(下称国铁集团)获悉，今天(9日)10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。中欧班列国际物流品牌价值得到全球认可，市场竞争力持续提升。国铁集团货运部负责人介绍，国铁集团坚持共商共建共享原则，深化国内国际协调合作，持续推动中欧班列朝着更高质量、更好效益、更加安全方向
+依托互联网平台，一些跨境色情黑产借助直播导流、隐晦引流等手段蔓延，看似零散的低俗、违规内容背后，是境外统筹发包、境内团伙落地变现的犯罪链条。近日，抖音安全团队配合公安部门成功破获多起相关案件，抓获犯罪嫌疑人18名，跨境色情黑产全链路运作模式随之曝光。个案撕开黑产运作全貌 境外发包、境内导流、组团“收割”变现 抖音在平台治理中发现，有不法团伙通过低俗直播吸引观众，以线下约会为噱头
 
 ## 正文
 
-记者从中国国家铁路集团有限公司(下称国铁集团)获悉，今天(9日)10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。
+依托互联网平台，一些跨境色情黑产借助直播导流、隐晦引流等手段蔓延，看似零散的低俗、违规内容背后，是境外统筹发包、境内团伙落地变现的犯罪链条。
 
-中欧班列国际物流品牌价值得到全球认可，市场竞争力持续提升。
+近日，抖音安全团队配合公安部门成功破获多起相关案件，抓获犯罪嫌疑人18名，跨境色情黑产全链路运作模式随之曝光。
 
-国铁集团货运部负责人介绍，国铁集团坚持共商共建共享原则，深化国内国际协调合作，持续推动中欧班列朝着更高质量、更好效益、更加安全方向发展。
+个案撕开黑产运作全貌 境外发包、境内导流、组团“收割”变现 抖音在平台治理中发现，有不法团伙通过低俗直播吸引观众，以线下约会为噱头“闪现”展示二维码，诱导用户扫描后跳转境外色情网站，在“客服人员”引导下下载境外色情约会软件。
 
-一是中欧班列通道网络持续拓展。
+该团伙5名成员因涉嫌非法利用信息网络罪被刑事拘留，也完整还原出黑产基础运作模式，即境外团伙发布推广需求，国内接单人组建所谓的“工作室”，批量购买视频账号、使用非法上网工具和IP伪装技术，系统性对抗平台风控，在直播间“闪现”二维码或进行跨平台引流，最终将用户导流至境外色情APP、私域群聊完成“收割”。
 
-围绕境内西、中、东三大通道，动态优化中欧班列运行线路，铺画时速120公里中欧班列图定线路93条。
+由此，黑产形成了从境外发包到境内变现的完整闭环。
 
-目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
+犯罪手法迭代升级 工具化、组织化和跨境化成主流作案特征 记者调查发现，当前色情黑产早已脱离个体零散作案，而是呈现出明显的工具化、组织化和跨境化特征，形成上中下游分级分工架构。
 
-二是中欧班列运输效率不断提高。
+——上游由境外团伙把控。
 
-充分利用境内外班列运输能力，将中欧班列最大编组辆数和牵引质量分别提高至55辆、3000吨，在霍尔果斯、同江等具备条件口岸开展集并运输，更好满足广大客户外贸运输需求。
+这些团伙开发运营境外色情APP，并为中下游链条提供技术支持。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 00:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 00:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 00:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 00:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 00:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 00:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 00:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 00:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 00:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 00:24 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 00:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 00:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 00:20 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 00:14 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 00:22 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 00:46 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 00:35 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 00:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 00:19 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 00:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 00:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 00:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 00:26 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 00:33 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 00:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 00:39 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 00:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/2141442752.shtml)
-- 2026-06-30 00:29 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/96700.shtml)
-- 2026-06-30 00:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/00640630085.shtml)
-- 2026-06-30 00:24 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/47134504581.shtml)
-- 2026-06-30 00:37 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/044236.shtml)
-- 2026-06-30 00:17 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/14221374.shtml)
-- 2026-06-30 00:14 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/3276685664.shtml)
-- 2026-06-30 00:17 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/941445.shtml)
-- 2026-06-30 00:18 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/7873268859.shtml)
-- 2026-06-30 00:27 - [巴西vs日本](http://www.share.minike.top/Article/details/6799561948.shtml)
-- 2026-06-30 00:38 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/23189630719.shtml)
-- 2026-06-30 00:33 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/393365822.shtml)
-- 2026-06-30 00:39 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/11226484114.shtml)
-- 2026-06-30 00:38 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/74383467.shtml)
-- 2026-06-30 00:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/359694966.shtml)
+- 2026-06-30 00:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/2216762774.shtml)
+- 2026-06-30 00:37 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/594106912552.shtml)
+- 2026-06-30 00:44 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/231536.shtml)
+- 2026-06-30 00:32 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/755833461973.shtml)
+- 2026-06-30 00:31 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/8884408246.shtml)
+- 2026-06-30 00:47 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/35658.shtml)
+- 2026-06-30 00:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/92411659120.shtml)
+- 2026-06-30 00:46 - [肝不好身体这几处会“说话”](https://www.share.kurohicncr.top/Article/details/6177605.shtml)
+- 2026-06-30 00:31 - [金刚川](http://www.blog.minike.top/Article/details/44589335.shtml)
+- 2026-06-30 00:26 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/830307153.shtml)
+- 2026-06-30 00:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/89810.shtml)
+- 2026-06-30 00:42 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/31692.shtml)
+- 2026-06-30 00:31 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/33852556689.shtml)
+- 2026-06-30 00:43 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/9409036.shtml)
+- 2026-06-30 00:35 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/866791.shtml)

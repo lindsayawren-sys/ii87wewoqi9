@@ -1,61 +1,59 @@
-# 四川茶博会热展 新式茶饮走俏“圈粉”
+# 2026年上海市节能宣传周在沪开幕
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新社成都5月9日电 (单鹏)第15届四川国际茶业博览会正在成都举行。今年四川茶博会，传统茶叶仍是展会主流。新式茶饮展位虽体量偏小，却以轻便形态、低门槛饮用方式聚集了大量客流。 展会一角，一款印有熊猫元素、搭配四川方言文案的瓶装藏茶吸引不少年轻观展者驻足品尝。简约潮流的外观，清爽适口的茶汤，让这款即饮茶成为展馆人气单品。 “雅安藏茶品质上乘，但长期存在大众认知度不高、饮用场景受
+中新网上海6月9日电 (记者 郑莹莹)9日，2026年上海市节能宣传周开幕。活动通过启动绿洲全球可持续科技创新平台、推动长三角绿色低碳产业发展合作等举措，为长三角发展注入“绿色动能”。 绿洲全球可持续科技创新平台在现场启动。据上海天工产业绿色发展研究院执行院长陈元哲介绍，该平台一方面致力于梳理上海的绿色转型场景需求，面向全球征集绿色技术解决方案；另一方面旨在挖掘相关前沿绿色技术
 
 ## 正文
 
-中新社成都5月9日电 (单鹏)第15届四川国际茶业博览会正在成都举行。
+中新网上海6月9日电 (记者 郑莹莹)9日，2026年上海市节能宣传周开幕。
 
-今年四川茶博会，传统茶叶仍是展会主流。
+活动通过启动绿洲全球可持续科技创新平台、推动长三角绿色低碳产业发展合作等举措，为长三角发展注入“绿色动能”。
 
-新式茶饮展位虽体量偏小，却以轻便形态、低门槛饮用方式聚集了大量客流。
+绿洲全球可持续科技创新平台在现场启动。
 
-展会一角，一款印有熊猫元素、搭配四川方言文案的瓶装藏茶吸引不少年轻观展者驻足品尝。
+据上海天工产业绿色发展研究院执行院长陈元哲介绍，该平台一方面致力于梳理上海的绿色转型场景需求，面向全球征集绿色技术解决方案；另一方面旨在挖掘相关前沿绿色技术，为其匹配上海乃至长三角的应用场景。
 
-简约潮流的外观，清爽适口的茶汤，让这款即饮茶成为展馆人气单品。
+活动上，上海市经济和信息化委员会与长三角投资(上海)有限公司签署了《共同推动长三角绿色低碳产业发展合作协议》。
 
-“雅安藏茶品质上乘，但长期存在大众认知度不高、饮用场景受限等问题。
+双方将围绕场景共建、金融赋能等领域展开深度合作，共同打造立足长三角、汇聚全球绿色技术的创新枢纽。
 
-”四川雅茶集团茶业有限公司副总经理张珊娜表示，该瓶装茶以茶叶和纯水为原料，既保留了藏茶消食解腻的传统功效，又将其从繁琐的紧压茶冲泡流程中解放出来，“平价快消茶饮能够拉近消费者与好茶的距离。
+数据显示，“十四五”期间，上海规上工业单位增加值能耗累计下降15.7%；上海累计创建国家级绿色工厂196家，重点用能单位绿色创建覆盖率达30%。
 
-” 立足乐山本土茶资源，新锐茶企四川龙骨山茶业有限公司将多款原创调饮带到现场。
+本届上海市节能宣传周期间，主办方将组织350余项绿色主题活动，通过绿色嘉年华、沉浸式科普、低碳打卡等形式，推动节能降碳从倡导走向实践。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 00:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 00:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 00:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 00:32 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 00:16 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 00:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 00:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 00:23 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 00:35 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 00:39 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 00:38 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 00:20 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 00:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 00:36 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 00:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 00:28 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 00:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 00:46 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 00:40 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 00:28 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 00:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 00:46 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 00:35 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 00:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 00:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 00:45 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/857805.shtml)
-- 2026-06-30 00:29 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/7835649.shtml)
-- 2026-06-30 00:14 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/8615618622.shtml)
-- 2026-06-30 00:17 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/50051038.shtml)
-- 2026-06-30 00:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/49328.shtml)
-- 2026-06-30 00:21 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/34972611.shtml)
-- 2026-06-30 00:18 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/691777.shtml)
-- 2026-06-30 00:23 - [小娘惹](http://www.blog.minike.top/Article/details/60672263433.shtml)
-- 2026-06-30 00:32 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/375821691267.shtml)
-- 2026-06-30 00:36 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/219142349976.shtml)
-- 2026-06-30 00:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/012745.shtml)
-- 2026-06-30 00:27 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/88682984346.shtml)
-- 2026-06-30 00:23 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/2745157.shtml)
-- 2026-06-30 00:31 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/52481157670.shtml)
-- 2026-06-30 00:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/85182.shtml)
+- 2026-06-30 00:20 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/370971354.shtml)
+- 2026-06-30 00:26 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/48251194.shtml)
+- 2026-06-30 00:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/32795606.shtml)
+- 2026-06-30 00:22 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/338769956694.shtml)
+- 2026-06-30 00:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/67526.shtml)
+- 2026-06-30 00:19 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/17074461.shtml)
+- 2026-06-30 00:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/882785172542.shtml)
+- 2026-06-30 00:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/4939839333.shtml)
+- 2026-06-30 00:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/4471081817.shtml)
+- 2026-06-30 00:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/61907.shtml)
+- 2026-06-30 00:47 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/7057210.shtml)
+- 2026-06-30 00:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/829467496.shtml)
+- 2026-06-30 00:39 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/78409.shtml)
+- 2026-06-30 00:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/381675093416.shtml)
+- 2026-06-30 00:24 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/266329.shtml)

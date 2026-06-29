@@ -1,57 +1,60 @@
-# 运动穿戴设备品牌Whoop 将向美国用户提供按需在线医师问诊服务
+# UHG证券欺诈诉讼首席原告申请周二夜间截止
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-核心要点 运动穿戴追踪品牌 Whoop 于周五宣布，将为美国用户上线 App 内持证医师即时问诊功能。 伴随这项新服务，品牌还将在全球推出一系列健康及人工智能驱动功能，可让用户将自身连续生理指标数据与医疗指导实时关联。 多项新功能已包含在会员订阅权益内，但面向美国用户的真人视频问诊需额外付费。公司表示，该功能将于今年夏季上线，届时公布具体定价与细则。 Whoop 首席产品官埃德
+投资者权益律师事务所Faruqi & Faruqi， LLP近日提醒投资者，针对United Homes Group， Inc．（纳斯达克代码：UHG）的证券集体诉讼首席原告申请截止日期为2026年6月9日。在2025年5月19日至2026年2月22日期间购买或持有UHG证券并遭受损失的投资者，需在此日期前向法院申请担任首席原告。 此次诉讼源于2026年2月23日UHG宣布的收
 
 ## 正文
 
-核心要点 运动穿戴追踪品牌 Whoop 于周五宣布，将为美国用户上线 App 内持证医师即时问诊功能。
+投资者权益律师事务所Faruqi & Faruqi， LLP近日提醒投资者，针对United Homes Group， Inc．（纳斯达克代码：UHG）的证券集体诉讼首席原告申请截止日期为2026年6月9日。
 
-伴随这项新服务，品牌还将在全球推出一系列健康及人工智能驱动功能，可让用户将自身连续生理指标数据与医疗指导实时关联。
+在2025年5月19日至2026年2月22日期间购买或持有UHG证券并遭受损失的投资者，需在此日期前向法院申请担任首席原告。
 
-多项新功能已包含在会员订阅权益内，但面向美国用户的真人视频问诊需额外付费。
+此次诉讼源于2026年2月23日UHG宣布的收购交易。
 
-公司表示，该功能将于今年夏季上线，届时公布具体定价与细则。
+控股股东兼创始人Michael Nieri以每股1.18美元的价格将公司出售给Stanley Martin Homes，较公告前一日收盘价折价50%。
 
-Whoop 首席产品官埃德・贝克在新闻稿中表示：“Whoop 本质是会员制服务，我们对此十分重视。
+而在2025年5月19日，公司曾宣布董事会已任命独立董事特别委员会，启动“战略选择审查”，以“探索实现股东价值最大化的方式”，包括出售公司、出售资产及再融资等选项。
 
-我们始终思考如何为会员创造更多价值，此次即将上线的一系列功能，是品牌迄今最具实际意义的升级之一。
+2025年10月20日，特别委员会宣布“继续作为独立上市公司执行公司战略计划最符合公司及股东的最佳利益”。
 
-” Whoop 全球用户已超 250 万。
+然而同日，公司披露除Nieri外全部六名董事会成员准备辞职，条件是“公司现有管理团队被充分授权执行战略计划”且“Nieri先生辞去执行主席职务并放弃其剩余现金补偿”。
 
-公司于 3 月完成 5.75 亿美元融资，估值升至 101 亿美元。
+Nieri拒绝接受上述条件，六名董事随即集体辞职，导致公司股价当日暴跌约52%。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 00:41 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 00:29 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 00:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 00:33 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 00:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 00:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 00:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 00:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 00:19 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 00:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 00:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 00:35 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 00:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 00:46 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 00:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 00:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 00:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 00:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 00:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 00:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 00:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 00:25 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:17 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/038486637.shtml)
-- 2026-06-30 00:24 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/90318.shtml)
-- 2026-06-30 00:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/31823.shtml)
-- 2026-06-30 00:32 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/99509.shtml)
-- 2026-06-30 00:18 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/56210.shtml)
-- 2026-06-30 00:30 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/8413928.shtml)
-- 2026-06-30 00:16 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/02813033827.shtml)
-- 2026-06-30 00:13 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/63452760464.shtml)
-- 2026-06-30 00:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/0835542203.shtml)
-- 2026-06-30 00:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/42760038.shtml)
-- 2026-06-30 00:30 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/825152344873.shtml)
-- 2026-06-30 00:14 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/66094996773.shtml)
-- 2026-06-30 00:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/7479284037.shtml)
-- 2026-06-30 00:35 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/024752257094.shtml)
-- 2026-06-30 00:40 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/157746.shtml)
+- 2026-06-30 00:37 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/52645248513.shtml)
+- 2026-06-30 00:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/4200263.shtml)
+- 2026-06-30 00:30 - [千香](https://www.share.minike.top/Article/details/3487761.shtml)
+- 2026-06-30 00:27 - [扫黑风暴](http://www.blog.minike.top/Article/details/870162096.shtml)
+- 2026-06-30 00:23 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0941328854.shtml)
+- 2026-06-30 00:20 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/416885661.shtml)
+- 2026-06-30 00:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/155526.shtml)
+- 2026-06-30 00:26 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/9979546221.shtml)
+- 2026-06-30 00:32 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/1849047.shtml)
+- 2026-06-30 00:20 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/1526933571.shtml)
+- 2026-06-30 00:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/87442056816.shtml)
+- 2026-06-30 00:46 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/35695216916.shtml)
+- 2026-06-30 00:46 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/83534102070.shtml)
+- 2026-06-30 00:39 - [存储三巨头被告了](https://www.share.minike.top/Article/details/0639113176.shtml)
+- 2026-06-30 00:34 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/416819544.shtml)

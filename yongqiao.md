@@ -1,61 +1,57 @@
-# 25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局
+# 伊朗和以色列同意暂停交火 特朗普寻求避免局势升级
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。 该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。 随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。 对于产业链资本而言，这笔投资押注的
+伊朗和以色列同意暂缓对彼此的打击，此前双方暴力冲突升级，对和平谈判构成威胁，并促使美国总统唐纳德·特朗普呼吁局势降温。 以色列总理本雅明·内塔尼亚胡周一在电视讲话中表示，以色列将暂缓对伊朗开火，但如果德黑兰再次发动攻击，以方将予以回应。此前，以色列当地电视台N12报道称，在以军与伊朗支持的真主党武装交战的黎巴嫩南部，打击行动将继续全力进行。 伊朗早些时候宣布结束针对以色列的军事
 
 ## 正文
 
-来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。
+伊朗和以色列同意暂缓对彼此的打击，此前双方暴力冲突升级，对和平谈判构成威胁，并促使美国总统唐纳德·特朗普呼吁局势降温。
 
-该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。
+以色列总理本雅明·内塔尼亚胡周一在电视讲话中表示，以色列将暂缓对伊朗开火，但如果德黑兰再次发动攻击，以方将予以回应。
 
-随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。
+此前，以色列当地电视台N12报道称，在以军与伊朗支持的真主党武装交战的黎巴嫩南部，打击行动将继续全力进行。
 
-对于产业链资本而言，这笔投资押注的不只是一个模型公司，更是下一代智能终端入口。
+伊朗早些时候宣布结束针对以色列的军事行动。
 
-公开信息显示，阶跃星辰已于4月初完成股改，企业类型由有限责任公司变更为股份有限公司。
+但半官方媒体法尔斯通讯社援引一份声明报道，伊朗中央军事指挥部表示，如果以色列继续发动袭击，包括在黎巴嫩南部，“比以往更加严厉、更具毁灭性的行动将接踵而至”。
 
-知情人士称，阶跃星辰目前已完成红筹架构拆除工作。
+双方做出此番表态之前，特朗普周一与内塔尼亚胡通电话。
 
-而股改与拆除红筹架构，当下被视为国内企业推进赴港IPO的重要前置动作。
+一名白宫官员证实了此次通话，但未透露谈话细节。
 
-与此同时，被称为“港版淡马锡”的香港投资管理有限公司（简称“港投公司”）也已出现在公司股东名单中。
+内塔尼亚胡表示，他在通话中告诉特朗普，以色列拥有自卫权。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 00:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 00:39 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 00:19 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 00:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 00:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 00:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 00:29 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 00:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 00:36 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 00:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 00:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 00:25 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 00:16 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 00:41 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 00:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 00:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 00:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 00:31 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 00:43 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 00:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 00:46 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 00:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 00:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:41 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 00:22 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/42938.shtml)
-- 2026-06-30 00:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/66401004.shtml)
-- 2026-06-30 00:35 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/1554123.shtml)
-- 2026-06-30 00:34 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/3492400.shtml)
-- 2026-06-30 00:14 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/4134216251.shtml)
-- 2026-06-30 00:36 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/471602.shtml)
-- 2026-06-30 00:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/395011394.shtml)
-- 2026-06-30 00:20 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/384304078.shtml)
-- 2026-06-30 00:37 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/362057.shtml)
-- 2026-06-30 00:31 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/69235381180.shtml)
-- 2026-06-30 00:22 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/76601508.shtml)
-- 2026-06-30 00:16 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/062452600.shtml)
-- 2026-06-30 00:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/31778024.shtml)
-- 2026-06-30 00:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/606975903.shtml)
-- 2026-06-30 00:28 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/81358669.shtml)
+- 2026-06-30 00:45 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/6888892495.shtml)
+- 2026-06-30 00:33 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/94180150502.shtml)
+- 2026-06-30 00:24 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/485730.shtml)
+- 2026-06-30 00:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/5938824.shtml)
+- 2026-06-30 00:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/67052363.shtml)
+- 2026-06-30 00:37 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/0824139.shtml)
+- 2026-06-30 00:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/8625604208.shtml)
+- 2026-06-30 00:19 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/909778343302.shtml)
+- 2026-06-30 00:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/946755634689.shtml)
+- 2026-06-30 00:23 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/6746304.shtml)
+- 2026-06-30 00:20 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/773395150105.shtml)
+- 2026-06-30 00:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/1160364.shtml)
+- 2026-06-30 00:42 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/999693883.shtml)
+- 2026-06-30 00:34 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/5122924768.shtml)
+- 2026-06-30 00:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/42841760.shtml)

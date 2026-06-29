@@ -1,51 +1,54 @@
-# 证监会老虎：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾受贿一审被判有期徒刑7年！罚金40万
+# 先声药业午后涨逾3% 近日与普祺医药就普美昔替尼凝胶订立独家推广服务协议
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。 二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额
+先声药业（02096）午后涨逾3%，截至发稿，股价上涨2.71%，现报9.84港元，成交额4338.99万港元。 近日，先声药业发布公告，本集团与北京普祺医药科技股份有限公司（普祺医药）就普美昔替尼凝胶订立独家推广服务协议（该协议）。根据该协议，本集团将获得普美昔替尼凝胶在中国内地、香港及澳门所有皮肤病领域适应症的独家推广权益。 目前，普美昔替尼凝胶成人与青少年特应性皮炎（AD
 
 ## 正文
 
-来源：国际投行研究报告 杨春蕾受贿案一审宣判要点解读 一、核心判决信息 ：中国证监会党委巡视工作领导小组办公室原专职副主任杨春蕾 ：北京市第二中级人民法院 ：以受贿罪判处有期徒刑七年，并处罚金人民币四十万元；追缴在案的受贿所得财物依法没收，上缴国库。
+先声药业（02096）午后涨逾3%，截至发稿，股价上涨2.71%，现报9.84港元，成交额4338.99万港元。
 
-二、案件背景与关键信息 杨春蕾身为证监会系统党员领导干部，丧失理想信念，单独或伙同他人利用职务便利为他人谋利，非法收受财物，数额巨大，已构成严重职务违法并涉嫌受贿犯罪，性质严重、影响恶劣中央纪委国家监委。
+近日，先声药业发布公告，本集团与北京普祺医药科技股份有限公司（普祺医药）就普美昔替尼凝胶订立独家推广服务协议（该协议）。
 
-2023 年 11 月：被开除党籍、开除公职（双开），案件移送司法机关央视网新闻频道。
+根据该协议，本集团将获得普美昔替尼凝胶在中国内地、香港及澳门所有皮肤病领域适应症的独家推广权益。
 
-2026 年 5 月 8 日：一审公开宣判，获刑七年并处罚金。
+目前，普美昔替尼凝胶成人与青少年特应性皮炎（AD）适应症新药上市申请（NDA）已获国家药品监督管理局药品审评中心（CDE）受理。
 
-责任编辑：尉旖涵
+本次合作将进一步强化本集团在自身免疫领域的产品布局。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 00:17 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 00:20 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 00:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 00:41 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 00:39 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 00:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 00:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 00:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 00:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 00:27 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 00:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 00:25 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 00:38 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 00:37 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 00:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 00:26 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 00:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 00:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 00:32 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 00:42 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 00:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:41 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/170526674.shtml)
-- 2026-06-30 00:16 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/78796.shtml)
-- 2026-06-30 00:20 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/545443.shtml)
-- 2026-06-30 00:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/818262829.shtml)
-- 2026-06-30 00:14 - [送你一朵小红花](https://www.blog.minike.top/Article/details/51158.shtml)
-- 2026-06-30 00:14 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/46189984.shtml)
-- 2026-06-30 00:31 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/191524772027.shtml)
-- 2026-06-30 00:24 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/839132.shtml)
-- 2026-06-30 00:22 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/09088168856.shtml)
-- 2026-06-30 00:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/60479099683.shtml)
-- 2026-06-30 00:24 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/723328.shtml)
-- 2026-06-30 00:34 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/863017964.shtml)
-- 2026-06-30 00:36 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/11263746.shtml)
-- 2026-06-30 00:18 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/06846551.shtml)
-- 2026-06-30 00:31 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/276983324.shtml)
+- 2026-06-30 00:44 - [逃狱兄弟](https://www.blog.minike.top/Article/details/674026267.shtml)
+- 2026-06-30 00:23 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/99881274.shtml)
+- 2026-06-30 00:28 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/5159633.shtml)
+- 2026-06-30 00:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/4039757.shtml)
+- 2026-06-30 00:37 - [TOP Prada](http://www.blog.minike.top/Article/details/74830614316.shtml)
+- 2026-06-30 00:18 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/427550.shtml)
+- 2026-06-30 00:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/8287835.shtml)
+- 2026-06-30 00:21 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/0751146.shtml)
+- 2026-06-30 00:19 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/66596717490.shtml)
+- 2026-06-30 00:27 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/645437.shtml)
+- 2026-06-30 00:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/318241639.shtml)
+- 2026-06-30 00:45 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/185413095.shtml)
+- 2026-06-30 00:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/951849871.shtml)
+- 2026-06-30 00:21 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/455509509.shtml)
+- 2026-06-30 00:25 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/291742319632.shtml)

@@ -1,56 +1,48 @@
-# 营收腰斩、巨亏近9亿元后，富煌钢构再曝超3亿元债务危机！知情人士：无争议的款项基本都收回了
+# 快讯：焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。 同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普
+6月9日早盘，焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停。责任编辑：朱赫楠
 
 ## 正文
 
-每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。
+6月9日早盘，焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停。
 
-5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。
-
-同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普通合伙）在审计报告中明确加入了“与持续经营相关的重大不确定性”段落，直指公司有息负债高，资金流动性困难，存在可能导致对公司持续经营能力产生重大疑虑的重大不确定性。
-
-5月8日，《每日经济新闻》记者拨打公司董秘办电话，但是语音提示电话已欠费。
-
-记者向公司董秘办邮箱发送采访函，截至发稿，未收到回复。
-
-另据一位富煌钢构方面人士称，回款项目方面，无争议的款项基本都收回了，有争议的项目正在诉讼中。
-
-目前公司因资金短缺没有开展什么新项目，仅有很少的项目处于扫尾阶段。
-
-据公司5月7日公告，由于回款不及预期导致暂时性流动资金紧张，公司及子公司出现部分债务逾期和商业承兑汇票未能按期兑付的情形。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 00:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 00:37 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 00:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 00:27 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 00:34 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 00:39 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 00:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 00:12 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 00:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 00:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 00:36 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 00:21 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 00:42 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 00:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 00:27 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 00:38 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 00:38 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 00:39 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 00:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 00:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 00:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 00:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 00:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/09406007.shtml)
-- 2026-06-30 00:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/185157382764.shtml)
-- 2026-06-30 00:24 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/221859956.shtml)
-- 2026-06-30 00:38 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/13306387.shtml)
-- 2026-06-30 00:31 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/5877928830.shtml)
-- 2026-06-30 00:39 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/465659.shtml)
-- 2026-06-30 00:31 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/81665289.shtml)
-- 2026-06-30 00:40 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/1927144023.shtml)
-- 2026-06-30 00:25 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/74207306799.shtml)
-- 2026-06-30 00:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/242346.shtml)
-- 2026-06-30 00:29 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/34978.shtml)
-- 2026-06-30 00:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/756474978.shtml)
-- 2026-06-30 00:14 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/95341.shtml)
-- 2026-06-30 00:40 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7912056191.shtml)
-- 2026-06-30 00:16 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/403583539.shtml)
+- 2026-06-30 00:35 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/17513.shtml)
+- 2026-06-30 00:47 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/420006423191.shtml)
+- 2026-06-30 00:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/362242165.shtml)
+- 2026-06-30 00:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/54119155691.shtml)
+- 2026-06-30 00:40 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/84740.shtml)
+- 2026-06-30 00:29 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/8220173618.shtml)
+- 2026-06-30 00:41 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/20429560.shtml)
+- 2026-06-30 00:44 - [啊啊啊](http://www.share.minike.top/Article/details/9035495486.shtml)
+- 2026-06-30 00:32 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/688711.shtml)
+- 2026-06-30 00:23 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/81656.shtml)
+- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/28771274.shtml)
+- 2026-06-30 00:42 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/39314.shtml)
+- 2026-06-30 00:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/25362.shtml)
+- 2026-06-30 00:30 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8619473155.shtml)
+- 2026-06-30 00:23 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/495480.shtml)

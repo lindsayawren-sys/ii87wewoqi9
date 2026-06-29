@@ -1,61 +1,59 @@
-# 继“全李酒店”后，多地被曝“又庭酒店”碰瓷汉庭
+# 新版《药物临床试验质量管理规范》有哪些新调整？权威解答来了
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-近日，大连 “全李酒店” 被质疑碰瓷事件热度未消，不少网友又曝出全国多地还有 “又庭酒店”，与华住旗下汉庭酒店店面和招牌相似。5月8日，界面新闻在酒店预订平台查询发现，果然有多家“又庭酒店”存在，从酒店提供的图片中可以看到酒店名称字体、客房和大堂的格局都与汉庭酒店存在相似之处。其中山东济南长清区一家“又庭酒店”显示2024年开业，在酒店相册中门店名称采用和汉庭酒店相似的蓝色字体
+记者今天从国家药监局获悉，新修订的《药物临床试验质量管理规范》今天发布，将于9月1日正式实施。 《药物临床试验质量管理规范》在新药研发、上市过程中，能起到什么作用？此次最新修订的版本，与现行规范相比，又有哪些新变化？对公众和我国医药产业发展，又将产生哪些影响？ 本台记者独家采访了国家药监局相关部门负责人和权威专家，作出解答。 从研发到上市 验证药物安全性有效性一款新药，从研发诞
 
 ## 正文
 
-近日，大连 “全李酒店” 被质疑碰瓷事件热度未消，不少网友又曝出全国多地还有 “又庭酒店”，与华住旗下汉庭酒店店面和招牌相似。
+记者今天从国家药监局获悉，新修订的《药物临床试验质量管理规范》今天发布，将于9月1日正式实施。
 
-5月8日，界面新闻在酒店预订平台查询发现，果然有多家“又庭酒店”存在，从酒店提供的图片中可以看到酒店名称字体、客房和大堂的格局都与汉庭酒店存在相似之处。
+《药物临床试验质量管理规范》在新药研发、上市过程中，能起到什么作用？
 
-其中山东济南长清区一家“又庭酒店”显示2024年开业，在酒店相册中门店名称采用和汉庭酒店相似的蓝色字体和小马的图标。
+此次最新修订的版本，与现行规范相比，又有哪些新变化？
 
-就此事，界面新闻记者问询华住的客服人员，客服回复称，集团旗下没有“又庭酒店”这个品牌，只有汉庭酒店，这家又庭酒店是否此前加盟过华住，客服表示无法提供相关信息。
+对公众和我国医药产业发展，又将产生哪些影响？
 
-在青海、南京、上海等多地都有类似的“又庭酒店”，定位经济型酒店，房价在一两百元左右，住客的评价多认为交通便利、性价比高，但房间有设施老化、隔音等问题。
+本台记者独家采访了国家药监局相关部门负责人和权威专家，作出解答。
 
-上述济南这家店，有去年12月入住的客人留言“之前还是汉庭，现在不是了”。
+从研发到上市 验证药物安全性有效性一款新药，从研发诞生，最终到患者手里，药物临床试验，可以说是药品上市前必经的科学验证环节。
 
-据极目新闻，5月7日青海玉树一家“又庭酒店”工作人员回应称，该酒店之前就是“汉庭酒店”，但目前不属于华住会旗下，是单体酒店。
+不过，一直以来，也有一些人，对药物临床试验存在误解：比如参加试验就是被当“小白鼠”，试用新药就会冒“大风险”。
 
-而在社交媒体上，界面新闻记者发现，曝光质疑“又庭酒店”碰瓷的帖子有不少，有人发帖吐槽被“虚晃一枪，以为是汉庭酒店”，评论区有不少网友纷纷晒图遇到的碰瓷酒店图，也有人猜测原因是“是加盟到期，不符合华住标准被踢的”。
+真相真是如此吗？
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 00:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 00:17 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 00:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 00:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 00:25 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 00:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 00:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 00:31 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 00:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 00:16 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 00:31 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 00:34 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 00:18 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 00:18 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 00:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 00:41 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 00:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 00:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 00:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 00:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:22 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 00:24 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 00:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 00:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 00:41 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 00:19 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 00:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/550970236402.shtml)
-- 2026-06-30 00:34 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/45382485.shtml)
-- 2026-06-30 00:33 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/21055598.shtml)
-- 2026-06-30 00:38 - [世界杯](https://www.blog.kurohicncr.top/Article/details/9511757.shtml)
-- 2026-06-30 00:28 - [绘画区你赢了](http://www.blog.minike.top/Article/details/265829.shtml)
-- 2026-06-30 00:19 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/7560486.shtml)
-- 2026-06-30 00:24 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/9181067938.shtml)
-- 2026-06-30 00:13 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/70488876.shtml)
-- 2026-06-30 00:14 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/822406.shtml)
-- 2026-06-30 00:19 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/905881739.shtml)
-- 2026-06-30 00:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/39712773.shtml)
-- 2026-06-30 00:25 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/10356600.shtml)
-- 2026-06-30 00:41 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/15827.shtml)
-- 2026-06-30 00:34 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/33459.shtml)
-- 2026-06-30 00:40 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/4203969687.shtml)
+- 2026-06-30 00:30 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/70147487196.shtml)
+- 2026-06-30 00:40 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/997361798.shtml)
+- 2026-06-30 00:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/154693986.shtml)
+- 2026-06-30 00:33 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/3263860215.shtml)
+- 2026-06-30 00:36 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/0303870.shtml)
+- 2026-06-30 00:24 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/10696.shtml)
+- 2026-06-30 00:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/43443.shtml)
+- 2026-06-30 00:41 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/336924933608.shtml)
+- 2026-06-30 00:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/837634.shtml)
+- 2026-06-30 00:32 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/26726899846.shtml)
+- 2026-06-30 00:36 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/1748604.shtml)
+- 2026-06-30 00:38 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/20260625211.shtml)
+- 2026-06-30 00:27 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/093241.shtml)
+- 2026-06-30 00:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/372126905.shtml)
+- 2026-06-30 00:31 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/569804704.shtml)

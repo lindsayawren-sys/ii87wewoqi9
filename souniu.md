@@ -1,59 +1,51 @@
-# 【理响中国·经视图】更加突出先进制造业骨干作用
+# 江西省赣江新区党工委原委员许斌被“双开”
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元为啥越来越多的人开始追求“活人感”？为什么有些人更容易上当？与学历高低、聪明与否无关躺着就能赚钱？航天卧床实验没你想得那么简单5月的北京，每条路都开成了“花路”一图读懂丨个税汇算这些“坑”别踩边充电边玩手机竟被电击？这些习惯赶紧改→今年夏天将是“史上最热夏天”？气象专家回应传言一只帝王蟹，如何“带火”一座边境小城？既要照护
+中新网6月9日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对赣江新区党工委原委员、管委会原副主任许斌严重违纪违法问题进行了立案审查调查。 经查，许斌身为党员领导干部，丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请，违规收受礼品礼金；组织原则缺失，在组织谈话时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财
 
 ## 正文
 
-美国黄牛半夜笑醒？
+中新网6月9日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对赣江新区党工委原委员、管委会原副主任许斌严重违纪违法问题进行了立案审查调查。
 
-有世界杯决赛三层门票标价1150万美元为啥越来越多的人开始追求“活人感”？
+经查，许斌身为党员领导干部，丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请，违规收受礼品礼金；组织原则缺失，在组织谈话时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失守，通过民间借贷获取大额回报，违规从事营利活动；干预和插手市场经济活动；利用职务上的便利，为他人在企业经营、项目承揽、职务调整等方面谋取利益，非法收受他人巨额财物；滥用职权，致使公共财产遭受重大损失。
 
-为什么有些人更容易上当？
+许斌严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿、滥用职权犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
 
-与学历高低、聪明与否无关躺着就能赚钱？
-
-航天卧床实验没你想得那么简单5月的北京，每条路都开成了“花路”一图读懂丨个税汇算这些“坑”别踩边充电边玩手机竟被电击？
-
-这些习惯赶紧改→今年夏天将是“史上最热夏天”？
-
-气象专家回应传言一只帝王蟹，如何“带火”一座边境小城？
-
-既要照护也需处置“身后事” 无子女老人暮年谁“兜底”考古学家白云翔去世 毕生矢志探古求原排队3小时打卡1分钟！
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等相关规定，经江西省纪委常委会会议研究并报中共江西省委批准，决定给予许斌开除党籍处分；由江西省监委给予其开除公职处分；收缴其违纪违法所得；终止其江西省第十五次党代会代表资格；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 00:27 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 00:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 00:32 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 00:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 00:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 00:18 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 00:23 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 00:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 00:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 00:23 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 00:35 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 00:38 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 00:34 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 00:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 00:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 00:46 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 00:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 00:31 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 00:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 00:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 00:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 00:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 00:32 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [田曦薇没招了](http://www.share.minike.top/Article/details/99681694603.shtml)
-- 2026-06-30 00:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7379820351.shtml)
-- 2026-06-30 00:23 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/9597320359.shtml)
-- 2026-06-30 00:28 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/645631.shtml)
-- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/4923789945.shtml)
-- 2026-06-30 00:14 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/79168412.shtml)
-- 2026-06-30 00:34 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/042122095.shtml)
-- 2026-06-30 00:28 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/381670063902.shtml)
-- 2026-06-30 00:41 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/01705.shtml)
-- 2026-06-30 00:16 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/42235.shtml)
-- 2026-06-30 00:22 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/26474.shtml)
-- 2026-06-30 00:15 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/3551791101.shtml)
-- 2026-06-30 00:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/453702873517.shtml)
-- 2026-06-30 00:27 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/508100.shtml)
-- 2026-06-30 00:19 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/458631577.shtml)
+- 2026-06-30 00:24 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/27950.shtml)
+- 2026-06-30 00:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/099880.shtml)
+- 2026-06-30 00:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/010417.shtml)
+- 2026-06-30 00:28 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/33519300908.shtml)
+- 2026-06-30 00:45 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/16028501.shtml)
+- 2026-06-30 00:41 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/97296753192.shtml)
+- 2026-06-30 00:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/758354762195.shtml)
+- 2026-06-30 00:20 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/350394915986.shtml)
+- 2026-06-30 00:47 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/3474820.shtml)
+- 2026-06-30 00:46 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/55215913.shtml)
+- 2026-06-30 00:37 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/43535.shtml)
+- 2026-06-30 00:29 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/856835.shtml)
+- 2026-06-30 00:32 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/7882512278.shtml)
+- 2026-06-30 00:41 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/39634665.shtml)
+- 2026-06-30 00:35 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55277.shtml)

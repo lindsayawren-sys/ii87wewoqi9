@@ -1,59 +1,56 @@
-# 西双版纳州获颁云南首例涉外著作权作品登记证书
+# 中国首条“电力天路”完成扩容后首次年检
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网西双版纳5月8日电 (陆希成)中新网8日从中共西双版纳州委宣传部获悉，在2026年云南省知识产权宣传周版权宣传活动期间，云南省版权服务大厅向西双版纳傣族自治州颁发了全省首例涉外著作权作品登记证书，标志西双版纳版权服务实现涉外作品登记本地化。 此次获颁证书的著作权人赵阿航，是西双版纳职业技术学院2024级中文专业的老挝籍留学生。赴中国求学以来，他潜心研习中国书法，逐步形成兼
+发布时间：2026年06月10日 12:31 来源：中国新闻网 近日，青藏联网工程±400千伏柴拉直流系统2026年度检修工作圆满完成。此次检修是该工程2025年扩容升级后的首次年检，也是中国首台套双极四阀组并联运行的直流工程首次系统性“体检”。 为期14天的年检，不仅实现检修设备数量翻倍，并首次实现换流变压器等四大类设备自主检修。 青藏联网工程是首条通往西藏的“电力天路”，也
 
 ## 正文
 
-中新网西双版纳5月8日电 (陆希成)中新网8日从中共西双版纳州委宣传部获悉，在2026年云南省知识产权宣传周版权宣传活动期间，云南省版权服务大厅向西双版纳傣族自治州颁发了全省首例涉外著作权作品登记证书，标志西双版纳版权服务实现涉外作品登记本地化。
+发布时间：2026年06月10日 12:31 来源：中国新闻网 近日，青藏联网工程±400千伏柴拉直流系统2026年度检修工作圆满完成。
 
-此次获颁证书的著作权人赵阿航，是西双版纳职业技术学院2024级中文专业的老挝籍留学生。
+此次检修是该工程2025年扩容升级后的首次年检，也是中国首台套双极四阀组并联运行的直流工程首次系统性“体检”。
 
-赴中国求学以来，他潜心研习中国书法，逐步形成兼具中老文化特色的创作风格。
+为期14天的年检，不仅实现检修设备数量翻倍，并首次实现换流变压器等四大类设备自主检修。
 
-本次成功登记的美术作品，以《关雎》《静夜思》《共饮一江水》三幅书法为主题，作品融汇中老两国文化元素，是“中老命运共同体”理念的生动载体。
+青藏联网工程是首条通往西藏的“电力天路”，也是西藏电网接入国家大电网的核心通道。
 
-这一突破亦体现了西双版纳依托区位优势，在共建“一带一路”进程中探索跨境版权保护的创新实践。
+工程自2011年投运以来，已累计双向输送电量269.9亿千瓦时，有效提升了中国西部地区电力资源优化配置水平。
 
-针对赵阿航的外籍身份与语言沟通需求，中共西双版纳州委宣传部、西双版纳新华书店有限公司版权服务工作站为其提供全程一对一指导，细致讲解版权登记政策、流程及所需材料，高效推进各项登记事宜。
-
-“过程比预想更顺畅，工作人员的逐项指导让我对中国版权保护有了直观了解。
-
-”赵阿航在领取证书后表示，未来他将继续深耕中国书法创作，用笔墨传递中老文化之美，争做中老文化交流的使者。
+(李隽 制作 徐妙巧 视频来源 国家电网青海省电力公司） 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 00:30 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 00:35 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 00:28 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 00:19 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 00:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 00:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 00:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 00:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 00:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 00:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 00:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 00:32 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 00:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 00:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 00:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 00:35 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 00:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 00:32 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 00:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 00:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 00:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 00:18 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/4596223536.shtml)
-- 2026-06-30 00:34 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/286339147.shtml)
-- 2026-06-30 00:28 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/7484638645.shtml)
-- 2026-06-30 00:36 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/715374306092.shtml)
-- 2026-06-30 00:26 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/37589472.shtml)
-- 2026-06-30 00:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/2001318.shtml)
-- 2026-06-30 00:36 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/76408.shtml)
-- 2026-06-30 00:25 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/808064274.shtml)
-- 2026-06-30 00:16 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/89796029963.shtml)
-- 2026-06-30 00:24 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/5645952.shtml)
-- 2026-06-30 00:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/970207590.shtml)
-- 2026-06-30 00:13 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/832987924494.shtml)
-- 2026-06-30 00:32 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/7429001.shtml)
-- 2026-06-30 00:39 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/37674453.shtml)
-- 2026-06-30 00:29 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/894195918.shtml)
+- 2026-06-30 00:27 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/25620906979.shtml)
+- 2026-06-30 00:23 - [斗破苍穹](http://www.share.minike.top/Article/details/3941716909.shtml)
+- 2026-06-30 00:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/4418546710.shtml)
+- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/2134012.shtml)
+- 2026-06-30 00:38 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/02897927.shtml)
+- 2026-06-30 00:34 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/01002486325.shtml)
+- 2026-06-30 00:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/47127321822.shtml)
+- 2026-06-30 00:44 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/994999220056.shtml)
+- 2026-06-30 00:47 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/06081.shtml)
+- 2026-06-30 00:27 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0112593531.shtml)
+- 2026-06-30 00:47 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/520318101.shtml)
+- 2026-06-30 00:26 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/998403823056.shtml)
+- 2026-06-30 00:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0736066.shtml)
+- 2026-06-30 00:47 - [乔家的儿女](http://www.share.minike.top/Article/details/13754849.shtml)
+- 2026-06-30 00:24 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/84965321.shtml)

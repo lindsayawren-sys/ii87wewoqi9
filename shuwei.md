@@ -1,48 +1,59 @@
-# 内房股延续近期反弹 龙湖集团涨超5%越秀地产涨超3%
+# （经济观察）三峡水运新通道开工 中国扩容长江黄金水道
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-内房股延续近期反弹，截至发稿，龙湖集团（00960）上涨5.31%，报9.13港元；越秀地产（00123）上涨3.46%，报4.49港元；富力地产（02777）上涨2.78%，报0.37港元；华润置地（01109）上涨2.99%，报36.56港元。责任编辑：卢昱君
+中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。 三峡水运新通道工程开工仪式8日在湖北宜昌举行。这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。 “黄金水道”长江，不仅是一条水道，更
 
 ## 正文
 
-内房股延续近期反弹，截至发稿，龙湖集团（00960）上涨5.31%，报9.13港元；越秀地产（00123）上涨3.46%，报4.49港元；富力地产（02777）上涨2.78%，报0.37港元；华润置地（01109）上涨2.99%，报36.56港元。
+中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。
 
-责任编辑：卢昱君
+三峡水运新通道工程开工仪式8日在湖北宜昌举行。
+
+这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。
+
+“黄金水道”长江，不仅是一条水道，更是一条经济走廊。
+
+长江经济带覆盖11省市，其人口和生产总值均超过中国的40%，全国500强企业有近200家分布在沿江地带。
+
+支撑这一经济带高效运转的重要基础，正是长江航运，其货运量长期稳居全球内河第一，沿江85%铁矿石、83%电煤和85%外贸货物运输依靠长江航运实现。
+
+2003年三峡库区蓄水后，长江航道条件显著改善，航运能力持续释放。
+
+2011年，三峡枢纽通过货运量突破1亿吨，提前19年达到规划运量。
 
 ## 相关推荐
 
-- 2026-06-30 00:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 00:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 00:21 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 00:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 00:22 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 00:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 00:24 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 00:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 00:29 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 00:21 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 00:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 00:27 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 00:34 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 00:25 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 00:42 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 00:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 00:47 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:34 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 00:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 00:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 00:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 00:37 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 00:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 00:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 00:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 00:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 00:30 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/995155.shtml)
-- 2026-06-30 00:18 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/07332117.shtml)
-- 2026-06-30 00:21 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/77104492.shtml)
-- 2026-06-30 00:40 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/0386549158.shtml)
-- 2026-06-30 00:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/9922599710.shtml)
-- 2026-06-30 00:27 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/29325.shtml)
-- 2026-06-30 00:21 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/659826.shtml)
-- 2026-06-30 00:22 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/2836304.shtml)
-- 2026-06-30 00:14 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/35958.shtml)
-- 2026-06-30 00:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/072727918.shtml)
-- 2026-06-30 00:20 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/92577119250.shtml)
-- 2026-06-30 00:16 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/96693687.shtml)
-- 2026-06-30 00:19 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/86075759.shtml)
-- 2026-06-30 00:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/06628.shtml)
-- 2026-06-30 00:40 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/0931303401.shtml)
+- 2026-06-30 00:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/82155751831.shtml)
+- 2026-06-30 00:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/09901617084.shtml)
+- 2026-06-30 00:33 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/09495.shtml)
+- 2026-06-30 00:42 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/37542.shtml)
+- 2026-06-30 00:37 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/408977184.shtml)
+- 2026-06-30 00:27 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/87659.shtml)
+- 2026-06-30 00:21 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/728863138.shtml)
+- 2026-06-30 00:46 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/308729211561.shtml)
+- 2026-06-30 00:20 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/318324855409.shtml)
+- 2026-06-30 00:30 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/28729238.shtml)
+- 2026-06-30 00:40 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/8136956.shtml)
+- 2026-06-30 00:37 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/315639962.shtml)
+- 2026-06-30 00:18 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/72914.shtml)
+- 2026-06-30 00:44 - [第一炉香](http://www.share.kurohicncr.top/Article/details/062311.shtml)
+- 2026-06-30 00:29 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/110940.shtml)

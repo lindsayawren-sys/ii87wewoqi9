@@ -1,56 +1,57 @@
-# 菲柬泰领导人三方会谈在菲律宾宿务举行
+# CI&T加入Claude合作伙伴网络，千名认证工程师助力全球企业规模化部署AI
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新社菲律宾宿务5月7日电 (记者 张兴龙)第48届东盟峰会开幕前夕，菲律宾总统马科斯7日晚在菲宿务省同柬埔寨首相洪玛奈、泰国总理阿努廷举行三方会谈。 马科斯在会后记者会上表示，此次会谈由菲律宾以东盟轮值主席国身份推动举行，旨在为柬泰双方围绕边境问题开展建设性对话提供平台。 马科斯还表示，柬泰双方重申将保持开放沟通与克制，避免采取可能加剧紧张局势的行动，并继续通过和平对话和建设
+CI&T（纽约证券交易所代码：CINT）近日宣布正式加入Anthropic的Claude合作伙伴网络，旨在帮助全球大型企业规模化部署Claude AI模型。作为此次合作的一部分，CI&T将对超过1000名AI工程师进行Claude技术认证，并携手Anthropic共同树立企业AI部署的新标准。 CI&T将利用其专有的企业AI管理系统CI&T FLOW，在Lean AI交付模型中
 
 ## 正文
 
-中新社菲律宾宿务5月7日电 (记者 张兴龙)第48届东盟峰会开幕前夕，菲律宾总统马科斯7日晚在菲宿务省同柬埔寨首相洪玛奈、泰国总理阿努廷举行三方会谈。
+CI&T（纽约证券交易所代码：CINT）近日宣布正式加入Anthropic的Claude合作伙伴网络，旨在帮助全球大型企业规模化部署Claude AI模型。
 
-马科斯在会后记者会上表示，此次会谈由菲律宾以东盟轮值主席国身份推动举行，旨在为柬泰双方围绕边境问题开展建设性对话提供平台。
+作为此次合作的一部分，CI&T将对超过1000名AI工程师进行Claude技术认证，并携手Anthropic共同树立企业AI部署的新标准。
 
-马科斯还表示，柬泰双方重申将保持开放沟通与克制，避免采取可能加剧紧张局势的行动，并继续通过和平对话和建设性接触化解分歧。
+CI&T将利用其专有的企业AI管理系统CI&T FLOW，在Lean AI交付模型中广泛应用Claude Code，旨在帮助企业以工业级的速度和效率，将AI从试点阶段顺利过渡到生产环境。
 
-根据双方达成的共识，柬泰两国外长将继续开展坦诚对话，讨论防止局势升级、维护和平稳定及保障两国民众利益的具体措施。
+此次合作将进一步拓展双方的工作范围，重点为金融服务、零售和消费品等垂直行业联合开发解决方案。
 
-洪玛奈表示，此次会谈聚焦局势降温及重建互信措施，旨在恢复并巩固实现持久和平机制。
+CI&T创始人兼首席执行官Cesar Gon表示：“AI生成选项，而判断决定成果。
 
-柬方仍坚定致力于依据国际法及现有协议和平解决争端。
+与Anthropic的合作标志着CI&T作为AI部署公司的领导地位达到了一个新的里程碑。
 
-阿努廷表示，泰柬互为邻国，避免冲突符合双方共同利益。
+我们将最前沿的模型与三十年来对企业实际变革方式的深刻理解相结合，将无限的可能性转化为可衡量的规模化影响。
 
-他透露，双方还就陆地和海上边界问题交换意见，并探讨以“睦邻友好精神”寻求建设性解决方案。
+” Anthropic是一家致力于构建可靠、可解释和可操控AI系统的AI安全公司。
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 00:31 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:26 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 00:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 00:29 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 00:13 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 00:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 00:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 00:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 00:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 00:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 00:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 00:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 00:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 00:23 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 00:32 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 00:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 00:26 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 00:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [美人鱼](http://www.share.minike.top/Article/details/870418486.shtml)
-- 2026-06-30 00:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/2713637268.shtml)
-- 2026-06-30 00:38 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/1067107032.shtml)
-- 2026-06-30 00:25 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/180185.shtml)
-- 2026-06-30 00:34 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/416916.shtml)
-- 2026-06-30 00:25 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/49324.shtml)
-- 2026-06-30 00:25 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/2517503.shtml)
-- 2026-06-30 00:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/41570705.shtml)
-- 2026-06-30 00:16 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/78337778725.shtml)
-- 2026-06-30 00:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3745306.shtml)
-- 2026-06-30 00:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/1499479.shtml)
-- 2026-06-30 00:33 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/664290.shtml)
-- 2026-06-30 00:33 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/3325549.shtml)
-- 2026-06-30 00:16 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/635144809463.shtml)
-- 2026-06-30 00:40 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/91382590.shtml)
+- 2026-06-30 00:39 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/06614466.shtml)
+- 2026-06-30 00:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/51959.shtml)
+- 2026-06-30 00:22 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/2505512.shtml)
+- 2026-06-30 00:39 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/37234476.shtml)
+- 2026-06-30 00:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/53165.shtml)
+- 2026-06-30 00:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/20620601.shtml)
+- 2026-06-30 00:40 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/7302237321.shtml)
+- 2026-06-30 00:45 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/68208623.shtml)
+- 2026-06-30 00:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/428635862.shtml)
+- 2026-06-30 00:22 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/505172686686.shtml)
+- 2026-06-30 00:21 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/5326602.shtml)
+- 2026-06-30 00:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/79536431474.shtml)
+- 2026-06-30 00:46 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/670098182629.shtml)
+- 2026-06-30 00:38 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/6062102.shtml)
+- 2026-06-30 00:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/12829.shtml)

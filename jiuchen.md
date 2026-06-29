@@ -1,61 +1,51 @@
-# 同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述
+# 旭辉控股集团5月取得合同销售额约8.6亿元 环比增长28.36%
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-光明日报记者 李丹阳 江水浩荡，昼夜不息。长江一路东流，见证着一场持续推进的绿色转型。 2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。 5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调
+旭辉控股集团（00884）公布，于2026年5月，该集团取得合同销售（连合营企业及联营公司的合同销售）金额约人民币8.6亿元，环比增长28.36%；及合同销售面积约8.68万平方米，合同销售均价约人民币11，200元╱平方米，及公司股东权益应占合同销售金额约人民币4.7亿元，环比增长38.24%。 1-5月，集团取得累计合同销售（连合营企业及联营公司的合同销售）金额约人民币39
 
 ## 正文
 
-光明日报记者 李丹阳 江水浩荡，昼夜不息。
+旭辉控股集团（00884）公布，于2026年5月，该集团取得合同销售（连合营企业及联营公司的合同销售）金额约人民币8.6亿元，环比增长28.36%；及合同销售面积约8.68万平方米，合同销售均价约人民币11，200元╱平方米，及公司股东权益应占合同销售金额约人民币4.7亿元，环比增长38.24%。
 
-长江一路东流，见证着一场持续推进的绿色转型。
+1-5月，集团取得累计合同销售（连合营企业及联营公司的合同销售）金额约人民币39.4亿元及合同销售面积约38.82万平方米，合同销售均价约人民币11，000元╱平方米，及公司股东权益应占合同销售金额约人民币21.1亿元。
 
-2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。
-
-5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调下，与湖北省密切配合，高质量完成长江生态环境保护民主监督各项任务，工作取得良好成效。
-
-把脚步踏到江岸线上 长江保护，首先要看见真实的长江。
-
-2023年5月，武汉余家头江滩。
-
-民革中央调研组走进水厂，围着取水口反复询问水质变化、处理能力等细节问题，一边看、一边问，甚至凑近水面观察水体状态。
-
-这样的场景，在5年的调研中并不鲜见。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:38 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 00:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 00:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 00:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 00:26 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 00:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 00:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 00:16 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 00:15 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 00:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 00:27 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 00:18 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 00:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 00:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 00:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 00:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 00:36 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 00:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 00:44 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 00:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 00:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 00:37 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 00:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 00:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 00:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 00:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 00:47 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 00:45 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 00:40 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:15 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/2691524.shtml)
-- 2026-06-30 00:32 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/0143969608.shtml)
-- 2026-06-30 00:18 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/8491894251.shtml)
-- 2026-06-30 00:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/4868442.shtml)
-- 2026-06-30 00:17 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/540403234.shtml)
-- 2026-06-30 00:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/444483.shtml)
-- 2026-06-30 00:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3628387.shtml)
-- 2026-06-30 00:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/46570047852.shtml)
-- 2026-06-30 00:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/56689244.shtml)
-- 2026-06-30 00:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/667395.shtml)
-- 2026-06-30 00:37 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/5931460.shtml)
-- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/31195.shtml)
-- 2026-06-30 00:29 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/210621070.shtml)
-- 2026-06-30 00:20 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/884169.shtml)
-- 2026-06-30 00:32 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/741017902848.shtml)
+- 2026-06-30 00:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/89482.shtml)
+- 2026-06-30 00:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8330476.shtml)
+- 2026-06-30 00:25 - [速度与激情9](http://www.share.minike.top/Article/details/593789121549.shtml)
+- 2026-06-30 00:35 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/98182296582.shtml)
+- 2026-06-30 00:34 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/23875.shtml)
+- 2026-06-30 00:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/70520406341.shtml)
+- 2026-06-30 00:46 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/4839133.shtml)
+- 2026-06-30 00:24 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/42778.shtml)
+- 2026-06-30 00:42 - [恋与深空 巧合](http://www.share.minike.top/Article/details/250801743.shtml)
+- 2026-06-30 00:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/32246634681.shtml)
+- 2026-06-30 00:39 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/60422633.shtml)
+- 2026-06-30 00:27 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/61972.shtml)
+- 2026-06-30 00:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/3301534.shtml)
+- 2026-06-30 00:18 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/710195376.shtml)
+- 2026-06-30 00:31 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/12183614.shtml)

@@ -1,58 +1,60 @@
-# 百融智能陈树军：金融领域有用智能体的标准与落地路径
+# Verra Mobility遭Avis解约及CEO离职，面临证券集体诉讼
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。 以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。 我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从
+智能出行技术提供商Verra Mobility正遭遇多重危机。在收到最大商业客户之一Avis Budget Group的合同终止通知、首席执行官离职以及对双方谈判与机密信息处理展开内部审查后，公司目前面临证券欺诈集体诉讼。 诉讼旨在代表在2026年2月24日至5月26日期间购买Verra Mobility股票的投资者。首席原告申请截止日期为2026年8月4日。 事件于2026年
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+智能出行技术提供商Verra Mobility正遭遇多重危机。
 
-百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。
+在收到最大商业客户之一Avis Budget Group的合同终止通知、首席执行官离职以及对双方谈判与机密信息处理展开内部审查后，公司目前面临证券欺诈集体诉讼。
 
-以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。
+诉讼旨在代表在2026年2月24日至5月26日期间购买Verra Mobility股票的投资者。
 
-我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从事零售银行工作，服务老百姓，我发现银行对5%的客户提供了优质的有专业理财师、理财室、贵宾权益的服务，95%的客户几乎无人照料。
+首席原告申请截止日期为2026年8月4日。
 
-2018年，我在编译《Bank 4.0》这本书的时候，产生了了用数字人为银行每一位客户都配备一名数字理财师的想法，叫一客一顾问。
+事件于2026年5月26日曝光。
 
-我从2018年就在多个论坛上宣讲这个思路，但是我一直没有得到实现的机会，终于人工智能来了，我选择了百融智能这个平台，我觉得有机会在百融智能公司来实现当年的这个梦想，让每一个金融客户都得到专业、优质的金融服务，实现真正的金融普惠。
+Verra Mobility披露已收到Avis的合同终止通知，该合同将于2026年9月生效。
 
-我今天给大家汇报的是这六个方面： 第一方面，我们从Hermes爆火来看AI Agent的进化逻辑 整个人工智能应用分为三类：（一）基于大模型生成内容，AIGC，从chatGPT问答式开始，现在进入多模态，可以生成文字、图片、程序代码、视频短剧、音乐、PPT、报告、总结等多模态内容，以Claude、Gemini、豆包、千问等为代表，（二）基于大模型推理，以Deepseek为代表，（三）基于大模型执行，各类Agent框架、平台涌现，以Manus、Coze扣子、Dify、百融百工为代表，然后又进化出龙虾、Hermes。
+Avis贡献了公司总收入的10%以上，并在其利润率最高的商业服务部门中占据不成比例的利润份额。
 
-AI从第一阶段规则型自动化，按指令执行，现在进入到连接型的Agent和进化型的Agent，Coze、Dify只是提供一个搭建智能体的平台，龙虾就可以直接动手执行，而Hermes是带有记忆、自主规划能力执行式AI，向个人助理领域迈进。
+此次解约预计将使商业服务收入减少1.35亿至1.45亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 00:32 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 00:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 00:21 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 00:35 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 00:38 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 00:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 00:12 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 00:39 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 00:34 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 00:12 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 00:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 00:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 00:29 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 00:34 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 00:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 00:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 00:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 00:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 00:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 00:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:39 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 00:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 00:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:36 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/8734284.shtml)
-- 2026-06-30 00:30 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/09535123293.shtml)
-- 2026-06-30 00:16 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/808315471030.shtml)
-- 2026-06-30 00:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/625462.shtml)
-- 2026-06-30 00:22 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/76279.shtml)
-- 2026-06-30 00:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/60281020522.shtml)
-- 2026-06-30 00:31 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/306563638497.shtml)
-- 2026-06-30 00:35 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/4034144233.shtml)
-- 2026-06-30 00:41 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/2514591920.shtml)
-- 2026-06-30 00:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/349401.shtml)
-- 2026-06-30 00:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/1939235001.shtml)
-- 2026-06-30 00:34 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/7473195.shtml)
-- 2026-06-30 00:12 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/376033.shtml)
-- 2026-06-30 00:17 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/20804.shtml)
-- 2026-06-30 00:38 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/456122.shtml)
+- 2026-06-30 00:44 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/84531833.shtml)
+- 2026-06-30 00:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/68703.shtml)
+- 2026-06-30 00:43 - [沙丘](https://www.share.minike.top/Article/details/1300337534.shtml)
+- 2026-06-30 00:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/7456604.shtml)
+- 2026-06-30 00:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/3545902.shtml)
+- 2026-06-30 00:33 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/46008.shtml)
+- 2026-06-30 00:36 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/82452.shtml)
+- 2026-06-30 00:46 - [美股](http://www.share.kurohicncr.top/Article/details/94956508571.shtml)
+- 2026-06-30 00:46 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/97889.shtml)
+- 2026-06-30 00:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/3413256.shtml)
+- 2026-06-30 00:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/7882782009.shtml)
+- 2026-06-30 00:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/2145835260.shtml)
+- 2026-06-30 00:46 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/94518.shtml)
+- 2026-06-30 00:42 - [月亮](http://www.blog.kurohicncr.top/Article/details/46564742019.shtml)
+- 2026-06-30 00:23 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/13157.shtml)

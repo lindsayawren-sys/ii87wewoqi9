@@ -1,59 +1,58 @@
-# 欧洲债市：德国国债抹去涨幅 美伊谈判前景未明
+# 原油：油价跌幅收窄 特朗普称美国必须回应伊朗袭击事件
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-德国国债变化不大，此前有报道称伊朗针对霍尔木兹海峡通行制定新规。早些时候的报道暗示，美伊可能达成协议以重开这一狭窄水道。 互换市场定价显示，市场预计欧洲央行今年加息62个基点，高于周三预计的61个基点；政策制定者Isabel Schnabel将在收盘后发表讲话。 英国国债回吐大部分涨幅，市场关注点转向周四英国地方选举结果。 货币市场预计英国央行年内加息55个基点，低于此前预计的
+原油下跌，日内波动剧烈，此前美国总统唐纳德·特朗普表示，美国必须对一架美军直升机被击落作出回应，再次引发市场对美国与伊朗可能重陷冲突、并延长全球能源危机的担忧。 全球基准布伦特原油下跌3%，结算价在每桶91美元上方；WTI下跌3%，结算价在每桶88美元上方。 特朗普指责伊朗在阿曼附近击落阿帕奇直升机，令市场担心脆弱停火的稳定性以及与德黑兰和平协议谈判的前景。这场2月底开始的冲突
 
 ## 正文
 
-德国国债变化不大，此前有报道称伊朗针对霍尔木兹海峡通行制定新规。
+原油下跌，日内波动剧烈，此前美国总统唐纳德·特朗普表示，美国必须对一架美军直升机被击落作出回应，再次引发市场对美国与伊朗可能重陷冲突、并延长全球能源危机的担忧。
 
-早些时候的报道暗示，美伊可能达成协议以重开这一狭窄水道。
+全球基准布伦特原油下跌3%，结算价在每桶91美元上方；WTI下跌3%，结算价在每桶88美元上方。
 
-互换市场定价显示，市场预计欧洲央行今年加息62个基点，高于周三预计的61个基点；政策制定者Isabel Schnabel将在收盘后发表讲话。
+特朗普指责伊朗在阿曼附近击落阿帕奇直升机，令市场担心脆弱停火的稳定性以及与德黑兰和平协议谈判的前景。
 
-英国国债回吐大部分涨幅，市场关注点转向周四英国地方选举结果。
+这场2月底开始的冲突引发了史上最大规模的石油供应中断，并推高全球通胀。
 
-货币市场预计英国央行年内加息55个基点，低于此前预计的56个基点。
+“这只能说明，我们距离达成协议并不像新闻标题所显示的那么近，”道明证券高级大宗商品策略师Ryan McKay表示。
 
-市场： 德国10年期国债收益率持稳在2.99%； 德国国债期货涨15个点，至125.85； 意大利10年期国债收益率跌1个基点，至3.73%； 意大利-德国国债利差缩小1个基点，至74个基点； 法国10年期国债收益率持稳在3.62%； 10年期英国国债收益率跌1个基点，至4.93%。
+尽管如此，特朗普没有具体说明回应将采取什么形式，而迄今为止，尽管交战双方多次发生冲突，以色列和伊朗之间也爆发战斗，停火仍然得以维持。
 
-责任编辑：丁文武
+伊朗外长在社交媒体上发文称，“靠近我国领土的外国军队始终面临风险”。
+
+有关言论扰乱了油价早前稳步下跌的走势。
 
 ## 相关推荐
 
-- 2026-06-30 00:15 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 00:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 00:30 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 00:31 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 00:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 00:12 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 00:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 00:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 00:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 00:37 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 00:30 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 00:27 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 00:17 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 00:32 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 00:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 00:30 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 00:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 00:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 00:33 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 00:30 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 00:39 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 00:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 00:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 00:20 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 00:27 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/5335261192.shtml)
-- 2026-06-30 00:27 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/217600039.shtml)
-- 2026-06-30 00:14 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/32517915781.shtml)
-- 2026-06-30 00:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9969716294.shtml)
-- 2026-06-30 00:35 - [斛珠夫人](https://www.blog.minike.top/Article/details/302871516.shtml)
-- 2026-06-30 00:31 - [周生如故](http://www.blog.minike.top/Article/details/83832553125.shtml)
-- 2026-06-30 00:37 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/511195947762.shtml)
-- 2026-06-30 00:40 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/28588309.shtml)
-- 2026-06-30 00:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/326194.shtml)
-- 2026-06-30 00:40 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/18901451.shtml)
-- 2026-06-30 00:19 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/558930.shtml)
-- 2026-06-30 00:25 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/0391265918.shtml)
-- 2026-06-30 00:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9769191.shtml)
-- 2026-06-30 00:22 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/7301301.shtml)
-- 2026-06-30 00:26 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/9552873.shtml)
+- 2026-06-30 00:18 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/579226.shtml)
+- 2026-06-30 00:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/866744775657.shtml)
+- 2026-06-30 00:36 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/002594900994.shtml)
+- 2026-06-30 00:31 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/424553284.shtml)
+- 2026-06-30 00:26 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/0606877.shtml)
+- 2026-06-30 00:36 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0525471.shtml)
+- 2026-06-30 00:39 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/35191226760.shtml)
+- 2026-06-30 00:24 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/298752.shtml)
+- 2026-06-30 00:30 - [锐评T1零封KC](http://www.share.minike.top/Article/details/36427901257.shtml)
+- 2026-06-30 00:30 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/612948572.shtml)
+- 2026-06-30 00:44 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/2135145.shtml)
+- 2026-06-30 00:43 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/5403197575.shtml)
+- 2026-06-30 00:21 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/898892.shtml)
+- 2026-06-30 00:43 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/207263.shtml)
+- 2026-06-30 00:29 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/42575578.shtml)

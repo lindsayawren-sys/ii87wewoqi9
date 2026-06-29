@@ -1,52 +1,58 @@
-# 花旗：农夫山泉目标价升至59.20港元 给予“买入”评级
+# IQSTEL启动股份回购计划，彰显对内在价值与长期增长的信心
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。 该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及
+跨国科技公司IQSTEL Inc．（纳斯达克代码：IQST）近日宣布，其董事会已正式授权一项股份回购计划，将在公开市场回购最多100万股公司普通股。 此次回购资金将全部或部分来源于旗下运营子公司QXTEL向公司支付的现金股息。公司表示，此举反映了董事会的判断，即当前市场估值严重低估了公司业务平台的内在价值。 IQSTEL首席执行官Leandro Iglesias表示：“我们认为
 
 ## 正文
 
-花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。
+跨国科技公司IQSTEL Inc．（纳斯达克代码：IQST）近日宣布，其董事会已正式授权一项股份回购计划，将在公开市场回购最多100万股公司普通股。
 
-该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。
+此次回购资金将全部或部分来源于旗下运营子公司QXTEL向公司支付的现金股息。
 
-该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及2027财年的纯利预测大致维持不变。
+公司表示，此举反映了董事会的判断，即当前市场估值严重低估了公司业务平台的内在价值。
 
-责任编辑：卢昱君
+IQSTEL首席执行官Leandro Iglesias表示：“我们认为IQSTEL近期股价的下跌与公司的基本面价值严重背离。
+
+今天，IQSTEL比以往任何时候都更强大。
+
+基于这些基本面，我们的董事会认为在当前市场价格下回购股份是为股东创造价值的有利时机。
+
+” 此次回购计划的公布恰逢公司发展的关键时期。
+
+根据最新财报，IQSTEL在2026年第一季度实现营收9790万美元，同比大幅增长69.9%。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 00:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 00:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 00:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 00:37 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 00:40 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 00:26 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 00:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 00:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 00:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 00:39 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 00:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 00:17 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 00:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 00:27 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 00:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 00:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 00:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 00:39 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 00:33 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 00:43 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 00:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 00:21 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 00:24 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 00:33 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 00:19 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:16 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/11727377528.shtml)
-- 2026-06-30 00:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/507300.shtml)
-- 2026-06-30 00:23 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/81019131.shtml)
-- 2026-06-30 00:37 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/22934.shtml)
-- 2026-06-30 00:38 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/535397963.shtml)
-- 2026-06-30 00:24 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/693319229009.shtml)
-- 2026-06-30 00:15 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/86958.shtml)
-- 2026-06-30 00:27 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/472485075.shtml)
-- 2026-06-30 00:31 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/16916287.shtml)
-- 2026-06-30 00:12 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/03598.shtml)
-- 2026-06-30 00:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/151526.shtml)
-- 2026-06-30 00:18 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/5360180.shtml)
-- 2026-06-30 00:18 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/2185919973.shtml)
-- 2026-06-30 00:26 - [女心理师](https://www.blog.kurohicncr.top/Article/details/7043517.shtml)
-- 2026-06-30 00:12 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/25199236443.shtml)
+- 2026-06-30 00:25 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/79203.shtml)
+- 2026-06-30 00:34 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/890035145117.shtml)
+- 2026-06-30 00:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/6380779540.shtml)
+- 2026-06-30 00:42 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/04400.shtml)
+- 2026-06-30 00:41 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/943888722723.shtml)
+- 2026-06-30 00:21 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/82459382.shtml)
+- 2026-06-30 00:33 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/220880006.shtml)
+- 2026-06-30 00:39 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/69582.shtml)
+- 2026-06-30 00:39 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/314175866.shtml)
+- 2026-06-30 00:26 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/666059222.shtml)
+- 2026-06-30 00:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/3789134568.shtml)
+- 2026-06-30 00:18 - [千香](https://www.share.kurohicncr.top/Article/details/195914.shtml)
+- 2026-06-30 00:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/07806.shtml)
+- 2026-06-30 00:38 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/861325350192.shtml)
+- 2026-06-30 00:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/5778990.shtml)

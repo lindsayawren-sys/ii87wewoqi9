@@ -1,60 +1,54 @@
-# 鸿达兴业（002002）投资者索赔案获得法院立案
+# 浙江中欧班列市场采购定制班列发车 目的地阿富汗
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-2026年5月6日，上海久诚律师事务所股票索赔律师许峰代理的鸿达兴业（002002）投资者索赔案已获得法院立案，目前正在等待法院的下一步安排，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2025年6月27日，鸿达兴业公告收到江苏证监局《行政处罚决定书》，经查明，鸿达兴业等存在以下违法事实： 一、鸿达兴业擅自改变2019年募集资
+中新网义乌6月8日电(董易鑫 刘明明)6月8日，在位于浙江的义乌铁路西站，一列满载110标箱货物的浙江中欧班列市场采购定制班列鸣笛启程，后续将经新疆霍尔果斯口岸出境，直达阿富汗。 据悉，市场采购定制班列的货源主要依托市场采购贸易方式。该方式于2013年在义乌启动试点，是中国国家级首创，源于全球客商日益增长的采购需求。 近三年来，义乌通过该方式实现的出口值占义乌全市年出口总值的约
 
 ## 正文
 
-2026年5月6日，上海久诚律师事务所股票索赔律师许峰代理的鸿达兴业（002002）投资者索赔案已获得法院立案，目前正在等待法院的下一步安排，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+中新网义乌6月8日电(董易鑫 刘明明)6月8日，在位于浙江的义乌铁路西站，一列满载110标箱货物的浙江中欧班列市场采购定制班列鸣笛启程，后续将经新疆霍尔果斯口岸出境，直达阿富汗。
 
-（许峰律师专栏） 2025年6月27日，鸿达兴业公告收到江苏证监局《行政处罚决定书》，经查明，鸿达兴业等存在以下违法事实： 一、鸿达兴业擅自改变2019年募集资金用途。
+据悉，市场采购定制班列的货源主要依托市场采购贸易方式。
 
-二、鸿达兴业2019年至2022年年度报告、2023年半年度报告及相应期间募集资金存放与实际使用情况的专项报告、关于归还募集资金的公告存在虚假记载。
+该方式于2013年在义乌启动试点，是中国国家级首创，源于全球客商日益增长的采购需求。
 
-三、鸿达兴业未及时披露重大诉讼、仲裁及重大担保事项进展情况 （一）鸿达兴业未及时披露重大诉讼、仲裁事项。
+近三年来，义乌通过该方式实现的出口值占义乌全市年出口总值的约80%。
 
-（二）鸿达兴业未及时披露重大担保事项进展情况。
+值得一提的是，这一改革成果已从浙江出发，在中国22个省份的39个专业市场复制推广。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2020年1月6日到2023年9月23日之间买入鸿达兴业股票，并且在2023年9月23日后卖出或继续持有股票的投资者，目前还可发起索赔。
+当前，浙江中欧班列的运营方正依托当地的金华(义乌)中欧班列集结中心，持续深耕“实体市场+市场采购+中欧班列”一体化业态，就地归集来自义乌市场的零散小单并实现集约化拼箱组列，进一步降低综合物流成本，利好海内外客户。
 
-（*ST鸿达维权入口） （本文由许峰律师供稿，不代表新浪财经立场。
-
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 00:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 00:35 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 00:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:31 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 00:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 00:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 00:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 00:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 00:23 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 00:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 00:22 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 00:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 00:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 00:40 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 00:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 00:39 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 00:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 00:31 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 00:40 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 00:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 00:23 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [沉睡花园](https://www.blog.minike.top/Article/details/73864110579.shtml)
-- 2026-06-30 00:35 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/863000776.shtml)
-- 2026-06-30 00:38 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/984649344.shtml)
-- 2026-06-30 00:22 - [千香](http://www.share.minike.top/Article/details/1030419.shtml)
-- 2026-06-30 00:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/360908721.shtml)
-- 2026-06-30 00:34 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/504340.shtml)
-- 2026-06-30 00:41 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/49597586144.shtml)
-- 2026-06-30 00:18 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/00530576.shtml)
-- 2026-06-30 00:22 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3071329763.shtml)
-- 2026-06-30 00:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/123755.shtml)
-- 2026-06-30 00:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/14629180514.shtml)
-- 2026-06-30 00:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8262418.shtml)
-- 2026-06-30 00:31 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/094133195425.shtml)
-- 2026-06-30 00:20 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/944397947887.shtml)
-- 2026-06-30 00:36 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/7518522290.shtml)
+- 2026-06-30 00:32 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/360297.shtml)
+- 2026-06-30 00:37 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/54132297.shtml)
+- 2026-06-30 00:30 - [扬名立万](https://www.blog.minike.top/Article/details/35865.shtml)
+- 2026-06-30 00:27 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/77892649.shtml)
+- 2026-06-30 00:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/69516887.shtml)
+- 2026-06-30 00:31 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/99054056109.shtml)
+- 2026-06-30 00:29 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/868284.shtml)
+- 2026-06-30 00:24 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/0274831.shtml)
+- 2026-06-30 00:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/0579685207.shtml)
+- 2026-06-30 00:33 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/303241.shtml)
+- 2026-06-30 00:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/452030536875.shtml)
+- 2026-06-30 00:37 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/93167.shtml)
+- 2026-06-30 00:28 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/92680151.shtml)
+- 2026-06-30 00:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/782078148460.shtml)
+- 2026-06-30 00:34 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/92310491.shtml)

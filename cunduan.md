@@ -1,53 +1,56 @@
-# 探访武夷山国家公园：走进“络腮胡”藏酋猴的天然乐园
+# 继Anthropic之后，OpenAI也提交了美国IPO申请
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。 藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。武夷山国家公园拥有
+ChatGPT开发商OpenAI于周一秘密提交了美国首次公开募股（IPO）申请，与竞争对手Anthropic一道进军股市，以满足投资者对人工智能热潮的投资需求。 OpenAI未披露此次发行的规模或条款，但有报道称，这家人工智能巨头计划在最早可能于9月进行的首次公开募股中，争取高达1万亿美元的估值。 若估值如期达成，OpenAI将开启三家万亿估值公司接连上市的序幕，这也被视为近十
 
 ## 正文
 
-发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。
+ChatGPT开发商OpenAI于周一秘密提交了美国首次公开募股（IPO）申请，与竞争对手Anthropic一道进军股市，以满足投资者对人工智能热潮的投资需求。
 
-成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。
+OpenAI未披露此次发行的规模或条款，但有报道称，这家人工智能巨头计划在最早可能于9月进行的首次公开募股中，争取高达1万亿美元的估值。
 
-藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。
+若估值如期达成，OpenAI将开启三家万亿估值公司接连上市的序幕，这也被视为近十年来对投资者对高增长科技股兴趣的最关键考验。
 
-武夷山国家公园拥有世界同纬度最完整、最典型的中亚热带森林生态系统，为藏酋猴提供了理想的生存环境。
+埃隆·马斯克旗下的SpaceX率先启动了IPO进程，若成功完成，这将是有史以来规模最大的IPO，该公司计划以1.75万亿美元的估值募集750亿美元资金。
 
-近年来，得益于武夷山国家公园实施的生态保护措施，园区内野生藏酋猴种群数稳定增长，核心区域桐木村附近山林成为藏酋猴繁衍生息的天然乐园。
+在交易者对未来事件结果进行押注的预测市场上，大多数参与者原本预计OpenAI会在Anthropic之前提交IPO申请。
 
-(记者 王东明 李思源） 责任编辑：【卢岩】
+人工智能时代 Anthropic和OpenAI的IPO将标志着科技行业和全球市场一个变革时期的到来，人工智能正迅速成为本十年的核心投资主题。
+
+OpenAI今年早些时候表示，正以8400亿美元估值从软银9984.T、亚马逊AMZN.O和英伟达NVDA.O等重量级投资者处筹集1100亿美元。
+
+当时，该公司还披露，ChatGPT的周活跃用户已超过9亿，消费者订阅用户超过5000万。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 00:27 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 00:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 00:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 00:37 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 00:26 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 00:19 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 00:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 00:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 00:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 00:35 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 00:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 00:26 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 00:37 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 00:27 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 00:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 00:37 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 00:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 00:46 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 00:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/431772542876.shtml)
-- 2026-06-30 00:16 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/991834481321.shtml)
-- 2026-06-30 00:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7638105856.shtml)
-- 2026-06-30 00:16 - [斛珠夫人](http://www.share.minike.top/Article/details/388705.shtml)
-- 2026-06-30 00:30 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/2661879.shtml)
-- 2026-06-30 00:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/694315.shtml)
-- 2026-06-30 00:39 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/444738.shtml)
-- 2026-06-30 00:20 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/117181.shtml)
-- 2026-06-30 00:35 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/056417657.shtml)
-- 2026-06-30 00:12 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/5401574.shtml)
-- 2026-06-30 00:36 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/008054.shtml)
-- 2026-06-30 00:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/182671597185.shtml)
-- 2026-06-30 00:24 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/84054.shtml)
-- 2026-06-30 00:41 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/34120059.shtml)
-- 2026-06-30 00:23 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/84212704216.shtml)
+- 2026-06-30 00:27 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/564784.shtml)
+- 2026-06-30 00:40 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/52259362970.shtml)
+- 2026-06-30 00:42 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/560111392.shtml)
+- 2026-06-30 00:41 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/3016503.shtml)
+- 2026-06-30 00:35 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/60126838795.shtml)
+- 2026-06-30 00:39 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/63323.shtml)
+- 2026-06-30 00:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/803058237367.shtml)
+- 2026-06-30 00:26 - [扬名立万](http://www.blog.minike.top/Article/details/14588.shtml)
+- 2026-06-30 00:37 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/80073693587.shtml)
+- 2026-06-30 00:19 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/866240.shtml)
+- 2026-06-30 00:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/0496411.shtml)
+- 2026-06-30 00:24 - [毒液2](https://www.blog.minike.top/Article/details/6800416218.shtml)
+- 2026-06-30 00:45 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/40865845751.shtml)
+- 2026-06-30 00:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/849960.shtml)
+- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/31125.shtml)

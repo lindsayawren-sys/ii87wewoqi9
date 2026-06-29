@@ -1,43 +1,61 @@
-# 强军思想育新人丨“翀”上云霄
+# 6000亿贵州银行与7000亿贵阳银行，同期换帅
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 09:43 来源：学习军团 责任编辑：【杨彦宇】
+文/瑞财经 许淑敏 继贵阳银行官宣董事长张正海离职后，贵州银行也宣布董事长杨明尚离开了。 贵州省内两家头部银行，同期换帅了。 贵阳银行由行长盛军代为履行董事长职责，贵州银行接任者则是杨鸿钧，现年58岁， 盛军是70后，是工行系出身，而杨鸿钧现年58岁，出身于农行系统，曾一路做到农行贵州省分行副行长，直到2024年成为贵州省联社理事、副理事长。 杨鸿钧参与了贵州农商联合银行组建工
 
 ## 正文
 
-发布时间：2026年05月09日 09:43 来源：学习军团 责任编辑：【杨彦宇】
+文/瑞财经 许淑敏 继贵阳银行官宣董事长张正海离职后，贵州银行也宣布董事长杨明尚离开了。
+
+贵州省内两家头部银行，同期换帅了。
+
+贵阳银行由行长盛军代为履行董事长职责，贵州银行接任者则是杨鸿钧，现年58岁， 盛军是70后，是工行系出身，而杨鸿钧现年58岁，出身于农行系统，曾一路做到农行贵州省分行副行长，直到2024年成为贵州省联社理事、副理事长。
+
+杨鸿钧参与了贵州农商联合银行组建工作。
+
+2025年12月底，贵州农村商业联合银行正式挂牌开业，杨鸿钧成为首任行长。
+
+盛军与杨鸿钧的较量，才刚刚开始。
+
+贵州银行是贵州省内唯一跨三地合并组建的省级城商行，成立于2012年，而贵阳银行则是贵州省内成立最早的老牌城商行，成立于1997年，业务深耕贵阳市、辐射全省。
+
+相较于贵阳银行，贵州银行仍有相当的距离。
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 00:19 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 00:23 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 00:26 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 00:35 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 00:17 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 00:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 00:12 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 00:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 00:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 00:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 00:28 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 00:43 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 00:40 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 00:23 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 00:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 00:25 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 00:34 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 00:47 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 00:34 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 00:38 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 00:36 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 00:28 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 00:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 00:39 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 00:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [啊啊啊](https://www.share.minike.top/Article/details/73074667071.shtml)
-- 2026-06-30 00:29 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/753583229849.shtml)
-- 2026-06-30 00:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/27328064626.shtml)
-- 2026-06-30 00:15 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/1669569.shtml)
-- 2026-06-30 00:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/28215695.shtml)
-- 2026-06-30 00:23 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/3788582389.shtml)
-- 2026-06-30 00:40 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/3875535689.shtml)
-- 2026-06-30 00:31 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/4478201872.shtml)
-- 2026-06-30 00:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/5156140594.shtml)
-- 2026-06-30 00:25 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/0478953653.shtml)
-- 2026-06-30 00:14 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/40108932488.shtml)
-- 2026-06-30 00:17 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/297654.shtml)
-- 2026-06-30 00:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/687374.shtml)
-- 2026-06-30 00:36 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/304709010.shtml)
-- 2026-06-30 00:36 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/71147.shtml)
+- 2026-06-30 00:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/9462446.shtml)
+- 2026-06-30 00:21 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/90874541346.shtml)
+- 2026-06-30 00:25 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/72831.shtml)
+- 2026-06-30 00:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/457544744306.shtml)
+- 2026-06-30 00:24 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/0468563495.shtml)
+- 2026-06-30 00:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/41168.shtml)
+- 2026-06-30 00:43 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/9759351378.shtml)
+- 2026-06-30 00:40 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/7835768.shtml)
+- 2026-06-30 00:40 - [送你一朵小红花](http://www.blog.minike.top/Article/details/04431734.shtml)
+- 2026-06-30 00:36 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/1416248.shtml)
+- 2026-06-30 00:29 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/01965.shtml)
+- 2026-06-30 00:20 - [女心理师](https://www.blog.minike.top/Article/details/285315142598.shtml)
+- 2026-06-30 00:43 - [斛珠夫人](https://www.blog.minike.top/Article/details/6605460.shtml)
+- 2026-06-30 00:26 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/6191557.shtml)
+- 2026-06-30 00:28 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/35360.shtml)

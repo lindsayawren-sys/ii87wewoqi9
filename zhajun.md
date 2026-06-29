@@ -1,57 +1,61 @@
-# 话剧《国士》在渝巡演 渝沪民建共悟先贤伟力
+# 事关企业购置不动产转移登记 五部门出台多项改革举措
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。在渝3场展演累计吸引近3000名民建会员和社会人士观看。 据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“
+中新网6月10日电 据自然资源部网站消息，自然资源部、公安部、国家税务总局、国家市场监督管理总局和国家金融监督管理总局印发《关于做好企业购置不动产转移登记“高效办成一件事”的通知》(以下简称《通知》)，推出七方面改革举措，聚焦企业购置不动产转移登记“高效办成一件事”，纵深推进不动产登记便利化改革，优化营商环境。具体举措如下：一、加强登记服务集成 企业购置不动产涉及的转移登记、抵
 
 ## 正文
 
-中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。
+中新网6月10日电 据自然资源部网站消息，自然资源部、公安部、国家税务总局、国家市场监督管理总局和国家金融监督管理总局印发《关于做好企业购置不动产转移登记“高效办成一件事”的通知》(以下简称《通知》)，推出七方面改革举措，聚焦企业购置不动产转移登记“高效办成一件事”，纵深推进不动产登记便利化改革，优化营商环境。
 
-在渝3场展演累计吸引近3000名民建会员和社会人士观看。
+具体举措如下：一、加强登记服务集成 企业购置不动产涉及的转移登记、抵押登记、申报纳税、贷款办理等纳入“一件事”范畴。
 
-据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“黄炎培三别上海”为主线，展现了黄炎培先生跨越半个世纪的奋斗历程，清晰勾勒出他兴职教、赴延安、创民建的人生轨迹，用一生回答了“为何而立、为谁而行”，最终找到了“跟共产党走，走社会主义道路”的光明之路。
+各地要加快综合窗口“一窗受理、并行办理”向“一窗办理、集成服务”升级，根据业务需要设立企业专窗，集中办理涉企业务。
 
-民建中央副主席、上海市委员会主委解冬在开演仪式上表示，“窑洞对”的历史之问至今烛照当下，与党同心、爱国为民、精诚合作、敬业奉献的多党合作优良传统，是先贤留给后人的宝贵精神财富。
+企业在同一窗口即可完成不动产登记申请、申报纳税、证书领取等事项办理。
 
-希望广大民建会员在回望波澜壮阔的岁月中凝聚团结奋进的力量，以“国士”为榜样，在新征程中奋力谱写民建事业发展新篇章。
+精简企业办理转移登记、抵押登记以及申报纳税等申请材料，企业营业执照、授权委托书、代理人身份证明、交易合同、不动产权证书及登记证明等共性材料无需重复提交，实行一个表格、一套材料、一次提交。
 
-民建重庆市委员会专职副主委刘伟表示，重庆民建会员将从《国士》中汲取黄炎培先生“一分精神全为国，一寸光阴全为民”的赤子情怀，把对先贤的怀念与敬仰，转化为履职尽责、服务发展的实际行动。
+纳入“一件事”的事项，要对外公示申请材料、办理流程和承诺时限，不得随意增加非法定环节和材料。
 
-两地民建将以此次活动为纽带，持续深化渝沪两地民建组织的沟通交流，携手推动民建事业薪火相传、再谱新篇。
+各地要实现企业购置不动产转移登记“一件事”“同市同标”，做到同一事项统一申请材料、统一办理标准，并逐步向省域范围拓展，推动实现“同省同标”。
 
-演出现场，舞台光影流转、场景移步换景，瞬间将观众拉回风云激荡的峥嵘岁月。
+二、深化登记税务协同 各地要巩固已有改革成果，持续优化企业购置国有土地上房屋转移登记及申报纳税流程，提高业务联办效率。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 00:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 00:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 00:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 00:34 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 00:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 00:17 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 00:34 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 00:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 00:23 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 00:16 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:23 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 00:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 00:31 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 00:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 00:20 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 00:41 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 00:34 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 00:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 00:32 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 00:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 00:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 00:36 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 00:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 00:18 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 00:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:14 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/643697556229.shtml)
-- 2026-06-30 00:22 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/28519102.shtml)
-- 2026-06-30 00:13 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/706791952464.shtml)
-- 2026-06-30 00:30 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/883421891.shtml)
-- 2026-06-30 00:33 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5211219650.shtml)
-- 2026-06-30 00:32 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/896900772398.shtml)
-- 2026-06-30 00:22 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/351630911460.shtml)
-- 2026-06-30 00:27 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/293200379.shtml)
-- 2026-06-30 00:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/761516840.shtml)
-- 2026-06-30 00:13 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/937437.shtml)
-- 2026-06-30 00:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/667767.shtml)
-- 2026-06-30 00:30 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/4083015.shtml)
-- 2026-06-30 00:15 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/96269954932.shtml)
-- 2026-06-30 00:22 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/918062.shtml)
-- 2026-06-30 00:35 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/4147810578.shtml)
+- 2026-06-30 00:33 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/861924955672.shtml)
+- 2026-06-30 00:46 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/43516.shtml)
+- 2026-06-30 00:34 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/31215501.shtml)
+- 2026-06-30 00:31 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/4374364129.shtml)
+- 2026-06-30 00:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/1945148.shtml)
+- 2026-06-30 00:29 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/24221601452.shtml)
+- 2026-06-30 00:36 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/149362117.shtml)
+- 2026-06-30 00:20 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/51120660.shtml)
+- 2026-06-30 00:37 - [我和我的家乡](https://www.share.minike.top/Article/details/539682583.shtml)
+- 2026-06-30 00:26 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/304209751941.shtml)
+- 2026-06-30 00:23 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/759451186902.shtml)
+- 2026-06-30 00:24 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/568428955.shtml)
+- 2026-06-30 00:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/682293.shtml)
+- 2026-06-30 00:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/1746899284.shtml)
+- 2026-06-30 00:45 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/8192681750.shtml)

@@ -1,48 +1,52 @@
-# 森美控股：经修订呈请的进一步程序目前正在进行中
+# 古特雷斯称对中东局势再次升级深感担忧 呼吁对话与谈判
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-森美控股（00756）发布公告，根据法院于2026年5月4日所作出的命令，剩余贷款人已针对本公司提交经修订呈请，以接手呈请程序。经修订呈请的进一步程序目前正在进行中，而经修订呈请的聆讯日期将于稍后确认。本公司将在经修订呈请出现任何重大发展时另行刊发公告。责任编辑：卢昱君
+中新网6月9日电 据联合国官网消息，当地时间8日，联合国秘书长发言人发表声明说，联合国秘书长古特雷斯对中东局势再次升级深感担忧；他呼吁所有相关方立即停止袭击，保持最大限度克制，并避免采取任何可能进一步加剧本已高度紧张局势的行动。 声明指出，古特雷斯敦促各方全面遵守在黎巴嫩、伊朗和加沙达成的停火安排，避免采取任何可能破坏当前外交努力的举措。他还对以色列决定关闭加沙过境点深表关切，
 
 ## 正文
 
-森美控股（00756）发布公告，根据法院于2026年5月4日所作出的命令，剩余贷款人已针对本公司提交经修订呈请，以接手呈请程序。
+中新网6月9日电 据联合国官网消息，当地时间8日，联合国秘书长发言人发表声明说，联合国秘书长古特雷斯对中东局势再次升级深感担忧；他呼吁所有相关方立即停止袭击，保持最大限度克制，并避免采取任何可能进一步加剧本已高度紧张局势的行动。
 
-经修订呈请的进一步程序目前正在进行中，而经修订呈请的聆讯日期将于稍后确认。
+声明指出，古特雷斯敦促各方全面遵守在黎巴嫩、伊朗和加沙达成的停火安排，避免采取任何可能破坏当前外交努力的举措。
 
-本公司将在经修订呈请出现任何重大发展时另行刊发公告。
+他还对以色列决定关闭加沙过境点深表关切，再次呼吁立即重新开放所有过境点，确保人道主义援助能够迅速、安全且不受阻碍地大规模进入加沙各地。
 
-责任编辑：卢昱君
+古特雷斯强调，依据国际法享有的航行权利和航行自由必须得到尊重，他还呼吁各方履行其在国际法下的义务，并采取一切可行的预防措施保护平民。
+
+古特雷斯重申，中东地区的冲突不存在军事解决方案，唯一的前进道路是通过对话与谈判。
+
+因此，他敦促所有相关方致力于通过外交途径寻求解决方案，以促进地区及国际和平与安全。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 00:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 00:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 00:20 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 00:18 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 00:18 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 00:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 00:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 00:16 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 00:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 00:44 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 00:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 00:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 00:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 00:29 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 00:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 00:44 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 00:33 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 00:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 00:23 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/31015642.shtml)
-- 2026-06-30 00:32 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/59998637649.shtml)
-- 2026-06-30 00:38 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/632226.shtml)
-- 2026-06-30 00:29 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/4303298772.shtml)
-- 2026-06-30 00:36 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/9976954971.shtml)
-- 2026-06-30 00:20 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/42436.shtml)
-- 2026-06-30 00:24 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/189855.shtml)
-- 2026-06-30 00:20 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/00667965069.shtml)
-- 2026-06-30 00:15 - [一见倾心](https://www.share.minike.top/Article/details/462886.shtml)
-- 2026-06-30 00:15 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/63798272045.shtml)
-- 2026-06-30 00:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/1544264470.shtml)
-- 2026-06-30 00:36 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/059317989144.shtml)
-- 2026-06-30 00:34 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/83114.shtml)
-- 2026-06-30 00:12 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/833475.shtml)
-- 2026-06-30 00:24 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/99179390055.shtml)
+- 2026-06-30 00:31 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/73794607.shtml)
+- 2026-06-30 00:42 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6523659970.shtml)
+- 2026-06-30 00:30 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/45185581.shtml)
+- 2026-06-30 00:29 - [金牌调解](https://www.share.kurohicncr.top/Article/details/819558.shtml)
+- 2026-06-30 00:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/2718509.shtml)
+- 2026-06-30 00:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/546074966749.shtml)
+- 2026-06-30 00:31 - [我和我的家乡](https://www.share.minike.top/Article/details/825697448778.shtml)
+- 2026-06-30 00:40 - [世界杯](https://www.blog.minike.top/Article/details/58025.shtml)
+- 2026-06-30 00:25 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/701251862.shtml)
+- 2026-06-30 00:27 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/136782389949.shtml)
+- 2026-06-30 00:34 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/28232762.shtml)
+- 2026-06-30 00:34 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/011332755.shtml)
+- 2026-06-30 00:33 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/47391327.shtml)
+- 2026-06-30 00:45 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/55613.shtml)
+- 2026-06-30 00:26 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/187416300147.shtml)

@@ -1,57 +1,61 @@
-# 业绩逆袭的西安银行分红没涨，董事长梁邦海涨薪了
+# 胜宏科技“桃色事件”女主开播互动，豪收“万元”火箭打赏
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-来源：银瑞社 西安银行的业绩增长，超出意料。 在西安银行2025年的业绩说明会上，投资者最为关注的问题，主要在于“高营收增长能否持续”、“净息差增长能否持续”。 回顾2025年，西安银行营业收入99.66亿元，同比增长21.68%，归母净利润26.50亿元，同比增长3.57%，净息差1.85%，上升0.49个百分点。 进入2026年一季度，该行营业收入28.86亿元，同比增加4
+新浪科技讯 6月9日下午消息，日前，与胜宏科技董事长陈涛传出“桃色新闻”的女主“珍珍Janice”在抖音开启直播。 据直播截图显示，其主要是跟观众聊天并进行互动，还在镜头前吃饭，直播间在线人数一度逼近1万人，也有多人送出鲜花、火箭等礼物，价值超万元。 此前，“珍珍Janice”在社交媒体平台上发布多条涉及胜宏科技董事长陈涛的私生活内容。该用户声称与陈涛存在感情纠纷，并晒出疑似聊
 
 ## 正文
 
-来源：银瑞社 西安银行的业绩增长，超出意料。
+新浪科技讯 6月9日下午消息，日前，与胜宏科技董事长陈涛传出“桃色新闻”的女主“珍珍Janice”在抖音开启直播。
 
-在西安银行2025年的业绩说明会上，投资者最为关注的问题，主要在于“高营收增长能否持续”、“净息差增长能否持续”。
+据直播截图显示，其主要是跟观众聊天并进行互动，还在镜头前吃饭，直播间在线人数一度逼近1万人，也有多人送出鲜花、火箭等礼物，价值超万元。
 
-回顾2025年，西安银行营业收入99.66亿元，同比增长21.68%，归母净利润26.50亿元，同比增长3.57%，净息差1.85%，上升0.49个百分点。
+此前，“珍珍Janice”在社交媒体平台上发布多条涉及胜宏科技董事长陈涛的私生活内容。
 
-进入2026年一季度，该行营业收入28.86亿元，同比增加41.54%，实现归母净利润7.56亿元，同比增加6.16%，延续了上一年的增长态势。
+该用户声称与陈涛存在感情纠纷，并晒出疑似聊天记录、视频聊天画面等材料。
 
-对比42家A股上市银行一季报，西安银行营收增幅位居第一。
+最引发热议的是一段电梯监控视频，画面中一名中年男子与白衣女子举止亲密，发帖者称视频中的男子即为陈涛。
 
-高营收背后，投资者更关注西安银行净利低增长、股价和市值低位徘徊、分红没有增长等问题。
+目前，“珍珍Janice”发布的历史视频中已无上述相关内容。
 
-2025年，西安银行现金股利合计4.44亿元（含税），占归母净利润16.77%，该比例低于2024年的17.37%。
+6月8日，胜宏科技收盘股价大跌7.11%，股价为314.8元。
 
-截至2026年5月7日收盘，西安银行2026年内涨幅为-1.08%，由年初3.7元/股跌至3.66元/股。
+晚间，胜宏科技公告称，拟推出新一期员工持股计划，投入资金总额不超过7亿元，股票来源为通过二级市场购买等法律法规许可方式获得的公司A股普通股。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 00:32 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 00:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 00:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 00:36 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 00:13 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 00:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 00:31 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 00:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 00:31 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 00:37 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 00:28 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 00:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 00:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 00:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 00:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 00:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 00:45 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 00:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 00:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 00:21 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 00:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 00:24 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 00:29 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 00:23 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 00:42 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:34 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/431150.shtml)
-- 2026-06-30 00:12 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/48537.shtml)
-- 2026-06-30 00:38 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/73374262482.shtml)
-- 2026-06-30 00:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/79222376115.shtml)
-- 2026-06-30 00:39 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/516890196796.shtml)
-- 2026-06-30 00:38 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/1786793518.shtml)
-- 2026-06-30 00:20 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/56189135275.shtml)
-- 2026-06-30 00:14 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/66264.shtml)
-- 2026-06-30 00:12 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/83042467.shtml)
-- 2026-06-30 00:20 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/260609891497.shtml)
-- 2026-06-30 00:26 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/60916.shtml)
-- 2026-06-30 00:24 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/88501553734.shtml)
-- 2026-06-30 00:21 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/557696070123.shtml)
-- 2026-06-30 00:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/64452728133.shtml)
-- 2026-06-30 00:41 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/4310692229.shtml)
+- 2026-06-30 00:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/2347999716.shtml)
+- 2026-06-30 00:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/7589287848.shtml)
+- 2026-06-30 00:40 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/169632852601.shtml)
+- 2026-06-30 00:39 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/51910567.shtml)
+- 2026-06-30 00:27 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/56082569945.shtml)
+- 2026-06-30 00:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/735194718.shtml)
+- 2026-06-30 00:31 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/7025435092.shtml)
+- 2026-06-30 00:22 - [青春环游记第三季](https://www.blog.minike.top/Article/details/351544502.shtml)
+- 2026-06-30 00:33 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/361349880782.shtml)
+- 2026-06-30 00:38 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/886008489.shtml)
+- 2026-06-30 00:35 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/89904268.shtml)
+- 2026-06-30 00:36 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/789436.shtml)
+- 2026-06-30 00:20 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/41116489998.shtml)
+- 2026-06-30 00:47 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/85986942.shtml)
+- 2026-06-30 00:47 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/91814494343.shtml)

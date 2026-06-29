@@ -1,61 +1,60 @@
-# 贝恩成鑫发布《未来已来，智驱新程——全球人形机器人产业趋势洞察》报告
+# 中国公安机关严查严打涉高考网络谣言
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。贝恩公司全球合伙人大中华区高科技业务主席成鑫出席并发布报告。 以下为演讲实录： 成鑫：我围绕今天下午的主题，更多的想要从产业的角度来谈一谈他们对具身智能落地应用的一些看法。包括他们在问一些什么样的问题？包括我们在建议他们在思考什么样的维度？主要是从这个角度来跟大家做一个交
+中新网北京6月8日电 2026年中国高考正在进行中，全国公安机关坚持以最高标准、最严要求、最强措施，严查严打涉考类违法犯罪活动，全力护航高考安全平稳有序。6月8日，中国公安部网安局公布10起涉高考网络谣言典型案例，给所有想蹭高考热点博眼球、吸粉的人敲响警钟。从典型案例情况来看，一些不法分子利用高考社会关注度高的特点，通过AI工具炮制虚假信息、虚构“内部资源”等手段博取流量、吸粉
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+中新网北京6月8日电 2026年中国高考正在进行中，全国公安机关坚持以最高标准、最严要求、最强措施，严查严打涉考类违法犯罪活动，全力护航高考安全平稳有序。
 
-贝恩公司全球合伙人大中华区高科技业务主席成鑫出席并发布报告。
+6月8日，中国公安部网安局公布10起涉高考网络谣言典型案例，给所有想蹭高考热点博眼球、吸粉的人敲响警钟。
 
-以下为演讲实录： 成鑫：我围绕今天下午的主题，更多的想要从产业的角度来谈一谈他们对具身智能落地应用的一些看法。
+从典型案例情况来看，一些不法分子利用高考社会关注度高的特点，通过AI工具炮制虚假信息、虚构“内部资源”等手段博取流量、吸粉引流，严重误导公众，破坏正常考试秩序。
 
-包括他们在问一些什么样的问题？
+——利用AI技术伪造。
 
-包括我们在建议他们在思考什么样的维度？
+在广东潮州沈某宏案中，沈某宏使用AI工具生成了一张“坐在2026年高考考场并使用手机拍摄考场”的虚假图片，并配文“带都带了，那发个抖音吧”后发布，误导大量网民。
 
-主要是从这个角度来跟大家做一个交流。
+在河南驻马店吴某帅案中，吴某帅使用AI工具生成了一张虚假的“2026年普通高等学校招生全国统一考试语文试卷”图片，并在互联网平台发布，误导大量网民关注和讨论。
 
-我很快来说一说，贝恩这家公司是一个全球性的公司，我们一直在关注具身智能和人形机器人的发展，过去的这1-2年的时间，我们从几个维度一直在关注这个事情。
+——虚构“内部渠道”。
 
-第一个维度是围绕不同的国家和区域产业的发展趋势和特点，这里面主要就是包括中国和美国以及欧洲这3个部分。
+在湖南耒阳刘某涛案中，刘某涛在互联网平台谎称自己有“高考答案”出售，误导大量网民关注和讨论，造成不良社会影响。
 
 ## 相关推荐
 
-- 2026-06-30 00:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 00:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 00:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 00:35 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 00:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 00:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 00:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 00:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:33 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 00:18 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 00:23 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 00:31 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 00:32 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 00:26 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 00:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 00:27 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 00:25 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 00:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 00:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 00:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:27 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 00:33 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 00:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 00:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 00:23 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 00:44 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 00:44 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 00:30 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 00:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/47919409.shtml)
-- 2026-06-30 00:28 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/989276.shtml)
-- 2026-06-30 00:33 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/142242.shtml)
-- 2026-06-30 00:13 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/674952.shtml)
-- 2026-06-30 00:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/4639191.shtml)
-- 2026-06-30 00:33 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/1379320.shtml)
-- 2026-06-30 00:17 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/61851973948.shtml)
-- 2026-06-30 00:41 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/249647.shtml)
-- 2026-06-30 00:20 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/6929708.shtml)
-- 2026-06-30 00:35 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/020955.shtml)
-- 2026-06-30 00:33 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/84984853.shtml)
-- 2026-06-30 00:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/6583826405.shtml)
-- 2026-06-30 00:17 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/759357842.shtml)
-- 2026-06-30 00:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/57229.shtml)
-- 2026-06-30 00:34 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/0523604.shtml)
+- 2026-06-30 00:41 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/286062.shtml)
+- 2026-06-30 00:35 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/466856.shtml)
+- 2026-06-30 00:34 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/375529847104.shtml)
+- 2026-06-30 00:27 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/8893121.shtml)
+- 2026-06-30 00:24 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/896646645375.shtml)
+- 2026-06-30 00:35 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/07363796.shtml)
+- 2026-06-30 00:39 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/480112469.shtml)
+- 2026-06-30 00:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/2616064.shtml)
+- 2026-06-30 00:45 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/5667631.shtml)
+- 2026-06-30 00:32 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/24758537607.shtml)
+- 2026-06-30 00:31 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/74790.shtml)
+- 2026-06-30 00:32 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/6258834.shtml)
+- 2026-06-30 00:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/993049733057.shtml)
+- 2026-06-30 00:41 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/54926473.shtml)
+- 2026-06-30 00:28 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/811702850999.shtml)

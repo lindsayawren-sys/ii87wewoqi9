@@ -1,60 +1,61 @@
-# Coinbase在长达7小时中断后恢复交易，艰难一周再添波折
+# 美国航空拒绝合并提议后，联合航空CEO看淡航空业并购浪潮
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-Coinbase Global已恢复交易服务。此前一次重大中断导致客户在周五近七个小时内无法在其平台进行交易，这给这家加密货币交易所本就艰难的一周再添运营难题。这家总部位于纽约的公司表示，此次中断是由亚马逊网络服务位于北弗吉尼亚州的一个数据中心过热引起的，该故障影响了Coinbase所使用的系统，并导致所有交易暂停了一段时间。Coinbase于周五新加坡时间上午9点左右首次报告
+核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。 周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没
 
 ## 正文
 
-Coinbase Global已恢复交易服务。
+核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。
 
-此前一次重大中断导致客户在周五近七个小时内无法在其平台进行交易，这给这家加密货币交易所本就艰难的一周再添运营难题。
+周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。
 
-这家总部位于纽约的公司表示，此次中断是由亚马逊网络服务位于北弗吉尼亚州的一个数据中心过热引起的，该故障影响了Coinbase所使用的系统，并导致所有交易暂停了一段时间。
+” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没有可行的整合机会：“现在已经没有合适的并购标的了。
 
-Coinbase于周五新加坡时间上午9点左右首次报告了该问题，随后活动在下午4点左右恢复。
+” “如今并购的门槛比以往高得多。
 
-此次中断发生在公司的一个敏感时刻，影响了核心交易功能。
+” 柯比表示，“我亲身主导过美国航空业多轮整合，经手大量并购项目。
 
-根据社交媒体上用户的报告，一些客户无法交易、转移资产或访问正常的交易服务。
+这类交易推进难度极大，没有经济价值的并购完全没必要做。
 
-Coinbase的一位发言人表示，面向零售客户的应用程序也出现了性能下降。
+” 柯比此前已多次否认收购合作方捷蓝航空的可能性。
 
-对投资者而言，此次时点可能会加剧对Coinbase依赖第三方云基础设施的关注，尤其是此次AWS中断之前，这家亚马逊旗下的服务提供商在10月份曾发生过一次重大中断，影响了全球数千家网站。
+CNBC 此前报道，今年早些时候，曾在美国航空任职的柯比曾提出与美国航空合并的构想，并向特朗普政府试探可行性。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 00:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 00:13 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 00:35 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 00:28 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 00:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 00:19 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 00:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 00:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 00:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 00:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 00:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 00:19 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 00:19 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 00:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 00:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 00:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 00:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 00:19 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 00:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 00:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 00:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 00:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 00:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 00:35 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 00:36 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 00:38 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 00:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/4985686707.shtml)
-- 2026-06-30 00:30 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/59714523.shtml)
-- 2026-06-30 00:19 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/93953.shtml)
-- 2026-06-30 00:31 - [啊啊啊](https://www.share.minike.top/Article/details/21918731.shtml)
-- 2026-06-30 00:17 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/88216.shtml)
-- 2026-06-30 00:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/45816388.shtml)
-- 2026-06-30 00:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/68792121230.shtml)
-- 2026-06-30 00:21 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/6160846801.shtml)
-- 2026-06-30 00:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/75507635914.shtml)
-- 2026-06-30 00:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/236338.shtml)
-- 2026-06-30 00:35 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/465291.shtml)
-- 2026-06-30 00:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/6699151800.shtml)
-- 2026-06-30 00:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/658848.shtml)
-- 2026-06-30 00:35 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/58197677268.shtml)
-- 2026-06-30 00:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/585524.shtml)
+- 2026-06-30 00:18 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/383427303.shtml)
+- 2026-06-30 00:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/2721134418.shtml)
+- 2026-06-30 00:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/123052446011.shtml)
+- 2026-06-30 00:22 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/58457.shtml)
+- 2026-06-30 00:28 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/07100885.shtml)
+- 2026-06-30 00:21 - [炽夏](http://www.share.minike.top/Article/details/898134.shtml)
+- 2026-06-30 00:38 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/330956522.shtml)
+- 2026-06-30 00:41 - [85花告别古偶](https://www.blog.minike.top/Article/details/8097511.shtml)
+- 2026-06-30 00:33 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/795490724314.shtml)
+- 2026-06-30 00:47 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/14115.shtml)
+- 2026-06-30 00:31 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/63285184601.shtml)
+- 2026-06-30 00:23 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/07939.shtml)
+- 2026-06-30 00:41 - [东方风云榜直播](https://www.blog.minike.top/Article/details/5459300314.shtml)
+- 2026-06-30 00:22 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/81120.shtml)
+- 2026-06-30 00:19 - [沙丘](http://www.blog.kurohicncr.top/Article/details/99634.shtml)

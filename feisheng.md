@@ -1,61 +1,60 @@
-# 纽约“豪宅税”与“二套房税”几成定局，房地产股淡定处之
+# 摔死小猪，养殖场的残酷一面
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-纽约州长霍楚尔周四宣布的2680亿美元预算协议，使得备受争议的“豪宅税”与“二套房税”，即针对纽约市价值500万美元及以上第二套住房的征税，几乎确定将向前推进。 这项旨在为纽约市填补54亿美元预算缺口的提案，预计每年可创收约5亿美元。霍楚尔强调，此举旨在确保那些从城市服务中获益却未像全职居民一样缴纳所得税的超富有人士能公平地尽一份力。 然而，作为针对特定人群的靶向税收，其最终效
+特约撰稿人 金晶 新京报记者 胡倩 编辑 陈晓舒 校对 杨利 过去三年里，冯翊反复在做一个梦，与一头母猪有关。 那头母猪双眼皮，眼睛又大又圆，水汪汪的。在梦里，它流着泪问冯翊，为什么不救它，为什么要这样对它。 27岁的冯翊是福建一家养猪场的猪二代，2022年底他选择继承家业，开始在猪场轮岗。2023年初，他曾照顾过这头产后瘫痪的母猪。在讲究极致资源利用的养殖场运行体系里，得了重
 
 ## 正文
 
-纽约州长霍楚尔周四宣布的2680亿美元预算协议，使得备受争议的“豪宅税”与“二套房税”，即针对纽约市价值500万美元及以上第二套住房的征税，几乎确定将向前推进。
+特约撰稿人 金晶 新京报记者 胡倩 编辑 陈晓舒 校对 杨利 过去三年里，冯翊反复在做一个梦，与一头母猪有关。
 
-这项旨在为纽约市填补54亿美元预算缺口的提案，预计每年可创收约5亿美元。
+那头母猪双眼皮，眼睛又大又圆，水汪汪的。
 
-霍楚尔强调，此举旨在确保那些从城市服务中获益却未像全职居民一样缴纳所得税的超富有人士能公平地尽一份力。
+在梦里，它流着泪问冯翊，为什么不救它，为什么要这样对它。
 
-然而，作为针对特定人群的靶向税收，其最终效果仍面临高度不确定性。
+27岁的冯翊是福建一家养猪场的猪二代，2022年底他选择继承家业，开始在猪场轮岗。
 
-首先，纽约市合作公寓和共管公寓基于收入潜力而非市值的奇特评估方法，使得征收门槛的界定极为复杂。
+2023年初，他曾照顾过这头产后瘫痪的母猪。
 
-其次，市场普遍担忧此举可能产生挤出效应。
+在讲究极致资源利用的养殖场运行体系里，得了重疾、难以医治且无法产生经济效益的猪，最终都会被处死。
 
-对冲基金Citadel已发出威胁，暗示或将重新评估其在曼哈顿数十亿美元的开发项目。
+但母猪才刚刚分娩，还有9头小猪需要哺乳，冯翊便把它留下来照顾了三周，每天用瓢一口一口喂饲料给它。
 
-创始人肯·格里芬直言，纽约对财富的敌视态度正迫使他们加倍押注迈阿密。
+母猪有很强的求生欲望，吃饭时眼睛睁得很大，偶尔有饲料洒落，也会使劲伸出舌头舔舐。
 
 ## 相关推荐
 
-- 2026-06-30 00:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 00:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 00:28 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 00:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 00:37 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 00:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 00:19 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 00:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 00:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 00:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 00:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 00:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 00:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 00:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 00:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 00:42 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 00:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 00:34 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 00:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 00:28 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:28 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 00:27 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 00:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 00:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 00:37 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 00:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 00:36 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/72100.shtml)
-- 2026-06-30 00:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/279907.shtml)
-- 2026-06-30 00:18 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/00778069113.shtml)
-- 2026-06-30 00:19 - [恋与深空 日服](https://www.blog.minike.top/Article/details/089597780572.shtml)
-- 2026-06-30 00:20 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/7197673252.shtml)
-- 2026-06-30 00:20 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/20994523.shtml)
-- 2026-06-30 00:26 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/954485371.shtml)
-- 2026-06-30 00:41 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/4222692.shtml)
-- 2026-06-30 00:30 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/5986135232.shtml)
-- 2026-06-30 00:28 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/398008.shtml)
-- 2026-06-30 00:21 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/6606714.shtml)
-- 2026-06-30 00:18 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/285956539.shtml)
-- 2026-06-30 00:22 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/854265393279.shtml)
-- 2026-06-30 00:17 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/043590162.shtml)
-- 2026-06-30 00:21 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/55819094.shtml)
+- 2026-06-30 00:23 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/146092404.shtml)
+- 2026-06-30 00:41 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3449456.shtml)
+- 2026-06-30 00:26 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/820855686.shtml)
+- 2026-06-30 00:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/715882456.shtml)
+- 2026-06-30 00:35 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/941471684.shtml)
+- 2026-06-30 00:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/2767511.shtml)
+- 2026-06-30 00:27 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/792615081736.shtml)
+- 2026-06-30 00:35 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/241868870.shtml)
+- 2026-06-30 00:23 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/316860602481.shtml)
+- 2026-06-30 00:18 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/46236.shtml)
+- 2026-06-30 00:35 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/4496369.shtml)
+- 2026-06-30 00:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/34194268.shtml)
+- 2026-06-30 00:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/75171750245.shtml)
+- 2026-06-30 00:25 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/264649913.shtml)
+- 2026-06-30 00:29 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/05010066776.shtml)

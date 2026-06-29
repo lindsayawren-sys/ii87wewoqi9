@@ -1,60 +1,58 @@
-# Molina预计2029年调整后每股收益最高达30美元
+# 中东冲突导致霍尔木兹海峡流量骤降 全球油市现“秘密流动”维持相对平稳
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。 财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。公司重申2026年调整后每股收益指引为2
+尽管中东冲突导致全球最关键的能源通道霍尔木兹海峡遭遇历史性供应冲击，但国际石油期货市场近期并未出现此前预测的剧烈飙升，整体表现相对平稳。分析人士指出，部分原油通过非公开渠道及替代管线流出波斯湾，有效缓解了全球能源系统的供应压力。 美伊冲突爆发至今已有三个月，霍尔木兹海峡受战争波及，其作为全球主要海上能源枢纽的功能遭到严重削弱。摩根大通最新监测数据显示，目前通过该海峡的可见船舶流
 
 ## 正文
 
-医疗健康保险公司Molina Healthcare周四在投资者日上公布了2029年财务目标，预计调整后每股收益将达到28至30美元，较当前年化约22美元的水平有显著提升。
+尽管中东冲突导致全球最关键的能源通道霍尔木兹海峡遭遇历史性供应冲击，但国际石油期货市场近期并未出现此前预测的剧烈飙升，整体表现相对平稳。
 
-财务目标 Molina预计2029年全年营收在500亿至520亿美元之间。
+分析人士指出，部分原油通过非公开渠道及替代管线流出波斯湾，有效缓解了全球能源系统的供应压力。
 
-调整后每股收益目标为28至30美元，到2029年的累计经营现金流预计在55亿至60亿美元之间。
+美伊冲突爆发至今已有三个月，霍尔木兹海峡受战争波及，其作为全球主要海上能源枢纽的功能遭到严重削弱。
 
-公司重申2026年调整后每股收益指引为22至23美元，2027年为24至26美元。
+摩根大通最新监测数据显示，目前通过该海峡的可见船舶流量仍然极其稀少，降至仅为战前水平的15%左右，这一极度受限的航运状态此前在国际能源界被普遍视为“噩梦场景”。
 
-增长战略 管理层阐述了实现上述目标的三支柱战略：通过现有市场的渗透和新市场的扩张增加会员基数，目标新增会员约100万人；通过Carelon等医疗服务和药房福利管理业务提升会员人均收入；通过自动化和管理式医疗技术降低运营费用率。
+针对在如此严重的供应危机下国际油价并未失控的谜团，能源专家分析认为，当前存在大量“秘密流动”的原油规避了霍尔木兹海峡的双重封锁。
 
-财务基础与资本配置 Molina预计2026年至2029年间，调整后EBITDA复合年增长率约为8%至10%。
+相关油轮可能通过关闭船舶自动识别系统（AIS）应答器等手段隐匿航迹，从而成功将原油运出波斯湾，在很大程度上吸收了本轮历史性冲击。
 
-公司目前持有现金约45亿美元，无重大债务到期压力。
+除海上隐秘通道外，既有的陆路替代能源基础设施同样发挥了关键的缓冲作用。
 
-并购方面，公司计划每年投入5亿至10亿美元用于中小型收购，重点关注居家健康管理和数字医疗领域。
+能源咨询机构派珀·桑德勒（Piper Sandler）测算显示，目前每天约有450万桶原油通过其他陆路或管线途径流出波斯湾地区，其中主要依赖于连接沙特阿拉伯东部油田与红海沿岸延布港的“东西管道”（East-West Pipeline）。
 
 ## 相关推荐
 
-- 2026-06-30 00:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 00:13 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 00:13 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 00:28 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 00:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 00:40 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 00:12 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:17 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 00:19 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 00:27 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 00:28 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 00:40 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 00:13 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 00:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 00:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 00:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 00:33 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 00:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 00:35 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 00:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 00:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 00:33 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 00:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 00:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 00:37 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/82004.shtml)
-- 2026-06-30 00:15 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/54324021090.shtml)
-- 2026-06-30 00:35 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/854566.shtml)
-- 2026-06-30 00:26 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/83302.shtml)
-- 2026-06-30 00:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/05708279440.shtml)
-- 2026-06-30 00:14 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/570401.shtml)
-- 2026-06-30 00:25 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/35052.shtml)
-- 2026-06-30 00:25 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/82681835240.shtml)
-- 2026-06-30 00:23 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/380986447787.shtml)
-- 2026-06-30 00:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/67338026.shtml)
-- 2026-06-30 00:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/780901243.shtml)
-- 2026-06-30 00:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/329216210.shtml)
-- 2026-06-30 00:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/83297349.shtml)
-- 2026-06-30 00:22 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/7669196521.shtml)
-- 2026-06-30 00:18 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/0616013798.shtml)
+- 2026-06-30 00:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/767246442.shtml)
+- 2026-06-30 00:47 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/450535044.shtml)
+- 2026-06-30 00:38 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/464452.shtml)
+- 2026-06-30 00:29 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/5180375.shtml)
+- 2026-06-30 00:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/2259142952.shtml)
+- 2026-06-30 00:29 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/81989083590.shtml)
+- 2026-06-30 00:44 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/97881.shtml)
+- 2026-06-30 00:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/69031.shtml)
+- 2026-06-30 00:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/21810441659.shtml)
+- 2026-06-30 00:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/834396137.shtml)
+- 2026-06-30 00:30 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/74836518.shtml)
+- 2026-06-30 00:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/695927708906.shtml)
+- 2026-06-30 00:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/85937.shtml)
+- 2026-06-30 00:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/589869435.shtml)
+- 2026-06-30 00:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/62557917149.shtml)

@@ -1,55 +1,59 @@
-# 瓦克化学达成裁员协议 拟裁减约10%员工
+# 15年来宁德时代花时间最多的一次决策是什么？曾毓群揭晓答案
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-欧洲化工企业一直承受油价、天然气价格上涨等成本攀升压力 瓦克化学已与员工代表达成协议，计划到 2027 年底在德国削减约 1600 个工作岗位。 此次裁员是公司 2025 年 10 月启动的效率优化计划的一部分，该计划目标是每年节省3 亿欧元（约合 3.517 亿美元）成本。公司去年 11 月就曾宣布计划裁员超 1500 人，周五达成的协议为落地裁员方案确立了执行框架。 据官网
+编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。 《财经》：宁德时代成立快15年了，这15年来宁德时代花时间最多的一次决策是什么？ 曾毓群：你讲的决策是行政决策、技术决策还是人事决策、商业决策？ 《财经》：都包括。 曾毓群：那花时间最多的是技术路线决策。 《财经》：能讲具体一点吗？ 曾毓群：就是该走哪条路。比如说钠电池该不该做，比如说固态该不该做？这
 
 ## 正文
 
-欧洲化工企业一直承受油价、天然气价格上涨等成本攀升压力 瓦克化学已与员工代表达成协议，计划到 2027 年底在德国削减约 1600 个工作岗位。
+编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。
 
-此次裁员是公司 2025 年 10 月启动的效率优化计划的一部分，该计划目标是每年节省3 亿欧元（约合 3.517 亿美元）成本。
+《财经》：宁德时代成立快15年了，这15年来宁德时代花时间最多的一次决策是什么？
 
-公司去年 11 月就曾宣布计划裁员超 1500 人，周五达成的协议为落地裁员方案确立了执行框架。
+曾毓群：你讲的决策是行政决策、技术决策还是人事决策、商业决策？
 
-据官网信息显示，瓦克化学全球员工总数超 1.6 万人。
+《财经》：都包括。
 
-欧洲化工企业普遍深陷成本上涨困境，石油、天然气是众多化工产品的基础原料，价格持续走高大幅挤压行业利润。
+曾毓群：那花时间最多的是技术路线决策。
 
-公司表示，本次裁员将通过自愿离职计划和分阶段提前退休方式推进，不会采取强制裁员。
+《财经》：能讲具体一点吗？
 
-裁员具体分布： 责任编辑：郭明煜
+曾毓群：就是该走哪条路。
+
+比如说钠电池该不该做，比如说固态该不该做？
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 00:21 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 00:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 00:33 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 00:18 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 00:35 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 00:39 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 00:14 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 00:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 00:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 00:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 00:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 00:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 00:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 00:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 00:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 00:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 00:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 00:25 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 00:40 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 00:31 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 00:18 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 00:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 00:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/4163249929.shtml)
-- 2026-06-30 00:24 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/89308.shtml)
-- 2026-06-30 00:36 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/747533547638.shtml)
-- 2026-06-30 00:16 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/01068533.shtml)
-- 2026-06-30 00:20 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/6947258951.shtml)
-- 2026-06-30 00:16 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/7109640293.shtml)
-- 2026-06-30 00:22 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/974333181.shtml)
-- 2026-06-30 00:35 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/33547397596.shtml)
-- 2026-06-30 00:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/658582.shtml)
-- 2026-06-30 00:14 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/5996802590.shtml)
-- 2026-06-30 00:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/59789390877.shtml)
-- 2026-06-30 00:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/276990423328.shtml)
-- 2026-06-30 00:19 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/25652.shtml)
-- 2026-06-30 00:24 - [东方风云榜](http://www.blog.minike.top/Article/details/592213.shtml)
-- 2026-06-30 00:22 - [毒液2](http://www.share.kurohicncr.top/Article/details/2117882.shtml)
+- 2026-06-30 00:28 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/909927.shtml)
+- 2026-06-30 00:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/65284124932.shtml)
+- 2026-06-30 00:27 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/10119.shtml)
+- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/30685386.shtml)
+- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/956522.shtml)
+- 2026-06-30 00:40 - [美人鱼](https://www.blog.minike.top/Article/details/6984537.shtml)
+- 2026-06-30 00:21 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9609178840.shtml)
+- 2026-06-30 00:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/08802253.shtml)
+- 2026-06-30 00:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/12818904.shtml)
+- 2026-06-30 00:34 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/694691928664.shtml)
+- 2026-06-30 00:41 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/11819028327.shtml)
+- 2026-06-30 00:19 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/464778.shtml)
+- 2026-06-30 00:27 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/741182018.shtml)
+- 2026-06-30 00:25 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/22493796196.shtml)
+- 2026-06-30 00:22 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/48474148.shtml)

@@ -1,48 +1,59 @@
-# 山东栖霞：“00后”花饽饽手艺人“捏”出母亲节祝福
+# 数百位新星 世界杯迎来史上最多“新面孔”
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
+北京时间6月12日3时，从温哥华到墨西哥城，一场跨度4000多公里的足球盛典将在北美大陆拉开帷幕。4支世界杯新军、891位“新人”、三场格局风格的开幕式、一个备受关注的中国裁判组……这届世界杯的“新面孔”值得期待。新军集结 地图角落里的足球奇迹 本届世界杯扩军至48支球队，新增的16个名额中，有4支队伍实现了历史上第一次闯入世界杯决赛圈的梦想——佛得角、库拉索、约旦和乌兹别克斯
 
 ## 正文
 
-发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。
+北京时间6月12日3时，从温哥华到墨西哥城，一场跨度4000多公里的足球盛典将在北美大陆拉开帷幕。
 
-“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。
+4支世界杯新军、891位“新人”、三场格局风格的开幕式、一个备受关注的中国裁判组……这届世界杯的“新面孔”值得期待。
 
-他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。
+新军集结 地图角落里的足球奇迹 本届世界杯扩军至48支球队，新增的16个名额中，有4支队伍实现了历史上第一次闯入世界杯决赛圈的梦想——佛得角、库拉索、约旦和乌兹别克斯坦。
 
-(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
+这些在世界地图上不太起眼的名字，凭借足球书写了各自的传奇故事。
+
+最让人惊叹的当数加勒比海岛国库拉索。
+
+这个位于加勒比海南部小安的列斯群岛、2010年荷属安的列斯解体后成为荷兰王国自治国的岛国，人口仅约15万，国土面积444平方公里，一举刷新了世界杯历史上最小参赛国的纪录。
+
+球员大多出自荷甲、荷乙青训体系，被球迷们戏称为“橙衣军团二队”。
+
+此前国足在友谊赛中2比0击败库拉索，也让这支新军成了中国球迷熟悉的“新面孔”。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 00:12 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 00:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 00:37 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 00:13 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 00:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 00:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 00:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 00:12 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 00:26 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 00:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 00:42 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 00:42 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 00:18 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 00:24 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 00:27 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 00:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 00:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 00:31 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 00:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 00:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 00:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/7949326565.shtml)
-- 2026-06-30 00:23 - [我和我的家乡](http://www.blog.minike.top/Article/details/80611802600.shtml)
-- 2026-06-30 00:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/510380280557.shtml)
-- 2026-06-30 00:17 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/5143918382.shtml)
-- 2026-06-30 00:24 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/361325047106.shtml)
-- 2026-06-30 00:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/079107.shtml)
-- 2026-06-30 00:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/0978605.shtml)
-- 2026-06-30 00:27 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/837107400233.shtml)
-- 2026-06-30 00:35 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/8753028094.shtml)
-- 2026-06-30 00:38 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/93806604.shtml)
-- 2026-06-30 00:33 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/769691598.shtml)
-- 2026-06-30 00:30 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/8979055.shtml)
-- 2026-06-30 00:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/52256852159.shtml)
-- 2026-06-30 00:28 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/995107181447.shtml)
-- 2026-06-30 00:17 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/141123956.shtml)
+- 2026-06-30 00:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/098734277.shtml)
+- 2026-06-30 00:33 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/85140.shtml)
+- 2026-06-30 00:38 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/5042896697.shtml)
+- 2026-06-30 00:39 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/0900074.shtml)
+- 2026-06-30 00:36 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/5028840.shtml)
+- 2026-06-30 00:26 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/937147878313.shtml)
+- 2026-06-30 00:40 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/3252627590.shtml)
+- 2026-06-30 00:40 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/814138.shtml)
+- 2026-06-30 00:29 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/739927049994.shtml)
+- 2026-06-30 00:40 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/004780832257.shtml)
+- 2026-06-30 00:29 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/293010192468.shtml)
+- 2026-06-30 00:19 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/0223480.shtml)
+- 2026-06-30 00:25 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/61830081042.shtml)
+- 2026-06-30 00:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2832042132.shtml)
+- 2026-06-30 00:45 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/35584.shtml)

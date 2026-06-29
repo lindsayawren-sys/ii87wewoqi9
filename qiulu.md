@@ -1,61 +1,56 @@
-# 省级农商行成立后首份年报亮出！内蒙古农商行去年后半年实现营收超100亿元
+# 长期看涨逻辑未变VS200日均线已破：黄金徘徊4330等待CPI破局
 
-> 更新时间：2026-06-30 00:42:02 UTC+8
+> 更新时间：2026-06-30 00:48:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。 该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。 报告显示，截至2025年末，该行总资产达8824.17亿元
+文章来源：汇通财经 周二（6月9日）亚洲时段，现货黄金价格一度突破4350.00美元/盎司关口，随后有所回落，当前交投于4330美元/盎司附近。 近几周来，黄金面临强劲压力，自1月底见顶以来，回调行情逐步积聚动能。 黄金的整体前景正变得越来越具有挑战性。全球债券收益率飙升、美国经济韧性以及美元走强，共同削弱了无息资产黄金的吸引力。长期来看黄金的结构性支撑依然存在，但短期前景已转
 
 ## 正文
 
-来源：华夏时报 日前，内蒙古农商银行发布2025年度报告，正式披露其改革后的首份成绩单。
+文章来源：汇通财经 周二（6月9日）亚洲时段，现货黄金价格一度突破4350.00美元/盎司关口，随后有所回落，当前交投于4330美元/盎司附近。
 
-该行在回应本报记者采访时强调，报告涉及数据非完整自然年度指标，统计期间为2025年5月27日至12月31日。
+近几周来，黄金面临强劲压力，自1月底见顶以来，回调行情逐步积聚动能。
 
-在此报告期内，内蒙古农商银行实现营业收入100.56亿元（银行口径数据，后同），利润总额1.81亿元，净利润0.48亿元。
+黄金的整体前景正变得越来越具有挑战性。
 
-报告显示，截至2025年末，该行总资产达8824.17亿元，核心一级资本充足率为12.21%，不良贷款率为3.37%。
+全球债券收益率飙升、美国经济韧性以及美元走强，共同削弱了无息资产黄金的吸引力。
 
-该行表示，将继续锚定高质量发展目标，坚定不移化解原农信机构存量风险。
+长期来看黄金的结构性支撑依然存在，但短期前景已转向看跌。
 
-招联首席研究员董希淼向记者表示，不良资产处置不应仅是“甩包袱”，更应成为压降成本、释放效益的契机。
+长期看涨逻辑未变，但短期压力加剧 从长期来看，支撑黄金上涨的结构性因素并未改变。
 
-他强调，对内蒙古农商银行而言，从长远看，应通过“控新增、化存量、优结构”组合策略，在稳步压降风险水平的同时，逐步将资产质量改善转化为利润增长的内生动力，最终实现高质量稳健发展。
+对财政赤字的持续担忧、全球央行的储备多元化以及通胀风险，应会在金价大幅回调时继续提供支撑。
 
-成立后首份年报出炉 内蒙古农商银行于2025年5月27日正式挂牌开业，由原内蒙古自治区农村信用社联合社、93家旗县级法人农信机构及其发起设立的26家区内村镇银行，以新设合并方式组建而成。
+然而，未来几周的风险平衡似乎倾向于在更持久的复苏出现之前进一步走弱。
 
 ## 相关推荐
 
-- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 00:13 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 00:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 00:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 00:16 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 00:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 00:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 00:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 00:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 00:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 00:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 00:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 00:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 00:21 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 00:41 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 00:45 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 00:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 00:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 00:23 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 00:26 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 00:42 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 00:32 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/97823521.shtml)
-- 2026-06-30 00:24 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/57218.shtml)
-- 2026-06-30 00:41 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/28469384610.shtml)
-- 2026-06-30 00:25 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/2088768.shtml)
-- 2026-06-30 00:32 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/28459396344.shtml)
-- 2026-06-30 00:39 - [急先锋](https://www.blog.minike.top/Article/details/586503548429.shtml)
-- 2026-06-30 00:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/69479.shtml)
-- 2026-06-30 00:20 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/39248764733.shtml)
-- 2026-06-30 00:20 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/2020618.shtml)
-- 2026-06-30 00:32 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/1326508.shtml)
-- 2026-06-30 00:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/905135.shtml)
-- 2026-06-30 00:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/9371156.shtml)
-- 2026-06-30 00:29 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/370182.shtml)
-- 2026-06-30 00:19 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/5134599.shtml)
-- 2026-06-30 00:21 - [美人鱼](http://www.blog.minike.top/Article/details/395293997622.shtml)
+- 2026-06-30 00:33 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/701396094429.shtml)
+- 2026-06-30 00:24 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/247536.shtml)
+- 2026-06-30 00:22 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/982123610106.shtml)
+- 2026-06-30 00:40 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/41428.shtml)
+- 2026-06-30 00:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/56398508200.shtml)
+- 2026-06-30 00:19 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/09946.shtml)
+- 2026-06-30 00:34 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/875621.shtml)
+- 2026-06-30 00:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8612130028.shtml)
+- 2026-06-30 00:41 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/83246.shtml)
+- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/801881632805.shtml)
+- 2026-06-30 00:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/50909953364.shtml)
+- 2026-06-30 00:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/993500160736.shtml)
+- 2026-06-30 00:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/722502543124.shtml)
+- 2026-06-30 00:32 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/91053.shtml)
+- 2026-06-30 00:25 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/30546166581.shtml)
