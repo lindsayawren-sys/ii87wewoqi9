@@ -1,50 +1,57 @@
-# 山东三家村镇银行获批解散
+# 耐心等待乘客，主动退回多刷车费……青岛巴士驾驶员由磊两件“小事”暖人心
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，山东金融监管局发布多则批复，同意解散莘县青隆村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东莘县农村商业银行股份有限公司承接；同意解散山东蒙阴齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东蒙阴农村商业银行股份有限公司承接；同意解散山东新泰齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东新泰农村商业银行股
+近日，岛城的街头巷尾人流如织，青岛城运控股公交集团李沧巴士公司的驾驶员们在城市大街小巷不停地忙碌着。而在这些平凡的营运任务中，44岁的班组长由磊，用两次看似不起眼却格外暖心的举动，让乘客竖起了大拇指——一次是耐心等待赶车的乘客，一次是主动退回多刷的两元车费。事情虽小，却传递出浓浓的温情。 为“跑来”乘客多等几秒 5月2日7时31分，由磊驾驶24路DD2370号车即将驶离沧口体育
 
 ## 正文
 
-4月28日金融一线消息，山东金融监管局发布多则批复，同意解散莘县青隆村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东莘县农村商业银行股份有限公司承接；同意解散山东蒙阴齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东蒙阴农村商业银行股份有限公司承接；同意解散山东新泰齐丰村镇银行股份有限公司，你行资产、负债、业务及各项权利义务由山东新泰农村商业银行股份有限公司承接。
+近日，岛城的街头巷尾人流如织，青岛城运控股公交集团李沧巴士公司的驾驶员们在城市大街小巷不停地忙碌着。
 
-山东金融监管局表示，接批复文件后，上述村镇银行应立即停止经营活动，于15个工作日内向聊城、临沂、泰安金融监管分局缴回许可证，并按照有关法律法规要求办理相关手续。
+而在这些平凡的营运任务中，44岁的班组长由磊，用两次看似不起眼却格外暖心的举动，让乘客竖起了大拇指——一次是耐心等待赶车的乘客，一次是主动退回多刷的两元车费。
 
-责任编辑：曹睿潼
+事情虽小，却传递出浓浓的温情。
+
+为“跑来”乘客多等几秒 5月2日7时31分，由磊驾驶24路DD2370号车即将驶离沧口体育场车站时，发现前方一位市民正小跑赶来，他立即减缓车速，停车耐心等候。
+
+乘客上车打卡后，感激地说：“谢谢师傅！
+
+假期车多人多，赶上车真不容易，太感谢您等我了。
+
+”由磊微笑着回应：“做好‘跑来等’工作是我们应该做的。
+
+请往后走，扶稳坐好，注意脚下安全。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 17:13 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 17:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 17:33 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 17:29 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 17:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 17:34 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 17:18 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 17:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 17:41 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 17:20 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 17:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 17:26 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 17:30 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 17:34 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 17:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 17:20 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 17:44 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 17:24 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 17:20 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 17:30 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 17:47 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 17:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 17:31 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [恋与深空 731](http://www.share.minike.top/Article/details/8179105.shtml)
-- 2026-06-29 17:19 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/551690889469.shtml)
-- 2026-06-29 17:19 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/33899288.shtml)
-- 2026-06-29 17:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/802945.shtml)
-- 2026-06-29 17:37 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/993811973180.shtml)
-- 2026-06-29 17:32 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/9714095.shtml)
-- 2026-06-29 17:23 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/00818454.shtml)
-- 2026-06-29 17:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/802040139215.shtml)
-- 2026-06-29 17:41 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/365123715725.shtml)
-- 2026-06-29 17:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/69683515484.shtml)
-- 2026-06-29 17:21 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/74360905971.shtml)
-- 2026-06-29 17:37 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7592271.shtml)
-- 2026-06-29 17:25 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/728836299.shtml)
-- 2026-06-29 17:34 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/525805776.shtml)
-- 2026-06-29 17:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/356605.shtml)
+- 2026-06-29 17:40 - [扬名立万](http://www.blog.minike.top/Article/details/65308903817.shtml)
+- 2026-06-29 17:45 - [恋与深空失控领地](http://www.share.minike.top/Article/details/4025956043.shtml)
+- 2026-06-29 17:36 - [中国战机大片上新](http://www.share.minike.top/Article/details/9127990.shtml)
+- 2026-06-29 17:19 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/9779382.shtml)
+- 2026-06-29 17:28 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/2039216.shtml)
+- 2026-06-29 17:44 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/5643189.shtml)
+- 2026-06-29 17:35 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/043398844665.shtml)
+- 2026-06-29 17:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/9519926111.shtml)
+- 2026-06-29 17:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/2304864.shtml)
+- 2026-06-29 17:35 - [南昌市委书记调整](http://www.share.minike.top/Article/details/2629944703.shtml)
+- 2026-06-29 17:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/9775026860.shtml)
+- 2026-06-29 17:32 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/0722739.shtml)
+- 2026-06-29 17:23 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/9049096730.shtml)
+- 2026-06-29 17:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/4905681127.shtml)
+- 2026-06-29 17:25 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/347297580933.shtml)

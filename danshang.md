@@ -1,57 +1,48 @@
-# 大宗商品综述：原油上涨 黄金下跌 供应前景趋紧推高镍价
+# 美国总统特朗普抵京 韩正前往机场迎接
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。黄金则承压走低，跌破了每盎司4700美元。供应前景趋紧推动镍价升至接近两年高位。 原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。 WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收
+新华社北京5月13日电(记者马卓言)应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。国家副主席韩正前往机场迎接。
 
 ## 正文
 
-由于美伊和谈仍陷入僵局，霍尔木兹海峡短期内恢复通行依然无望，原油价格周一上涨。
+新华社北京5月13日电(记者马卓言)应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
 
-黄金则承压走低，跌破了每盎司4700美元。
-
-供应前景趋紧推动镍价升至接近两年高位。
-
-原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭 油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。
-
-WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。
-
-白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。
-
-6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。
-
-6月交割的布伦特原油上涨2.8%，结算价报每桶108.23美元。
+国家副主席韩正前往机场迎接。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 17:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 17:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 17:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 17:26 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 17:22 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 17:38 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:33 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 17:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 17:30 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 17:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 17:47 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 17:30 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 17:19 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:27 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:37 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 17:33 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 17:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 17:29 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 17:47 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 17:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 17:43 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 17:38 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 17:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 17:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/85919.shtml)
-- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/87668984.shtml)
-- 2026-06-29 17:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/29940.shtml)
-- 2026-06-29 17:28 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/13933.shtml)
-- 2026-06-29 17:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/0016719.shtml)
-- 2026-06-29 17:35 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/4922180.shtml)
-- 2026-06-29 17:20 - [叠纸](http://www.share.minike.top/Article/details/8425570667.shtml)
-- 2026-06-29 17:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/6458149.shtml)
-- 2026-06-29 17:17 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/470181573681.shtml)
-- 2026-06-29 17:32 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/71955741712.shtml)
-- 2026-06-29 17:40 - [起风了](https://www.share.kurohicncr.top/Article/details/625037501455.shtml)
-- 2026-06-29 17:40 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/720422853.shtml)
-- 2026-06-29 17:40 - [极限挑战第一季](https://www.share.minike.top/Article/details/7907578838.shtml)
-- 2026-06-29 17:13 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/3737539219.shtml)
-- 2026-06-29 17:29 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/2028335.shtml)
+- 2026-06-29 17:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/334563.shtml)
+- 2026-06-29 17:30 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4007141.shtml)
+- 2026-06-29 17:44 - [乔家的儿女](http://www.share.minike.top/Article/details/52579803.shtml)
+- 2026-06-29 17:30 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/225287.shtml)
+- 2026-06-29 17:37 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/411537151.shtml)
+- 2026-06-29 17:43 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/796010143079.shtml)
+- 2026-06-29 17:27 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/139206825.shtml)
+- 2026-06-29 17:39 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/22363.shtml)
+- 2026-06-29 17:45 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/9605065.shtml)
+- 2026-06-29 17:20 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/56666.shtml)
+- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/58698983817.shtml)
+- 2026-06-29 17:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/533583474.shtml)
+- 2026-06-29 17:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/707456118.shtml)
+- 2026-06-29 17:28 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/749690497.shtml)
+- 2026-06-29 17:41 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/297590.shtml)

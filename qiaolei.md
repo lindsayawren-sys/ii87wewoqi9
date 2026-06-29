@@ -1,60 +1,46 @@
-# 2026年“汉语桥”中文比赛莫斯科赛区选拔赛落幕
+# 聚光科技：2026年公司将继续集中研发资源于重点产品
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网莫斯科4月28日电 (记者 田冰)2026年“汉语桥”全俄大、中、小学生中文比赛莫斯科赛区选拔赛分别于22日、25日、26日在莫斯科举行。 本次比赛由中国驻俄罗斯大使馆主办，俄罗斯媒体加网络中文课堂、华铭中文学习测试中心承办。来自莫斯科市、伏尔加格勒州、托木斯克州、雅罗斯拉夫尔州、阿尔泰边疆区、卡尔梅克共和国、梁赞州、克拉斯诺达尔边疆区等8个俄联邦主体的104名学生同台竞
+证券日报网讯 5月13日，聚光科技在互动平台回答投资者提问时表示，2026年，公司将继续集中研发资源于重点产品。（文章来源：证券日报）
 
 ## 正文
 
-中新网莫斯科4月28日电 (记者 田冰)2026年“汉语桥”全俄大、中、小学生中文比赛莫斯科赛区选拔赛分别于22日、25日、26日在莫斯科举行。
+证券日报网讯 5月13日，聚光科技在互动平台回答投资者提问时表示，2026年，公司将继续集中研发资源于重点产品。
 
-本次比赛由中国驻俄罗斯大使馆主办，俄罗斯媒体加网络中文课堂、华铭中文学习测试中心承办。
-
-来自莫斯科市、伏尔加格勒州、托木斯克州、雅罗斯拉夫尔州、阿尔泰边疆区、卡尔梅克共和国、梁赞州、克拉斯诺达尔边疆区等8个俄联邦主体的104名学生同台竞技，其中大学生23人、中学生43人、小学生38人。
-
-比赛吸引了近千名师生及家长到场观摩。
-
-中国驻俄罗斯大使馆教育处公使衔参赞曹士海在致辞中指出，两国元首决定将2026年至2027年定为中俄教育年，这是中俄第10个国家级主题年活动，也是首个以教育为主题的国家年。
-
-双方将围绕教育、青年、文化等方向举办一系列精彩活动。
-
-今年恰逢“汉语桥”比赛创立25周年。
-
-在俄罗斯，“汉语桥”已成为各高校、孔子学院、中文教育机构及广大中文学习者热烈欢迎的品牌赛事，是中俄青少年交流的重要平台。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 17:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 17:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 17:35 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:27 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 17:16 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 17:38 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 17:28 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 17:25 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 17:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 17:32 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 17:20 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:31 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 17:18 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 17:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 17:26 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 17:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 17:46 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 17:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 17:22 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:40 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 17:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 17:35 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:43 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 17:29 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/87421469.shtml)
-- 2026-06-29 17:38 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/448310975342.shtml)
-- 2026-06-29 17:15 - [东方风云榜](http://www.share.minike.top/Article/details/87257887.shtml)
-- 2026-06-29 17:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/977659237.shtml)
-- 2026-06-29 17:34 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/76241621045.shtml)
-- 2026-06-29 17:36 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/10336.shtml)
-- 2026-06-29 17:16 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/4742833825.shtml)
-- 2026-06-29 17:36 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/026544302.shtml)
-- 2026-06-29 17:26 - [货车司机雨中帮交警挪树获表扬](http://www.share.kurohicncr.top/Article/details/83835.shtml)
-- 2026-06-29 17:13 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/854679047.shtml)
-- 2026-06-29 17:13 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/899627387.shtml)
-- 2026-06-29 17:19 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/84059973182.shtml)
-- 2026-06-29 17:40 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/443143.shtml)
-- 2026-06-29 17:28 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/6826541.shtml)
-- 2026-06-29 17:22 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/356025.shtml)
+- 2026-06-29 17:23 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/791877867.shtml)
+- 2026-06-29 17:45 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/612214845.shtml)
+- 2026-06-29 17:46 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/32480486398.shtml)
+- 2026-06-29 17:29 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/39135514115.shtml)
+- 2026-06-29 17:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/3796175.shtml)
+- 2026-06-29 17:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/9172881442.shtml)
+- 2026-06-29 17:27 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/15593546976.shtml)
+- 2026-06-29 17:44 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/10817706742.shtml)
+- 2026-06-29 17:29 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/327223.shtml)
+- 2026-06-29 17:19 - [送你一朵小红花](http://www.share.minike.top/Article/details/215231326.shtml)
+- 2026-06-29 17:18 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/16180210316.shtml)
+- 2026-06-29 17:24 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/22591.shtml)
+- 2026-06-29 17:41 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/08735358.shtml)
+- 2026-06-29 17:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/048307379362.shtml)
+- 2026-06-29 17:37 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/74574616017.shtml)

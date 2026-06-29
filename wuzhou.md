@@ -1,56 +1,57 @@
-# 酒价内参4月28日价格发布：青花郎上涨5元重返700元关口
+# 体育“饭圈”思考：别让生日祝福变了味
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月28日整体温和走高。如果主要单品各取一瓶整体打包售卖，今日总售价为9988元，较昨日上涨17元，创下3月22日以来之最。在贵州茅台飞天酒和精品酒的引领下，市场延续高位运行，终端交投明显放量，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。上涨方面，古井贡
+近期，多地出现以商场大屏投放、线下聚集等方式为运动员庆生的应援活动。对此，国家体育总局呼吁大家关注赛场表现，保持理性，遵守相关法律法规，不组织、不参与相关庆生活动。与此同时，王楚钦也在社交媒体上发文表示，不提倡也不会参与任何形式的生日应援活动，大家多关注比赛就是最好的支持。给运动员祝贺生日，本来不是问题。运动员长期训练、比赛，为国家争光，为我们带来感动，在生日这一天送上祝福，本
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月28日整体温和走高。
+近期，多地出现以商场大屏投放、线下聚集等方式为运动员庆生的应援活动。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9988元，较昨日上涨17元，创下3月22日以来之最。
+对此，国家体育总局呼吁大家关注赛场表现，保持理性，遵守相关法律法规，不组织、不参与相关庆生活动。
 
-在贵州茅台飞天酒和精品酒的引领下，市场延续高位运行，终端交投明显放量，但核心单品涨跌分化依然显著。
+与此同时，王楚钦也在社交媒体上发文表示，不提倡也不会参与任何形式的生日应援活动，大家多关注比赛就是最好的支持。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。
+给运动员祝贺生日，本来不是问题。
 
-上涨方面，古井贡古20涨幅居前，上涨9元/瓶，收获四连涨并再创近一个月新高；精品茅台与青花郎均上涨5元/瓶，精品茅台实现三连阳，而青花郎重返700元关口；国窖1573上涨4元/瓶；飞天茅台小幅上涨3元/瓶。
+运动员长期训练、比赛，为国家争光，为我们带来感动，在生日这一天送上祝福，本是很自然的情感表达。
 
-下跌方面，五粮液1618、洋河梦之蓝M6+、习酒君品及水晶剑南春均下跌2元/瓶；青花汾20小幅回落1元/瓶。
+体育从来不是冷冰冰的，它也需要掌声、热爱和人与人之间的情感连接。
 
-五粮液普五八代的价格环比保持不变。
+然而，当一句简单的“生日快乐”，被放大成商场大屏、线下聚集、打卡造势和排面竞赛；当生日应援背后，还隐约牵出商业运作和牟利空间，这样的“祝福”就变了味。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+有人会问，对于娱乐明星，粉丝可以“为爱发电”，为什么运动员就不行？
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 17:30 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 17:29 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 17:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 17:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 17:39 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 17:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 17:25 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 17:13 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 17:32 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 17:37 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 17:21 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 17:19 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 17:38 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 17:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 17:28 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 17:45 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 17:31 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:44 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 17:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/843051.shtml)
-- 2026-06-29 17:30 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/27535559.shtml)
-- 2026-06-29 17:35 - [机器人学校开学了](http://www.blog.kurohicncr.top/Article/details/29367.shtml)
-- 2026-06-29 17:23 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/92184.shtml)
-- 2026-06-29 17:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/1883640313.shtml)
-- 2026-06-29 17:16 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/1899166277.shtml)
-- 2026-06-29 17:13 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/5816279675.shtml)
-- 2026-06-29 17:21 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/92614466.shtml)
-- 2026-06-29 17:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/82819259.shtml)
-- 2026-06-29 17:25 - [绘画区你赢了](http://www.share.minike.top/Article/details/0194522711.shtml)
-- 2026-06-29 17:12 - [东方风云榜](https://www.blog.minike.top/Article/details/020420911.shtml)
-- 2026-06-29 17:19 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/1630923.shtml)
-- 2026-06-29 17:29 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/425355782870.shtml)
-- 2026-06-29 17:32 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/0902233559.shtml)
-- 2026-06-29 17:32 - [周生如故](https://www.share.kurohicncr.top/Article/details/8771788.shtml)
+- 2026-06-29 17:18 - [TTG KSG](https://www.blog.minike.top/Article/details/1158232065.shtml)
+- 2026-06-29 17:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/65910816.shtml)
+- 2026-06-29 17:41 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/0139292637.shtml)
+- 2026-06-29 17:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/1228824.shtml)
+- 2026-06-29 17:36 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/503602983809.shtml)
+- 2026-06-29 17:29 - [金牌调解](http://www.blog.minike.top/Article/details/2991015.shtml)
+- 2026-06-29 17:36 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/909986073.shtml)
+- 2026-06-29 17:18 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/9843967.shtml)
+- 2026-06-29 17:42 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/18978.shtml)
+- 2026-06-29 17:41 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/73358.shtml)
+- 2026-06-29 17:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/71582.shtml)
+- 2026-06-29 17:38 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/7926470.shtml)
+- 2026-06-29 17:40 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/72029240.shtml)
+- 2026-06-29 17:28 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/650574330.shtml)
+- 2026-06-29 17:37 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/62659.shtml)

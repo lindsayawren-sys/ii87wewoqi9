@@ -1,59 +1,57 @@
-# 投保人未在合同约定医院就诊，保险公司拒赔该费用获支持
+# 特朗普称将要求中国对美国的经贸团队访问提供便利 外交部回应
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。 张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保
+来源：北京青年报 #特朗普要求中对美经贸团队访问提供便利#【特朗普称将要求中国对美国的经贸团队访问提供便利】5月13日，外交部发言人郭嘉昆主持例行记者会。 有记者提问，美国总统称，他将会要求中国对美国的经贸团队访问提供便利，包括英伟达、波音等公司的企业。中方对特朗普总统的评论有何回应？ 郭嘉昆表示，元首外交对中美关系具有不可替代的战略引领作用，中方欢迎特朗普总统对中国进行国事访
 
 ## 正文
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报了一起案例。
+来源：北京青年报 #特朗普要求中对美经贸团队访问提供便利#【特朗普称将要求中国对美国的经贸团队访问提供便利】5月13日，外交部发言人郭嘉昆主持例行记者会。
 
-张先生女儿为其投保的健康险明确约定承保范围为“公立医院”，但张先生术后转至私立康复医院产生的3万余元费用，因违反合同约定被法院认定不属于保险责任。
+有记者提问，美国总统称，他将会要求中国对美国的经贸团队访问提供便利，包括英伟达、波音等公司的企业。
 
-法院依据《中华人民共和国保险法》司法解释相关规定，支持保险公司对该部分拒赔，仅判决赔付公立医院费用14万余元。
+中方对特朗普总统的评论有何回应？
 
-张先生女儿为张先生投保了包含一般医疗保险责任的健康保险，保险条款以加黑字体载明，被保险人因疾病在保险公司认可的“公立医院”接受治疗的，保险公司承担保险责任。
+郭嘉昆表示，元首外交对中美关系具有不可替代的战略引领作用，中方欢迎特朗普总统对中国进行国事访问。
 
-张先生同年在北京某三甲公立医院进行双髋人工全髋关节置换术，支出医疗费15 万余元；后转至北京某私立康复医院进行康复治疗，支出医疗费 3 万余元。
+访问期间，两国元首将就事关中美关系以及世界和平与发展的重大问题深入交换意见。
 
-张先生向保险公司申请理赔，保险公司称，投保时已明确说明需在保险合同约定范围内医院就诊，私立康复医院不属于合同约定的公立医院，因此拒绝赔付该笔费用。
+中方愿同美方一道秉持平等、尊重、互惠的精神，扩大合作，管控分歧，为变乱交织的世界注入更多的稳定性和确定性。
 
-张先生故诉至法院，要求保险公司支付全部医疗费。
-
-法院经审理认为，案涉保险合同明确约定医疗机构范围为“公立医院”，私立康复医院不符合该约定。
+（文/北京青年报记者 孟亚旭） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 17:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 17:32 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 17:41 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 17:33 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 17:36 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 17:24 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 17:12 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 17:25 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 17:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 17:12 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 17:41 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 17:15 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 17:27 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 17:27 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 17:35 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 17:40 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:21 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 17:20 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 17:46 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:43 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 17:35 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 17:19 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 17:32 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 17:42 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/8546443337.shtml)
-- 2026-06-29 17:39 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/64537.shtml)
-- 2026-06-29 17:41 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/358421917.shtml)
-- 2026-06-29 17:29 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/98043.shtml)
-- 2026-06-29 17:40 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/0435662000.shtml)
-- 2026-06-29 17:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/863665918651.shtml)
-- 2026-06-29 17:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/66758333342.shtml)
-- 2026-06-29 17:26 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/32433727.shtml)
-- 2026-06-29 17:27 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/753226.shtml)
-- 2026-06-29 17:33 - [天道](https://www.share.minike.top/Article/details/740711.shtml)
-- 2026-06-29 17:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/69615775295.shtml)
-- 2026-06-29 17:29 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/57490303563.shtml)
-- 2026-06-29 17:19 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/466816482458.shtml)
-- 2026-06-29 17:21 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/62830196546.shtml)
-- 2026-06-29 17:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/444056.shtml)
+- 2026-06-29 17:23 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1375633.shtml)
+- 2026-06-29 17:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/323831689.shtml)
+- 2026-06-29 17:38 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/897338732.shtml)
+- 2026-06-29 17:40 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/851000.shtml)
+- 2026-06-29 17:26 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/7302364.shtml)
+- 2026-06-29 17:24 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/79804.shtml)
+- 2026-06-29 17:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/112334699656.shtml)
+- 2026-06-29 17:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/19391407.shtml)
+- 2026-06-29 17:18 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/9695479688.shtml)
+- 2026-06-29 17:18 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/848563868196.shtml)
+- 2026-06-29 17:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/00566.shtml)
+- 2026-06-29 17:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/44147420386.shtml)
+- 2026-06-29 17:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/064799367.shtml)
+- 2026-06-29 17:29 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/07748902712.shtml)
+- 2026-06-29 17:41 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/94849115.shtml)

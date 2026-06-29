@@ -1,48 +1,60 @@
-# 伊朗军方：当前局势仍定性为战争状态
+# 教育家精神的多种“打开方式”
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月28日电伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更新。（完）责任编辑：宋雅芳
+中新网北京5月13日电 题：教育家精神的多种“打开方式” 记者 曾玥 5月13日，山西省太原市万柏林区兴华学前教育集团总园长安慧霞带着一盒徽章，走进位于北京的新闻发布厅。 “今天我同大家分享孩子们的百枚徽章印记，孩子们设计了自信章、感恩章、守时章、健康章、爱国章等百枚小徽章，每一枚徽章都代表着一种品质，更是一种精神。”面向中外记者，安慧霞手捧徽章说道。 在她看来，教育家精神就藏
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月13日电 题：教育家精神的多种“打开方式” 记者 曾玥 5月13日，山西省太原市万柏林区兴华学前教育集团总园长安慧霞带着一盒徽章，走进位于北京的新闻发布厅。
 
-新华社德黑兰4月28日电伊朗军方发言人28日说，战事并未结束，当前局势仍定性为战争状态，伊朗武装部队已完成目标清单与作战装备的全面更新。
+“今天我同大家分享孩子们的百枚徽章印记，孩子们设计了自信章、感恩章、守时章、健康章、爱国章等百枚小徽章，每一枚徽章都代表着一种品质，更是一种精神。
 
-（完）责任编辑：宋雅芳
+”面向中外记者，安慧霞手捧徽章说道。
+
+在她看来，教育家精神就藏在孩子们的徽章记忆里。
+
+“孩子们从得徽章、做徽章，再到讲徽章故事、收藏徽章，看到孩子们自信阳光、健康快乐的样子，我常常提醒自己不能辜负身边的每一个孩子。
+
+” 2005年，安慧霞所在学校开始首创山西省公办幼儿园集团化管理，老园带动新园、中心辐射周边、公办管理村办、公办帮扶民办，旨在让更多孩子享受普惠优质学前教育。
+
+集团还成立了名园长工作室、劳模创新工作室，与省内外上百名园长搭建成长平台，一起走进新疆、西藏帮扶支教。
+
+“弘扬教育家精神 开创教育强国建设新局面”，是当天国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会的主题。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 17:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 17:27 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 17:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 17:18 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 17:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 17:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 17:14 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:39 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 17:34 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 17:39 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 17:37 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 17:35 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 17:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 17:43 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 17:32 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 17:46 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 17:19 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 17:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 17:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 17:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 17:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 17:36 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 17:35 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 17:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/81702642601.shtml)
-- 2026-06-29 17:22 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/9273873.shtml)
-- 2026-06-29 17:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/920990789175.shtml)
-- 2026-06-29 17:42 - [挪威王储妃长子2次强奸被判4年](https://www.share.kurohicncr.top/Article/details/0736346.shtml)
-- 2026-06-29 17:31 - [送你一朵小红花](http://www.share.minike.top/Article/details/77407798825.shtml)
-- 2026-06-29 17:22 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/03701.shtml)
-- 2026-06-29 17:13 - [T1零封KC MSI](https://www.share.minike.top/Article/details/769059.shtml)
-- 2026-06-29 17:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/88516.shtml)
-- 2026-06-29 17:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/167176212379.shtml)
-- 2026-06-29 17:39 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/23394192.shtml)
-- 2026-06-29 17:40 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/9669880.shtml)
-- 2026-06-29 17:32 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/93285.shtml)
-- 2026-06-29 17:37 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/981590598866.shtml)
-- 2026-06-29 17:32 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/6466286.shtml)
-- 2026-06-29 17:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/055348807903.shtml)
+- 2026-06-29 17:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/222130731783.shtml)
+- 2026-06-29 17:41 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/2809115761.shtml)
+- 2026-06-29 17:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/49797095539.shtml)
+- 2026-06-29 17:30 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/720946774.shtml)
+- 2026-06-29 17:30 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/32877.shtml)
+- 2026-06-29 17:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/9820653.shtml)
+- 2026-06-29 17:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/3275408.shtml)
+- 2026-06-29 17:40 - [女心理师](https://www.share.minike.top/Article/details/50467610.shtml)
+- 2026-06-29 17:28 - [天道](http://www.share.kurohicncr.top/Article/details/22451.shtml)
+- 2026-06-29 17:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/49720872.shtml)
+- 2026-06-29 17:37 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/06569642207.shtml)
+- 2026-06-29 17:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/308403193473.shtml)
+- 2026-06-29 17:37 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/763583.shtml)
+- 2026-06-29 17:25 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/7811664117.shtml)
+- 2026-06-29 17:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/9872230872.shtml)

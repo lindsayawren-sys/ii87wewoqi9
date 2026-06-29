@@ -1,57 +1,49 @@
-# 海关总署：将大力支持保税维修等新业态发展
+# 市场监管总局：推动价格法等多部法律法规修订
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 (记者 尹倩芸)中国海关总署自贸区和特殊区域发展司司长潘城27日在北京表示，将大力支持保税维修等新业态发展，将综合保税区打造成优质产业集聚的重要平台。 近日，国务院办公厅转发海关总署《关于促进综合保税区扩能提质的若干措施》(下称《若干措施》)，其中提出要促进保税维修发展。潘城在当日召开的新闻发布会上介绍，2025年，全国综合保税区内企业实现维修进出口值3
+记者今天(13日)从市场监管总局发布会了解到，目前，市场监管总局正在积极推动《中华人民共和国价格法》《中华人民共和国计量法》《中华人民共和国认证认可条例》《中华人民共和国工业产品生产许可证管理条例》的修订，通过完善反垄断、反不正当竞争、价格、标准、质量监管等领域的法律法规，为纵深推进全国统一大市场建设提供法律支撑。与此同时，《市场监督管理行政处罚裁量规定》正在抓紧制定中，指导地
 
 ## 正文
 
-中新社北京4月27日电 (记者 尹倩芸)中国海关总署自贸区和特殊区域发展司司长潘城27日在北京表示，将大力支持保税维修等新业态发展，将综合保税区打造成优质产业集聚的重要平台。
+记者今天(13日)从市场监管总局发布会了解到，目前，市场监管总局正在积极推动《中华人民共和国价格法》《中华人民共和国计量法》《中华人民共和国认证认可条例》《中华人民共和国工业产品生产许可证管理条例》的修订，通过完善反垄断、反不正当竞争、价格、标准、质量监管等领域的法律法规，为纵深推进全国统一大市场建设提供法律支撑。
 
-近日，国务院办公厅转发海关总署《关于促进综合保税区扩能提质的若干措施》(下称《若干措施》)，其中提出要促进保税维修发展。
+与此同时，《市场监督管理行政处罚裁量规定》正在抓紧制定中，指导地方进一步优化裁量权基准，促进严格规范公正文明执法。
 
-潘城在当日召开的新闻发布会上介绍，2025年，全国综合保税区内企业实现维修进出口值3757.3亿元人民币，同比增长3.2%。
+同时继续梳理基层执法难点问题，起草《市场监督管理若干法律疑难问题指引(二)》，以基层执法堵点的破解，助力破除妨碍统一大市场的卡点。
 
-潘城表示，此次出台的《若干措施》在总结前期经验的基础上，聚焦企业反映强烈的诉求，进一步优化相关措施，助力保税维修发展。
-
-主要从以下三方面着手： 一是拓展范围。
-
-探索实施保税维修产品负面清单管理，进一步扩大保税维修产品范围，满足企业发展需求。
-
-二是拓宽流向。
-
-允许保税维修成品继续在区内开展生产加工后离境出口，分步推进保税维修成品转内销，进一步拓宽维修后成品的流向，延长产业链提升价值链。
+(总台央视记者 高杰)
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 17:40 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 17:18 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:14 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 17:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 17:15 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 17:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 17:26 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 17:19 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 17:30 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 17:28 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 17:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 17:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 17:23 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 17:19 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 17:18 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 17:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 17:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 17:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/88436584306.shtml)
-- 2026-06-29 17:32 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/225682641539.shtml)
-- 2026-06-29 17:12 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/51134371.shtml)
-- 2026-06-29 17:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/686087174081.shtml)
-- 2026-06-29 17:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/3147310957.shtml)
-- 2026-06-29 17:31 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/17119444780.shtml)
-- 2026-06-29 17:15 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/166136363152.shtml)
-- 2026-06-29 17:13 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/8497051.shtml)
-- 2026-06-29 17:13 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/4713963.shtml)
-- 2026-06-29 17:29 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/28345287.shtml)
-- 2026-06-29 17:18 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/177343.shtml)
-- 2026-06-29 17:27 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/34264.shtml)
-- 2026-06-29 17:37 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/467978956.shtml)
-- 2026-06-29 17:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/22636250265.shtml)
-- 2026-06-29 17:38 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/9174522159.shtml)
+- 2026-06-29 17:28 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/3253085849.shtml)
+- 2026-06-29 17:42 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/260175821448.shtml)
+- 2026-06-29 17:22 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/4724241134.shtml)
+- 2026-06-29 17:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/45217.shtml)
+- 2026-06-29 17:41 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/696393819051.shtml)
+- 2026-06-29 17:41 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/972626311112.shtml)
+- 2026-06-29 17:19 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/59183740.shtml)
+- 2026-06-29 17:47 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/694679378.shtml)
+- 2026-06-29 17:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/04439076674.shtml)
+- 2026-06-29 17:18 - [一生一世](https://www.blog.kurohicncr.top/Article/details/96415254107.shtml)
+- 2026-06-29 17:18 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/35496217819.shtml)
+- 2026-06-29 17:45 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/637581985.shtml)
+- 2026-06-29 17:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/37060.shtml)
+- 2026-06-29 17:45 - [送你一朵小红花](http://www.blog.minike.top/Article/details/80384187975.shtml)
+- 2026-06-29 17:27 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/57648.shtml)

@@ -1,52 +1,52 @@
-# 分析师：阿联酋的退出标志着OPEC的一次重大转变 长期来看OPEC在结构上将被削弱
+# 报道：五角大楼达成低成本集装箱化导弹采购协议
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-吕斯塔德能源公司分析师JORGE LEON表示：“阿联酋的退出标志着OPEC的一次重大转变。与沙特阿拉伯一样，阿联酋是少数拥有可观闲置产能的成员国之一——而闲置产能正是该组织发挥市场影响力的机制。” LEON认为：“考虑到当前霍尔木兹海峡的中断仍在持续，短期影响可能有限，但长期来看，其含义是OPEC在结构上将被削弱。退出该组织后，阿联酋既有动机也有能力增产，这引发了更广泛的疑问
+路透援引五角大楼声明报道，美国国防部已与 Anduril、CoAspire、Leidos和Zone 5达成协议，计划自2027年起三年内潜在采购逾1万枚低成本、集装箱化导弹。 项目评估阶段将于2026年6月启动，届时将从上述四家公司采购测试导弹。 交易未披露具体金额。 该协议还为未来签订固定总价生产合同确立了条款。 美国国防部负责研究与工程的副部长Emil Michael对路透
 
 ## 正文
 
-吕斯塔德能源公司分析师JORGE LEON表示：“阿联酋的退出标志着OPEC的一次重大转变。
+路透援引五角大楼声明报道，美国国防部已与 Anduril、CoAspire、Leidos和Zone 5达成协议，计划自2027年起三年内潜在采购逾1万枚低成本、集装箱化导弹。
 
-与沙特阿拉伯一样，阿联酋是少数拥有可观闲置产能的成员国之一——而闲置产能正是该组织发挥市场影响力的机制。
+项目评估阶段将于2026年6月启动，届时将从上述四家公司采购测试导弹。
 
-” LEON认为：“考虑到当前霍尔木兹海峡的中断仍在持续，短期影响可能有限，但长期来看，其含义是OPEC在结构上将被削弱。
+交易未披露具体金额。
 
-退出该组织后，阿联酋既有动机也有能力增产，这引发了更广泛的疑问：沙特作为市场核心稳定器的作用能否持续？
+该协议还为未来签订固定总价生产合同确立了条款。
 
-同时，随着OPEC平抑供应失衡的能力减弱，石油市场可能将变得更加动荡。
+美国国防部负责研究与工程的副部长Emil Michael对路透社表示，这些协议要求相关企业按时、按预算交付产品。
 
-”责任编辑：陈钰嘉
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 17:20 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 17:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 17:22 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 17:29 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 17:21 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 17:13 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 17:12 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 17:17 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 17:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 17:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 17:18 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 17:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 17:33 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 17:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 17:39 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:26 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 17:41 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 17:19 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 17:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/82778310.shtml)
-- 2026-06-29 17:37 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/899319462.shtml)
-- 2026-06-29 17:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/2841173083.shtml)
-- 2026-06-29 17:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/3811593458.shtml)
-- 2026-06-29 17:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/46548901.shtml)
-- 2026-06-29 17:23 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/70027.shtml)
-- 2026-06-29 17:22 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/9584994.shtml)
-- 2026-06-29 17:25 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/9331554.shtml)
-- 2026-06-29 17:24 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/057926469845.shtml)
-- 2026-06-29 17:29 - [女心理师](https://www.blog.minike.top/Article/details/497307031.shtml)
-- 2026-06-29 17:16 - [美人鱼](https://www.share.kurohicncr.top/Article/details/7345740785.shtml)
-- 2026-06-29 17:26 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/11541860828.shtml)
-- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/0286940.shtml)
-- 2026-06-29 17:16 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/413330013972.shtml)
-- 2026-06-29 17:20 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/2185066831.shtml)
+- 2026-06-29 17:26 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/38084.shtml)
+- 2026-06-29 17:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/03239942.shtml)
+- 2026-06-29 17:39 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/3982619.shtml)
+- 2026-06-29 17:34 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/39572.shtml)
+- 2026-06-29 17:45 - [南昌市委书记调整](https://www.share.minike.top/Article/details/76475.shtml)
+- 2026-06-29 17:20 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/5977172603.shtml)
+- 2026-06-29 17:25 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/7683558027.shtml)
+- 2026-06-29 17:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/658850599464.shtml)
+- 2026-06-29 17:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/301315551.shtml)
+- 2026-06-29 17:47 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/97048631555.shtml)
+- 2026-06-29 17:19 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/08549.shtml)
+- 2026-06-29 17:32 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/14839507113.shtml)
+- 2026-06-29 17:45 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/13024.shtml)
+- 2026-06-29 17:18 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/10302880.shtml)
+- 2026-06-29 17:47 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/025390117549.shtml)

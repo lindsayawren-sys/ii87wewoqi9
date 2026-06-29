@@ -1,60 +1,58 @@
-# 文化和旅游部点名整治一批问题多发景区和一批景区摆渡车问题
+# 塔吉克斯坦总统寄语北大留学生：珍惜在华学习机会
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。 根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑
+发布时间：2026年05月12日 22:24 来源：中国新闻网 5月12日，正在中国进行国事访问的塔吉克斯坦总统埃莫马利·拉赫蒙到访北京大学并发表演讲。当天，北京大学授予拉赫蒙总统北京大学名誉教授称号，以表彰其作为卓越的国家领导人与资深政治家，在深化中塔友好合作、维护地区和平与发展、推动全球与地区治理体系改革等领域的卓越贡献。 拉赫蒙在演讲中回顾了塔中关系发展历程，指出两国关系
 
 ## 正文
 
-记者从文化和旅游部4月27日举行的新闻发布会上获悉，文化和旅游部梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，将重点整治一批问题多发景区和一批景区摆渡车问题。
+发布时间：2026年05月12日 22:24 来源：中国新闻网 5月12日，正在中国进行国事访问的塔吉克斯坦总统埃莫马利·拉赫蒙到访北京大学并发表演讲。
 
-根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，近年来综合问题多发的景区包括湖南张家界天门山—武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑布、湖北武当山等。
+当天，北京大学授予拉赫蒙总统北京大学名誉教授称号，以表彰其作为卓越的国家领导人与资深政治家，在深化中塔友好合作、维护地区和平与发展、推动全球与地区治理体系改革等领域的卓越贡献。
 
-摆渡车线路不科学、价格不合理、排队时间长、服务态度差等问题比较多的景区包括江西龙虎山、吉林长白山、安徽天柱山、四川稻城亚丁、山东崂山等。
+拉赫蒙在演讲中回顾了塔中关系发展历程，指出两国关系实现了从战略伙伴关系到全面战略伙伴关系，再到新时代全面战略合作伙伴关系的历史性跨越。
 
-文化和旅游部资源开发司司长满宏卫表示，针对上述问题，将采取三方面治理措施：一是提级督促整改，要求属地和景区对照问题清单，坚持游客为本，逐一制定整改方案，限期开展整改工作。
+这一系列关系定位的提升，充分表明两国关系始终沿着积极、健康、稳步的轨道向前发展。
 
-二是加强暗访检查，组织经常性“体检式”暗访检查，开展全时段网络信息收集，拓宽问题发现渠道，加强舆情收集分析，带着问题清单现场调研检查，完善问题督促整改机制。
+拉赫蒙表示，越来越多塔吉克斯坦青年通过学习中文了解中国、走近中国。
 
-三是挂钩等级复核，将对问题多发、整改不力的，加强质量等级动态管理，该降低等级的降低等级，该取消等级的取消等级。
+目前，约有6000名塔吉克斯坦学生在华求学。
 
-“我们还将持续加大对其它5A级旅游景区的问题核查，并要求各地对照质量等级的要求，对属地4A级及以下景区加强问题排查，列出重点，实施集中整治和限期整改，切实做到整治一批、提升一批。
+他寄语在场学子，珍惜在华学习机会，并以亲身经历勉励大家把握青春、刻苦学习。
 
-”满宏卫说。
+(记者 郎佳慧 周昕 北京报道) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 17:13 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 17:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 17:38 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 17:32 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 17:32 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 17:38 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 17:35 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 17:37 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 17:17 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 17:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:27 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 17:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 17:15 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:23 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 17:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 17:46 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 17:32 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 17:39 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 17:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 17:32 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 17:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 17:47 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 17:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 17:31 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 17:18 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/07713976.shtml)
-- 2026-06-29 17:12 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/667150.shtml)
-- 2026-06-29 17:23 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/26274593760.shtml)
-- 2026-06-29 17:34 - [货车司机雨中帮交警挪树获表扬](https://www.share.minike.top/Article/details/22739.shtml)
-- 2026-06-29 17:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/07633551191.shtml)
-- 2026-06-29 17:30 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/60129009144.shtml)
-- 2026-06-29 17:30 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/941939.shtml)
-- 2026-06-29 17:30 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/28097.shtml)
-- 2026-06-29 17:28 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/686899643416.shtml)
-- 2026-06-29 17:30 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/105160890812.shtml)
-- 2026-06-29 17:32 - [T1零封KC MSI](http://www.share.minike.top/Article/details/89641724.shtml)
-- 2026-06-29 17:21 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/313803131920.shtml)
-- 2026-06-29 17:28 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/50323367.shtml)
-- 2026-06-29 17:12 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/5813820648.shtml)
-- 2026-06-29 17:35 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/415882441112.shtml)
+- 2026-06-29 17:41 - [人形机器人](https://www.blog.minike.top/Article/details/21090.shtml)
+- 2026-06-29 17:18 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/9281965.shtml)
+- 2026-06-29 17:36 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/45194735046.shtml)
+- 2026-06-29 17:25 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/885340350644.shtml)
+- 2026-06-29 17:43 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/87028161.shtml)
+- 2026-06-29 17:45 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/182343542762.shtml)
+- 2026-06-29 17:30 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/8358799.shtml)
+- 2026-06-29 17:36 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/286929034.shtml)
+- 2026-06-29 17:47 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/617785.shtml)
+- 2026-06-29 17:25 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/152413298.shtml)
+- 2026-06-29 17:44 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/830050.shtml)
+- 2026-06-29 17:22 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/3487457155.shtml)
+- 2026-06-29 17:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/700591396139.shtml)
+- 2026-06-29 17:37 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/990561.shtml)
+- 2026-06-29 17:43 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/06417.shtml)

@@ -1,55 +1,60 @@
-# “探店”网红白冰偷税被查 追缴并罚款共计超1891万元
+# 能源智库称伊朗战争导致欧盟前所未有地高度依赖美国天然气
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-今天，国家税务总局公布一起偷税案件。经查，“探店”网红白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。 国家税务总局依法对其作出追缴税费款、加收滞纳金并处罚款共计1891.24万元的处理处罚决定。目前，上述款项已全部追缴入库。 (总台央视记者 朱继华 李厦)
+一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。 能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。 自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多
 
 ## 正文
 
-今天，国家税务总局公布一起偷税案件。
+一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。
 
-经查，“探店”网红白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。
+能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。
 
-国家税务总局依法对其作出追缴税费款、加收滞纳金并处罚款共计1891.24万元的处理处罚决定。
+按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。
 
-目前，上述款项已全部追缴入库。
+自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多元化，以避免过度依赖单一供应方。
 
-(总台央视记者 朱继华 李厦)
+美国的海运输LNG已成为替代俄罗斯管道气的关键来源，但部分欧洲官员警告称，欧洲可能正从一种依赖转向另一种依赖。
+
+IEEFA欧洲首席能源分析师Ana Maria Jaller-Makarewicz表示：“液化天然气已成为欧洲能源安全战略的阿喀琉斯之踵，使该地区面临更高气价以及新的供应中断风险。
+
+” Jaller-Makarewicz指出，如果卡塔尔LNG生产设施因伊朗战争出现长期停产，美国向欧盟供气规模可能超过挪威。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 17:12 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 17:12 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 17:17 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 17:15 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:37 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 17:30 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 17:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 17:17 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 17:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 17:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 17:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:22 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 17:39 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 17:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 17:26 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 17:36 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 17:23 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:34 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 17:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 17:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 17:28 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:44 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 17:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 17:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 17:40 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:33 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 17:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/389247975993.shtml)
-- 2026-06-29 17:41 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/92131885321.shtml)
-- 2026-06-29 17:12 - [送你一朵小红花](https://www.share.minike.top/Article/details/04948377843.shtml)
-- 2026-06-29 17:40 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/307427.shtml)
-- 2026-06-29 17:20 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/4475975906.shtml)
-- 2026-06-29 17:19 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/3406576.shtml)
-- 2026-06-29 17:23 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/98337861.shtml)
-- 2026-06-29 17:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/2974949.shtml)
-- 2026-06-29 17:29 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/3408303.shtml)
-- 2026-06-29 17:39 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/552149339108.shtml)
-- 2026-06-29 17:26 - [李在镕：计划将光州作为芯片生产基地](https://www.share.minike.top/Article/details/783103566.shtml)
-- 2026-06-29 17:26 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/939695.shtml)
-- 2026-06-29 17:29 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/792716178.shtml)
-- 2026-06-29 17:35 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/4054441.shtml)
-- 2026-06-29 17:32 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/514651463601.shtml)
+- 2026-06-29 17:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/886726.shtml)
+- 2026-06-29 17:22 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/51038.shtml)
+- 2026-06-29 17:29 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/95709029757.shtml)
+- 2026-06-29 17:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/338559822597.shtml)
+- 2026-06-29 17:32 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/817982094984.shtml)
+- 2026-06-29 17:47 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/774402172.shtml)
+- 2026-06-29 17:47 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/6000500041.shtml)
+- 2026-06-29 17:35 - [啊啊啊](https://www.blog.minike.top/Article/details/2362018379.shtml)
+- 2026-06-29 17:30 - [东方风云榜](https://www.share.minike.top/Article/details/86330.shtml)
+- 2026-06-29 17:25 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/243989.shtml)
+- 2026-06-29 17:32 - [《贺子珍》](http://www.blog.minike.top/Article/details/86928.shtml)
+- 2026-06-29 17:29 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/03870091.shtml)
+- 2026-06-29 17:44 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/744394.shtml)
+- 2026-06-29 17:28 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/5680176869.shtml)
+- 2026-06-29 17:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/2316425.shtml)

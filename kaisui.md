@@ -1,57 +1,61 @@
-# 午评：国内期货主力合约涨跌互现 多晶硅跌超4%
+# 67家人身险公司仅212.6万个险代理人！人数见底，行业行至分水岭
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-4月28日早盘收盘，国内期货主力合约涨跌互相。瓶片涨超5%，LPG涨超4%，燃油、沥青涨超3%，丙烯、聚丙烯、PTA、甲醇、低硫燃油涨超2%；下跌方面，多晶硅跌超4%，玻璃、烧碱跌超3%，沪锌、焦炭、纯碱跌超2%，碳酸锂、钯、沪锡、生猪、沪银跌近2%。 中信建投期货分析师认为，本周多晶硅期货呈现先强后弱。多晶硅现货价格企稳，基本如我们前期所分析，下游补库需求近期开始显现，市场成
+来源：北京商报 险企偿付能力报告披露的指标越来越精细，期末个险营销员数量首度在险企偿付能力报告中集中披露。5月12日，据北京商报记者梳理，今年险企一季度偿付能力报告中，67家险企披露了个险营销员规模指标。数据显示，截至2026年一季度末，67家人身险公司披露的个险营销员合计达212.6万人。 2019年，中国保险代理人站上912万的巅峰。彼时，人头攒动的早会、激情澎湃的誓师大会
 
 ## 正文
 
-4月28日早盘收盘，国内期货主力合约涨跌互相。
+来源：北京商报 险企偿付能力报告披露的指标越来越精细，期末个险营销员数量首度在险企偿付能力报告中集中披露。
 
-瓶片涨超5%，LPG涨超4%，燃油、沥青涨超3%，丙烯、聚丙烯、PTA、甲醇、低硫燃油涨超2%；下跌方面，多晶硅跌超4%，玻璃、烧碱跌超3%，沪锌、焦炭、纯碱跌超2%，碳酸锂、钯、沪锡、生猪、沪银跌近2%。
+5月12日，据北京商报记者梳理，今年险企一季度偿付能力报告中，67家险企披露了个险营销员规模指标。
 
-中信建投期货分析师认为，本周多晶硅期货呈现先强后弱。
+数据显示，截至2026年一季度末，67家人身险公司披露的个险营销员合计达212.6万人。
 
-多晶硅现货价格企稳，基本如我们前期所分析，下游补库需求近期开始显现，市场成交氛围有所回暖；但我们同样认为下游对价格敏感性仍然较强，如果多晶硅价格出现反弹，那么成交氛围的好转反而将难以持续。
+2019年，中国保险代理人站上912万的巅峰。
 
-受市场预期部分好转影响，硅料厂开工有所回升，但目前多晶硅供给仍然大于需求，因此产业基本面虽边际修复，但本质仍然较差，高库存压力依然存在。
+彼时，人头攒动的早会、激情澎湃的誓师大会、陌拜扫楼的身影遍布大街小巷，保险业似乎正享受着“人海战术”的狂欢。
 
-另一方面，近期市场重新交易“反内卷”的影响，但我们认为“反内卷”的推进将在合规底线内逐步展开，政策的推出不会是一蹴而就的，预期交易的影响难与2025年相比，前期期货市场因此产生的溢价，后市或有回吐风险。
+七年后的2026年，数字定格在212.6万，即便考虑到还有多家人身险公司没有披露数据，真实总数略高于此，这条下滑曲线依然令人唏嘘。
 
-责任编辑：朱赫楠
+当“人海”退去，保险业正在攀爬一座新的高峰，从拼人数转向拼人效。
+
+站在2026年回望，这场长达数年的“大洗牌”走到尽头了吗？
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 17:16 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 17:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 17:25 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:14 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 17:40 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 17:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 17:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 17:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 17:40 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 17:34 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 17:16 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 17:47 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 17:42 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:35 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 17:45 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 17:46 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 17:36 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 17:32 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 17:40 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 17:42 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 17:25 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 17:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 17:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 17:42 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 17:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 17:23 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/5479680844.shtml)
-- 2026-06-29 17:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/49600068.shtml)
-- 2026-06-29 17:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/67796.shtml)
-- 2026-06-29 17:34 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/3994145677.shtml)
-- 2026-06-29 17:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/418773.shtml)
-- 2026-06-29 17:13 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/3531888.shtml)
-- 2026-06-29 17:41 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/816429.shtml)
-- 2026-06-29 17:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/726464.shtml)
-- 2026-06-29 17:19 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/3349739.shtml)
-- 2026-06-29 17:16 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/558814.shtml)
-- 2026-06-29 17:19 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/237861687.shtml)
-- 2026-06-29 17:31 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/57522291876.shtml)
-- 2026-06-29 17:24 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/22919.shtml)
-- 2026-06-29 17:23 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/765775884392.shtml)
-- 2026-06-29 17:32 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/344288545.shtml)
+- 2026-06-29 17:41 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/113151.shtml)
+- 2026-06-29 17:26 - [乔家的儿女](https://www.blog.minike.top/Article/details/610554704642.shtml)
+- 2026-06-29 17:18 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/18862.shtml)
+- 2026-06-29 17:21 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/073458409.shtml)
+- 2026-06-29 17:42 - [流金岁月](http://www.blog.minike.top/Article/details/0880678445.shtml)
+- 2026-06-29 17:33 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/3222936218.shtml)
+- 2026-06-29 17:32 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/654823.shtml)
+- 2026-06-29 17:27 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/996332077.shtml)
+- 2026-06-29 17:27 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/44669.shtml)
+- 2026-06-29 17:29 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/666665.shtml)
+- 2026-06-29 17:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/466464413793.shtml)
+- 2026-06-29 17:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/50840214.shtml)
+- 2026-06-29 17:45 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/24893.shtml)
+- 2026-06-29 17:18 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/64656.shtml)
+- 2026-06-29 17:37 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/0075104028.shtml)

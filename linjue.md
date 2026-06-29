@@ -1,60 +1,57 @@
-# 2025国际短视频大赛成果在山东日照发布
+# 中经评论：立足城市体检，科学推进城市更新
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网日照4月28日电 (记者 梁犇)4月28日，2025国际短视频大赛成果发布暨2026国际短视频大赛启动仪式在山东省日照市举行。目前，相关话题全网累计播放量突破41亿次，其中海外平台9.2亿次。参赛作品历经海选、初评、复评多轮遴选，共评出一、二、三等奖作品30部。 2025国际短视频大赛以“美好世界 视听共享”为主题，作品题材涵盖文明传承、产业共振、青春对话、科技向善等六个
+人需要定期体检以发现健康问题。城市和人一样，在成长过程中也会出现大大小小的“城市病”，同样需要定期开展“体检”。尤其是当前我国城镇化加速推进，城乡居民生活水平显著提升，但城市功能错配、滞后等问题也随之显现。开展城市体检，就是要找出这些潜在的城市“病症”，补齐影响可持续发展的短板弱项，破解群众反映强烈的难点、堵点、痛点问题，推动城市治理提质增效。“无体检，不更新。”城市体检已成为
 
 ## 正文
 
-中新网日照4月28日电 (记者 梁犇)4月28日，2025国际短视频大赛成果发布暨2026国际短视频大赛启动仪式在山东省日照市举行。
+人需要定期体检以发现健康问题。
 
-目前，相关话题全网累计播放量突破41亿次，其中海外平台9.2亿次。
+城市和人一样，在成长过程中也会出现大大小小的“城市病”，同样需要定期开展“体检”。
 
-参赛作品历经海选、初评、复评多轮遴选，共评出一、二、三等奖作品30部。
+尤其是当前我国城镇化加速推进，城乡居民生活水平显著提升，但城市功能错配、滞后等问题也随之显现。
 
-2025国际短视频大赛以“美好世界 视听共享”为主题，作品题材涵盖文明传承、产业共振、青春对话、科技向善等六个赛道，吸引了海内外创作者广泛关注与踊跃参与。
+开展城市体检，就是要找出这些潜在的城市“病症”，补齐影响可持续发展的短板弱项，破解群众反映强烈的难点、堵点、痛点问题，推动城市治理提质增效。
 
-大赛通过快手、抖音、视频号、Kwai等海内外重点平台，形成了覆盖国内、辐射海外的全媒体传播矩阵。
+“无体检，不更新。
 
-发布仪式上，为中外创作者代表颁发“日照城市国际推荐官”证书，依托创作者的国际化视角与传播力，持续提升日照城市形象的国际能见度。
+”城市体检已成为实施城市更新行动的前置要素。
 
-数字经济产业战略合作协议、视听内容海外传播战略合作协议签约仪式相继举行。
+“十五五”规划纲要提出，“高质量推进城市更新，开展城市体检，加快建设完整社区，健全城市更新实施机制。
 
-现场，2026国际短视频大赛同步启动，新一届大赛将落地东营，依托已有品牌基础，进一步拓宽海外传播渠道，深化国际交流合作，创新赛事组织形式，持续提升赛事的国际影响力与传播实效。
+”只有对每一栋住房、每一个社区进行“体检”，摸清摸透“城市病”的症状，才能精准回应群众对城市发展的需求和期许，确保城市更新工作科学有效推进。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 17:25 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 17:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 17:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 17:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 17:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 17:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 17:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 17:34 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 17:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 17:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 17:15 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 17:27 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 17:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 17:28 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 17:42 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 17:27 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 17:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 17:32 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 17:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 17:33 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 17:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 17:20 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 17:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 17:22 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/9121051.shtml)
-- 2026-06-29 17:24 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/191539.shtml)
-- 2026-06-29 17:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/40530557951.shtml)
-- 2026-06-29 17:14 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/66431871.shtml)
-- 2026-06-29 17:31 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/4875386.shtml)
-- 2026-06-29 17:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/421915.shtml)
-- 2026-06-29 17:16 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/140644.shtml)
-- 2026-06-29 17:35 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/04378939379.shtml)
-- 2026-06-29 17:13 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/5878057871.shtml)
-- 2026-06-29 17:15 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/7654846473.shtml)
-- 2026-06-29 17:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/9874481600.shtml)
-- 2026-06-29 17:33 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/84301656.shtml)
-- 2026-06-29 17:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/809380.shtml)
-- 2026-06-29 17:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/60110772.shtml)
-- 2026-06-29 17:23 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/18611501020.shtml)
+- 2026-06-29 17:28 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/35539.shtml)
+- 2026-06-29 17:44 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/123779.shtml)
+- 2026-06-29 17:31 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/06598308389.shtml)
+- 2026-06-29 17:44 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/883531.shtml)
+- 2026-06-29 17:29 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/45221.shtml)
+- 2026-06-29 17:38 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/99135140028.shtml)
+- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/93688.shtml)
+- 2026-06-29 17:41 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/97267005288.shtml)
+- 2026-06-29 17:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/58645.shtml)
+- 2026-06-29 17:39 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/57900.shtml)
+- 2026-06-29 17:44 - [东方风云榜](https://www.blog.minike.top/Article/details/302369.shtml)
+- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/93680.shtml)
+- 2026-06-29 17:26 - [叠纸](http://www.blog.minike.top/Article/details/2541913.shtml)
+- 2026-06-29 17:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/2675859498.shtml)
+- 2026-06-29 17:30 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/5154450.shtml)

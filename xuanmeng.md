@@ -1,59 +1,58 @@
-# 政治局会议：抓好农业生产，稳定生猪等农产品价格
+# （国际观察）遭党内“逼宫” 斯塔默能迈过这道坎吗？
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。 中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。会议强调，抓好农业生产，稳定生猪等农产品价格。 从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。温氏股份归母
+中新社伦敦5月12日电 题：遭党内“逼宫” 斯塔默能迈过这道坎吗？ 中新社记者 欧阳开宇 英国执政党工党地方选举惨败引发的政坛风波持续升级，尽管首相、工党党首斯塔默12日在内阁会议上明确拒绝辞职，坚称将继续履职施政，却依旧无法平息党内愈演愈烈的“逼宫”声浪，英国政坛再现动荡。 此次党内“逼宫”，直接导火索是工党在近期地方选举中遭遇重创。在英格兰地方议席角逐中，工党仅获得1000
 
 ## 正文
 
-自2026年春节以来，猪价深度下探的态势引发广泛关注，中央决策层面发出了明确的政策托底信号。
+中新社伦敦5月12日电 题：遭党内“逼宫” 斯塔默能迈过这道坎吗？
 
-中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
+中新社记者 欧阳开宇 英国执政党工党地方选举惨败引发的政坛风波持续升级，尽管首相、工党党首斯塔默12日在内阁会议上明确拒绝辞职，坚称将继续履职施政，却依旧无法平息党内愈演愈烈的“逼宫”声浪，英国政坛再现动荡。
 
-会议强调，抓好农业生产，稳定生猪等农产品价格。
+此次党内“逼宫”，直接导火索是工党在近期地方选举中遭遇重创。
 
-从上市公司披露的一季报来看，2026年第一季度，生猪养殖行业普遍陷入亏损。
+在英格兰地方议席角逐中，工党仅获得1000余个席位，丢掉近1500个席位，选举惨败彻底引爆党内长期积累的不满情绪。
 
-今年一季度，牧原股份归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元。
+早在此次选举前，斯塔默政府已深陷执政争议，今年以来，因任命与美国已故性犯罪者爱泼斯坦关联密切的曼德尔森为驻美大使，斯塔默已两度面临辞职呼声，执政威信持续受损，地方选举的失利，最终成为党内反对派集中发难的关键契机。
 
-温氏股份归母净利润-10.7亿元，同比由盈转亏，上年同期为20.13亿元。
+截至目前，英国议会下院工党议员中，已有超过70人公开要求斯塔默辞去首相及工党领袖职务，另有4名政府高级官员的助理相继辞职，党内有声音认为，斯塔默已无法带领工党备战下届议会选举，急需敲定新的领导人，实现政党权力平稳交接。
 
-巨星农牧归母净利润-3.56亿元，上年同期为1.3亿元。
+更具压力的是，英国副首相兼司法大臣拉米、内政大臣马哈茂德、外交大臣库珀等多名内阁核心成员，均已劝说斯塔默主动辞职，或明确设定离任时间表，推动权力有序过渡。
 
-生猪价格跌势延续至今年4月中旬。
+根据工党党内规则，启动党首选举需获得议会下院至少81名工党议员支持，该人数占工党议员总数的20%，眼下要求斯塔默下台的议员数量已非常接近这一法定门槛，随时可能触发党内领导权更迭程序，斯塔默的执政地位已然岌岌可危。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 17:37 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 17:18 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 17:30 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 17:22 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 17:29 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 17:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 17:35 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:13 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 17:30 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 17:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 17:37 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 17:21 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 17:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 17:28 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:23 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 17:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 17:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 17:43 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 17:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 17:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:43 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 17:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 17:23 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/17666250951.shtml)
-- 2026-06-29 17:23 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/160440138.shtml)
-- 2026-06-29 17:23 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/19922432744.shtml)
-- 2026-06-29 17:35 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/88745.shtml)
-- 2026-06-29 17:18 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/53735.shtml)
-- 2026-06-29 17:20 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/17849981642.shtml)
-- 2026-06-29 17:13 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/532940630365.shtml)
-- 2026-06-29 17:33 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/336653211391.shtml)
-- 2026-06-29 17:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/08847918452.shtml)
-- 2026-06-29 17:39 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/710067.shtml)
-- 2026-06-29 17:40 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/2549890.shtml)
-- 2026-06-29 17:13 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/67082.shtml)
-- 2026-06-29 17:25 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/40699357114.shtml)
-- 2026-06-29 17:38 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/57329.shtml)
-- 2026-06-29 17:12 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/58321554.shtml)
+- 2026-06-29 17:30 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/09530453373.shtml)
+- 2026-06-29 17:22 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/400113831.shtml)
+- 2026-06-29 17:38 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/87594871287.shtml)
+- 2026-06-29 17:21 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/491737964329.shtml)
+- 2026-06-29 17:45 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/92732.shtml)
+- 2026-06-29 17:34 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/15857089.shtml)
+- 2026-06-29 17:19 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/31101172.shtml)
+- 2026-06-29 17:47 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/47206297.shtml)
+- 2026-06-29 17:45 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/846201450002.shtml)
+- 2026-06-29 17:47 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/6153823.shtml)
+- 2026-06-29 17:29 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/27442954030.shtml)
+- 2026-06-29 17:46 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/96888092.shtml)
+- 2026-06-29 17:23 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/8711791.shtml)
+- 2026-06-29 17:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/79096.shtml)
+- 2026-06-29 17:43 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/0939369.shtml)

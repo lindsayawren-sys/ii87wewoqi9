@@ -1,43 +1,52 @@
-# 中共中央政治局召开会议 分析研究当前经济形势和经济工作 中共中央总书记习近平主持会议
+# 防城海关关于开展2026年5月份“关领导接待日”的公告
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 21:59 来源：央视新闻客户端 责任编辑：【姜媛媛】
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就防城海关2026年5月份关领导接待日有关事项预告如下： 一、接待时间：2026年5月22日(星期五上午上班时间)。 二、当值领导：防城海关副关长刘浏。 三、接待地点：防城海关中华路11号办公楼609室。四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或
 
 ## 正文
 
-发布时间：2026年04月28日 21:59 来源：央视新闻客户端 责任编辑：【姜媛媛】
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就防城海关2026年5月份关领导接待日有关事项预告如下： 一、接待时间：2026年5月22日(星期五上午上班时间)。
+
+二、当值领导：防城海关副关长刘浏。
+
+三、接待地点：防城海关中华路11号办公楼609室。
+
+四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议； 3.其他需要预约的事项。
+
+(二)来访者可通过拨打电话(0770-2823745)告知有关预约信息；也可以填写《预约表》(详见附件)发送传真(0770-2838886)进行预约，预约截止时间：2026年5月21日17:30。
+
+防城海关关领导接待日预约表.docx
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 17:15 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 17:27 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 17:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 17:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 17:41 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 17:15 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 17:28 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:39 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 17:15 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 17:39 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 17:47 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 17:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 17:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 17:42 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 17:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 17:30 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 17:44 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 17:26 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/976291326.shtml)
-- 2026-06-29 17:29 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/55199295993.shtml)
-- 2026-06-29 17:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/7049141.shtml)
-- 2026-06-29 17:12 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/38783.shtml)
-- 2026-06-29 17:38 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/1595163.shtml)
-- 2026-06-29 17:40 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/182008054.shtml)
-- 2026-06-29 17:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/75887.shtml)
-- 2026-06-29 17:30 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/819869649.shtml)
-- 2026-06-29 17:25 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/3508719.shtml)
-- 2026-06-29 17:23 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/48732003043.shtml)
-- 2026-06-29 17:28 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/3291159645.shtml)
-- 2026-06-29 17:33 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/54004.shtml)
-- 2026-06-29 17:31 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/513379664.shtml)
-- 2026-06-29 17:30 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/4001778.shtml)
-- 2026-06-29 17:18 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/92758879277.shtml)
+- 2026-06-29 17:46 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/5718058.shtml)
+- 2026-06-29 17:19 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/564051420.shtml)
+- 2026-06-29 17:20 - [扫黑风暴](http://www.share.minike.top/Article/details/314481385.shtml)
+- 2026-06-29 17:28 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/22944.shtml)
+- 2026-06-29 17:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/0330779.shtml)
+- 2026-06-29 17:38 - [天道](http://www.share.kurohicncr.top/Article/details/046397.shtml)
+- 2026-06-29 17:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/667903997.shtml)
+- 2026-06-29 17:21 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/100694.shtml)
+- 2026-06-29 17:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/325873720.shtml)
+- 2026-06-29 17:41 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/48161403.shtml)
+- 2026-06-29 17:46 - [中国战机大片上新](http://www.blog.minike.top/Article/details/082763.shtml)
+- 2026-06-29 17:21 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/983130.shtml)
+- 2026-06-29 17:27 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/166484978132.shtml)
+- 2026-06-29 17:36 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/970769.shtml)
+- 2026-06-29 17:33 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/271627915085.shtml)

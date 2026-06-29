@@ -1,58 +1,57 @@
-# ST海泰被处罚 受损股民可索赔
+# flyExclusive一季度营收9630万美元，连续两季实现正向调整后EBITDA
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-2026年4月24日晚，天津海泰科技发展股份有限公司（简称海泰发展、ST海泰（维权），代码：600082）发布关于收到中国证券监督管理委员会天津监管局 《行政处罚决定书》的公告。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据处罚决定，海泰发展涉嫌证券虚假陈述，受损股民可依法索赔。（厉健律师专栏） 公告显示，天津证监局查明，当事人存在以下违法事实
+私人航空服务提供商flyExclusive周一公布2026年第一季度财报，营收同比增长9%，连续第二个季度实现正向调整后EBITDA，毛利率大幅提升近7个百分点至20%。 一季度业绩：营收增长9%，净利润亏损收窄 财报显示，公司一季度营收达9635万美元，较去年同期的8813万美元增长9.3%。净亏损为650万美元，去年同期为亏损545万美元。调整后EBITDA为20万美元，较
 
 ## 正文
 
-2026年4月24日晚，天津海泰科技发展股份有限公司（简称海泰发展、ST海泰（维权），代码：600082）发布关于收到中国证券监督管理委员会天津监管局 《行政处罚决定书》的公告。
+私人航空服务提供商flyExclusive周一公布2026年第一季度财报，营收同比增长9%，连续第二个季度实现正向调整后EBITDA，毛利率大幅提升近7个百分点至20%。
 
-曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据处罚决定，海泰发展涉嫌证券虚假陈述，受损股民可依法索赔。
+一季度业绩：营收增长9%，净利润亏损收窄 财报显示，公司一季度营收达9635万美元，较去年同期的8813万美元增长9.3%。
 
-（厉健律师专栏） 公告显示，天津证监局查明，当事人存在以下违法事实： 2021 年至2022 年，海泰发展作为中间商参与由下游公司主导的棉花贸易业务，未能有效识别该类业务合同、单据和资金形成闭环，相关商品的风险、报酬未实质 性转移，不应确认相应的营业收入、营业成本及利润。
+净亏损为650万美元，去年同期为亏损545万美元。
 
-海泰发展2021年年报、2022 年年报存在虚假记载，其中营业收入分别虚增252，088，298.81元、226，371，248.67元， 1 占当期披露营业收入比例分别为27.66%、45.88%；营业成本分别虚增249，416，523.22 元、224，385，212.42 元，占当期披露营业成本比例分别为31.22%、57.59%；利润总 额分别虚增2，671，775.59 元、1，986，036.25 元，占当期披露利润总额比例分别为 17.77%、12.10%。
+调整后EBITDA为20万美元，较去年同期亏损640万美元显著改善约660万美元。
 
-天津证监局认为，海泰发展2021年年报、2022年年报存在虚假记载的行为，违反了《证券法》）第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述“虚假记载”。
+毛利率从13.1%跃升至20%，同比提升699个基点。
 
-天津证监局决定：对天津海泰责令改正，给予警告，并处以400万元罚款；对相关责任人员给予警告，并各处以罚款。
+运营亮点：可用率提升7.6%，MRO收入增长14% 公司核心运营指标全面改善。
 
-根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
+可用率同比提升760个基点，每提升1个百分点约可贡献250万美元年度利润。
 
-厉健律师表示，根据司法解释，暂定：在2022年4月30日至2026年2月27日期间买入海泰发展股票（代码：600082），并在2026年2月27日收盘还持有该股票的受损股民，可依法索赔。
+核心机队利用率提高15%，总飞行小时数增长7%，所用飞机数量反而减少7%。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 17:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 17:30 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 17:13 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:12 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 17:32 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 17:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 17:34 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 17:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 17:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 17:38 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 17:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 17:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 17:46 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 17:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 17:21 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 17:34 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 17:35 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 17:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:37 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/30832.shtml)
-- 2026-06-29 17:35 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/9320347827.shtml)
-- 2026-06-29 17:34 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/96811974518.shtml)
-- 2026-06-29 17:35 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/61751107612.shtml)
-- 2026-06-29 17:30 - [送你一朵小红花](https://www.share.minike.top/Article/details/562199918297.shtml)
-- 2026-06-29 17:37 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/46402937.shtml)
-- 2026-06-29 17:14 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/04092020829.shtml)
-- 2026-06-29 17:28 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/28109182.shtml)
-- 2026-06-29 17:23 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/777223.shtml)
-- 2026-06-29 17:12 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/77680.shtml)
-- 2026-06-29 17:30 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/111742470729.shtml)
-- 2026-06-29 17:12 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/319772167950.shtml)
-- 2026-06-29 17:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/388907875.shtml)
-- 2026-06-29 17:28 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/02037248.shtml)
-- 2026-06-29 17:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1904267.shtml)
+- 2026-06-29 17:42 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/531150.shtml)
+- 2026-06-29 17:43 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/808912353963.shtml)
+- 2026-06-29 17:24 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/23820.shtml)
+- 2026-06-29 17:27 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/3930942.shtml)
+- 2026-06-29 17:33 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/6650320353.shtml)
+- 2026-06-29 17:25 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/27292716.shtml)
+- 2026-06-29 17:35 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/184020740873.shtml)
+- 2026-06-29 17:24 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/2716584662.shtml)
+- 2026-06-29 17:32 - [天道](http://www.blog.minike.top/Article/details/63385065.shtml)
+- 2026-06-29 17:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/490725.shtml)
+- 2026-06-29 17:30 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/6244443.shtml)
+- 2026-06-29 17:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/83554.shtml)
+- 2026-06-29 17:22 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/267367502588.shtml)
+- 2026-06-29 17:46 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/9387726354.shtml)
+- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/694706.shtml)

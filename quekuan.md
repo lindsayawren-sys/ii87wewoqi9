@@ -1,58 +1,59 @@
-# 移民增速放缓 英国下调人口增长预期
+# 意大利天然气管网运营商Snam一季度营收增长3%，确认全年目标
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网伦敦4月28日电 (记者 欧阳开宇)英国国家统计局28日发布最新人口预测报告，受移民预期大幅下调影响，英国人口增长速度放缓，官方将2034年年中人口预期由此前的7220万下调至7100万。 数据显示，2024年年中英国人口总量为6930万。据测算，2024年年中至2034年年中期间，净移民将为英国新增220万人口，而人口自然增长呈负增长态势，死亡人数超出出生人数将导致人口
+意大利天然气管网运营商Snam周二公布2026年第一季度财报，营收实现增长，调整后净利润超预期，公司同时确认了全年业绩指引。 营收与盈利数据 财报显示，Snam一季度总营收达9.99亿欧元，同比增长3%，符合市场预期。调整后EBITDA为7.75亿欧元，同比增长1.8%，主要得益于天然气基础设施业务收入增长。 调整后净利润为3.75亿欧元，同比下降7.6%，但高于市场预期。报告
 
 ## 正文
 
-中新网伦敦4月28日电 (记者 欧阳开宇)英国国家统计局28日发布最新人口预测报告，受移民预期大幅下调影响，英国人口增长速度放缓，官方将2034年年中人口预期由此前的7220万下调至7100万。
+意大利天然气管网运营商Snam周二公布2026年第一季度财报，营收实现增长，调整后净利润超预期，公司同时确认了全年业绩指引。
 
-数据显示，2024年年中英国人口总量为6930万。
+营收与盈利数据 财报显示，Snam一季度总营收达9.99亿欧元，同比增长3%，符合市场预期。
 
-据测算，2024年年中至2034年年中期间，净移民将为英国新增220万人口，而人口自然增长呈负增长态势，死亡人数超出出生人数将导致人口减少45万，净移民成为英国人口唯一增长来源。
+调整后EBITDA为7.75亿欧元，同比增长1.8%，主要得益于天然气基础设施业务收入增长。
 
-此次预测中，英国国家统计局将年度净移民预期大幅下调三分之一，从此前的34万降至23万。
+调整后净利润为3.75亿欧元，同比下降7.6%，但高于市场预期。
 
-该局表示，这一调整源于2023年移民峰值后移民数量的大幅回落，同时结合了相关领域专家建议。
+报告净利润为2.92亿欧元，同比下滑41%，主要受非经常性项目影响。
 
-新冠疫情后，英国前政府放宽低薪护理人员及其家属入境政策，叠加积压移民需求释放，英国净移民数量一度飙升，2023年6月前12个月净移民规模逼近100万。
+投资与债务情况 一季度总投资额达9.91亿欧元，较去年同期的3.61亿欧元大幅增长，主要投向再气化、天然气运输和生物甲烷业务。
 
-此后英国收紧移民政策，移民数量持续回落，2025年6月前12个月净移民已降至20.4万。
+净金融负债升至185亿欧元，主要受投资支出、股利支付及收购影响。
 
-报告同时揭示英国人口老龄化加剧趋势。
+全年指引与评级展望 公司确认2026年全年目标：投资28亿欧元，调整后EBITDA约31亿欧元，调整后净利润超14.5亿欧元。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 17:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 17:19 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 17:20 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 17:27 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 17:19 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:27 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 17:35 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 17:41 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 17:29 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:46 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 17:22 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 17:39 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 17:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:47 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 17:32 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 17:28 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 17:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 17:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 17:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 17:45 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/70760532.shtml)
-- 2026-06-29 17:28 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/064388212.shtml)
-- 2026-06-29 17:19 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/182500.shtml)
-- 2026-06-29 17:30 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/093703602697.shtml)
-- 2026-06-29 17:23 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/316760780.shtml)
-- 2026-06-29 17:17 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/1239278162.shtml)
-- 2026-06-29 17:41 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/6478568.shtml)
-- 2026-06-29 17:14 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/780374846257.shtml)
-- 2026-06-29 17:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/806842222097.shtml)
-- 2026-06-29 17:40 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/7012388.shtml)
-- 2026-06-29 17:22 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/199222418162.shtml)
-- 2026-06-29 17:38 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/71322.shtml)
-- 2026-06-29 17:27 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/555187261.shtml)
-- 2026-06-29 17:18 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/443260.shtml)
-- 2026-06-29 17:38 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/72515.shtml)
+- 2026-06-29 17:46 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/1685429219.shtml)
+- 2026-06-29 17:18 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/43501.shtml)
+- 2026-06-29 17:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/39447.shtml)
+- 2026-06-29 17:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/937359.shtml)
+- 2026-06-29 17:23 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/166464517891.shtml)
+- 2026-06-29 17:38 - [乔家的儿女](https://www.share.minike.top/Article/details/77951643.shtml)
+- 2026-06-29 17:44 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/638507.shtml)
+- 2026-06-29 17:41 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/409844117239.shtml)
+- 2026-06-29 17:25 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/650032.shtml)
+- 2026-06-29 17:34 - [人形机器人](http://www.share.kurohicncr.top/Article/details/397753659161.shtml)
+- 2026-06-29 17:24 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/16261245.shtml)
+- 2026-06-29 17:27 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/981540.shtml)
+- 2026-06-29 17:47 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/309573580.shtml)
+- 2026-06-29 17:40 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/4366100443.shtml)
+- 2026-06-29 17:19 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/260551671115.shtml)

@@ -1,58 +1,58 @@
-# 派拉蒙寻求FCC批准中东资本大幅持股
+# 京东物流第一季度营收606亿元同比增长29%
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-专题：持股还是持币？机构看好A股“红五月”行情 派拉蒙（Paramount）正寻求美国联邦通讯委员会（FCC）的批准，以允许波斯湾地区主权财富基金获得该公司相当大比例的股权，此举是其以810亿美元收购华纳兄弟探索交易的一部分。 周一，这家由大卫．埃里森（David Ellison）掌管的公司向FCC提交申请，请求该机构批准中东基金的大额持股；申请文件中称，拟议交易将导致外国投资
+京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。这也是京东物流自上市以来利润表现最好的一季度业绩。 营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。其
 
 ## 正文
 
-专题：持股还是持币？
+京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。
 
-机构看好A股“红五月”行情 派拉蒙（Paramount）正寻求美国联邦通讯委员会（FCC）的批准，以允许波斯湾地区主权财富基金获得该公司相当大比例的股权，此举是其以810亿美元收购华纳兄弟探索交易的一部分。
+归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。
 
-周一，这家由大卫．埃里森（David Ellison）掌管的公司向FCC提交申请，请求该机构批准中东基金的大额持股；申请文件中称，拟议交易将导致外国投资者间接持有派拉蒙近50%的股权。
+这也是京东物流自上市以来利润表现最好的一季度业绩。
 
-派拉蒙是哥伦比亚广播公司（CBS）的母公司，后者拥有28家地方电视台。
+营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。
 
-FCC现行规定禁止外国投资者持有拥有广播牌照的公司超过25%的股份，除非委员会认定此举符合公众利益。
+其中，一体化供应链客户收入为292亿元，同比增长25.9%，主要受益于合作模式纵深升级与全球服务扩张；来自快递、快运、秒送等服务的其他客户收入达314亿元，同比增长32.0%。
 
-一旦FCC拒绝给予豁免，派拉蒙将无法获得主权财富基金的资金，埃里森家族和RedBird Capital Partners将不得不承担全部810亿美元。
+公司一季度毛利为48.3亿元，同比增长42.6%；非国际财务报告准则EBITDA为45.95亿元，同比增长22.3%。
 
-派拉蒙为该交易筹集的融资中，约240亿美元来自三家中东主权财富基金的联合投资，分别是沙特公共投资基金（Public Investment Fund）、卡塔尔投资局（Qatar Investment Authority）和阿布扎比的L‘imad Holding Co．。
+销售及市场推广开支为17亿元，占营收比例为2.8%。
 
-派拉蒙的一位发言人表示：“对于此类投资，向FCC提交申请是完全标准的流程，并非派拉蒙完成收购华纳兄弟探索的先决条件。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 17:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 17:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 17:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:39 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 17:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 17:37 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 17:25 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 17:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 17:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 17:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:37 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 17:46 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 17:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 17:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 17:36 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 17:37 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 17:41 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 17:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 17:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 17:44 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 17:25 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/40200.shtml)
-- 2026-06-29 17:41 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/073248249490.shtml)
-- 2026-06-29 17:41 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/32043.shtml)
-- 2026-06-29 17:21 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/3179483817.shtml)
-- 2026-06-29 17:27 - [起风了](http://www.blog.kurohicncr.top/Article/details/497289.shtml)
-- 2026-06-29 17:39 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/247560789.shtml)
-- 2026-06-29 17:40 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/37705163194.shtml)
-- 2026-06-29 17:25 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/616858.shtml)
-- 2026-06-29 17:39 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/781308361.shtml)
-- 2026-06-29 17:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/38160.shtml)
-- 2026-06-29 17:40 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/6849194266.shtml)
-- 2026-06-29 17:34 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/971998.shtml)
-- 2026-06-29 17:13 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/3701808002.shtml)
-- 2026-06-29 17:14 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/81120696424.shtml)
-- 2026-06-29 17:32 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/387573.shtml)
+- 2026-06-29 17:23 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/967703202253.shtml)
+- 2026-06-29 17:28 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/839901881.shtml)
+- 2026-06-29 17:33 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/9094458293.shtml)
+- 2026-06-29 17:43 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/5366618932.shtml)
+- 2026-06-29 17:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/837053.shtml)
+- 2026-06-29 17:34 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/01871.shtml)
+- 2026-06-29 17:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/63711010685.shtml)
+- 2026-06-29 17:26 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/64046.shtml)
+- 2026-06-29 17:39 - [中国战机大片上新](http://www.share.minike.top/Article/details/96457312.shtml)
+- 2026-06-29 17:47 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/18908395.shtml)
+- 2026-06-29 17:38 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/0381377.shtml)
+- 2026-06-29 17:26 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/343298.shtml)
+- 2026-06-29 17:23 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/7689092.shtml)
+- 2026-06-29 17:40 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/725898505.shtml)
+- 2026-06-29 17:22 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/92682603.shtml)

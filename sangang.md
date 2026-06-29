@@ -1,58 +1,57 @@
-# 中国知识产权研究会征集光伏关键核心技术专利竞争态势研究需求
+# FOS选定Incat Crowther设计壳牌文莱作业高速CTV船队
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-4月28日消息，中国知识产权研究会官网近日发布《关于征集光伏行业关键核心技术专利竞争态势瞭望研究需求与建议的通知》，通知表示，为强化知识产权信息情报的科技服务支撑作用，助力光伏行业围绕关键核心技术培育提升专利竞争优势、增强专利风险防范应对能力，现组织开展“光伏行业关键核心技术专利竞争态势瞭望研究”战略咨询服务工作。2026年度研究重点聚焦钙钛矿太阳能电池与光储融合技术两个前沿细
+Fast Offshore Supply已选定Incat Crowther设计一支由10艘DP2高速船员转运船组成的船队，用于支持壳牌与文莱政府合资的 Brunei Shell Petroleum 的海上作业。 据两家公司介绍，这些55米长的铝制船舶将用于向Brunei Shell Petroleum的资产运送海上人员和货物，并在包括FOS位于新加坡的自有船厂在内的多家地区船厂
 
 ## 正文
 
-4月28日消息，中国知识产权研究会官网近日发布《关于征集光伏行业关键核心技术专利竞争态势瞭望研究需求与建议的通知》，通知表示，为强化知识产权信息情报的科技服务支撑作用，助力光伏行业围绕关键核心技术培育提升专利竞争优势、增强专利风险防范应对能力，现组织开展“光伏行业关键核心技术专利竞争态势瞭望研究”战略咨询服务工作。
+Fast Offshore Supply已选定Incat Crowther设计一支由10艘DP2高速船员转运船组成的船队，用于支持壳牌与文莱政府合资的 Brunei Shell Petroleum 的海上作业。
 
-2026年度研究重点聚焦钙钛矿太阳能电池与光储融合技术两个前沿细分领域，目前面向钙钛矿太阳能电池、光储融合产业链相关企业、高校、科研院所公开征集研究需求及诉求建议。
+据两家公司介绍，这些55米长的铝制船舶将用于向Brunei Shell Petroleum的资产运送海上人员和货物，并在包括FOS位于新加坡的自有船厂在内的多家地区船厂建造。
 
-征集内容包括：各领域亟待研究的关键议题；围绕关键议题的具体研究需求与建议；专利风险分析研判的重点对象或技术点；需要客观研究支撑的政策诉求建议；其他相关需求与建议。
+每艘船可搭载多达80名乘客和150吨货物，航速可达30节。
 
-通知称，此研究旨在深度研判钙钛矿太阳能电池与光储融合技术的全球专利技术竞争格局，系统分析两个领域专利相关的关键问题，为行业创新主体战略决策与相关政策制定提供高质量研究支撑，研究形成的部分成果将公开发布。
+该船队已于2025年底启动建造，首批船舶预计于2027年初投入运营。
 
-中国知识产权研究会官网发布的通知显示，征集通过填写《研究需求与建议征集问卷》方式进行。
+Incat Crowther表示，该项目将采用其数字化造船流程，从而能够在多个船厂同时建造，同时保持整个船队的规格完全一致。
 
-通知要求，问卷须于2026年5月15日前反馈，后续研究会将认真梳理各方反馈，并邀请提供高质量反馈的单位座谈交流。
+这些船舶将配备DP2定位系统、用于海上人员转运的舷梯系统以及面积达200平方米的甲板。
 
-（刘丽丽）责任编辑：朱赫楠
+Incat Crowther欧洲董事总经理埃德·达德森表示：“在多个船厂建造这支船队将实现新船的快速部署，而我们的数字化设计与造船流程使这一目标得以实现。
+
+” “每个船厂都会收到一份相同的高度详细数字化资料包，其中包含建造所需的一切——从结构布置到辅助系统的内部管线、电缆桥架和暖通空调。
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 17:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 17:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 17:17 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 17:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 17:26 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 17:13 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 17:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 17:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 17:42 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 17:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 17:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 17:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 17:23 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 17:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 17:37 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 17:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 17:23 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 17:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 17:46 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 17:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 17:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 17:29 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/702654861304.shtml)
-- 2026-06-29 17:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/80335924.shtml)
-- 2026-06-29 17:20 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/92438677981.shtml)
-- 2026-06-29 17:21 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/818430003317.shtml)
-- 2026-06-29 17:26 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/75618341.shtml)
-- 2026-06-29 17:13 - [扫黑风暴](https://www.blog.minike.top/Article/details/560722348008.shtml)
-- 2026-06-29 17:21 - [周生如故](http://www.share.minike.top/Article/details/105027521486.shtml)
-- 2026-06-29 17:23 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/9238453.shtml)
-- 2026-06-29 17:15 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/99447.shtml)
-- 2026-06-29 17:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/2066450675.shtml)
-- 2026-06-29 17:34 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/374252703.shtml)
-- 2026-06-29 17:19 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/814159889.shtml)
-- 2026-06-29 17:38 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/08449602.shtml)
-- 2026-06-29 17:20 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/976882499.shtml)
-- 2026-06-29 17:35 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/89630.shtml)
+- 2026-06-29 17:23 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/3030560733.shtml)
+- 2026-06-29 17:21 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/7335456.shtml)
+- 2026-06-29 17:26 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/602726354994.shtml)
+- 2026-06-29 17:42 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/55548731158.shtml)
+- 2026-06-29 17:39 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/5499702152.shtml)
+- 2026-06-29 17:25 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/443959.shtml)
+- 2026-06-29 17:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/663747732.shtml)
+- 2026-06-29 17:24 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/58108506856.shtml)
+- 2026-06-29 17:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/5017557553.shtml)
+- 2026-06-29 17:39 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/455247553252.shtml)
+- 2026-06-29 17:34 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/01305379.shtml)
+- 2026-06-29 17:32 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/454150355286.shtml)
+- 2026-06-29 17:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/8411932041.shtml)
+- 2026-06-29 17:30 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/2276554.shtml)
+- 2026-06-29 17:30 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/2576011555.shtml)

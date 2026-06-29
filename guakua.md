@@ -1,60 +1,57 @@
-# 长江有色：28日铅价持平 资金观望浓厚贴水主导
+# 中美侨商合作交流活动在海口国家高新区举办
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-今日沪期铅走势：今日沪期铅小跌，沪铅主力合约2606开盘报16740元，高点报16795元，低点16670元，结算价16735元，收盘16695元/吨，跌45元，跌幅为0.27%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16580-16680元/吨，均价16630元，较前一日价格持平；广东现货市场1#铅报16535-16635元/吨，均价16585元，较前一日价格
+中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。 在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司
 
 ## 正文
 
-今日沪期铅走势：今日沪期铅小跌，沪铅主力合约2606开盘报16740元，高点报16795元，低点16670元，结算价16735元，收盘16695元/吨，跌45元，跌幅为0.27%。
+中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16580-16680元/吨，均价16630元，较前一日价格持平；广东现货市场1#铅报16535-16635元/吨，均价16585元，较前一日价格持平。
+来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。
 
-今日现货铅市场报价在16475-16680元/吨之间，对比沪期铅2605合约贴水245-贴水245元/吨，沪期铅2606合约贴水80-贴水80元/吨。
+双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。
 
-宏观面影响因素：美元指数延续98关口高位偏强运行，当前市场焦点聚焦美联储议息会议决议及美联储官员言论等重要议程之上，当前来看美伊和谈仍存不确定性，多头资金保持谨慎，美股呈现分化，此外，五一节前资金避险离场、多头获利了结，今日有色金属行情普遍下跌，最新消息日本央行今日维持利率不变，日元走弱间接支撑大宗商品价格，市场静待 4 月 PMI 数据，政策面稳增长预期持续发酵，为工业金属提供底部支撑。
+在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司(简称“华研”)内，美中硅谷商会企业代表进行了实地考察，了解企业在海南的发展情况，以及海南的政策环境与营商环境。
 
-铅价仍处于区间震荡趋势。
+代表们在参观华研时，首次了解到海洋胶原蛋白提取技术，表示后续将与华研进一步对接，洽谈原料供应相关合作。
 
-供需双弱格局：检修支撑与淡季压制并存 当前铅市供需呈现双弱格局，多空因素相互制衡。
+随后，代表们还走访了东湖高新海口生物城，了解海口国家高新区在区位、政策等方面的优势以及对园区企业的服务水平。
 
-供应端，国内部分再生铅企业进入检修周期，叠加区域内炼厂生产扰动，局部供应收紧对铅价形成一定底部支撑；但全球铅精矿供需紧平衡态势未改，原生铅冶炼开工态势平稳，整体供应未出现大幅收缩。
+海南省侨商联合会理事长潘家森称，随着海南自贸港封关运作蹄疾步稳，越来越多的全球侨界人士也对海南自贸港有着高度的关注与前所未有投资热情。
 
-需求端，铅酸蓄电池行业步入传统消费淡季，叠加五一假期临近，下游企业开工意愿回落，核心终端需求持续偏弱，出口端亦受外部环境影响表现低迷，对铅价上行形成明显压制，供需两端的矛盾使得价格难以形成突破。
+海南省侨商联合会作为全省服务侨商、联络侨胞的重要平台，期待通过此次活动与美中硅谷商会建立起常态化交流机制，多领域拓展务实合作，为广大侨商来琼投资兴业、创新创业搭建优质平台。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 17:29 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 17:13 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 17:19 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 17:13 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 17:14 - [机器人学校开学了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 17:31 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:36 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 17:24 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 17:40 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 17:28 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:40 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 17:41 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 17:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 17:38 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 17:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 17:29 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 17:43 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:22 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 17:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 17:38 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 17:28 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 17:47 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/50550287.shtml)
-- 2026-06-29 17:14 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/89783495470.shtml)
-- 2026-06-29 17:38 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/04199350900.shtml)
-- 2026-06-29 17:14 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/075928891.shtml)
-- 2026-06-29 17:29 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/75621019509.shtml)
-- 2026-06-29 17:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/07135418.shtml)
-- 2026-06-29 17:34 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/6167968.shtml)
-- 2026-06-29 17:19 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/096289216.shtml)
-- 2026-06-29 17:34 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/49732992460.shtml)
-- 2026-06-29 17:36 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/2611829.shtml)
-- 2026-06-29 17:32 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/31293824034.shtml)
-- 2026-06-29 17:22 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/11699777434.shtml)
-- 2026-06-29 17:33 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/64763647.shtml)
-- 2026-06-29 17:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/81650679222.shtml)
-- 2026-06-29 17:22 - [博主：黄金和原油回落不等于风险消失](http://www.blog.minike.top/Article/details/93401419.shtml)
+- 2026-06-29 17:26 - [勇敢的心第二部](http://www.share.minike.top/Article/details/96390022630.shtml)
+- 2026-06-29 17:21 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/738277.shtml)
+- 2026-06-29 17:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/8676857542.shtml)
+- 2026-06-29 17:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/1945054.shtml)
+- 2026-06-29 17:34 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/7450378848.shtml)
+- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/16408766.shtml)
+- 2026-06-29 17:40 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/44893.shtml)
+- 2026-06-29 17:44 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/284302386868.shtml)
+- 2026-06-29 17:47 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/73407191.shtml)
+- 2026-06-29 17:21 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/67592848473.shtml)
+- 2026-06-29 17:21 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/5671016287.shtml)
+- 2026-06-29 17:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/81885954.shtml)
+- 2026-06-29 17:35 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/5580066504.shtml)
+- 2026-06-29 17:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/900411731976.shtml)
+- 2026-06-29 17:33 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/6580849727.shtml)

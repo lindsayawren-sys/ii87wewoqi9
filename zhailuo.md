@@ -1,59 +1,61 @@
-# 珠江流域多举措防御新一轮强降雨
+# 外界关切特朗普访华对两岸议题的影响 国台办回应
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，2026年全国防汛抗旱工作视频会议27日召开，全面部署防汛抗旱重点工作。会后，珠江委召开党组会，迅即传达贯彻全国防汛抗旱工作视频会议精神。会上介绍，目前，珠江已全面进入汛期，前期流域经历多轮强降雨过程，造成8条河流发生超警洪水。据预测，27至28日，广西大部、广东西北部等地将有强降雨过程，
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)美国总统特朗普于5月13日至15日对中国进行国事访问，外界关切其对两岸议题的影响。国务院台办新闻发言人张晗13日回应，台湾问题是中国核心利益中的核心。恪守一个中国原则和中美三个联合公报，恪守美国历届政府在台湾问题上所做承诺，是美方应尽的国际义务。国台办例行新闻发布会当日在北京举行，张晗答问时强调，中方维护国家统一和领土完整的决心坚
 
 ## 正文
 
-中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，2026年全国防汛抗旱工作视频会议27日召开，全面部署防汛抗旱重点工作。
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)美国总统特朗普于5月13日至15日对中国进行国事访问，外界关切其对两岸议题的影响。
 
-会后，珠江委召开党组会，迅即传达贯彻全国防汛抗旱工作视频会议精神。
+国务院台办新闻发言人张晗13日回应，台湾问题是中国核心利益中的核心。
 
-会上介绍，目前，珠江已全面进入汛期，前期流域经历多轮强降雨过程，造成8条河流发生超警洪水。
+恪守一个中国原则和中美三个联合公报，恪守美国历届政府在台湾问题上所做承诺，是美方应尽的国际义务。
 
-据预测，27至28日，广西大部、广东西北部等地将有强降雨过程，累积降雨量达80至130毫米。
+国台办例行新闻发布会当日在北京举行，张晗答问时强调，中方维护国家统一和领土完整的决心坚定不移。
 
-会议要求，当前，广西钦州、北海等地发生局地强降雨，要紧盯流域雨水汛情发展，滚动预测预报和会商研判，突出做好短临降雨预警，科学调度防洪工程体系，切实抓好水库安全度汛，督促指导地方做好山洪灾害和中小河流洪水防御，最大限度减少灾害损失。
+民进党当局顽固坚持“台独”分裂立场，为一己私利甘当“棋子”，终究逃不出变成“弃子”的命运。
 
-会议指出，今年是“十五五”开局之年，做好防汛抗旱工作意义重大、责任重大。
+要维护台海和平稳定，就必须反对“台独”。
 
-全委上下必须进一步增强责任感、紧迫感，全面落实国家防总、水利部工作要求，坚持人民至上、生命至上，清醒认识流域水旱灾害防御形势，强化组织领导，狠抓工作落实，以实际行动树立和践行正确政绩观。
+对于岛内民意机构通过上限由1.25兆元新台币降为7800亿元新台币的“军购特别条例”，张晗回应指，我们坚决反对台美军事勾连。
 
-会议强调，要坚持问题导向、精准发力，体系化推进、系统化提升流域水旱灾害防御能力。
+民进党当局所谓“防务安全”包藏着“以武谋独”“以武拒统”的种种祸心，其大肆挥霍台湾老百姓的血汗钱，甘当美国的“提款机”，损害台湾民众切身利益，破坏台海和平稳定。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 17:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 17:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 17:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 17:40 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 17:32 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 17:35 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 17:30 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 17:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 17:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:24 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 17:40 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 17:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 17:35 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 17:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 17:42 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 17:25 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 17:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 17:20 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 17:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 17:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 17:38 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 17:26 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 17:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 17:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 17:19 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 17:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 17:45 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/0871219.shtml)
-- 2026-06-29 17:27 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/84402.shtml)
-- 2026-06-29 17:33 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/8115169.shtml)
-- 2026-06-29 17:14 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/684779024.shtml)
-- 2026-06-29 17:21 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/5835408856.shtml)
-- 2026-06-29 17:35 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/97392554488.shtml)
-- 2026-06-29 17:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/939835571.shtml)
-- 2026-06-29 17:17 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/58270.shtml)
-- 2026-06-29 17:28 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/724050.shtml)
-- 2026-06-29 17:18 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/86916076177.shtml)
-- 2026-06-29 17:15 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/77996363.shtml)
-- 2026-06-29 17:34 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/97258266.shtml)
-- 2026-06-29 17:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/2837080740.shtml)
-- 2026-06-29 17:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/47548.shtml)
-- 2026-06-29 17:32 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/35349034098.shtml)
+- 2026-06-29 17:27 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/2991786.shtml)
+- 2026-06-29 17:22 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/432780.shtml)
+- 2026-06-29 17:32 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/742072423.shtml)
+- 2026-06-29 17:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/58560402.shtml)
+- 2026-06-29 17:39 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/393268152.shtml)
+- 2026-06-29 17:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/124099.shtml)
+- 2026-06-29 17:27 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/733138993320.shtml)
+- 2026-06-29 17:33 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/356255.shtml)
+- 2026-06-29 17:31 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/6648499.shtml)
+- 2026-06-29 17:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/265238.shtml)
+- 2026-06-29 17:31 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/567984906.shtml)
+- 2026-06-29 17:33 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/68945900421.shtml)
+- 2026-06-29 17:18 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/742309783385.shtml)
+- 2026-06-29 17:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/210209.shtml)
+- 2026-06-29 17:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/6402928034.shtml)

@@ -1,57 +1,61 @@
-# 商务部：有序放宽服务领域准入限制
+# 美联储调查显示高物价困扰多数美国人 就业焦虑上升
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月28日电 (记者 王恩博)中国商务部部长助理张力28日在北京表示，官方将进一步完善跨境服务贸易负面清单管理制度，主动对接国际高标准经贸规则，有序放宽服务领域准入限制，破除跨境服务贸易壁垒，推动与服务贸易密切相关的资金、人员、数据等要素跨境便利安全流动。张力在当天的国务院政策例行吹风会上说，中国已是服务贸易大国，服务贸易规模稳居世界前列。2025年，中国服务贸易进出
+美联储的一项年度调查显示，绝大多数美国人在2025年对高物价感到担忧，并且越来越多人也开始对就业市场感到焦虑。 在去年就业增长接近停滞的背景下，42%的成年人表示找工作或保住工作是“次要或主要担忧”，高于2024年的37%。美联储的2025年《家庭经济与决策调查》显示，约九成受访者表示对物价上涨感到担忧。 这项去年10月的调查早于伊朗战争推高汽油价格并导致消费者价格指数创下近年
 
 ## 正文
 
-中新社北京4月28日电 (记者 王恩博)中国商务部部长助理张力28日在北京表示，官方将进一步完善跨境服务贸易负面清单管理制度，主动对接国际高标准经贸规则，有序放宽服务领域准入限制，破除跨境服务贸易壁垒，推动与服务贸易密切相关的资金、人员、数据等要素跨境便利安全流动。
+美联储的一项年度调查显示，绝大多数美国人在2025年对高物价感到担忧，并且越来越多人也开始对就业市场感到焦虑。
 
-张力在当天的国务院政策例行吹风会上说，中国已是服务贸易大国，服务贸易规模稳居世界前列。
+在去年就业增长接近停滞的背景下，42%的成年人表示找工作或保住工作是“次要或主要担忧”，高于2024年的37%。
 
-2025年，中国服务贸易进出口总额历史性地突破8万亿元(人民币，下同)，达到8.08万亿元，同比增长7.4%。
+美联储的2025年《家庭经济与决策调查》显示，约九成受访者表示对物价上涨感到担忧。
 
-其中服务出口同比增加14.2%，远远快于服务进口，成为中国外贸增长的新动能、新引擎。
+这项去年10月的调查早于伊朗战争推高汽油价格并导致消费者价格指数创下近年来最快增速。
 
-谈及下一步工作，他表示，商务部将会同各部门推动服务出口提质增效。
+尽管如此，负担能力担忧在去年就已普遍存在，并预计将成为即将到来的中期选举的重要影响因素。
 
-依托“中国制造”优势，提升运输服务的国际竞争力，扩大研发、设计、检测、维修等生产性服务出口。
+报告显示，73%的成年人表示“财务状况尚可”或“生活宽裕”，与2024年持平。
 
-正在举办的第139届广交会就专门引入了210多家贸易服务型企业，覆盖9大类、60多小类的生产性服务业。
+但对于没有高中学历的人、非裔美国人、30岁以下人群以及年收入低于2.5万美元的人群，这一比例显著下降。
 
-在推动服务领域改革开放方面，中国将统筹布局建设国家服务贸易创新发展示范区等重大开放合作平台，加强制度创新和政策集成，形成一批可复制推广的示范经验。
+报告凸显出美国消费者的分化，受益于股市强劲上涨的高收入群体继续支出，而低收入群体日益受到约束。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 17:21 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 17:15 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 17:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 17:28 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 17:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 17:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 17:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 17:37 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 17:19 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 17:28 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 17:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 17:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 17:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 17:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 17:31 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 17:23 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 17:18 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 17:35 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 17:28 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 17:26 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 17:43 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 17:42 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:21 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/51575.shtml)
-- 2026-06-29 17:22 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/84916079367.shtml)
-- 2026-06-29 17:28 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/200364.shtml)
-- 2026-06-29 17:22 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/52452645198.shtml)
-- 2026-06-29 17:33 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/406105694.shtml)
-- 2026-06-29 17:32 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/27639551.shtml)
-- 2026-06-29 17:12 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/74755.shtml)
-- 2026-06-29 17:40 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/46986.shtml)
-- 2026-06-29 17:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/0386396.shtml)
-- 2026-06-29 17:27 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/515892670618.shtml)
-- 2026-06-29 17:12 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/570120988532.shtml)
-- 2026-06-29 17:15 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/914701126376.shtml)
-- 2026-06-29 17:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/66283.shtml)
-- 2026-06-29 17:40 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/6153212.shtml)
-- 2026-06-29 17:39 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/63287873.shtml)
+- 2026-06-29 17:31 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/752554862.shtml)
+- 2026-06-29 17:21 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/3452780762.shtml)
+- 2026-06-29 17:43 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/15459852.shtml)
+- 2026-06-29 17:20 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/568850037467.shtml)
+- 2026-06-29 17:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/2094881651.shtml)
+- 2026-06-29 17:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/84312566.shtml)
+- 2026-06-29 17:34 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/17538630678.shtml)
+- 2026-06-29 17:35 - [斛珠夫人](https://www.blog.minike.top/Article/details/7748236143.shtml)
+- 2026-06-29 17:18 - [千与千寻](http://www.share.kurohicncr.top/Article/details/66111451805.shtml)
+- 2026-06-29 17:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/406879526848.shtml)
+- 2026-06-29 17:36 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/08508156728.shtml)
+- 2026-06-29 17:19 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/9297572.shtml)
+- 2026-06-29 17:33 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/63096034085.shtml)
+- 2026-06-29 17:26 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/26675503073.shtml)
+- 2026-06-29 17:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/3158677.shtml)

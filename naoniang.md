@@ -1,56 +1,59 @@
-# 重磅！中央政治局会议定调，八大看点速览！
+# 沃什当选美联储理事离主席仅一步之遥，通胀困局下如何兑现降息承诺？
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！江聃、程丹、贺觉渊、孙璐璐、秦燕玲、韩忠楠、郭博昊、张达 4月28日召开的中央政治局会议，分析研究当前经济形势和经济工作。会议对今年经济起步定调积极，认为“主要指标好于预期，彰显强大韧性和活力”。对于下一步经济工作，提出“要增强信心，以更大力度和更实举措抓好经济工作”。 对比去年4月、7月的中央政治局会议，
+文章来源：汇通财经 北京时间5月12日周二（5月13日）纽约时段，美联储主席提名迎来关键突破，凯文·沃什（Kevin Warsh）顺利通过参议院投票，成功进入美联储理事会，距离正式出任美联储主席仅差最后一步。此次投票基本沿党派立场展开，仅一名民主党参议员跨党支持，凸显出政治层面的分歧。 沃什将在北京时间5月14日迎来主席任职投票，若顺利通过，将于5月15日接替杰罗姆·鲍威尔（J
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文章来源：汇通财经 北京时间5月12日周二（5月13日）纽约时段，美联储主席提名迎来关键突破，凯文·沃什（Kevin Warsh）顺利通过参议院投票，成功进入美联储理事会，距离正式出任美联储主席仅差最后一步。
 
-江聃、程丹、贺觉渊、孙璐璐、秦燕玲、韩忠楠、郭博昊、张达 4月28日召开的中央政治局会议，分析研究当前经济形势和经济工作。
+此次投票基本沿党派立场展开，仅一名民主党参议员跨党支持，凸显出政治层面的分歧。
 
-会议对今年经济起步定调积极，认为“主要指标好于预期，彰显强大韧性和活力”。
+沃什将在北京时间5月14日迎来主席任职投票，若顺利通过，将于5月15日接替杰罗姆·鲍威尔（Jerome Powell），执掌全球最具影响力的央行。
 
-对于下一步经济工作，提出“要增强信心，以更大力度和更实举措抓好经济工作”。
+然而，在伊朗战争推高通胀、市场加息预期升温的背景下，曾公开呼吁降息、主张美联储“机制变革”的沃什，上任后将面临多重政策困局，其政策主张能否落地，成为全球金融市场关注的核心焦点。
 
-对比去年4月、7月的中央政治局会议，以及去年12月的中央经济工作会议，此次会议对下阶段宏观政策定调新增 “精准有效”表述要求，继续强调着力“四稳”（稳就业、稳企业、稳市场、稳预期）。
+参议院闯关成功 沃什距美联储主席仅一步之遥 美国参议院就沃什的美联储理事提名举行投票，最终以51票赞成、45票反对的结果顺利通过，为其出任美联储主席扫清了关键障碍。
 
-重点任务则继续注重挖潜内需潜力、建设现代化产业体系等，强调推动消费升级、加强“六大网”等新型基础设施建设，明确提出保持制造业合理比重、深入整治“内卷式”竞争、完善人工智能治理等要求。
+此次投票呈现明显的党派分化，绝大多数共和党议员投下赞成票，民主党议员多数反对，仅宾夕法尼亚州民主党联邦参议员约翰·费特曼（John Fetterman）打破党派界限，支持特朗普总统提名的沃什。
 
-此外，在防范化解重点领域风险方面，努力稳定房地产市场、着力解决拖欠企业账款问题、稳定和增强资本市场信心等再被提及。
+对于沃什而言，这并非其首次任职美联储，他曾在2006年至2011年期间担任美联储理事，具备丰富的央行工作经验。
 
-多位受访专家认为，面对一季度经济良好开局的局面，当前工作的重点是“用好用足”前期已经出台的存量政策，确保政策红利充分释放。
+此次理事提名通过后，下一步将迎来美联储主席一职的投票，预计于当地时间5月13日（北京时间5月14日）举行。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 17:24 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 17:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 17:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 17:27 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:16 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:24 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 17:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:14 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 17:26 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 17:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 17:39 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 17:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 17:42 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 17:41 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 17:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 17:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 17:36 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 17:31 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 17:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 17:38 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/8413395461.shtml)
-- 2026-06-29 17:27 - [东方风云榜红毯](http://www.share.minike.top/Article/details/9946493747.shtml)
-- 2026-06-29 17:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/90239389.shtml)
-- 2026-06-29 17:14 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/7776183937.shtml)
-- 2026-06-29 17:34 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/3294998823.shtml)
-- 2026-06-29 17:37 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/5485743.shtml)
-- 2026-06-29 17:19 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/81517.shtml)
-- 2026-06-29 17:14 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/135249.shtml)
-- 2026-06-29 17:23 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/63143594.shtml)
-- 2026-06-29 17:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/6322584308.shtml)
-- 2026-06-29 17:25 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/42189.shtml)
-- 2026-06-29 17:16 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/15301860356.shtml)
-- 2026-06-29 17:15 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/61123650676.shtml)
-- 2026-06-29 17:26 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/592972617053.shtml)
-- 2026-06-29 17:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/18254.shtml)
+- 2026-06-29 17:42 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/64014.shtml)
+- 2026-06-29 17:47 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/768229.shtml)
+- 2026-06-29 17:27 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/437241181935.shtml)
+- 2026-06-29 17:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/005817585.shtml)
+- 2026-06-29 17:43 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/65620.shtml)
+- 2026-06-29 17:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/78964.shtml)
+- 2026-06-29 17:24 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/789769311.shtml)
+- 2026-06-29 17:28 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/331334536.shtml)
+- 2026-06-29 17:42 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/326702015.shtml)
+- 2026-06-29 17:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/7633694777.shtml)
+- 2026-06-29 17:45 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/637771831.shtml)
+- 2026-06-29 17:32 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/867107356333.shtml)
+- 2026-06-29 17:24 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/6977985080.shtml)
+- 2026-06-29 17:29 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/226451508.shtml)
+- 2026-06-29 17:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/3274206.shtml)

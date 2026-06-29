@@ -1,58 +1,60 @@
-# 顾胜文履新安诚财险党委副书记！周炯之后，市场化干将能否再挑大梁？
+# 受北美业务疲软及成本攀升拖累，印度药企西普拉第四财季利润大幅下滑
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-来源：机构之家 自2025年3月原总经理周炯因涉嫌严重违纪违法被查以来，安诚财产保险股份有限公司（以下简称“安诚财险”）的总经理之位已悬空超过一年。近日，这一僵局终于有了新动静——顾胜文出任安诚财险党委副书记，或可视为总经理人选的关键一步。 不过，无论谁最终接棒，安诚财险面临的经营考题都不会改变。 2025年，安诚财险保费收入首次站上50亿元台阶，同比增长7.09%，自车险综改
+5月13日，按营收计算的印度第三大制药企业西普拉（Cipla）发布最新季度财报。数据显示，受北美市场业务急剧萎缩及运营成本持续攀升等不利因素拖累，尽管印度本土市场需求保持强劲，该公司截至今年3月31日的第四财季净利润仍同比大幅下滑54.6%，整体业绩表现不及市场预期。 财报指出，西普拉第四财季实现合并净利润55.5亿卢比（约合5800万美元），远低于分析师此前平均预期的70.5
 
 ## 正文
 
-来源：机构之家 自2025年3月原总经理周炯因涉嫌严重违纪违法被查以来，安诚财产保险股份有限公司（以下简称“安诚财险”）的总经理之位已悬空超过一年。
+5月13日，按营收计算的印度第三大制药企业西普拉（Cipla）发布最新季度财报。
 
-近日，这一僵局终于有了新动静——顾胜文出任安诚财险党委副书记，或可视为总经理人选的关键一步。
+数据显示，受北美市场业务急剧萎缩及运营成本持续攀升等不利因素拖累，尽管印度本土市场需求保持强劲，该公司截至今年3月31日的第四财季净利润仍同比大幅下滑54.6%，整体业绩表现不及市场预期。
 
-不过，无论谁最终接棒，安诚财险面临的经营考题都不会改变。
+财报指出，西普拉第四财季实现合并净利润55.5亿卢比（约合5800万美元），远低于分析师此前平均预期的70.5亿卢比。
 
-2025年，安诚财险保费收入首次站上50亿元台阶，同比增长7.09%，自车险综改以来已连续五年保持正增长。
+当季总营业收入同比下降2.8%至654.1亿卢比，同样未达市场预期。
 
-然而规模扩张并未带来价值沉淀，全年净利润仅录得0.3亿元，过去六年合计盈利不过1.3亿元，远不及2017年公司提出的“五年净利润5亿元”战略目标。
+从核心市场表现来看，作为该公司最大的营收来源，印度本土业务表现亮眼，营收同比增长15%至300.7亿卢比；然而，其北美市场业务遭遇重挫，营收大幅萎缩26%至141.4亿卢比。
 
-“增收不增利”的结构性困局，已成为这家地方险企最现实的经营难题。
+据悉，印度与北美两大市场合计占该公司总销售额的约四分之三。
 
-在董事长袁卫缺乏直接保险经营履历的背景下，这位出身大家财险体系、横跨承保理赔渠道的46岁业务型副书记，能否成为撬动安诚财险经营破局的关键支点？
+在盈利承压的同时，西普拉的各项成本支出显著增加。
 
-总经理之位空悬一年 要理解顾胜文此番补位的分量，需回望安诚财险过去一年经历的核心人事调整。
+当季总支出增长近8.5%至188.2亿卢比。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 17:37 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 17:12 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 17:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 17:22 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 17:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 17:25 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 17:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 17:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 17:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 17:18 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 17:41 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 17:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 17:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 17:34 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:39 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 17:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 17:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:31 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 17:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 17:26 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 17:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 17:41 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 17:32 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:25 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 17:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/1660188.shtml)
-- 2026-06-29 17:24 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/17015965773.shtml)
-- 2026-06-29 17:40 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/09267.shtml)
-- 2026-06-29 17:41 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/087915124652.shtml)
-- 2026-06-29 17:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/71785.shtml)
-- 2026-06-29 17:30 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/28717.shtml)
-- 2026-06-29 17:27 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/314514278615.shtml)
-- 2026-06-29 17:35 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/49846.shtml)
-- 2026-06-29 17:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/3106430068.shtml)
-- 2026-06-29 17:15 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/224512979800.shtml)
-- 2026-06-29 17:36 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/36521399.shtml)
-- 2026-06-29 17:31 - [东方风云榜](http://www.share.minike.top/Article/details/523391906.shtml)
-- 2026-06-29 17:22 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/489209708.shtml)
-- 2026-06-29 17:15 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/52598.shtml)
-- 2026-06-29 17:35 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/52655110.shtml)
+- 2026-06-29 17:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/551620499278.shtml)
+- 2026-06-29 17:22 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/26843726.shtml)
+- 2026-06-29 17:20 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/594553116.shtml)
+- 2026-06-29 17:45 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/5430458775.shtml)
+- 2026-06-29 17:33 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/6404894378.shtml)
+- 2026-06-29 17:24 - [啊啊啊](https://www.blog.minike.top/Article/details/040066823775.shtml)
+- 2026-06-29 17:19 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/900685.shtml)
+- 2026-06-29 17:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/31066.shtml)
+- 2026-06-29 17:44 - [NBA交易](http://www.share.kurohicncr.top/Article/details/4529765.shtml)
+- 2026-06-29 17:34 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/50265030.shtml)
+- 2026-06-29 17:43 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/5342742.shtml)
+- 2026-06-29 17:32 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/484315429182.shtml)
+- 2026-06-29 17:29 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/5921789201.shtml)
+- 2026-06-29 17:22 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6732608.shtml)
+- 2026-06-29 17:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/14751.shtml)

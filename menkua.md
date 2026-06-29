@@ -1,43 +1,56 @@
-# 国家发展改革委：禁止外资收购Manus项目 要求撤销交易
+# 四川“蜀安·2026”防灾减灾救灾实战演练破解“三断”救援难题
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-外商投资安全审查工作机制办公室(国家发展改革委)依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
+中新网乐山5月13日电 (记者 刘忠俊)5月12日至14日，四川“蜀安·2026”防灾减灾救灾实战演练在四川省乐山市马边彝族自治县举行。此次演练是四川省级层面首次开展时长48小时的实战演练，省、市县三级相关成员单位，国家综合性消防救援队伍、驻川部队、专业应急队伍、社会应急力量、省外增援力量及部分群众、学校师生参与其中。 据了解，本次演练以极端自然灾害为背景，模拟灾害导致人员伤亡
 
 ## 正文
 
-外商投资安全审查工作机制办公室(国家发展改革委)依法依规对外资收购Manus项目作出禁止投资决定，要求当事人撤销该收购交易。
+中新网乐山5月13日电 (记者 刘忠俊)5月12日至14日，四川“蜀安·2026”防灾减灾救灾实战演练在四川省乐山市马边彝族自治县举行。
+
+此次演练是四川省级层面首次开展时长48小时的实战演练，省、市县三级相关成员单位，国家综合性消防救援队伍、驻川部队、专业应急队伍、社会应急力量、省外增援力量及部分群众、学校师生参与其中。
+
+据了解，本次演练以极端自然灾害为背景，模拟灾害导致人员伤亡、房屋倒塌损毁，大量群众需紧急转移安置，多处道路、电力、通信等基础设施中断，部分乡村形成“孤岛”的场景。
+
+为全面检验极端灾害应对能力，本次演练聚焦“三断”恢复、抢险救援、群众安置三个关键阶段，严格遵循全流程、场景化、实战化要求，设置73个典型实战场景、40个专项演练科目，涵盖应急响应启动、指挥调度、“三断”应急处置、航空救援、群众临时安置等重点内容，实现防灾减灾救灾全链条覆盖。
+
+四川省8个市(州)、54个县(市、区)联动开展演练。
+
+演练现场，一系列新装备、新技术、新战法集中亮相，为破解极端条件下的救援难题提供了有力支撑。
+
+基层干部通过卫星电话、北斗终端实时上报灾情；翼龙大型无人机升空搭建空中通信网络，玲珑塔快速部署应急通信基站，有效破解“三断”场景下的通信梗阻问题；救援直升机集结升空执行搜救任务，无人遥控装载机开展路面清障作业，应急机械化桥和硬质机动路面车快速投入使用，快速打通生命救援通道；大型运输机实施空中物资投送，无人机大队组成物资空投编队，配合地面运输力量，将救灾物资第一时间送达受灾现场。
+
+废墟救援区与群众安置区同步启用应急照明设备，保障夜间救援和群众转移安置有序开展。
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 17:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 17:14 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 17:18 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 17:14 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 17:20 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 17:40 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 17:41 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 17:18 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 17:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 17:26 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 17:28 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 17:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 17:36 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 17:39 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 17:29 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:33 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 17:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 17:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 17:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [未成年少女长期吸毒导致卧床不起](http://www.share.minike.top/Article/details/2801733.shtml)
-- 2026-06-29 17:29 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/450007.shtml)
-- 2026-06-29 17:25 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/0568851676.shtml)
-- 2026-06-29 17:31 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/497552816.shtml)
-- 2026-06-29 17:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/2299077.shtml)
-- 2026-06-29 17:39 - [毒液2](http://www.share.minike.top/Article/details/21385970600.shtml)
-- 2026-06-29 17:19 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/940213.shtml)
-- 2026-06-29 17:32 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/04191.shtml)
-- 2026-06-29 17:14 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/05261.shtml)
-- 2026-06-29 17:30 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/08230065664.shtml)
-- 2026-06-29 17:15 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/2197792753.shtml)
-- 2026-06-29 17:19 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/52664641.shtml)
-- 2026-06-29 17:13 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/2679652196.shtml)
-- 2026-06-29 17:27 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/70958465.shtml)
-- 2026-06-29 17:15 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/06260497270.shtml)
+- 2026-06-29 17:28 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/95343.shtml)
+- 2026-06-29 17:20 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/07354132866.shtml)
+- 2026-06-29 17:46 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/7235289.shtml)
+- 2026-06-29 17:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/8599726.shtml)
+- 2026-06-29 17:28 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/3227585512.shtml)
+- 2026-06-29 17:24 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/446536632858.shtml)
+- 2026-06-29 17:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/9603982927.shtml)
+- 2026-06-29 17:22 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/59563.shtml)
+- 2026-06-29 17:27 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/597700794.shtml)
+- 2026-06-29 17:41 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/93977.shtml)
+- 2026-06-29 17:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/982590.shtml)
+- 2026-06-29 17:25 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/53818162.shtml)
+- 2026-06-29 17:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/897258.shtml)
+- 2026-06-29 17:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/928698.shtml)
+- 2026-06-29 17:38 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/248122978.shtml)

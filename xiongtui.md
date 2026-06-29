@@ -1,58 +1,58 @@
-# 湖南江华油菜示范片测产亩产超185公斤
+# 家庭教育发展，如何乘上数智时代之风？
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网永州4月27日电 (杨振民)近日，湖南省油菜产业协会组织专家，走进湖南江华瑶族自治县沱江镇下蒋村“稻稻油”三熟制油菜高产高效生产技术集成示范片，开展油菜单产提升实地测产，全面核验油菜种植成效，为稳步提升区域油料综合产能、优化种植技术提供科学参考。 大型联合收割机开进示范田，对主推品种“沣油112”开展机械化收割作业，有序完成秸秆切割、籽粒脱粒等工序，颗粒饱满的油菜籽顺利脱
+中新网台州5月13日电(周健)“十年树木，百年树人”，教育是一场润物无声的长久滋养，而家庭作为人生的第一所学校，是孩子成长成才的根基与沃土。当下人工智能浪潮席卷各行各业，如何借力数智科技，解锁新时代育人新路径，成为家庭教育发展的核心课题。 5月12日至5月13日，“德润童心 育见未来”全国家庭教育宣传周示范活动、新时代家庭观的理论与实践主题研讨活动在浙江省台州市举行，众多家庭教
 
 ## 正文
 
-中新网永州4月27日电 (杨振民)近日，湖南省油菜产业协会组织专家，走进湖南江华瑶族自治县沱江镇下蒋村“稻稻油”三熟制油菜高产高效生产技术集成示范片，开展油菜单产提升实地测产，全面核验油菜种植成效，为稳步提升区域油料综合产能、优化种植技术提供科学参考。
+中新网台州5月13日电(周健)“十年树木，百年树人”，教育是一场润物无声的长久滋养，而家庭作为人生的第一所学校，是孩子成长成才的根基与沃土。
 
-大型联合收割机开进示范田，对主推品种“沣油112”开展机械化收割作业，有序完成秸秆切割、籽粒脱粒等工序，颗粒饱满的油菜籽顺利脱粒收集。
+当下人工智能浪潮席卷各行各业，如何借力数智科技，解锁新时代育人新路径，成为家庭教育发展的核心课题。
 
-收割完成后，工作人员及时装袋、取样，为现场称重检测做好准备。
+5月12日至5月13日，“德润童心 育见未来”全国家庭教育宣传周示范活动、新时代家庭观的理论与实践主题研讨活动在浙江省台州市举行，众多家庭教育工作者、专家学者齐聚共话新时代家庭建设，其间，“数智赋能家庭教育”成为热议焦点。
 
-本次测产选定11.3亩示范片区作为样本田。
+得益于“数字浙江”二十余年的深厚积淀，浙江率先探索以人工智能赋能家庭教育指导服务的创新路径。
 
-在专家组全程指导下，整片田块统一机械化采收，现场称重计量、检测籽粒水分等关键指标，严格按标准去皮折算，精准核算实收亩产，全程流程规范、数据严谨，确保测产结果真实客观、科学可比。
+譬如，浙江省妇联的“浙里智慧家”搭建家长、咨询师、管理“三端”家庭教育支持服务平台；浙江省教育厅的“之江汇”数字家长学校服务560万家庭云端共学；台州市黄岩区的“幸福妈妈”实现24小时在线守护妈妈幸福；杭州市建兰中学的“智慧家校”以情绪“三色码”预警关注学生心理健康…… “处于AI时代，我们最大的体会是技术有温度，教育才有深度。
 
-经实测核算，示范田机械化实收亩产达185.2公斤，达到预期高产目标，较去年亩产提升10%以上。
+”杭州市建兰中学党委书记饶美红介绍道，“智慧家校”平台与“建兰大脑”共享数据，及时分析孩子情绪变化，让家长可以实时了解孩子在校表现和学习情况，为家庭教育提供科学指引。
 
-测产全程由专家组严格技术把关，规范田块选取、收割操作、数据登记等各环节，详实记录各项生产指标，科学评估油菜生长状况与实际产量水平。
+和睦温馨的家庭氛围，则是做好家庭教育的基础。
 
-“从实测结果来看，示范片区油菜长势均衡、结荚饱满，稳产性好、增产效果显著。
+放眼台州椒江区，当地创新打造“椒未家园”AI数字人平台，推出面向妇女的“小椒”、面向未成年人的“小未”两大伴随式“虚拟家庭顾问”。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 17:16 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 17:33 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 17:28 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 17:35 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 17:40 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 17:12 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 17:37 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 17:23 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 17:30 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 17:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 17:40 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 17:22 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:41 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 17:28 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 17:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 17:19 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 17:37 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 17:24 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 17:46 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 17:21 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 17:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 17:38 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/4055867917.shtml)
-- 2026-06-29 17:13 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/93646425.shtml)
-- 2026-06-29 17:25 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/759039.shtml)
-- 2026-06-29 17:31 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/67095093793.shtml)
-- 2026-06-29 17:24 - [谢依霖夸杨幂靠谱](https://www.share.kurohicncr.top/Article/details/605143792745.shtml)
-- 2026-06-29 17:37 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/4692877975.shtml)
-- 2026-06-29 17:13 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/3504049198.shtml)
-- 2026-06-29 17:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/3197799699.shtml)
-- 2026-06-29 17:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/173765977798.shtml)
-- 2026-06-29 17:23 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/626383809.shtml)
-- 2026-06-29 17:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/795568848.shtml)
-- 2026-06-29 17:15 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/1864836.shtml)
-- 2026-06-29 17:31 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/52838.shtml)
-- 2026-06-29 17:24 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/45957958193.shtml)
-- 2026-06-29 17:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/5857703923.shtml)
+- 2026-06-29 17:36 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/11355956906.shtml)
+- 2026-06-29 17:41 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/91666.shtml)
+- 2026-06-29 17:47 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/970081438703.shtml)
+- 2026-06-29 17:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/2072273.shtml)
+- 2026-06-29 17:34 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/0238785850.shtml)
+- 2026-06-29 17:35 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/46067.shtml)
+- 2026-06-29 17:28 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/00621246.shtml)
+- 2026-06-29 17:29 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/84555.shtml)
+- 2026-06-29 17:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/31233753968.shtml)
+- 2026-06-29 17:18 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/466862048238.shtml)
+- 2026-06-29 17:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/645924.shtml)
+- 2026-06-29 17:36 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/366987790.shtml)
+- 2026-06-29 17:28 - [当我回母校教书](https://www.blog.minike.top/Article/details/8583758.shtml)
+- 2026-06-29 17:18 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/742989835.shtml)
+- 2026-06-29 17:46 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/094264.shtml)

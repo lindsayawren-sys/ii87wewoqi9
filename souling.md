@@ -1,51 +1,56 @@
-# 澳大利亚宣布新任国防部秘书长
+# 四家上市公司内控被否遭ST，受损股民可索赔
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网悉尼4月28日电 澳大利亚总理阿尔巴尼斯28日宣布，他将向总督推荐任命梅根·奎因(Meghan Quinn)为新一任国防部秘书长。奎因将成为该国首位正式担任这一职务的女性。 据澳总理办公室消息，奎因目前担任澳大利亚工业、科学与资源部秘书，其国防部秘书长任期将自2026年5月18日起生效，为期五年。 格雷格·莫里亚蒂(Greg Moriarty)已于今年4月卸任国防部秘书长
+登录新浪财经APP 搜索【信披】查看更多考评等级 随着2025年年报披露收官，多家上市公司因财务真实性、内部控制等问题密集“爆雷”。 近期诚益通、金花股份、迪瑞医疗、万邦德四家公司相继因财报出现问题被实施风险警示（“戴帽”），不仅股价遭遇断崖式下跌，更因涉嫌信息披露违法违规，正面临投资者的批量索赔。 上海沪紫律师事务所刘鹏律师已收到多位投资者的索赔报名，目前符合要求的投资者还可
 
 ## 正文
 
-中新网悉尼4月28日电 澳大利亚总理阿尔巴尼斯28日宣布，他将向总督推荐任命梅根·奎因(Meghan Quinn)为新一任国防部秘书长。
+登录新浪财经APP 搜索【信披】查看更多考评等级 随着2025年年报披露收官，多家上市公司因财务真实性、内部控制等问题密集“爆雷”。
 
-奎因将成为该国首位正式担任这一职务的女性。
+近期诚益通、金花股份、迪瑞医疗、万邦德四家公司相继因财报出现问题被实施风险警示（“戴帽”），不仅股价遭遇断崖式下跌，更因涉嫌信息披露违法违规，正面临投资者的批量索赔。
 
-据澳总理办公室消息，奎因目前担任澳大利亚工业、科学与资源部秘书，其国防部秘书长任期将自2026年5月18日起生效，为期五年。
+上海沪紫律师事务所刘鹏律师已收到多位投资者的索赔报名，目前符合要求的投资者还可加入。
 
-格雷格·莫里亚蒂(Greg Moriarty)已于今年4月卸任国防部秘书长，并出任澳大利亚驻美国大使。
+诚益通：年报数据大幅“变脸” 诚益通4月29日晚披露年报，两名独立董事明确表示无法保证年报内容的真实、准确与完整，审计机构信永中和更是出具了无法表示意见的审计报告及否定意见内控报告。
 
-(完)
+审计报告揭露，公司管理层提供的未审财务报表存在重大差异。
+
+2月提供的未审数与4月披露数相比，资产总额调减6.51亿元，净资产调减9.42亿元，归母净利润由盈转亏，最终确认为亏损8.79亿元。
+
+因触及退市风险警示，股票简称变更为“*ST益通（维权）”，复牌后连续三个交易日暴跌近50%。
+
+刘鹏律师认为，于2025年4月24日-2026年4月29日（含当日）期间买入，并在2026年4月30日之后卖出或仍持有而亏损的即可登记。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 17:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 17:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 17:21 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 17:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 17:38 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:20 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 17:18 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 17:26 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 17:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 17:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 17:37 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 17:41 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 17:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 17:40 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 17:39 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 17:22 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 17:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 17:34 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 17:31 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/19241584.shtml)
-- 2026-06-29 17:40 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/079736281.shtml)
-- 2026-06-29 17:15 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/252438.shtml)
-- 2026-06-29 17:32 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/904952558.shtml)
-- 2026-06-29 17:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/6273841745.shtml)
-- 2026-06-29 17:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/89445929275.shtml)
-- 2026-06-29 17:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/4066186.shtml)
-- 2026-06-29 17:37 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/7541580705.shtml)
-- 2026-06-29 17:13 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/157372945573.shtml)
-- 2026-06-29 17:29 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/7001527952.shtml)
-- 2026-06-29 17:29 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/51828694060.shtml)
-- 2026-06-29 17:40 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/165353.shtml)
-- 2026-06-29 17:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/7409401.shtml)
-- 2026-06-29 17:21 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/88145731649.shtml)
-- 2026-06-29 17:18 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/24834820357.shtml)
+- 2026-06-29 17:26 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/654739.shtml)
+- 2026-06-29 17:25 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/714726.shtml)
+- 2026-06-29 17:26 - [一见倾心](http://www.blog.minike.top/Article/details/293517600.shtml)
+- 2026-06-29 17:46 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/157798094722.shtml)
+- 2026-06-29 17:33 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/91078570318.shtml)
+- 2026-06-29 17:40 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/24307.shtml)
+- 2026-06-29 17:19 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/43786.shtml)
+- 2026-06-29 17:43 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/036932225.shtml)
+- 2026-06-29 17:41 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/0371989861.shtml)
+- 2026-06-29 17:46 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/32592634.shtml)
+- 2026-06-29 17:47 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/18286.shtml)
+- 2026-06-29 17:40 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/05921.shtml)
+- 2026-06-29 17:24 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/871908.shtml)
+- 2026-06-29 17:24 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/57114142811.shtml)
+- 2026-06-29 17:46 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/32824699.shtml)

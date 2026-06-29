@@ -1,59 +1,51 @@
-# 辽宁推动创建“东北超”第二现场 激活票根经济
+# 【洋腔队】河南“洋女婿”钱焜：美国演员中国“竖店”逐梦微短剧
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网沈阳4月28日电 (记者 韩宏)记者27日从辽宁省政府新闻办召开的2026年东北地区城市足球联赛(以下简称“东北超”)发布会上获悉，辽宁持续优化球迷第二现场观赛体验，培育“泡澡看球、撸串看球、逛街看球、夜市看球”等时尚IP，现场将开展比分竞猜、球员视频连线等环节，营造“观赛+消费”的燃动氛围。 据介绍，沈阳为广大观赛群众打造城市观赛站、球迷加油站近200个，把足球赛事深度
+发布时间：2026年05月13日 11:28 来源：中国新闻网 一口地道的河南方言，一碗魂牵梦萦的胡辣汤，在河南郑州生活了近10年的“洋女婿”——来自美国的演员钱焜，早已把自己活成了“老内”。从与张艺谋、冯小刚等名导合作的影视演员，到转型微短剧导演，他带着对中国的热爱，以郑州为基地，将中国微短剧模式带向海外。 赵梦阳 韩章云 河南郑州报道 责任编辑：【李季】
 
 ## 正文
 
-中新网沈阳4月28日电 (记者 韩宏)记者27日从辽宁省政府新闻办召开的2026年东北地区城市足球联赛(以下简称“东北超”)发布会上获悉，辽宁持续优化球迷第二现场观赛体验，培育“泡澡看球、撸串看球、逛街看球、夜市看球”等时尚IP，现场将开展比分竞猜、球员视频连线等环节，营造“观赛+消费”的燃动氛围。
+发布时间：2026年05月13日 11:28 来源：中国新闻网 一口地道的河南方言，一碗魂牵梦萦的胡辣汤，在河南郑州生活了近10年的“洋女婿”——来自美国的演员钱焜，早已把自己活成了“老内”。
 
-据介绍，沈阳为广大观赛群众打造城市观赛站、球迷加油站近200个，把足球赛事深度融入商圈、夜市、景区等生活消费场景。
+从与张艺谋、冯小刚等名导合作的影视演员，到转型微短剧导演，他带着对中国的热爱，以郑州为基地，将中国微短剧模式带向海外。
 
-大连市构建东北超“3+12+100+N”第二现场点位网，为百姓带来特点鲜明的观赛体验。
-
-各类商家踊跃开展第二现场创建，目前商务主管部门已在千余家申请商户中首批筛选确定第二现场点位434个。
-
-据介绍，辽宁牵头搭建“东北超”票根经济官方服务小程序，球迷可在微信搜索关键字“东北超”登录平台一站式浏览“东北超”票根优惠门店，并实现检索、导航、打车等一系列服务功能。
-
-各类金融机构积极参与东北超票根经济活动，通过“东北超”票根经济官方服务小程序发放“东北超”专属支付权益，票根实名认证球迷可在商户优惠的基础上享受额外支付补贴，实现票根经济“两重优惠，快乐翻倍”。
-
-赛事期间，辽宁将组织开展“东北超+”系列促销活动，包括“东北超+乐购辽宁”“东北超+夜经济”“东北超+线上嗨购”“东北超+会展”“东北超+老字号”等系列活动。
-
-主体活动“2026辽宁五彩生活消费季”将以“乐购辽宁超燃山海”为主题，与首届东北地区城市足球联赛全程同频共振，涵盖“夜间经济不夜辽城”“活力消费潮玩消费”“数字赋能云享辽品”等十大主题消费场景，预计6个月时间内各类促销活动达到3000场以上。
+赵梦阳 韩章云 河南郑州报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 17:32 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 17:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 17:27 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 17:24 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 17:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 17:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 17:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 17:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 17:16 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 17:24 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 17:33 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 17:35 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 17:45 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 17:45 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 17:19 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 17:30 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 17:44 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 17:32 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 17:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:44 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 17:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:20 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 17:36 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 17:42 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 17:23 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 17:33 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 17:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/5628813119.shtml)
-- 2026-06-29 17:21 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/62511099180.shtml)
-- 2026-06-29 17:28 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/8398903179.shtml)
-- 2026-06-29 17:29 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/76827884188.shtml)
-- 2026-06-29 17:12 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/31979.shtml)
-- 2026-06-29 17:21 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/110461704.shtml)
-- 2026-06-29 17:30 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/10702297.shtml)
-- 2026-06-29 17:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/44453475.shtml)
-- 2026-06-29 17:29 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/41180879272.shtml)
-- 2026-06-29 17:18 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/297861364.shtml)
-- 2026-06-29 17:40 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/4935620278.shtml)
-- 2026-06-29 17:26 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0823630.shtml)
-- 2026-06-29 17:36 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/55299169484.shtml)
-- 2026-06-29 17:14 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/0514657.shtml)
-- 2026-06-29 17:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/8772394.shtml)
+- 2026-06-29 17:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/703212059.shtml)
+- 2026-06-29 17:26 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/7285203.shtml)
+- 2026-06-29 17:24 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.kurohicncr.top/Article/details/549434.shtml)
+- 2026-06-29 17:25 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/21800.shtml)
+- 2026-06-29 17:34 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/870537927035.shtml)
+- 2026-06-29 17:35 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/047271663935.shtml)
+- 2026-06-29 17:37 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/00112290.shtml)
+- 2026-06-29 17:37 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/47161.shtml)
+- 2026-06-29 17:30 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/975853421.shtml)
+- 2026-06-29 17:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/6760187916.shtml)
+- 2026-06-29 17:29 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/49033.shtml)
+- 2026-06-29 17:47 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/15884227.shtml)
+- 2026-06-29 17:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/835158075.shtml)
+- 2026-06-29 17:22 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/73909291180.shtml)
+- 2026-06-29 17:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/6708374.shtml)

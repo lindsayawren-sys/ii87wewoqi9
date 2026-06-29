@@ -1,60 +1,60 @@
-# 美联航放弃与美航合并计划，美国航空业整合浪潮搁浅
+# 21国驻澳（港）领事官员走进云南 感受开放包容大美边疆
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-美联航周一正式宣布，放弃与美国航空的合并计划。此前美航明确拒绝了启动谈判的提议，并为这一本可成为十多年来美国航空业最大规模整合的交易划上了句号。 美联航首席执行官在一份声明中透露，他曾在今年早些时候向特朗普政府提出了与美航合并的设想，并期待能向美航管理层推介这一构想。他指出，将美国两家最大的航空公司合并，将有助于打造一家真正具有全球竞争力的航空公司，创造更多就业岗位并支持美国经
+中新网昆明5月13日电 (罗婕)12日，云南省副省长徐浩在昆明会见外国驻澳(港)领事官员团一行，双方围绕推进经贸、农业、科技等领域合作进行深入交流。外交部驻澳门特别行政区特派员公署、澳门特区政府总部事务局有关负责人参加会见。 “领团内地参访”活动是外交部驻澳公署和澳门特区政府合作举办的品牌活动。5月11日至14日，来自21个国家的驻澳(港)领事官员到访云南，旨在透过云南的发展历
 
 ## 正文
 
-美联航周一正式宣布，放弃与美国航空的合并计划。
+中新网昆明5月13日电 (罗婕)12日，云南省副省长徐浩在昆明会见外国驻澳(港)领事官员团一行，双方围绕推进经贸、农业、科技等领域合作进行深入交流。
 
-此前美航明确拒绝了启动谈判的提议，并为这一本可成为十多年来美国航空业最大规模整合的交易划上了句号。
+外交部驻澳门特别行政区特派员公署、澳门特区政府总部事务局有关负责人参加会见。
 
-美联航首席执行官在一份声明中透露，他曾在今年早些时候向特朗普政府提出了与美航合并的设想，并期待能向美航管理层推介这一构想。
+“领团内地参访”活动是外交部驻澳公署和澳门特区政府合作举办的品牌活动。
 
-他指出，将美国两家最大的航空公司合并，将有助于打造一家真正具有全球竞争力的航空公司，创造更多就业岗位并支持美国经济发展。
+5月11日至14日，来自21个国家的驻澳(港)领事官员到访云南，旨在透过云南的发展历程，深入了解中国式现代化的发展理念与生动实践。
 
-然而，美航在上周就已明确否决了这一可能性。
+云南地处中国西南边陲，民族文化多元、生物多样性富集、区位优势独特，正持续建设民族团结进步示范区、生态文明建设排头兵和面向南亚东南亚辐射中心。
 
-美航首席执行官将这一合并构想评价为“反竞争”且对消费者不利。
+作为领团代表，哥伦比亚驻香港总领事路易斯·费尔南多·奥洛斯科·巴雷拉表示，此次访问让他领略到云南蓬勃的发展活力，也为双方深化合作提供互利共赢的新契机。
 
-美联航方面表示，鉴于美航已明确通过公开声明排除了合并的可能性，该计划只得戛然而止。
+哥伦比亚是鲜花出口大国，此行他将重点关注云南鲜花产业、农业以及乡村振兴等领域的发展。
 
-这一合并构想自曝光之初便面临巨大阻力。
+柬埔寨驻香港总领事李素文表示，此行主要目的是进一步巩固柬中两国传统友谊。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 17:19 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 17:16 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 17:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 17:23 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 17:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 17:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 17:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 17:34 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 17:15 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 17:37 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 17:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 17:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 17:34 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 17:30 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 17:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 17:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 17:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 17:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 17:44 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 17:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 17:20 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 17:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 17:37 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 17:42 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 17:27 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/43554584113.shtml)
-- 2026-06-29 17:20 - [波兰创该国高温纪录](https://www.share.minike.top/Article/details/5582611.shtml)
-- 2026-06-29 17:30 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/90960443.shtml)
-- 2026-06-29 17:29 - [金刚川](https://www.blog.minike.top/Article/details/4910973.shtml)
-- 2026-06-29 17:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/8916202.shtml)
-- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/87887836908.shtml)
-- 2026-06-29 17:24 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/420131273376.shtml)
-- 2026-06-29 17:35 - [5万块的威力](https://www.blog.minike.top/Article/details/29620.shtml)
-- 2026-06-29 17:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/54555.shtml)
-- 2026-06-29 17:27 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/90494625399.shtml)
-- 2026-06-29 17:30 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/63977946644.shtml)
-- 2026-06-29 17:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/5627547036.shtml)
-- 2026-06-29 17:38 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/63097.shtml)
-- 2026-06-29 17:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8740579439.shtml)
-- 2026-06-29 17:36 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/17861520.shtml)
+- 2026-06-29 17:39 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/897437308.shtml)
+- 2026-06-29 17:26 - [啊啊啊](https://www.share.minike.top/Article/details/092418669669.shtml)
+- 2026-06-29 17:36 - [时光音乐会](http://www.blog.minike.top/Article/details/36447769.shtml)
+- 2026-06-29 17:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/849652315083.shtml)
+- 2026-06-29 17:43 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/7570837724.shtml)
+- 2026-06-29 17:41 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/022008.shtml)
+- 2026-06-29 17:30 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/0013409610.shtml)
+- 2026-06-29 17:28 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/920323.shtml)
+- 2026-06-29 17:38 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/6629455024.shtml)
+- 2026-06-29 17:18 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/93113197544.shtml)
+- 2026-06-29 17:37 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/83265409.shtml)
+- 2026-06-29 17:42 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/95322408.shtml)
+- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/850062648829.shtml)
+- 2026-06-29 17:43 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/515158.shtml)
+- 2026-06-29 17:47 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/23935.shtml)

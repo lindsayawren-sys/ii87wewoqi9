@@ -1,56 +1,60 @@
-# 严打旅游市场强迫购物 三部门联合全链条整治
+# XCF Global借债转股削减1670万美元债务，年内股价已涨逾240%
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-文化和旅游部、公安部、市场监管总局今天下午联合发布旅游市场强迫购物整治工作进展情况。在今天下午的发布会上，市场管理司侯振刚司长表示，旅游市场链条长、环节多，强迫购物是一个顽瘴痼疾，严重影响旅游者的消费体验。将着力构建事前事中事后全链条治理体系，强力推进旅游市场强迫购物整治工作。一是严格准入管理。 关口前移，严把“入口关”，要求各地加强对新成立旅行社应具备的条件进行现场核验，对未
+可持续航空燃料公司XCF Global周二宣布，已与旗下New Rise Renewables Reno工厂创始人Randy Soule相关方Encore DEC达成最终协议，通过发行约3703万股A类普通股，清偿约1670万美元的未偿债务及财产留置权。 债转股细节：每股0.451美元定价 根据协议，该笔债务将以每股0.451美元的价格转换为XCF普通股，该价格参考了协议生效前
 
 ## 正文
 
-文化和旅游部、公安部、市场监管总局今天下午联合发布旅游市场强迫购物整治工作进展情况。
+可持续航空燃料公司XCF Global周二宣布，已与旗下New Rise Renewables Reno工厂创始人Randy Soule相关方Encore DEC达成最终协议，通过发行约3703万股A类普通股，清偿约1670万美元的未偿债务及财产留置权。
 
-在今天下午的发布会上，市场管理司侯振刚司长表示，旅游市场链条长、环节多，强迫购物是一个顽瘴痼疾，严重影响旅游者的消费体验。
+债转股细节：每股0.451美元定价 根据协议，该笔债务将以每股0.451美元的价格转换为XCF普通股，该价格参考了协议生效前五个交易日的平均收盘价。
 
-将着力构建事前事中事后全链条治理体系，强力推进旅游市场强迫购物整治工作。
+随着股份发行，相关应付款项及财产留置权将被视为全额清偿，XCF及其子公司不再承担任何后续偿付义务。
 
-一是严格准入管理。
+XCF首席执行官Chris Cooper表示：“此次额外的债务削减和股权增资，反映了我们在更广泛的财务与运营优先事项上持续取得进展。
 
-关口前移，严把“入口关”，要求各地加强对新成立旅行社应具备的条件进行现场核验，对未依法足额交纳旅游服务质量保证金的旅行社，对涉及以购养游、强迫购物的“马甲”旅行社及时予以清理。
+这一举措增强了我们专注于执行的能力，也展示了核心利益相关方对我们长期战略的信心。
 
-对分支机构数量明显超出正常经营需求、注册导游数量明显超过业务需求的旅行社纳入重点监管。
+” 战略背景：Reno工厂重启在即 此次债转股是XCF近期一系列财务优化举措的最新一步。
 
-同时加强对新设立旅行社的行政指导，强化合规经营意识。
+此前，公司已与土地所有者达成宽限协议，为推进资本结构优化和运营优先事项争取了额外时间。
 
-二是强化事中监管。
+公司此前公布的2026年第一季度更新显示，其New Rise Renewables Reno工厂计划于2026年6月重启运营，并已与BGN签订具有约束力的承购意向书。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 17:32 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 17:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 17:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 17:40 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 17:28 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 17:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 17:18 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 17:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 17:34 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 17:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 17:27 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 17:29 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 17:22 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 17:19 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 17:28 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 17:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 17:24 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 17:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:29 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 17:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 17:19 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 17:27 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/76798271.shtml)
-- 2026-06-29 17:22 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/305297083950.shtml)
-- 2026-06-29 17:14 - [和周杰伦在演唱会合唱了](https://www.share.kurohicncr.top/Article/details/52383963.shtml)
-- 2026-06-29 17:33 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/979019460.shtml)
-- 2026-06-29 17:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/162251.shtml)
-- 2026-06-29 17:16 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/47982.shtml)
-- 2026-06-29 17:34 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/87153.shtml)
-- 2026-06-29 17:27 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/3863158482.shtml)
-- 2026-06-29 17:38 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/791097005.shtml)
-- 2026-06-29 17:40 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/501135.shtml)
-- 2026-06-29 17:37 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/01872285691.shtml)
-- 2026-06-29 17:13 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/0347782444.shtml)
-- 2026-06-29 17:18 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/94022.shtml)
-- 2026-06-29 17:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/95655893.shtml)
-- 2026-06-29 17:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/16984796.shtml)
+- 2026-06-29 17:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/88067378665.shtml)
+- 2026-06-29 17:22 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/297077324509.shtml)
+- 2026-06-29 17:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/12484172.shtml)
+- 2026-06-29 17:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/2235095.shtml)
+- 2026-06-29 17:37 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/28560.shtml)
+- 2026-06-29 17:26 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/964137.shtml)
+- 2026-06-29 17:27 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/063783.shtml)
+- 2026-06-29 17:33 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/555262.shtml)
+- 2026-06-29 17:41 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/491861877635.shtml)
+- 2026-06-29 17:45 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/308014119055.shtml)
+- 2026-06-29 17:20 - [《贺子珍》](http://www.blog.minike.top/Article/details/06165376144.shtml)
+- 2026-06-29 17:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/285839910.shtml)
+- 2026-06-29 17:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/38080349410.shtml)
+- 2026-06-29 17:23 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/55784.shtml)
+- 2026-06-29 17:28 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/32007046091.shtml)

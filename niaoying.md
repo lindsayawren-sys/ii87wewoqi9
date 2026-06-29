@@ -1,59 +1,61 @@
-# 历经17年 民族题材电影丰富中国故事新表达
+# 从上海梧桐深处的3000枚铁路道钉 回望中美民间共同记忆
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-这些从中国内部生长出来的故事，呈现的已不只是地域风貌，而是一种理解中国的方式。 在2026北京民族电影展现场，不少观众提起了《五朵金花》《阿诗玛》《冰山上的来客》等定义了几代人对民族地区生活想象的经典作品。从那时到现在，已经过去了半个多世纪。今天的民族题材电影，在讲什么样的故事？自2010年创立以来，北京民族电影展已走过17年。本届共有19部影片入围参展。记者采访多位影片主创，
+中新网上海5月13日电 (李佳佳 李秋莹)初夏的上海，梧桐树掩映下的衡山路与宛平路交汇处，一座高约9米的钢制纪念塔安静地矗立于街头花园之中，与对面的衡山花园酒店(原毕卡第公寓)隔街相望。 这座1991年1月6日落成的“中国铁路工人纪念塔”，通体由3000枚铁路道钉焊接而成，重达1.5吨，在闹市中显得格外庄重。捐建者并非中国官方，而是远在大洋彼岸的美国伊利诺伊州政府。 一个美国的
 
 ## 正文
 
-这些从中国内部生长出来的故事，呈现的已不只是地域风貌，而是一种理解中国的方式。
+中新网上海5月13日电 (李佳佳 李秋莹)初夏的上海，梧桐树掩映下的衡山路与宛平路交汇处，一座高约9米的钢制纪念塔安静地矗立于街头花园之中，与对面的衡山花园酒店(原毕卡第公寓)隔街相望。
 
-在2026北京民族电影展现场，不少观众提起了《五朵金花》《阿诗玛》《冰山上的来客》等定义了几代人对民族地区生活想象的经典作品。
+这座1991年1月6日落成的“中国铁路工人纪念塔”，通体由3000枚铁路道钉焊接而成，重达1.5吨，在闹市中显得格外庄重。
 
-从那时到现在，已经过去了半个多世纪。
+捐建者并非中国官方，而是远在大洋彼岸的美国伊利诺伊州政府。
 
-今天的民族题材电影，在讲什么样的故事？
+一个美国的州，为何要在上海街头为中国铁路工人树碑立传？
 
-自2010年创立以来，北京民族电影展已走过17年。
+还得从一段跨越太平洋的历史说起。
 
-本届共有19部影片入围参展。
+1869年5月10日，犹他州普罗蒙特利，随着时任美国太平洋铁路公司总裁、前加州州长的斯坦福高举银质大锤，将一颗纯金的道钉砸进了铁轨中，太平洋铁路正式合龙的消息传遍美国，引发无数欢呼。
 
-记者采访多位影片主创，寻找问题答案。
+从1863年开始动工的太平洋铁路，被英国BBC评为自工业革命以来，世界七大工业奇迹之一，它于1869年建成，全长2000英里(3218688米)。
 
-一个“不完美”的楷模 “他明明有更好的选择，为什么要留下来？
+西段，即从萨克拉门托到犹他州的普罗蒙特利高地，全长约689英里(约1108838米)。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 17:22 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 17:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 17:15 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 17:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 17:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 17:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 17:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 17:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 17:25 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 17:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:34 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 17:39 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:24 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 17:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 17:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 17:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 17:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 17:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 17:47 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 17:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 17:29 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 17:43 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 17:45 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 17:46 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 17:35 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/73019.shtml)
-- 2026-06-29 17:22 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/6053126705.shtml)
-- 2026-06-29 17:18 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/754117.shtml)
-- 2026-06-29 17:37 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/2250519323.shtml)
-- 2026-06-29 17:14 - [女心理师](https://www.share.minike.top/Article/details/523549.shtml)
-- 2026-06-29 17:39 - [普京介绍前线战事](http://www.share.minike.top/Article/details/34482725855.shtml)
-- 2026-06-29 17:19 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/6926253666.shtml)
-- 2026-06-29 17:34 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/126413965166.shtml)
-- 2026-06-29 17:39 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/346860306238.shtml)
-- 2026-06-29 17:34 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/66914.shtml)
-- 2026-06-29 17:18 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/320889446.shtml)
-- 2026-06-29 17:20 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/20931348.shtml)
-- 2026-06-29 17:12 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/522918007110.shtml)
-- 2026-06-29 17:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/82144.shtml)
-- 2026-06-29 17:22 - [一生一世](https://www.blog.minike.top/Article/details/782544.shtml)
+- 2026-06-29 17:39 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/174013206704.shtml)
+- 2026-06-29 17:32 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/58576917694.shtml)
+- 2026-06-29 17:38 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/741053.shtml)
+- 2026-06-29 17:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/3162507.shtml)
+- 2026-06-29 17:34 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/69063639103.shtml)
+- 2026-06-29 17:26 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/421091575.shtml)
+- 2026-06-29 17:47 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/21182156.shtml)
+- 2026-06-29 17:18 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/7252937.shtml)
+- 2026-06-29 17:43 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/60658240261.shtml)
+- 2026-06-29 17:23 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/93404862811.shtml)
+- 2026-06-29 17:30 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/23294136927.shtml)
+- 2026-06-29 17:45 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/124990.shtml)
+- 2026-06-29 17:21 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/29929470196.shtml)
+- 2026-06-29 17:19 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/59651619.shtml)
+- 2026-06-29 17:43 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/0918189867.shtml)

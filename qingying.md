@@ -1,59 +1,58 @@
-# 花旗：中海油田服务重申“买入”评级 目标价11.6港元
+# 外交部评日本几十年来最大规模反战抗议：重走军国主义回头路是不归路
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，维持对中海油田服务（02883）“买入”评级，目标价11.6港元，相当于预测2026年市账率1倍，为平均水平高1个标准差。 中海油服首季纯利8.56亿元人民币，同比跌4%，但按季增长35%。若剔除约3亿元人民币汇兑亏损，核心盈利11.6亿元人民币，同比增长34%，按季则跌6%，总体季绩逊预期。管理层解释，重大汇兑亏损主要来自母公司与海外附属公司之间因会计处理而产
+5月13日，外交部发言人郭嘉昆主持例行记者会。有记者提问，自从高市政府宣布推动修宪以来，日本各界出现了大量的反对声音，甚至出现了几十年来规模最大的反战抗议活动，恐惧、担忧、警惕、愤怒成为了受访民众的高频词。有媒体评论称，修改宪法第九条将撼动日本和平国家的自我认同，引发社会撕裂。请问发言人对此有何评论？ 郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众亲眼目睹自己的国家一步步
 
 ## 正文
 
-花旗发布研报称，维持对中海油田服务（02883）“买入”评级，目标价11.6港元，相当于预测2026年市账率1倍，为平均水平高1个标准差。
+5月13日，外交部发言人郭嘉昆主持例行记者会。
 
-中海油服首季纯利8.56亿元人民币，同比跌4%，但按季增长35%。
+有记者提问，自从高市政府宣布推动修宪以来，日本各界出现了大量的反对声音，甚至出现了几十年来规模最大的反战抗议活动，恐惧、担忧、警惕、愤怒成为了受访民众的高频词。
 
-若剔除约3亿元人民币汇兑亏损，核心盈利11.6亿元人民币，同比增长34%，按季则跌6%，总体季绩逊预期。
+有媒体评论称，修改宪法第九条将撼动日本和平国家的自我认同，引发社会撕裂。
 
-管理层解释，重大汇兑亏损主要来自母公司与海外附属公司之间因会计处理而产生的货币差异，而非营运所致。
+请问发言人对此有何评论？
 
-公司正积极考虑调整功能货币或实施债转股等措施，以减低未来影响。
+郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众亲眼目睹自己的国家一步步走向军国主义，沦为战争机器，饱尝战争恶果，最懂得日本政府承诺永不再战的意义。
 
-报告指，业绩显示钻井业务方面，自升式平台及半潜式平台使用率分别为91%及97%。
+如今高市政府却企图抛弃和平主义，背弃战后国际社会接纳日本的根本前提，撕毁日本民众世代珍视的和平国家共识。
 
-油田技术服务板块首季收入及EBIT同比升5%及18%，主要受海外综合服务快速增长带动。
+郭嘉昆说，日本右翼势力推动扩军备武、突破和平宪法和国际法、国内法规制，是要打造所谓“战争国家”吗？
 
-责任编辑：卢昱君
+是想在亚太地区重燃战火吗？
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 17:30 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 17:37 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 17:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 17:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 17:40 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 17:20 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 17:25 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 17:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:29 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 17:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 17:14 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 17:23 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 17:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 17:31 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 17:20 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 17:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:33 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 17:47 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 17:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 17:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 17:21 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 17:37 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 17:24 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 17:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/6621601.shtml)
-- 2026-06-29 17:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/17260701.shtml)
-- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/950806.shtml)
-- 2026-06-29 17:38 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/07142004.shtml)
-- 2026-06-29 17:34 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/6793127.shtml)
-- 2026-06-29 17:18 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/22241887989.shtml)
-- 2026-06-29 17:39 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/116350336.shtml)
-- 2026-06-29 17:17 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/952849.shtml)
-- 2026-06-29 17:36 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/058047775276.shtml)
-- 2026-06-29 17:16 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/723200528.shtml)
-- 2026-06-29 17:16 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/310978232.shtml)
-- 2026-06-29 17:32 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/6588946.shtml)
-- 2026-06-29 17:37 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/1109300869.shtml)
-- 2026-06-29 17:30 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/3999702.shtml)
-- 2026-06-29 17:30 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/18608257055.shtml)
+- 2026-06-29 17:21 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/3306979.shtml)
+- 2026-06-29 17:37 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/5341126493.shtml)
+- 2026-06-29 17:33 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/342626.shtml)
+- 2026-06-29 17:28 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/6261467.shtml)
+- 2026-06-29 17:44 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/870398085.shtml)
+- 2026-06-29 17:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/230698803.shtml)
+- 2026-06-29 17:35 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/696886.shtml)
+- 2026-06-29 17:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/0076077.shtml)
+- 2026-06-29 17:18 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/03206702.shtml)
+- 2026-06-29 17:31 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/85040750358.shtml)
+- 2026-06-29 17:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/31351854.shtml)
+- 2026-06-29 17:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/81277659315.shtml)
+- 2026-06-29 17:33 - [王楚钦开门红](http://www.share.minike.top/Article/details/83636.shtml)
+- 2026-06-29 17:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/270962.shtml)
+- 2026-06-29 17:39 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/33640318785.shtml)

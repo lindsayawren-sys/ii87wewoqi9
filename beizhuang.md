@@ -1,60 +1,59 @@
-# 美联储利率决议前市场观望叠加中东局势扰动，黄金维持震荡整理
+# Harrow预计第二季度营收7100万至8100万美元，重申全年业绩指引
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周二亚洲时段，黄金价格承压下行，回落至4685美元附近，市场整体情绪趋于谨慎。当前影响金价的核心因素集中在两大主线：一是美联储利率决议临近带来的政策不确定性，二是中东局势变化对避险需求的边际影响。在关键事件前，投资者普遍选择观望，使得金价短线波动加剧但方向不明。 从宏观层面来看，美联储即将公布最新利率决议成为市场关注焦点。市场普遍预计联邦公开市场委员会将维持
+眼科制药公司Harrow Inc．公布2026年第一季度财报，披露了多项核心产品的强劲需求数据，并重申全年业绩指引。 第一季度业绩受一次性调整拖累，核心需求指标强劲 财报显示，第一季度营收为4420万美元，同比下降7.6%，主要因干眼症药物VEVYE新商业保险覆盖相关的一次性收入调整，导致季度收入减少约800万美元。剔除该非经常性因素后，公司业务基础需求强劲。 亏损方面，GAA
 
 ## 正文
 
-文章来源：汇通财经 周二亚洲时段，黄金价格承压下行，回落至4685美元附近，市场整体情绪趋于谨慎。
+眼科制药公司Harrow Inc．公布2026年第一季度财报，披露了多项核心产品的强劲需求数据，并重申全年业绩指引。
 
-当前影响金价的核心因素集中在两大主线：一是美联储利率决议临近带来的政策不确定性，二是中东局势变化对避险需求的边际影响。
+第一季度业绩受一次性调整拖累，核心需求指标强劲 财报显示，第一季度营收为4420万美元，同比下降7.6%，主要因干眼症药物VEVYE新商业保险覆盖相关的一次性收入调整，导致季度收入减少约800万美元。
 
-在关键事件前，投资者普遍选择观望，使得金价短线波动加剧但方向不明。
+剔除该非经常性因素后，公司业务基础需求强劲。
 
-从宏观层面来看，美联储即将公布最新利率决议成为市场关注焦点。
+亏损方面，GAAP净亏损为2760万美元，或每股亏损0.74美元。
 
-市场普遍预计联邦公开市场委员会将维持利率在3.50%–3.75%区间不变，这一水平自去年底以来保持稳定。
+调整后EBITDA亏损约1266万美元。
 
-然而，真正影响市场走势的关键在于会后表态，尤其是美联储主席鲍威尔的新闻发布会。
+核心运营指标方面，VEVYE季度处方量环比增长25%，月度总处方量已超越Xiidra，市场份额约达14%。
 
-若释放偏鹰信号，例如强调通胀粘性或不排除未来加息可能，将显著提振美元，从而对以美元计价的黄金形成压制。
+麻醉剂IHEEZO单位需求同比增长18%，类固醇TRIESENCE单位需求同比翻倍以上，连续第六个季度增长。
 
-与此同时，市场还关注美联储内部潜在人事变动的不确定性。
+第二季度与全年指引 对于第二季度，公司预计收入在7100万至8100万美元之间。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 17:22 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 17:18 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 17:28 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 17:12 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 17:33 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 17:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 17:20 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 17:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 17:18 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 17:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 17:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:18 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 17:21 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 17:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 17:29 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 17:39 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 17:35 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 17:46 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 17:41 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 17:30 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 17:18 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 17:18 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 17:46 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 17:32 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 17:39 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 17:35 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/076730317251.shtml)
-- 2026-06-29 17:26 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/569234.shtml)
-- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/925063.shtml)
-- 2026-06-29 17:28 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/955980.shtml)
-- 2026-06-29 17:29 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/271028.shtml)
-- 2026-06-29 17:15 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/0007640382.shtml)
-- 2026-06-29 17:19 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/726706531.shtml)
-- 2026-06-29 17:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/43352085576.shtml)
-- 2026-06-29 17:36 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/23562.shtml)
-- 2026-06-29 17:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/529760791541.shtml)
-- 2026-06-29 17:21 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/72158.shtml)
-- 2026-06-29 17:40 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/500467102377.shtml)
-- 2026-06-29 17:20 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/3529600.shtml)
-- 2026-06-29 17:20 - [天道](https://www.share.kurohicncr.top/Article/details/168334910.shtml)
-- 2026-06-29 17:28 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/79405385.shtml)
+- 2026-06-29 17:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/604996.shtml)
+- 2026-06-29 17:25 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/4491930083.shtml)
+- 2026-06-29 17:46 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/7379343098.shtml)
+- 2026-06-29 17:21 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/4043742.shtml)
+- 2026-06-29 17:46 - [急先锋](http://www.blog.minike.top/Article/details/63915.shtml)
+- 2026-06-29 17:33 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/5049170.shtml)
+- 2026-06-29 17:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/269218.shtml)
+- 2026-06-29 17:38 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/89122.shtml)
+- 2026-06-29 17:47 - [毒液2](https://www.share.kurohicncr.top/Article/details/3480578.shtml)
+- 2026-06-29 17:24 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/450905140908.shtml)
+- 2026-06-29 17:32 - [恋与深空发放补偿未得到玩家认可](https://www.blog.minike.top/Article/details/213594254453.shtml)
+- 2026-06-29 17:41 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/74748116060.shtml)
+- 2026-06-29 17:36 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/620199.shtml)
+- 2026-06-29 17:34 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/637717132.shtml)
+- 2026-06-29 17:34 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/4296570.shtml)

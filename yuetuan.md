@@ -1,56 +1,56 @@
-# 中国太保一季度净赚100亿增4.3%，保险服务收入增1%
+# 上海加快开发适老化智能产品
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-4月28日晚间，中国太平洋保险（集团）股份有限公司（中国太保，601601.SH；2601.HK）披露的2026年一季报显示，今年一季度，中国太保实现归属于母公司股东的净利润100.41亿元，同比增长4.3%；实现归母营运利润105.23亿元，同比增长3.6%。 2026年一季度，中国太保实现保险服务收入702.34亿元，同比增长1.0%。其中：太保寿险实现保险服务收入215.
+中新社上海5月13日电 (记者 郑莹莹)为助力长者智慧养老，中国联通上海市分公司13日在上海发布一批为银发人群量身定制的通信产品与服务。 “这根绳子不仅是挂绳，当老人发生意外时，拉拽这根绳子，设备就会自动拨打紧急联系人的电话。”现场工作人员龙鑫为记者介绍一款长者适用的AI产品。 他表示，该款小巧的设备还搭载电子围栏，若老人长时间未外出或无移动，系统将发出提示，便于家人及时关怀，
 
 ## 正文
 
-4月28日晚间，中国太平洋保险（集团）股份有限公司（中国太保，601601.SH；2601.HK）披露的2026年一季报显示，今年一季度，中国太保实现归属于母公司股东的净利润100.41亿元，同比增长4.3%；实现归母营运利润105.23亿元，同比增长3.6%。
+中新社上海5月13日电 (记者 郑莹莹)为助力长者智慧养老，中国联通上海市分公司13日在上海发布一批为银发人群量身定制的通信产品与服务。
 
-2026年一季度，中国太保实现保险服务收入702.34亿元，同比增长1.0%。
+“这根绳子不仅是挂绳，当老人发生意外时，拉拽这根绳子，设备就会自动拨打紧急联系人的电话。
 
-其中：太保寿险实现保险服务收入215.71亿元，同比增长2.6%；太保产险实现保险服务收入477.72亿元，同比下降0.2%。
+”现场工作人员龙鑫为记者介绍一款长者适用的AI产品。
 
-分别来看，2026年一季度，太保寿险实现规模保费1162.77亿元，其中新保期缴规模保费189.29亿元，同比增长41.4%；新业务价值63.72亿元，同比增长9.6%。
+他表示，该款小巧的设备还搭载电子围栏，若老人长时间未外出或无移动，系统将发出提示，便于家人及时关怀，以防范意外。
 
-在渠道方面，太保寿险代理人渠道在今年一季度实现规模保费854.98亿元，其中新保期缴规模保费114.19亿元，同比增长43.0%。
+上海还通过政策引导与市场机制相结合，降低适老化数字产品的使用门槛。
 
-就客层来看，中客及以上客户数占比同比提升9.6个百分点至38.0%。
+上海市通信管理局方面表示，上海统筹推进互联网应用适老化及无障碍改造的标准化与规范化，确保长辈模式不仅有“大字”，更有“简操作”。
 
-截至一季度末，太保寿险的保险营销员为18.7万人，核心人力月人均首年规模保费11.8万元，同比增长43.3%。
+上海是中国最早进入人口老龄化且老龄化程度最深的城市。
 
-太保寿险银保渠道在2026年一季度实现规模保费209.17亿元，其中新保期缴规模保费67.62亿元，同比增长37.8%；中客及以上客户数占比同比提升1.6个百分点至38.5%。
+截至2024年年末，上海60岁及以上户籍老年人口达577.62万人，占其户籍总人口的37.6%。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 17:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 17:15 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 17:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 17:21 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 17:14 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 17:41 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 17:14 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 17:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 17:36 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 17:43 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 17:27 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 17:28 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 17:38 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 17:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:18 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 17:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 17:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 17:30 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 17:36 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/5518077.shtml)
-- 2026-06-29 17:23 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/08319973.shtml)
-- 2026-06-29 17:29 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/80056181968.shtml)
-- 2026-06-29 17:34 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/126899764086.shtml)
-- 2026-06-29 17:23 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/61549.shtml)
-- 2026-06-29 17:38 - [起风了](http://www.blog.kurohicncr.top/Article/details/190581567.shtml)
-- 2026-06-29 17:14 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/780981090335.shtml)
-- 2026-06-29 17:39 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/412263602.shtml)
-- 2026-06-29 17:35 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/4430035.shtml)
-- 2026-06-29 17:26 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/37118.shtml)
-- 2026-06-29 17:16 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/2973308.shtml)
-- 2026-06-29 17:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/76711859179.shtml)
-- 2026-06-29 17:38 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/1570027288.shtml)
-- 2026-06-29 17:33 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/0161269.shtml)
-- 2026-06-29 17:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/18068789.shtml)
+- 2026-06-29 17:46 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/67234819.shtml)
+- 2026-06-29 17:47 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/34817.shtml)
+- 2026-06-29 17:21 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/718399780440.shtml)
+- 2026-06-29 17:41 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/7322931.shtml)
+- 2026-06-29 17:47 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/83650.shtml)
+- 2026-06-29 17:41 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/4947658.shtml)
+- 2026-06-29 17:38 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/129590428580.shtml)
+- 2026-06-29 17:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/3449613.shtml)
+- 2026-06-29 17:36 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/19123.shtml)
+- 2026-06-29 17:41 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/995876.shtml)
+- 2026-06-29 17:37 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/9992786.shtml)
+- 2026-06-29 17:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/91011.shtml)
+- 2026-06-29 17:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/915610.shtml)
+- 2026-06-29 17:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5507900498.shtml)
+- 2026-06-29 17:47 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/548702.shtml)

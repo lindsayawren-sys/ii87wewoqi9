@@ -1,59 +1,47 @@
-# 上海通报5起违反中央八项规定精神问题
+# 内蒙古自治区党委金融工作委员会副书记马保国接受审查调查
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。 1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。吉玉萍还
+中新网5月12日电 据内蒙古自治区纪委监委消息：内蒙古自治区党委金融工作委员会副书记马保国涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
 
 ## 正文
 
-中新网4月27日电 据中央纪委国家监委网站消息，日前，上海市纪委监委公开通报5起违反中央八项规定精神典型问题。
-
-1.政协上海市委员会界别和地区工作委员会原专职副主任吉玉萍接受可能影响公正执行公务的宴请，违规收受礼金，违规出入私人会所等问题。
-
-2013年至2025年，吉玉萍频繁接受私营企业主安排的宴请，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼金。
-
-吉玉萍还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
-
-2.上海国际机场股份有限公司原总经理黄铮霖接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金，违规出入私人会所，违规干预和插手市场经济活动等问题。
-
-2021年至2025年，黄铮霖多次接受私营企业主安排的宴请、外地旅游，违规出入私人会所并接受宴请，费用由对方支付；多次收受私营企业主所送礼品礼金；利用职务便利，违规为他人在相关设备采购等事项上提供帮助，非法收受财物。
-
-黄铮霖还存在其他严重违纪违法问题，被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
-
-3.上海体育大学资产处产业办公室原业务主管、交流中心原总经理张成一接受可能影响公正执行公务的宴请、旅游活动安排，违规收受礼品礼金等问题。
+中新网5月12日电 据内蒙古自治区纪委监委消息：内蒙古自治区党委金融工作委员会副书记马保国涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 17:34 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 17:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 17:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:37 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 17:12 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 17:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 17:26 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 17:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 17:28 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:14 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 17:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 17:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 17:31 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 17:34 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 17:41 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 17:32 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 17:20 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 17:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 17:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 17:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 17:28 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 17:32 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 17:18 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 17:28 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:19 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 17:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/8541057.shtml)
-- 2026-06-29 17:37 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/95069389822.shtml)
-- 2026-06-29 17:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/28576587755.shtml)
-- 2026-06-29 17:14 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/01036.shtml)
-- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/344356.shtml)
-- 2026-06-29 17:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/52560528.shtml)
-- 2026-06-29 17:26 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/696133487.shtml)
-- 2026-06-29 17:36 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/48668874235.shtml)
-- 2026-06-29 17:18 - [绘画区你赢了](https://www.blog.minike.top/Article/details/559951.shtml)
-- 2026-06-29 17:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/82889135.shtml)
-- 2026-06-29 17:35 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/223278628068.shtml)
-- 2026-06-29 17:35 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/11523118.shtml)
-- 2026-06-29 17:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5533632296.shtml)
-- 2026-06-29 17:32 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/52382.shtml)
-- 2026-06-29 17:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/76786481907.shtml)
+- 2026-06-29 17:41 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/56621737.shtml)
+- 2026-06-29 17:45 - [送你一朵小红花](https://www.share.minike.top/Article/details/3708746220.shtml)
+- 2026-06-29 17:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/54002.shtml)
+- 2026-06-29 17:39 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/27751.shtml)
+- 2026-06-29 17:31 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/9903105220.shtml)
+- 2026-06-29 17:18 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/73210.shtml)
+- 2026-06-29 17:24 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/28880.shtml)
+- 2026-06-29 17:37 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/550736.shtml)
+- 2026-06-29 17:42 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/475324752.shtml)
+- 2026-06-29 17:36 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/90563766546.shtml)
+- 2026-06-29 17:38 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/8776726803.shtml)
+- 2026-06-29 17:45 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/101891.shtml)
+- 2026-06-29 17:21 - [当我回母校教书](http://www.share.minike.top/Article/details/92389753.shtml)
+- 2026-06-29 17:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/98662393.shtml)
+- 2026-06-29 17:34 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/0526872823.shtml)

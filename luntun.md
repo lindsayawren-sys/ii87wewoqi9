@@ -1,59 +1,53 @@
-# 文化观察：小众篆刻如何走向大众？
+# 京东工业盘初涨超7% 第一季度利润达2.3亿元同比增长54.4%
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月28日电(林波 孙琳茹)3D打印的立体印章、空心玻璃与碳纤维制成的印材、刻着简化字的印面……4月28日，“印记浙江印向未来——大众篆刻作品展”在杭州西泠印社美术馆开幕，展出328枚造型新颖、兼具艺术性与创新性的大众篆刻作品。 近年来，新大众文艺蓬勃兴起、方兴未艾，推动中华优秀传统文化实现创造性转化、创新性发展，成为新时代文艺工作的重要方向。 篆刻艺术作为中华传统文
+京东工业（07618）绩后一度涨超7%，截至发稿，股价上涨4.58%，现报15.06港元，成交额1627.87万港元。 5月12日，京东工业发布2026年一季度业绩，收入达56.6亿元，同比增长25.3%，期间非国际财务报告准则利润达2.3亿元，同比增长54.4%，展示了健康的增长态势。其中，工业大模型JoyIndustrial的全链路创新和落地应用产出了明确价值，近40款AI
 
 ## 正文
 
-中新网杭州4月28日电(林波 孙琳茹)3D打印的立体印章、空心玻璃与碳纤维制成的印材、刻着简化字的印面……4月28日，“印记浙江印向未来——大众篆刻作品展”在杭州西泠印社美术馆开幕，展出328枚造型新颖、兼具艺术性与创新性的大众篆刻作品。
+京东工业（07618）绩后一度涨超7%，截至发稿，股价上涨4.58%，现报15.06港元，成交额1627.87万港元。
 
-近年来，新大众文艺蓬勃兴起、方兴未艾，推动中华优秀传统文化实现创造性转化、创新性发展，成为新时代文艺工作的重要方向。
+5月12日，京东工业发布2026年一季度业绩，收入达56.6亿元，同比增长25.3%，期间非国际财务报告准则利润达2.3亿元，同比增长54.4%，展示了健康的增长态势。
 
-篆刻艺术作为中华传统文脉的经典载体，历经千年传承，正打破小众圈层的局限，在大众参与、创新表达中焕发新生。
+其中，工业大模型JoyIndustrial的全链路创新和落地应用产出了明确价值，近40款AI智能体已经服务超3000家重点企业客户，同时，大模型驱动商品标准化建设和工业品价格指数构建，后者已经开放产业内测，帮助以央国企为代表的大型企业解决商品价格合规难题。
 
-西泠印社名誉社长韩天衡受访时直言，在“诗书画印”四大传统艺术中，唯有篆刻难以普及，令人遗憾。
+同日，京东工业发布公告，董事会已授权并批准自批准日期起计24个月期间，在公开市场回购最多价值2亿美元的本公司股份的计划。
 
-“石材名贵、简化字应用、键盘输入盛行、手工篆刻难掌握——许多青少年对它渐行陌生。
+董事会相信，于目前情况下进行拟议股份购回说明本公司对其当前及长期业务展望及前景的信心，最终会为本公司带来裨益及为股东创造价值。
 
-” 这次展览透露出的最大信号是：篆刻如何走向大众。
-
-韩天衡认为，大众篆刻最重要的突破之一，是不再局限于使用篆书入印。
-
-“隶书、楷书、简化字都可以，甚至英文或其他国家文字也可以。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 17:33 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 17:25 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 17:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 17:38 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:20 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 17:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 17:14 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 17:19 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 17:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 17:28 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 17:23 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 17:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 17:38 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 17:41 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 17:26 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:30 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 17:37 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 17:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 17:31 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 17:38 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 17:24 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 17:27 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 17:46 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3438712.shtml)
-- 2026-06-29 17:36 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/1333533101.shtml)
-- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/71658699.shtml)
-- 2026-06-29 17:16 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/71472716415.shtml)
-- 2026-06-29 17:17 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/486141828.shtml)
-- 2026-06-29 17:12 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/28925486724.shtml)
-- 2026-06-29 17:31 - [一生一世](http://www.share.minike.top/Article/details/9658389087.shtml)
-- 2026-06-29 17:29 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/77586465111.shtml)
-- 2026-06-29 17:27 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/769059667015.shtml)
-- 2026-06-29 17:27 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/5985747.shtml)
-- 2026-06-29 17:25 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/0069973.shtml)
-- 2026-06-29 17:33 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/7480311430.shtml)
-- 2026-06-29 17:37 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/944515900865.shtml)
-- 2026-06-29 17:29 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/1123327.shtml)
-- 2026-06-29 17:40 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/066983864.shtml)
+- 2026-06-29 17:35 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/8543516604.shtml)
+- 2026-06-29 17:37 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/477650107471.shtml)
+- 2026-06-29 17:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/56522521327.shtml)
+- 2026-06-29 17:27 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/076412978.shtml)
+- 2026-06-29 17:46 - [斗破苍穹](http://www.blog.minike.top/Article/details/784042288071.shtml)
+- 2026-06-29 17:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/68633.shtml)
+- 2026-06-29 17:36 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/371450.shtml)
+- 2026-06-29 17:41 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/7441907815.shtml)
+- 2026-06-29 17:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/10452889.shtml)
+- 2026-06-29 17:44 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/2297907.shtml)
+- 2026-06-29 17:26 - [急先锋](https://www.blog.minike.top/Article/details/514058184.shtml)
+- 2026-06-29 17:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/7943691.shtml)
+- 2026-06-29 17:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/6932929739.shtml)
+- 2026-06-29 17:36 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/079010701.shtml)
+- 2026-06-29 17:36 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/5944907977.shtml)

@@ -1,51 +1,56 @@
-# 东方盛虹：2025年净利润1.34亿元 同比扭亏
+# 中信建投期货：5月14日黑色系早报
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑
+钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。 2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%
 
 ## 正文
 
-人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。
+钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。
 
-报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑战，原油价格呈宽幅震荡、中枢下移趋势，叠加部分下游行业需求阶段性承压，公司营业收入增长受到一定影响。
+2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。
 
-责任编辑：刘万里 SF014
+美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%，均远超市场预期。
+
+3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸洗、冷轧、无取向硅钢等产品上调100元/吨。
+
+4、 5月4日-10日，10个重点城市新建商品房成交（签约）面积总计132.1万平方米，环比下降16.2%；二手房成交（签约）面积总计217.85万平方米，环比增长10.9%。
+
+5、 5月13日，全国主港铁矿石成交85.40万吨，环比增47.2%；237家主流贸易商建筑钢材成交9.71万吨，环比增5.7%。
+
+6、 5 月13日，76家独立电弧炉建筑钢材钢厂平均成本为3358元/吨，日环比持平，平均利润为19元/吨，谷电利润为118元/吨。
+
+7、 据百年建筑调研，截至5月12日，样本建筑工地资金到位率为54.96%，较上一期下降0.4个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 17:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 17:25 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 17:36 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 17:36 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 17:36 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 17:19 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 17:30 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 17:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 17:27 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 17:40 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 17:31 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 17:30 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 17:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 17:26 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 17:24 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 17:29 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 17:30 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 17:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 17:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 17:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:18 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:29 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 17:40 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/78783632.shtml)
-- 2026-06-29 17:35 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/583513.shtml)
-- 2026-06-29 17:23 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/629299632525.shtml)
-- 2026-06-29 17:17 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/8385771.shtml)
-- 2026-06-29 17:35 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/1275620521.shtml)
-- 2026-06-29 17:16 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/52771324.shtml)
-- 2026-06-29 17:22 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1857264957.shtml)
-- 2026-06-29 17:16 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/578666233912.shtml)
-- 2026-06-29 17:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/4402752.shtml)
-- 2026-06-29 17:22 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/1837527339.shtml)
-- 2026-06-29 17:20 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/762302887.shtml)
-- 2026-06-29 17:23 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/8809039.shtml)
-- 2026-06-29 17:18 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/615214249639.shtml)
-- 2026-06-29 17:35 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/315220525261.shtml)
-- 2026-06-29 17:15 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/345713513.shtml)
+- 2026-06-29 17:22 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/48299304.shtml)
+- 2026-06-29 17:21 - [请回答王牌2019](https://www.blog.minike.top/Article/details/7054826632.shtml)
+- 2026-06-29 17:19 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/9707051.shtml)
+- 2026-06-29 17:22 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/79780.shtml)
+- 2026-06-29 17:42 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/62720341.shtml)
+- 2026-06-29 17:41 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/325523134.shtml)
+- 2026-06-29 17:19 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/7141942747.shtml)
+- 2026-06-29 17:40 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/3953630176.shtml)
+- 2026-06-29 17:43 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/91181377517.shtml)
+- 2026-06-29 17:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/149536914821.shtml)
+- 2026-06-29 17:27 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/495818170.shtml)
+- 2026-06-29 17:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/661576.shtml)
+- 2026-06-29 17:24 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/111857126.shtml)
+- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/034387533458.shtml)
+- 2026-06-29 17:47 - [扬名立万](http://www.share.minike.top/Article/details/96332729323.shtml)

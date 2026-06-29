@@ -1,59 +1,56 @@
-# 沃什领导下的美联储料推动美债收益率曲线趋陡交易复苏
+# 市场监管总局：一季度全国新设经营主体509.8万户
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-华尔街策略师表示，凯文·沃什领导下的美联储可能会使规模31万亿美元的美国国债市场脱离狭窄的交易区间。策略师敦促投资者为短债收益率最终走低做好准备。 美国国债收益率周一上涨2至3个基点，迈向2020年底以来最窄的月度波动区间。随着美伊和谈陷入僵局，且市场普遍预期美联储本周将维持利率不变，10年期国债收益率上涨3个基点至4.33%。 至少在现货债券交易中，这种低波动性环境让策略师开
+中新网5月13日电 据“市说新语”微信公众号消息，5月13日，市场监管总局公布数据显示，2026年第一季度，全国新设经营主体509.8万户。其中，新设企业207.4万户，新设个体工商户301.4万户。经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。产业结构持续优化。第一季度，第一产业新设经营主体22.9万户、第二产业新设39.6万户、第三产业新设447.3万户。截
 
 ## 正文
 
-华尔街策略师表示，凯文·沃什领导下的美联储可能会使规模31万亿美元的美国国债市场脱离狭窄的交易区间。
+中新网5月13日电 据“市说新语”微信公众号消息，5月13日，市场监管总局公布数据显示，2026年第一季度，全国新设经营主体509.8万户。
 
-策略师敦促投资者为短债收益率最终走低做好准备。
+其中，新设企业207.4万户，新设个体工商户301.4万户。
 
-美国国债收益率周一上涨2至3个基点，迈向2020年底以来最窄的月度波动区间。
+经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。
 
-随着美伊和谈陷入僵局，且市场普遍预期美联储本周将维持利率不变，10年期国债收益率上涨3个基点至4.33%。
+产业结构持续优化。
 
-至少在现货债券交易中，这种低波动性环境让策略师开始关注更长期的催化剂，而前美联储理事沃什接替鲍威尔担任美联储主席的任命本周将面临投票。
+第一季度，第一产业新设经营主体22.9万户、第二产业新设39.6万户、第三产业新设447.3万户。
 
-以Matthew Hornbach为首的团队指出，在沃什领导下，美联储可能采用新的通胀指标、减少前瞻指引，推动缩小资产负债表规模，这些变化“可能会提高每次议息会议之间的波动性”。
+截至3月底，全国登记在册“四新”经济企业2684.8万户，同比增长6.8%，占企业总量的40.9%。
 
-他们以及华尔街其他人士预计，这将影响短债收益率，所谓的收益率曲线趋陡交易也将复苏。
+制造业相关企业迭代升级。
 
-不过，目前债券市场在经历了上个月的暴跌后基本保持稳定。
+第一季度，高技术制造业加快增长，其中“集成电路制造”新设经营主体同比增长31.0%，“智能无人飞行器制造”同比增长15.7%。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 17:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 17:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 17:26 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 17:19 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 17:32 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 17:38 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:26 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 17:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 17:13 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 17:33 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 17:36 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 17:21 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 17:26 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 17:43 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 17:25 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 17:27 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 17:25 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 17:35 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 17:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 17:36 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 17:19 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 17:43 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/180780614421.shtml)
-- 2026-06-29 17:18 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/56365773.shtml)
-- 2026-06-29 17:16 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/739287140.shtml)
-- 2026-06-29 17:20 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/7940965.shtml)
-- 2026-06-29 17:35 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/38072686.shtml)
-- 2026-06-29 17:35 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/340645660.shtml)
-- 2026-06-29 17:23 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/165564604.shtml)
-- 2026-06-29 17:32 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/07501625.shtml)
-- 2026-06-29 17:19 - [周生如故](http://www.blog.minike.top/Article/details/578351.shtml)
-- 2026-06-29 17:41 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/73600187985.shtml)
-- 2026-06-29 17:19 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/9909001939.shtml)
-- 2026-06-29 17:21 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/018377.shtml)
-- 2026-06-29 17:36 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/73451281657.shtml)
-- 2026-06-29 17:28 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/74589922.shtml)
-- 2026-06-29 17:21 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/97223561.shtml)
+- 2026-06-29 17:41 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/9357090.shtml)
+- 2026-06-29 17:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/594471.shtml)
+- 2026-06-29 17:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/5792287.shtml)
+- 2026-06-29 17:39 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/971462.shtml)
+- 2026-06-29 17:46 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/1809779.shtml)
+- 2026-06-29 17:35 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/55361.shtml)
+- 2026-06-29 17:38 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/809830961.shtml)
+- 2026-06-29 17:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/271403180340.shtml)
+- 2026-06-29 17:22 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/37405799.shtml)
+- 2026-06-29 17:33 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/078936.shtml)
+- 2026-06-29 17:29 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/404618043681.shtml)
+- 2026-06-29 17:43 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/9152188.shtml)
+- 2026-06-29 17:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/228571179.shtml)
+- 2026-06-29 17:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/041252173924.shtml)
+- 2026-06-29 17:18 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/861891765484.shtml)

@@ -1,56 +1,55 @@
-# 金价困守4700美元关口，全球央行购金策略分化
+# NextGeo获得1170万美元地中海海底作业合同
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-相较于过去几年央行“一边倒”买入黄金的局面，当前的分歧确实增加了市场的不确定性。 国际黄金市场暂时进入“沉闷期”。近期伦敦黄金现货价格围绕4700美元/盎司反复拉锯，既缺乏冲破上轨的勇气，也未出现恐慌性抛压。曾经一致做多的全球黄金“大买家”们出现罕见分歧。一边是土耳其央行单周大举增持30.7吨黄金，重建储备并了结部分掉期头寸；另一边，阿塞拜疆国家石油基金一季度却抛售逾22吨黄金
+意大利海上服务提供商Next Geosolutions获得了一份价值约1170万美元的合同，为中地中海某海底能源基础设施项目提供地球物理调查及未爆炸物相关作业。 该公司表示，合同由一家从事海底电力电缆领域的国际客户授予。 该项目将涉及海上及近岸作业，使用多艘船只进行地球物理调查以及未爆炸物的识别与清除工作。 NextGeo表示，这项工作将通过识别并在必要时清除海床上检测到的异常
 
 ## 正文
 
-相较于过去几年央行“一边倒”买入黄金的局面，当前的分歧确实增加了市场的不确定性。
+意大利海上服务提供商Next Geosolutions获得了一份价值约1170万美元的合同，为中地中海某海底能源基础设施项目提供地球物理调查及未爆炸物相关作业。
 
-国际黄金市场暂时进入“沉闷期”。
+该公司表示，合同由一家从事海底电力电缆领域的国际客户授予。
 
-近期伦敦黄金现货价格围绕4700美元/盎司反复拉锯，既缺乏冲破上轨的勇气，也未出现恐慌性抛压。
+该项目将涉及海上及近岸作业，使用多艘船只进行地球物理调查以及未爆炸物的识别与清除工作。
 
-曾经一致做多的全球黄金“大买家”们出现罕见分歧。
+NextGeo表示，这项工作将通过识别并在必要时清除海床上检测到的异常物体，来支持海底基础设施的安全安装。
 
-一边是土耳其央行单周大举增持30.7吨黄金，重建储备并了结部分掉期头寸；另一边，阿塞拜疆国家石油基金一季度却抛售逾22吨黄金，创下2012年以来首次减持纪录。
+该合同将分两个阶段执行，预计于2026年第三季度完成。
 
-与此同时，瑞士央行行长Martin Schlegel在年度股东大会上明确表态：黄金储备“不增不减”。
+NextGeo首席执行官乔瓦尼·拉涅利表示：“该合同确认了NextGeo在管理近岸和海上环境复杂调查作业方面的技术和运营专业能力，并进一步巩固了我们在地球物理与未爆炸物调查服务领域的市场地位，为欧洲、中东和非洲地区的战略能源基础设施项目提供支持。
 
-星展银行（中国）高级投资策略师邓志坚对第一财经分析称，短期内中东部分国家依旧在抛售黄金以变现，所以黄金价格难以在短期内重回5000美元/盎司。
-
-中长期看，投资者对黄金的需求依然强劲，截至目前，COMEX黄金期货远期合约价格维持在4800美元/盎司以上，明年9月到期合约报价将超过5000美元/盎司。
+”责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 17:17 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 17:37 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 17:22 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 17:30 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 17:30 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 17:18 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 17:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 17:40 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 17:31 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 17:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 17:25 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 17:30 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 17:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 17:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:21 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 17:31 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 17:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:30 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 17:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 17:24 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/5010761065.shtml)
-- 2026-06-29 17:18 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/16205556079.shtml)
-- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/451925549.shtml)
-- 2026-06-29 17:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/93786.shtml)
-- 2026-06-29 17:12 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/24967.shtml)
-- 2026-06-29 17:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/202879308.shtml)
-- 2026-06-29 17:31 - [TTG KSG](http://www.share.minike.top/Article/details/00818.shtml)
-- 2026-06-29 17:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/38364547.shtml)
-- 2026-06-29 17:22 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/82977038.shtml)
-- 2026-06-29 17:23 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/6328417.shtml)
-- 2026-06-29 17:22 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/1976097135.shtml)
-- 2026-06-29 17:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/179120.shtml)
-- 2026-06-29 17:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/1600112.shtml)
-- 2026-06-29 17:16 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/061454379788.shtml)
-- 2026-06-29 17:35 - [叠纸](http://www.share.minike.top/Article/details/629166487.shtml)
+- 2026-06-29 17:33 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/65586118.shtml)
+- 2026-06-29 17:39 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/54544.shtml)
+- 2026-06-29 17:27 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/839370882243.shtml)
+- 2026-06-29 17:21 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/54624154747.shtml)
+- 2026-06-29 17:45 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/04592095.shtml)
+- 2026-06-29 17:47 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/124324795369.shtml)
+- 2026-06-29 17:47 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/93038607.shtml)
+- 2026-06-29 17:40 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/15318898823.shtml)
+- 2026-06-29 17:34 - [起风了](https://www.share.minike.top/Article/details/76106585.shtml)
+- 2026-06-29 17:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/3146602930.shtml)
+- 2026-06-29 17:36 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/23552707.shtml)
+- 2026-06-29 17:33 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/673008.shtml)
+- 2026-06-29 17:35 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/242312398.shtml)
+- 2026-06-29 17:47 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/237152.shtml)
+- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/00309244.shtml)

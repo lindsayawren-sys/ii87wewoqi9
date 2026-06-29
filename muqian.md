@@ -1,56 +1,44 @@
-# 广东多地遇强降雨 珠江流域部分河流或有超警洪水
+# 一季度我国水电清洁能源基地建设全面提速
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。 28日中午，广州乌云压城，暴雨倾盆。由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。“这个雨太大了，行车视线很受影响。”网约车司机曹庆仁告诉记者，暴
+发布时间：2026年05月14日 09:37 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-中新社广州4月28日电 (记者 王坚)受强对流云团影响，广东28日开启“倒水模式”，广州、深圳、佛山等地遭遇强降雨。
-
-当日下午仅三小时，全省已有27个镇街录得降雨量超50毫米的暴雨、大暴雨。
-
-28日中午，广州乌云压城，暴雨倾盆。
-
-由于雨势太大，广州市中心珠江新城相隔仅数百米的高楼大厦都被雨幕遮挡起来，部分街道出现水浸。
-
-“这个雨太大了，行车视线很受影响。
-
-”网约车司机曹庆仁告诉记者，暴雨时，他为了行车安全，暂停接单，将车停到了安全区域休息。
-
-广东气象部门介绍，据气象监测显示，28日13至16时，全省有7个镇街录得超过100毫米的大暴雨，有20个镇街录得50至100毫米的暴雨，有60个镇街录得25至50毫米的大雨。
-
-气象专家表示，预计28日夜间到29日白天，广东自西向东还将有大雨到暴雨局部大暴雨，部分市县伴有短时强降水、8至10级雷雨大风和局地冰雹等强对流天气，气温也将小幅下降。
+发布时间：2026年05月14日 09:37 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 17:26 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 17:23 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 17:32 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 17:36 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 17:24 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 17:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 17:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 17:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 17:21 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 17:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 17:23 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 17:28 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 17:29 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 17:26 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 17:32 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 17:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 17:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 17:45 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 17:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 17:18 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/09439370430.shtml)
-- 2026-06-29 17:34 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/788928568356.shtml)
-- 2026-06-29 17:25 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/6800652455.shtml)
-- 2026-06-29 17:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/81903608559.shtml)
-- 2026-06-29 17:28 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/40699212.shtml)
-- 2026-06-29 17:34 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/678680778171.shtml)
-- 2026-06-29 17:12 - [重度抑郁女孩没钱去做心理咨询](http://www.share.minike.top/Article/details/949404462.shtml)
-- 2026-06-29 17:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/9439106869.shtml)
-- 2026-06-29 17:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/559432.shtml)
-- 2026-06-29 17:13 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/64070.shtml)
-- 2026-06-29 17:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/38940696.shtml)
-- 2026-06-29 17:32 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/335934685432.shtml)
-- 2026-06-29 17:29 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/05691071.shtml)
-- 2026-06-29 17:23 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/826077.shtml)
-- 2026-06-29 17:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/539529642130.shtml)
+- 2026-06-29 17:42 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/120412501.shtml)
+- 2026-06-29 17:19 - [扫黑风暴](http://www.share.minike.top/Article/details/59893737124.shtml)
+- 2026-06-29 17:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/304794125003.shtml)
+- 2026-06-29 17:42 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/995582511.shtml)
+- 2026-06-29 17:37 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/63591.shtml)
+- 2026-06-29 17:40 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/216368.shtml)
+- 2026-06-29 17:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/3437735218.shtml)
+- 2026-06-29 17:44 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/2537100.shtml)
+- 2026-06-29 17:47 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/9822311004.shtml)
+- 2026-06-29 17:42 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/28060082.shtml)
+- 2026-06-29 17:21 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/14162241082.shtml)
+- 2026-06-29 17:40 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/90904149.shtml)
+- 2026-06-29 17:30 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/597167.shtml)
+- 2026-06-29 17:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/37064340.shtml)
+- 2026-06-29 17:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/57086.shtml)

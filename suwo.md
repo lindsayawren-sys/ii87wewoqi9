@@ -1,55 +1,46 @@
-# 三部门发文规范慈善组织募捐成本支出
+# 中国U17男足获得2026年世少赛参赛资格
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-4月27日，民政部会同财政部、税务总局发布《关于慈善组织开展慈善活动年度支出、管理费用和募捐成本的规定》，明确慈善组织募捐成本定义，规定慈善组织的年度募捐成本不得高于前三年捐赠收入平均数的3%。规定自发布之日起施行。规定明确，慈善组织的募捐成本是指慈善组织基于慈善宗旨，在募集财产时发生的费用。规定要求，募捐活动中涉及本组织场地设备和工作人员的相关费用，不得计入募捐成本，明确慈善
+新华社快讯：在刚刚结束的2026年亚足联U17男足亚洲杯小组赛B组第三轮比赛中，中国队以2:0击败卡塔尔队，时隔21年再次获得U17男足世界杯(世少赛)参赛资格。
 
 ## 正文
 
-4月27日，民政部会同财政部、税务总局发布《关于慈善组织开展慈善活动年度支出、管理费用和募捐成本的规定》，明确慈善组织募捐成本定义，规定慈善组织的年度募捐成本不得高于前三年捐赠收入平均数的3%。
-
-规定自发布之日起施行。
-
-规定明确，慈善组织的募捐成本是指慈善组织基于慈善宗旨，在募集财产时发生的费用。
-
-规定要求，募捐活动中涉及本组织场地设备和工作人员的相关费用，不得计入募捐成本，明确慈善组织应当据实列支募捐成本。
-
-据介绍，设定募捐成本3%的上限，充分考虑了不同类型、不同规模慈善组织实际需要，遵循慈善法规定的募捐成本最必要原则，有利于引导慈善组织将所募资金更多用于受益人，充分、高效运用慈善财产。
-
-（记者朱高祥）
+新华社快讯：在刚刚结束的2026年亚足联U17男足亚洲杯小组赛B组第三轮比赛中，中国队以2:0击败卡塔尔队，时隔21年再次获得U17男足世界杯(世少赛)参赛资格。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 17:25 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 17:12 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 17:12 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 17:32 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 17:33 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 17:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 17:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 17:35 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 17:31 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 17:34 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 17:23 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 17:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 17:39 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 17:44 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 17:28 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 17:26 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 17:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:45 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 17:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 17:18 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 17:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 17:40 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 17:22 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 17:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 17:41 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 17:24 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:16 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/237342.shtml)
-- 2026-06-29 17:31 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/6849745.shtml)
-- 2026-06-29 17:22 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/198831.shtml)
-- 2026-06-29 17:39 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/668756623.shtml)
-- 2026-06-29 17:15 - [毒液2](https://www.blog.kurohicncr.top/Article/details/77040221945.shtml)
-- 2026-06-29 17:15 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/46851811.shtml)
-- 2026-06-29 17:31 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/0672617.shtml)
-- 2026-06-29 17:32 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/28707360763.shtml)
-- 2026-06-29 17:16 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/37314.shtml)
-- 2026-06-29 17:13 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/70814.shtml)
-- 2026-06-29 17:16 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/473122400163.shtml)
-- 2026-06-29 17:34 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/189692532591.shtml)
-- 2026-06-29 17:16 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/317004031903.shtml)
-- 2026-06-29 17:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/9369709199.shtml)
-- 2026-06-29 17:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/30380985.shtml)
+- 2026-06-29 17:28 - [速度与激情9](http://www.blog.minike.top/Article/details/528509432.shtml)
+- 2026-06-29 17:25 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/54085.shtml)
+- 2026-06-29 17:43 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/453840111958.shtml)
+- 2026-06-29 17:43 - [啊啊啊](https://www.share.minike.top/Article/details/071325510023.shtml)
+- 2026-06-29 17:28 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/52325392306.shtml)
+- 2026-06-29 17:46 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/586416.shtml)
+- 2026-06-29 17:20 - [存储三巨头被告了](https://www.share.minike.top/Article/details/4119644.shtml)
+- 2026-06-29 17:27 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/56944.shtml)
+- 2026-06-29 17:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/047717.shtml)
+- 2026-06-29 17:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/336542258405.shtml)
+- 2026-06-29 17:41 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/86104544433.shtml)
+- 2026-06-29 17:26 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/4476634237.shtml)
+- 2026-06-29 17:41 - [极限挑战第一季](http://www.share.minike.top/Article/details/415126004.shtml)
+- 2026-06-29 17:32 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/680181.shtml)
+- 2026-06-29 17:20 - [税务总局披露5起合规申报个税案例](https://www.share.kurohicncr.top/Article/details/9527210903.shtml)

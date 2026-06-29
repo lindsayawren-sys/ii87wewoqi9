@@ -1,52 +1,60 @@
-# 马来西亚总理出席华为人工智能实验室与创新中心落成仪式
+# 中国和塔吉克斯坦关于深化新时代全面战略合作伙伴关系的联合声明
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新社吉隆坡4月27日电 据马新社报道，马来西亚总理安瓦尔27日在吉隆坡出席华为人工智能实验室与创新中心落成仪式时表示，马来西亚将继续对来自东西方的投资保持开放态度，并与尊重马来西亚国家法律和国家优先事项的企业建立合作关系。安瓦尔强调，技术可以来自世界各地，但有关数据治理、人工智能系统在公共机构中的使用，以及新技术如何进入民众日常生活等关键决策，必须由马来西亚自主掌控。 他说，
+中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明icon_voice_onicon_voice 新华社北京5月12日电中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明 应中华人民共和国主席习近平邀请，塔吉克斯坦共和国总统埃莫马利·拉赫蒙于2026年5月11日至14日对中华人民共和国进行国事访问。 两国元首在亲切友好的气氛中
 
 ## 正文
 
-中新社吉隆坡4月27日电 据马新社报道，马来西亚总理安瓦尔27日在吉隆坡出席华为人工智能实验室与创新中心落成仪式时表示，马来西亚将继续对来自东西方的投资保持开放态度，并与尊重马来西亚国家法律和国家优先事项的企业建立合作关系。
+中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明icon_voice_onicon_voice 新华社北京5月12日电中华人民共和国和塔吉克斯坦共和国关于深化新时代全面战略合作伙伴关系的联合声明 应中华人民共和国主席习近平邀请，塔吉克斯坦共和国总统埃莫马利·拉赫蒙于2026年5月11日至14日对中华人民共和国进行国事访问。
 
-安瓦尔强调，技术可以来自世界各地，但有关数据治理、人工智能系统在公共机构中的使用，以及新技术如何进入民众日常生活等关键决策，必须由马来西亚自主掌控。
+两国元首在亲切友好的气氛中举行会谈，就中华人民共和国和塔吉克斯坦共和国（以下称“双方”）关系、深化全方位平等合作以及共同关心的国际和地区问题深入交换意见，达成广泛共识。
 
-他说，马来西亚不会仅仅停留在人工智能使用者的角色，而是将与合作伙伴共同建设自身能力，在全球数字经济中更有信心地展开竞争。
+双方高度评价2024年7月《中华人民共和国和塔吉克斯坦共和国关于发展新时代全面战略合作伙伴关系的联合声明》签署以来双边关系进展，一致同意秉持世代友好、休戚与共、互利共赢的精神，进一步深化中塔新时代全面战略合作伙伴关系，推动构建双边命运共同体。
 
-新启用的华为人工智能实验室与创新中心将服务整个亚太地区。
+一、双方强调，高层交往对中塔关系发展具有重要意义，愿落实两国元首达成的重要共识。
 
-该设施总面积达13638平方英尺(约合1267平方米)，将展示华为在数字化转型与能源转型领域的最新解决方案及应用案例，并促进创新合作与生态系统建设。
+进一步密切中央和地方政府、立法机构、政党等领域交往合作，深化治国理政经验交流。
 
-(完)
+双方强调建立两国外长战略对话机制具有重要意义，愿发挥该机制作用推动两国合作。
+
+二、中方高度评价在埃莫马利·拉赫蒙总统的领导下，塔吉克斯坦共和国为巩固国家主权、安全和领土完整，推进对外开放取得的成就。
+
+中方一如既往坚定支持塔方自主选择的发展道路，尊重塔方实行开放、务实、和平外交政策，认为塔方政策不仅提升自身国际声望，并成为中亚地区的主要稳定因素。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 17:25 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 17:41 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:37 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:32 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 17:16 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 17:40 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 17:15 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 17:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:35 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 17:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 17:42 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 17:44 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 17:26 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 17:24 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 17:34 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 17:21 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 17:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 17:44 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 17:41 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 17:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:42 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/88948510.shtml)
-- 2026-06-29 17:22 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/58091978477.shtml)
-- 2026-06-29 17:15 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/353531.shtml)
-- 2026-06-29 17:25 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/67976.shtml)
-- 2026-06-29 17:36 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/2118048793.shtml)
-- 2026-06-29 17:13 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/471076608.shtml)
-- 2026-06-29 17:14 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/3710416200.shtml)
-- 2026-06-29 17:23 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/962698363.shtml)
-- 2026-06-29 17:40 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/20030.shtml)
-- 2026-06-29 17:25 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/54392685666.shtml)
-- 2026-06-29 17:33 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/702923.shtml)
-- 2026-06-29 17:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/45484.shtml)
-- 2026-06-29 17:27 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/323807327671.shtml)
-- 2026-06-29 17:40 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/61397.shtml)
-- 2026-06-29 17:21 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/87370.shtml)
+- 2026-06-29 17:33 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/01561740.shtml)
+- 2026-06-29 17:33 - [机器人学校开学了](https://www.blog.minike.top/Article/details/4609262187.shtml)
+- 2026-06-29 17:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/24344.shtml)
+- 2026-06-29 17:29 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/634880.shtml)
+- 2026-06-29 17:26 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/01560000.shtml)
+- 2026-06-29 17:29 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/95542.shtml)
+- 2026-06-29 17:45 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/32610426746.shtml)
+- 2026-06-29 17:38 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/531466.shtml)
+- 2026-06-29 17:40 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/9262020.shtml)
+- 2026-06-29 17:25 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/535558236967.shtml)
+- 2026-06-29 17:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/198669779422.shtml)
+- 2026-06-29 17:29 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/785368203.shtml)
+- 2026-06-29 17:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/80355806.shtml)
+- 2026-06-29 17:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/2615076.shtml)
+- 2026-06-29 17:19 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/8039646697.shtml)

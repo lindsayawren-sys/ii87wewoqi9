@@ -1,51 +1,56 @@
-# 北京今起调整两条快速公交专用道设置 社会车辆可限时通行
+# 沃什治下的美联储，或成美股最大的“灰犀牛”
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-根据北京市交通委员会、北京市公安局交通管理局联合发布的《关于进一步优化调整公交专用道设置及通行管理的通告》，今天起，BRT2、BRT3运行线路公交专用道，统一调整为工作日7时—9时、17时—19时为公交专用道，其他时间可供社会车辆通行。 此次公交专用道优化调整涉及的BRT2运行线路，主要是针对朝阳门外大街、朝阳路一线公交专用道，从东大桥路至杨闸环岛路段，道路中央主路外侧车道原来
+来源：金十数据 随着鲍威尔任期届满，华尔街正屏息迎接“沃什时代”。这位候任联储主席意欲颠覆执行14年的2%通胀目标，其鹰派底色与模糊的通胀定义正为美股市场埋下巨大的不确定性。 美联储即将迎来权力的更迭。2026年5月15日，鲍威尔的第二任期将正式画上句号。如无意外，凯文·沃什将接过权杖，开启他在这一全球金融决策中枢的掌舵生涯。 然而，对于正处于高位运行的道琼斯指数、标普500及
 
 ## 正文
 
-根据北京市交通委员会、北京市公安局交通管理局联合发布的《关于进一步优化调整公交专用道设置及通行管理的通告》，今天起，BRT2、BRT3运行线路公交专用道，统一调整为工作日7时—9时、17时—19时为公交专用道，其他时间可供社会车辆通行。
+来源：金十数据 随着鲍威尔任期届满，华尔街正屏息迎接“沃什时代”。
 
-此次公交专用道优化调整涉及的BRT2运行线路，主要是针对朝阳门外大街、朝阳路一线公交专用道，从东大桥路至杨闸环岛路段，道路中央主路外侧车道原来设计为24小时快速公交专用道，此次统一将启用时间调整为工作日7时—9时、17时—19时公交专用道，设置形式不变。
+这位候任联储主席意欲颠覆执行14年的2%通胀目标，其鹰派底色与模糊的通胀定义正为美股市场埋下巨大的不确定性。
 
-BRT3运行线路的调整，主要是针对安定门外大街、安定路、安立路一线公交专用道，南起安定门桥、北至双营路，其中安定门桥至科荟路路段公交专用道启用时间由6时—22时调整至工作日7时—9时、17时—19时，科荟路至双营路路段公交专用车道设置与朝阳路类似，为道路中央主路外侧车道，由24小时快速公交车道调整为工作日7时—9时、17时—19时公交专用道，目前相关道路公交专用道标志、标线和非现场执法设备均已调整完毕，社会车辆可放心通行。
+美联储即将迎来权力的更迭。
 
-据了解，从2023年起，北京市已陆续进行4批次公交专用车道优化，目前除长安街等个别道路外，全市公交专用道均已调整为早晚高峰启用或者早晚高峰潮汐启用，有效均衡了相关路段各条车道的车流量，道路通行效率普遍提升5%到10%。
+2026年5月15日，鲍威尔的第二任期将正式画上句号。
 
-(总台央视记者 赵学荣) 来源：央视新闻客户端
+如无意外，凯文·沃什将接过权杖，开启他在这一全球金融决策中枢的掌舵生涯。
+
+然而，对于正处于高位运行的道琼斯指数、标普500及纳斯达克指数而言，这场人事的交替可能并非平稳的过渡，而是一场深刻“范式转移”的开始。
+
+自2012年1月以来，美联储一直将“2%通胀率”视为货币政策的铁律。
+
+这道14年来雷打不动的“红线”，既是衡量政策成效的标尺，也是全球投资者锚定预期的基石。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 17:18 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 17:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 17:36 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 17:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 17:17 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 17:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 17:16 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 17:23 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 17:24 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 17:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 17:28 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 17:37 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:26 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 17:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 17:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:20 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 17:36 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 17:29 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:26 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/9991647.shtml)
-- 2026-06-29 17:38 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/892161.shtml)
-- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/4688868588.shtml)
-- 2026-06-29 17:19 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/221537669.shtml)
-- 2026-06-29 17:40 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/7579621.shtml)
-- 2026-06-29 17:35 - [斗破苍穹](https://www.blog.minike.top/Article/details/04243.shtml)
-- 2026-06-29 17:30 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/740021660133.shtml)
-- 2026-06-29 17:29 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/27207.shtml)
-- 2026-06-29 17:12 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/421379958.shtml)
-- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/3564906101.shtml)
-- 2026-06-29 17:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/442871.shtml)
-- 2026-06-29 17:27 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.minike.top/Article/details/292258629.shtml)
-- 2026-06-29 17:34 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/646962.shtml)
-- 2026-06-29 17:22 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/12414.shtml)
-- 2026-06-29 17:32 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/147406229926.shtml)
+- 2026-06-29 17:34 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/70784794150.shtml)
+- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/9749293.shtml)
+- 2026-06-29 17:28 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/315832.shtml)
+- 2026-06-29 17:28 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/1669520900.shtml)
+- 2026-06-29 17:20 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/09867266.shtml)
+- 2026-06-29 17:32 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/97048.shtml)
+- 2026-06-29 17:18 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/94357551471.shtml)
+- 2026-06-29 17:47 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/03205777.shtml)
+- 2026-06-29 17:28 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/1004584724.shtml)
+- 2026-06-29 17:21 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/2395236758.shtml)
+- 2026-06-29 17:19 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51897658.shtml)
+- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/31300533130.shtml)
+- 2026-06-29 17:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5506923.shtml)
+- 2026-06-29 17:25 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/02868609.shtml)
+- 2026-06-29 17:47 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/381135.shtml)

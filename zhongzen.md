@@ -1,61 +1,57 @@
-# 亚沙会亮点纷呈：新增项目添活力 小众运动正“破圈”
+# 全球首个面向南方国家的教师数字素养提升行动计划发布
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网三亚4月27日电(记者 王子谦)第六届亚洲沙滩运动会(简称“三亚亚沙会”)激战正酣。本届赛事在延续传统项目的基础上，新增多个特色项目，亮点纷呈。 新增项目添活力 台克球、游跑两项、女子水球……三亚亚沙会新增项目涉及多个大类，不仅丰富了比赛内容，更彰显了赛事设项的灵活性和创新性。 女子水球是亚沙会史上首次设立的竞赛项目，与室内七人制水球赛不同，本届赛事采用四人制比赛，赛场设
+中新社杭州5月12日电 《全球南方教师数字素养提升行动计划》(简称“行动计划”)12日在杭州发布。记者从现场获悉，该计划是全球首个专门面向南方国家教师数字素养提升的国际行动方案，旨在系统性助力发展中国家应对教育数字化转型中的共性挑战。2026世界数字教育大会“为未来学校准备教师”平行会议当日在浙江杭州举行，行动计划于会上发布。 行动计划提出四项核心举措，包括搭建多边协同架构，健
 
 ## 正文
 
-中新网三亚4月27日电(记者 王子谦)第六届亚洲沙滩运动会(简称“三亚亚沙会”)激战正酣。
+中新社杭州5月12日电 《全球南方教师数字素养提升行动计划》(简称“行动计划”)12日在杭州发布。
 
-本届赛事在延续传统项目的基础上，新增多个特色项目，亮点纷呈。
+记者从现场获悉，该计划是全球首个专门面向南方国家教师数字素养提升的国际行动方案，旨在系统性助力发展中国家应对教育数字化转型中的共性挑战。
 
-新增项目添活力 台克球、游跑两项、女子水球……三亚亚沙会新增项目涉及多个大类，不仅丰富了比赛内容，更彰显了赛事设项的灵活性和创新性。
+2026世界数字教育大会“为未来学校准备教师”平行会议当日在浙江杭州举行，行动计划于会上发布。
 
-女子水球是亚沙会史上首次设立的竞赛项目，与室内七人制水球赛不同，本届赛事采用四人制比赛，赛场设在了公开水域，海风、水流、光照等自然因素都为比赛增添了不确定性，更加富有悬念。
+行动计划提出四项核心举措，包括搭建多边协同架构，健全全球南方教师数字素养协作机制；构建分层培训体系，深度对接联合国教科文组织“全球教师校园”，培育“种子教师”；共创本土实践枢纽，建设“数字教育样板学校”，在重点国家打造一批可观摩、可参与、可复制的本土化转型样板；拓展在地支持网络，依托“孔子学院”“鲁班工坊”等平台，为当地教师提供持续、便捷的在地化服务。
 
-沙滩田径在2014年首次成为亚沙会正式项目，本届赛事新增了女子跳高。
+据悉，该计划将由全球教师发展学院非洲学院(浙江师范大学)牵头协调推进，未来三年将重点启动协作机制搭建、高阶课程联合开发及“灯塔学校”试点等旗舰项目，为提升全球教师数字素养贡献中国智慧与可行方案。
 
-“在沙地比赛，跳高垫和横杆显得更小，垫子与背景无限延伸，视野极为开阔。
-
-”收获银牌的中国运动员胡麟鹏说，亚沙会的比赛氛围极好，观众的呐喊声清晰可闻。
-
-作为传统项目的龙舟，本届亚沙会首次设置100米直道赛。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 17:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 17:20 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 17:14 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 17:38 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:14 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 17:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 17:31 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 17:40 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 17:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 17:28 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 17:19 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 17:33 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 17:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 17:38 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 17:37 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 17:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 17:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 17:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 17:29 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 17:28 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 17:39 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 17:43 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:24 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:42 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 17:22 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 17:38 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 17:26 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 17:29 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/00109.shtml)
-- 2026-06-29 17:40 - [女心理师](https://www.share.kurohicncr.top/Article/details/81565475.shtml)
-- 2026-06-29 17:38 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/28656578254.shtml)
-- 2026-06-29 17:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/166213155.shtml)
-- 2026-06-29 17:14 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/3256993.shtml)
-- 2026-06-29 17:15 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/835427363367.shtml)
-- 2026-06-29 17:37 - [沙丘](https://www.share.kurohicncr.top/Article/details/69195119.shtml)
-- 2026-06-29 17:16 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/74026899658.shtml)
-- 2026-06-29 17:19 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/75452.shtml)
-- 2026-06-29 17:14 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/19778488192.shtml)
-- 2026-06-29 17:38 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/25379148.shtml)
-- 2026-06-29 17:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/94044.shtml)
-- 2026-06-29 17:37 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/47694998.shtml)
-- 2026-06-29 17:21 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/4861393193.shtml)
-- 2026-06-29 17:38 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/629737.shtml)
+- 2026-06-29 17:30 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/50683.shtml)
+- 2026-06-29 17:43 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/8712729550.shtml)
+- 2026-06-29 17:25 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/984050.shtml)
+- 2026-06-29 17:41 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/07468.shtml)
+- 2026-06-29 17:35 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/11595.shtml)
+- 2026-06-29 17:19 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/852944.shtml)
+- 2026-06-29 17:24 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/1301551.shtml)
+- 2026-06-29 17:19 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/082232.shtml)
+- 2026-06-29 17:26 - [一生一世](http://www.blog.kurohicncr.top/Article/details/836321483755.shtml)
+- 2026-06-29 17:18 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/216777600.shtml)
+- 2026-06-29 17:22 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/64327358391.shtml)
+- 2026-06-29 17:30 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/6009259.shtml)
+- 2026-06-29 17:39 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/765982730.shtml)
+- 2026-06-29 17:37 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/652428754627.shtml)
+- 2026-06-29 17:33 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/2011880463.shtml)

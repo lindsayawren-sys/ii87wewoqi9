@@ -1,61 +1,60 @@
-# 江苏银行换帅：葛仁余因年龄原因辞任，“70后”行长袁军接棒
+# 克里姆林宫：只要美国不再把经贸合作与乌克兰问题挂钩，俄罗斯就可以同美国开展商业往来
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。 公告显示，“近日江苏银行收到葛仁余先生的辞职报告。根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。” 据记者了解，在加入江苏银行
+克里姆林宫周三表示，只要美国不再把经贸关系与乌克兰和平协议捆绑在一起，俄罗斯有意与美国开展联合经济项目合作。 克里姆林宫发言人德米特里・佩斯科夫在每日记者简报会上，再次重申了结束冲突的强硬条件。这些条件由俄罗斯总统普京近两年前提出，已遭到乌克兰断然拒绝。 佩斯科夫称，多项联合投资与经济项目，都有望让俄美两国企业从中获益。 他表示：“只要美方愿意把经贸关系正常化前景与乌克兰问题和
 
 ## 正文
 
-21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。
+克里姆林宫周三表示，只要美国不再把经贸关系与乌克兰和平协议捆绑在一起，俄罗斯有意与美国开展联合经济项目合作。
 
-公告显示，“近日江苏银行收到葛仁余先生的辞职报告。
+克里姆林宫发言人德米特里・佩斯科夫在每日记者简报会上，再次重申了结束冲突的强硬条件。
 
-根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。
+这些条件由俄罗斯总统普京近两年前提出，已遭到乌克兰断然拒绝。
 
-” 据记者了解，在加入江苏银行前，葛仁余有着丰富的信息科技业务工作经验，曾任中国建设银行南京分行科技处处长助理、副处长，中国建设银行江苏省分行营业部运行中心经理、信息技术管理部总经理，南京银行信息技术部总经理。
+佩斯科夫称，多项联合投资与经济项目，都有望让俄美两国企业从中获益。
 
-2013年8月，葛仁余加入江苏银行任信息科技部总经理，2017年任首席信息官，2018年升任副行长，2023年担任董事长。
+他表示：“只要美方愿意把经贸关系正常化前景与乌克兰问题和解脱钩，或是乌克兰问题达成和解，我们就有望为一系列经济项目落地扫清道路。
 
-江苏银行在公告中评价，在葛仁余带领下，该行经营发展规模、效益、质量再上新台阶，综合实力、品牌价值、市场表现实现新跨越，在保持自身高质量发展的同时，持续以稳健优异的经营成果和价值创造积极回馈广大客户、股东和社会各界。
+” 普京曾表示，俄美有潜力联合开发北极海量矿产资源，也曾提出在阿拉斯加开展合作项目的可能性。
 
-此次接棒的袁军是一名“70后”金融老将，拥有丰富的银行管理经验。
+但目前，俄罗斯仍处于美国大范围制裁之下，制裁大多与俄乌冲突挂钩。
 
-公开简历显示，袁军出生于 1971 年，大学学历，工程硕士，正高级经济师。
+尽管特朗普一直试图促成停火，但至今未有突破性进展。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 17:19 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 17:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 17:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 17:20 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 17:15 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 17:25 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 17:13 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 17:25 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:25 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 17:41 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 17:34 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 17:40 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 17:33 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 17:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 17:42 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 17:24 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 17:46 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 17:40 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 17:42 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 17:19 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 17:19 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 17:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 17:29 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 17:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:34 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 17:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:28 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/071863.shtml)
-- 2026-06-29 17:20 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/073911357875.shtml)
-- 2026-06-29 17:35 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/79578.shtml)
-- 2026-06-29 17:38 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/1394097762.shtml)
-- 2026-06-29 17:38 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/663575.shtml)
-- 2026-06-29 17:33 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/48886363.shtml)
-- 2026-06-29 17:41 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/086449786077.shtml)
-- 2026-06-29 17:27 - [请回答王牌2019](https://www.blog.minike.top/Article/details/306061.shtml)
-- 2026-06-29 17:29 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/8297436710.shtml)
-- 2026-06-29 17:16 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/749458.shtml)
-- 2026-06-29 17:36 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/51496880712.shtml)
-- 2026-06-29 17:17 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/296511248042.shtml)
-- 2026-06-29 17:16 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/2699802.shtml)
-- 2026-06-29 17:35 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/70084.shtml)
-- 2026-06-29 17:37 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/95018285196.shtml)
+- 2026-06-29 17:38 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/65890.shtml)
+- 2026-06-29 17:34 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/4321410.shtml)
+- 2026-06-29 17:46 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/988555420106.shtml)
+- 2026-06-29 17:22 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/217552862.shtml)
+- 2026-06-29 17:25 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/863160714.shtml)
+- 2026-06-29 17:31 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/31436511385.shtml)
+- 2026-06-29 17:47 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/60629106911.shtml)
+- 2026-06-29 17:44 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/48521255009.shtml)
+- 2026-06-29 17:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/2430610907.shtml)
+- 2026-06-29 17:28 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/39106.shtml)
+- 2026-06-29 17:34 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/992485760521.shtml)
+- 2026-06-29 17:35 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/6717303.shtml)
+- 2026-06-29 17:28 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/80798.shtml)
+- 2026-06-29 17:41 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/602572973324.shtml)
+- 2026-06-29 17:35 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/6307107.shtml)

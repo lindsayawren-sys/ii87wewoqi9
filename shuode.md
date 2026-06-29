@@ -1,58 +1,58 @@
-# 上海市消保委：消费者权益保护需转向“事前预防+全程监管”
+# 受需求疲软影响，印度 4 月棕榈油进口量大跌 26%，降至四个月新低
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 (记者 陈静)上海市消保委28日披露的调查结果显示，AI技术正深刻重构消费决策逻辑，消费者对高效、透明、理性的AI消费服务需求迫切，但隐私安全、算法可信等问题仍需突破。 在当日举行的2026年第二期“提振消费维护权益”大讲堂上，上海市消保委发布《AI时代消费者认知与消费决策调查报告》(下称：调查报告)和《AI Agent时代消费者权益保护展望：从对抗信息
+印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。 作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。 总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油
 
 ## 正文
 
-中新网上海4月28日电 (记者 陈静)上海市消保委28日披露的调查结果显示，AI技术正深刻重构消费决策逻辑，消费者对高效、透明、理性的AI消费服务需求迫切，但隐私安全、算法可信等问题仍需突破。
+印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。
 
-在当日举行的2026年第二期“提振消费维护权益”大讲堂上，上海市消保委发布《AI时代消费者认知与消费决策调查报告》(下称：调查报告)和《AI Agent时代消费者权益保护展望：从对抗信息差到守护算力公平》。
+作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。
 
-本次活动由上海市消保委、上海市消保基金会主办，以“AI时代的消费者权益保护”为主题，汇聚政府部门、科技企业、相关平台、法律专家等各界代表。
+总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油进口量从3月的68.9462万吨，降至51.3403万吨，为2025年12月以来最低值。
 
-为把握人工智能技术对消费行为的影响，在AI Agent快速渗透消费场景、传统流量经济向算力经济转型的行业背景下，针对当前消费领域算法诱导、信息不对称、新型权益风险等问题，上海市消保委开展了“AI时代消费决策认知专项调查”。
+同期豆油进口量大增25%，至36.035万吨，创四个月新高；葵花籽油进口量飙升约121%，达43.424万吨，创下22个月最高水平。
 
-据悉，在流量经济模式下，低价引流、套路营销、明星代言是商家主流获客手段，消费者常因信息差和情绪煽动做出非理性决策。
+声明补充称，受葵花籽油、豆油采购量大幅提振，印度植物油总进口量环比上升10%，至131万吨。
 
-调查显示，品质可靠以76.72%的占比成为首要决策依据。
+印度棕榈油主要从印尼、马来西亚进口；豆油与葵花籽油则主要进口自阿根廷、巴西、俄罗斯及乌克兰。
 
-上海市消保委方面表示，这清晰反映出当前消费者心智日益成熟，消费决策呈现“重品质、轻诱导”的理性特征，品质安全已超越价格诱惑，成为消费决策的核心逻辑。
+孟买某全球贸易商从业人士表示：目前精炼利润为负，精炼企业正观望棕榈油价格回调，暂不进行大额采购。
 
-本次调查设计“你主要通过哪些渠道获取消费信息？
+该交易员称，印度目前遭遇食用油供应短缺，餐饮行业尤为明显，直接压低了棕榈油消费需求。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 17:19 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 17:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 17:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 17:27 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:19 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 17:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 17:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 17:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 17:40 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 17:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 17:32 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 17:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 17:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 17:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 17:18 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 17:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 17:21 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 17:44 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:43 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 17:19 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:34 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/559949711.shtml)
-- 2026-06-29 17:19 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/008632.shtml)
-- 2026-06-29 17:32 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/0502009.shtml)
-- 2026-06-29 17:22 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/7225282580.shtml)
-- 2026-06-29 17:22 - [毒液2](http://www.blog.minike.top/Article/details/759919398.shtml)
-- 2026-06-29 17:37 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/70787.shtml)
-- 2026-06-29 17:40 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/91040690530.shtml)
-- 2026-06-29 17:33 - [一生一世](https://www.blog.minike.top/Article/details/42187.shtml)
-- 2026-06-29 17:25 - [存储三巨头被告了](http://www.share.minike.top/Article/details/469527933689.shtml)
-- 2026-06-29 17:41 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/2000681.shtml)
-- 2026-06-29 17:37 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/403095840.shtml)
-- 2026-06-29 17:38 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/96755439.shtml)
-- 2026-06-29 17:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/0089249500.shtml)
-- 2026-06-29 17:30 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/94508.shtml)
-- 2026-06-29 17:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/185699.shtml)
+- 2026-06-29 17:28 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/7761350.shtml)
+- 2026-06-29 17:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/707550710960.shtml)
+- 2026-06-29 17:26 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/68899146392.shtml)
+- 2026-06-29 17:45 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/12606.shtml)
+- 2026-06-29 17:40 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/05017747.shtml)
+- 2026-06-29 17:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/213139075.shtml)
+- 2026-06-29 17:29 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/99387.shtml)
+- 2026-06-29 17:29 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/143489898989.shtml)
+- 2026-06-29 17:23 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/83281411.shtml)
+- 2026-06-29 17:38 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/28764733886.shtml)
+- 2026-06-29 17:39 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/913066465.shtml)
+- 2026-06-29 17:26 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/8845397.shtml)
+- 2026-06-29 17:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/4991191723.shtml)
+- 2026-06-29 17:21 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/063752.shtml)
+- 2026-06-29 17:37 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/656824.shtml)

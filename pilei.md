@@ -1,61 +1,59 @@
-# 骑手因获职业伤害赔偿被拒赔，法院判定保险公司“免责条款”无效
+# 北约拟邀海湾国家参加峰会 伊朗战争将成议题
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报一起案例。外卖骑手小周在送餐途中发生交通事故，虽已获得人社部门发放的职业伤害保障待遇，但保险公司依据保单中的“职业伤害免责条款”拒绝赔付商业意外险。法院经审理认为，该免责条款实质免除了保险人的责任，而保险公司未能证明已向作为实际投保人的小周履行提示和明确说明义务，故该条款不产生效力。最终，法院判决保险公司承担赔付责任，并明确平
+知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。 这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。 知情人士表示，这些国家的外交部长
 
 ## 正文
 
-新京报讯（记者张静姝）近日，北京市昌平区人民法院通报一起案例。
+知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。
 
-外卖骑手小周在送餐途中发生交通事故，虽已获得人社部门发放的职业伤害保障待遇，但保险公司依据保单中的“职业伤害免责条款”拒绝赔付商业意外险。
+这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。
 
-法院经审理认为，该免责条款实质免除了保险人的责任，而保险公司未能证明已向作为实际投保人的小周履行提示和明确说明义务，故该条款不产生效力。
+知情人士表示，这些国家的外交部长预计将受邀出席7月7日至8日在土耳其首都举行的会议。
 
-最终，法院判决保险公司承担赔付责任，并明确平台运营方非合同当事人，无需担责。
+此次会议召开之际，在伊朗战争爆发后，跨大西洋关系日益紧张。
 
-小周系某外卖平台众包骑手。
+此前，美国总统唐纳德·特朗普批评北约盟友未能协助重启霍尔木兹海峡航运，随后又宣布将从德国撤出约5000名驻军。
 
-2023 年 7 月，案外人某科技公司作为名义投保人为小周在某保险公司投保了“众包个人意外险”，保费由小周实际承担，投保操作亦由其本人通过平台完成。
+其中一位知情人士称，此举部分源于北约强化其所谓南翼的计划，尤其是在伊朗战争背景下。
 
-保单“特别约定”第七条载明：“若被保险人符合《新就业形态就业人员职业伤害保障办法》中约定的职业伤害情形，保险人不承担被保险人本人人身伤亡的保险金给付责任”。
+知情人士表示，本次峰会将设有一个核心会议，仅限32个成员国领导人参加，与去年类似；同时，北约也在考虑邀请印太地区或乌克兰等其他国家领导人，他们将参与周边活动。
 
-2023 年 11 月，小周在接单送餐途中发生交通事故受伤，构成十级伤残。
+他们还表示，此次峰会连续第二年计划以极为精简和压缩的形式举行，以配合美国总统的安排。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 17:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 17:13 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:31 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 17:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:39 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 17:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 17:32 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 17:27 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 17:14 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 17:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:28 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 17:28 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 17:17 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 17:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 17:20 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 17:21 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 17:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 17:22 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 17:44 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 17:25 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 17:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 17:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 17:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 17:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 17:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/212862.shtml)
-- 2026-06-29 17:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/595464.shtml)
-- 2026-06-29 17:39 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/55947753.shtml)
-- 2026-06-29 17:35 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/2252680.shtml)
-- 2026-06-29 17:19 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/78784535583.shtml)
-- 2026-06-29 17:12 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/562489.shtml)
-- 2026-06-29 17:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/44883246274.shtml)
-- 2026-06-29 17:36 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/778116295144.shtml)
-- 2026-06-29 17:40 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/449223572.shtml)
-- 2026-06-29 17:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/68494505761.shtml)
-- 2026-06-29 17:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/60412951.shtml)
-- 2026-06-29 17:33 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/236333689.shtml)
-- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/639111611.shtml)
-- 2026-06-29 17:22 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/8980376933.shtml)
-- 2026-06-29 17:12 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/70519.shtml)
+- 2026-06-29 17:42 - [金刚川](http://www.share.minike.top/Article/details/526829490322.shtml)
+- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/661927.shtml)
+- 2026-06-29 17:47 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/0001048.shtml)
+- 2026-06-29 17:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/85728751.shtml)
+- 2026-06-29 17:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/939888753.shtml)
+- 2026-06-29 17:29 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/047106498.shtml)
+- 2026-06-29 17:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/590944544.shtml)
+- 2026-06-29 17:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/19770996.shtml)
+- 2026-06-29 17:24 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/6390919.shtml)
+- 2026-06-29 17:38 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/35237395744.shtml)
+- 2026-06-29 17:25 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/2598558.shtml)
+- 2026-06-29 17:21 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/06930.shtml)
+- 2026-06-29 17:25 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/710706555.shtml)
+- 2026-06-29 17:35 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/3306991.shtml)
+- 2026-06-29 17:25 - [速度与激情9](https://www.share.minike.top/Article/details/65724535.shtml)

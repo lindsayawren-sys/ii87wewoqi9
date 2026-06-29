@@ -1,58 +1,56 @@
-# 从退役复出到两度奥运夺冠 徐诗晓称人生“躺平”不可取
+# 中英“乒乓外交”55周年纪念活动在伦敦举行
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 21:12 来源：中国新闻网 4月28日，皮划艇奥运冠军徐诗晓在江西南昌参加2026数字经济知识产权保护与发展交流会期间接受记者采访，聚焦当下热议的“躺平”话题，结合自身运动生涯感悟分享看法。 徐诗晓表示，当遭遇瓶颈与挫折时，出现情绪低谷、进行短暂休整实属正常，但一味选择“躺平”并不可取，逃避问题只会让困境反复出现。 徐诗晓曾经过退役后又选择复
+发布时间：2026年05月12日 22:14 来源：中国新闻网 当地时间5月11日，刚刚在2026年伦敦世乒赛荣膺男女团体冠军的中国乒乓球队应邀访问英国拉夫堡大学伦敦校区，参加在这里举行的中英“乒乓外交”55周年纪念活动。 中国驻英国大使郑泽光、中国乒乓球协会主席王励勤、英格兰乒乓球协会首席执行官洛克耶等出席并致辞。“乒乓外交”亲历者海德斯、英格兰乒乓球队运动员、教练员，拉夫堡
 
 ## 正文
 
-发布时间：2026年04月28日 21:12 来源：中国新闻网 4月28日，皮划艇奥运冠军徐诗晓在江西南昌参加2026数字经济知识产权保护与发展交流会期间接受记者采访，聚焦当下热议的“躺平”话题，结合自身运动生涯感悟分享看法。
+发布时间：2026年05月12日 22:14 来源：中国新闻网 当地时间5月11日，刚刚在2026年伦敦世乒赛荣膺男女团体冠军的中国乒乓球队应邀访问英国拉夫堡大学伦敦校区，参加在这里举行的中英“乒乓外交”55周年纪念活动。
 
-徐诗晓表示，当遭遇瓶颈与挫折时，出现情绪低谷、进行短暂休整实属正常，但一味选择“躺平”并不可取，逃避问题只会让困境反复出现。
+中国驻英国大使郑泽光、中国乒乓球协会主席王励勤、英格兰乒乓球协会首席执行官洛克耶等出席并致辞。
 
-徐诗晓曾经过退役后又选择复出，并两度夺得奥运冠军。
+“乒乓外交”亲历者海德斯、英格兰乒乓球队运动员、教练员，拉夫堡大学和当地社区学生等200余人参加。
 
-深耕竞技赛场多年，她坦言职业生涯历经无数难关，正是一次次直面挑战、主动突破，才得以不断成长进步。
+活动期间，中国乒乓球队运动员同英格兰乒乓球队运动员、拉夫堡大学师生以及英国各界乒乓球爱好者进行交流互动。
 
-在徐诗晓看来，挫折并非坏事，困境往往是成长进阶的契机。
+现场气氛热烈友好，来宾们真切感受到乒乓球运动的独特魅力和中国运动健儿的良好精神风貌。
 
-青年应怀揣决心与毅力，以乐观心态直面难题，坦然接纳不完美，正视自身短板，在迎难而上中完善自我，在持续奋进中奔赴成长，书写属于自己的人生答卷。
-
-(记者 华山 制作 徐妙巧） 责任编辑：【周驰】
+(欧阳开宇 卢映荷 制作 王嘉怡） 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 17:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 17:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 17:28 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 17:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 17:23 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 17:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:26 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 17:32 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:18 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 17:18 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 17:36 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 17:17 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 17:29 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 17:31 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:39 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 17:27 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 17:30 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 17:47 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:46 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 17:26 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 17:40 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 17:30 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 17:20 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 17:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 17:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 17:31 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 17:31 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/326773532.shtml)
-- 2026-06-29 17:17 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/8645026.shtml)
-- 2026-06-29 17:27 - [天道](https://www.blog.kurohicncr.top/Article/details/26544.shtml)
-- 2026-06-29 17:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/27158611.shtml)
-- 2026-06-29 17:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/9289992381.shtml)
-- 2026-06-29 17:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/4482062361.shtml)
-- 2026-06-29 17:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/568930.shtml)
-- 2026-06-29 17:27 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/90282.shtml)
-- 2026-06-29 17:22 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/060810972208.shtml)
-- 2026-06-29 17:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/052015.shtml)
-- 2026-06-29 17:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/10249652.shtml)
-- 2026-06-29 17:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/449403000.shtml)
-- 2026-06-29 17:37 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/953556666.shtml)
-- 2026-06-29 17:28 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/9684038467.shtml)
-- 2026-06-29 17:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/95250.shtml)
+- 2026-06-29 17:29 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/79922.shtml)
+- 2026-06-29 17:35 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/368996893.shtml)
+- 2026-06-29 17:36 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/276805782.shtml)
+- 2026-06-29 17:18 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/655339.shtml)
+- 2026-06-29 17:28 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/355024.shtml)
+- 2026-06-29 17:41 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/74357500292.shtml)
+- 2026-06-29 17:44 - [叠纸](https://www.share.kurohicncr.top/Article/details/690336612759.shtml)
+- 2026-06-29 17:25 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/15583.shtml)
+- 2026-06-29 17:22 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/702606777.shtml)
+- 2026-06-29 17:37 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/7173884742.shtml)
+- 2026-06-29 17:28 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/237320.shtml)
+- 2026-06-29 17:45 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/280045470736.shtml)
+- 2026-06-29 17:33 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/8794715.shtml)
+- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/182005624397.shtml)
+- 2026-06-29 17:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/38943945877.shtml)

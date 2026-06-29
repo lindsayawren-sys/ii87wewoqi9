@@ -1,52 +1,58 @@
-# 国际综艺《亚洲特快》打卡成都 展现“熊猫家园”魅力
+# 马来西亚国家石油公司与MISC签署五艘LNG新造船20年租约
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。 节目主持人Marius Damian接
+马来西亚国家石油公司旗下LNG公司已与MISC集团签订了一份为期20年的定期租船协议，涉及五艘新建液化天然气运输船。这家马来西亚能源公司正借此强化其长期LNG供应能力。 该协议涵盖五艘17.4万立方米的LNG运输船，将由位于中国上海的沪东中华造船（集团）有限公司建造，预计租约将于2029年至2030年间开始执行。 这些船将采用XDF2.1推进技术、轴带发电机和船上再液化系统，旨
 
 ## 正文
 
-发布时间：2026年04月27日 20:23 来源：中国新闻网 4月27日，比利时Eccoline制片公司打造的《亚洲特快》罗马尼亚版第九季在成都进行拍摄。
+马来西亚国家石油公司旗下LNG公司已与MISC集团签订了一份为期20年的定期租船协议，涉及五艘新建液化天然气运输船。
 
-据悉，该节目在成都开启为期4天的实景拍摄，也是首次大规模聚焦中国城市，以“寻找熊猫”为核心主线，14名外籍选手将通过多元任务，向欧洲近20个国家的观众，立体呈现“熊猫家园”的独特魅力。
+这家马来西亚能源公司正借此强化其长期LNG供应能力。
 
-节目主持人Marius Damian接受记者采访时表示，作为首次到访成都的游客，此前仅知晓成都“熊猫之都”的盛名，实地探访后发现城市随处可见大熊猫元素。
+该协议涵盖五艘17.4万立方米的LNG运输船，将由位于中国上海的沪东中华造船（集团）有限公司建造，预计租约将于2029年至2030年间开始执行。
 
-令他印象深刻的是，成都的现代建筑与自然环境融合极佳，整座城市如同大熊猫一般平和、有自身节奏，这种与自然相融的状态让他十分青睐，而大熊猫所象征的温柔特质，更让他对成都和大熊猫都充满喜爱。
+这些船将采用XDF2.1推进技术、轴带发电机和船上再液化系统，旨在提高燃油效率并管理蒸发气。
 
-(记者何浠） 责任编辑：【周驰】
+MISC将负责造船阶段的项目管理，并在交付后监督运营和船舶管理。
+
+该协议是在MISC与沪东中华今年早些时候签署的造船合同基础上达成的。
+
+马来西亚国家石油公司执行副总裁兼天然气与海事业务首席执行官拿督阿迪夫·祖基夫利表示：“这些新增LNG运输船标志着我们继续利用各业务板块的集体优势、在LNG价值链上创造长期价值的又一个重要里程碑。
+
+” “通过将我们的增长愿景与MISC的海事专业知识相结合，我们正在强化支持马来西亚国家石油公司作为值得信赖和可靠的全球LNG供应商地位的综合能力。
 
 ## 相关推荐
 
-- 2026-06-29 17:14 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 17:22 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 17:16 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 17:23 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:19 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:33 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 17:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:24 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 17:38 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 17:30 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 17:19 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 17:20 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 17:31 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 17:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 17:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 17:40 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 17:40 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 17:28 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 17:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 17:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 17:26 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 17:18 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 17:28 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 17:31 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/865493998964.shtml)
-- 2026-06-29 17:22 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/22591.shtml)
-- 2026-06-29 17:23 - [苹果回应恋与深空低分](https://www.share.minike.top/Article/details/517961397.shtml)
-- 2026-06-29 17:14 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/298470397.shtml)
-- 2026-06-29 17:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/05726008.shtml)
-- 2026-06-29 17:37 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/51264.shtml)
-- 2026-06-29 17:30 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/831746877738.shtml)
-- 2026-06-29 17:34 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/41440.shtml)
-- 2026-06-29 17:20 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/8012350323.shtml)
-- 2026-06-29 17:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/18323837.shtml)
-- 2026-06-29 17:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/956054.shtml)
-- 2026-06-29 17:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/40940676317.shtml)
-- 2026-06-29 17:25 - [明星大侦探第四季](https://www.share.minike.top/Article/details/306514254456.shtml)
-- 2026-06-29 17:40 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/463144790.shtml)
-- 2026-06-29 17:30 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/4921772.shtml)
+- 2026-06-29 17:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/355237046.shtml)
+- 2026-06-29 17:45 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/183378.shtml)
+- 2026-06-29 17:35 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/41217.shtml)
+- 2026-06-29 17:34 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/25270031099.shtml)
+- 2026-06-29 17:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/62794.shtml)
+- 2026-06-29 17:39 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/80662.shtml)
+- 2026-06-29 17:18 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/5616265112.shtml)
+- 2026-06-29 17:20 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/77347.shtml)
+- 2026-06-29 17:28 - [恋与深空 731](https://www.blog.minike.top/Article/details/80857583829.shtml)
+- 2026-06-29 17:30 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/5688531995.shtml)
+- 2026-06-29 17:44 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/870901793668.shtml)
+- 2026-06-29 17:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/36964125567.shtml)
+- 2026-06-29 17:30 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/27681345856.shtml)
+- 2026-06-29 17:47 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/530347.shtml)
+- 2026-06-29 17:34 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/99188530843.shtml)

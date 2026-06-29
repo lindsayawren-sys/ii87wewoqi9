@@ -1,57 +1,60 @@
-# 日本央行政策不确定性压制日元叠加英银利率观望，英镑兑日元升至215.70附近
+# 美国股市：标普500指数反弹创新高 科技股领涨无视通胀担忧
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周一欧洲早盘，英镑兑日元小幅走高至215.70附近，延续短线反弹走势。汇价上涨主要受到日元走弱推动，在当前市场环境下，日元表现明显落后于其他主要货币。 从基本面来看，日本央行即将在周二公布利率决议，市场普遍预计将连续第三次维持利率在0.75%不变。尽管存在“偏鹰暂停”的可能性，但在中东局势推升能源价格的背景下，日本经济面临下行风险，政策制定者态度趋于谨慎。这
+标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。 标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。 芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。 英伟达上涨2.3%。 受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。 投资者权衡通胀回升带来的扰动，同时强劲的
 
 ## 正文
 
-汇通财经APP讯——周一欧洲早盘，英镑兑日元小幅走高至215.70附近，延续短线反弹走势。
+标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。
 
-汇价上涨主要受到日元走弱推动，在当前市场环境下，日元表现明显落后于其他主要货币。
+标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。
 
-从基本面来看，日本央行即将在周二公布利率决议，市场普遍预计将连续第三次维持利率在0.75%不变。
+芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。
 
-尽管存在“偏鹰暂停”的可能性，但在中东局势推升能源价格的背景下，日本经济面临下行风险，政策制定者态度趋于谨慎。
+英伟达上涨2.3%。
 
-这种不确定性削弱了日元吸引力，使其在主要货币中表现偏弱。
+受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。
 
-与此同时，日内货币表现显示，日元兑多种主要货币普遍走弱，尤其对澳元等风险货币跌幅明显，反映市场风险偏好有所回升。
+投资者权衡通胀回升带来的扰动，同时强劲的企业盈利和人工智能带来的利润前景继续支撑对经济和股市的信心。
 
-在这一环境下，资金更倾向于流向收益更高的货币，从而对日元形成持续压力。
+美国参议院表决通过对凯文·沃什出任美联储主席的提名确认，为美国央行数十年来最具争议的一次领导层交接铺平道路。
 
-从英镑方面来看，走势相对温和。
+围绕工业企业有望从AI热潮中获利的乐观情绪，推动该板块录得创纪录的动能。
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 17:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:33 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 17:14 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 17:26 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 17:38 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 17:13 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 17:37 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 17:14 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 17:34 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 17:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 17:34 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 17:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 17:25 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 17:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:45 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 17:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 17:34 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 17:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 17:39 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 17:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 17:37 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 17:40 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/4908574246.shtml)
-- 2026-06-29 17:17 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/1166119221.shtml)
-- 2026-06-29 17:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/83597168349.shtml)
-- 2026-06-29 17:31 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/52913371918.shtml)
-- 2026-06-29 17:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3252964002.shtml)
-- 2026-06-29 17:33 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/3748349.shtml)
-- 2026-06-29 17:21 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/1852501.shtml)
-- 2026-06-29 17:32 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/203578.shtml)
-- 2026-06-29 17:39 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/801244809403.shtml)
-- 2026-06-29 17:41 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/4128014.shtml)
-- 2026-06-29 17:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/66576.shtml)
-- 2026-06-29 17:38 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/1588013281.shtml)
-- 2026-06-29 17:38 - [普京介绍前线战事](http://www.share.minike.top/Article/details/96094660.shtml)
-- 2026-06-29 17:18 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/18935.shtml)
-- 2026-06-29 17:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/7411241893.shtml)
+- 2026-06-29 17:29 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/100918.shtml)
+- 2026-06-29 17:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/90532.shtml)
+- 2026-06-29 17:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/8737148.shtml)
+- 2026-06-29 17:33 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/794624.shtml)
+- 2026-06-29 17:42 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/179348923.shtml)
+- 2026-06-29 17:30 - [王楚钦开门红](http://www.share.minike.top/Article/details/1093617620.shtml)
+- 2026-06-29 17:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/60465362.shtml)
+- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/5817879.shtml)
+- 2026-06-29 17:38 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/897053870.shtml)
+- 2026-06-29 17:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/0297702448.shtml)
+- 2026-06-29 17:41 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/580846118766.shtml)
+- 2026-06-29 17:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/712656.shtml)
+- 2026-06-29 17:28 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/63279.shtml)
+- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/6083480106.shtml)
+- 2026-06-29 17:37 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/88908.shtml)

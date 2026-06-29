@@ -1,58 +1,56 @@
-# 黑芝麻（000716）投资者索赔启动，向日葵（300111）索赔案再提交法院立案
+# 南宁江北中堤水毁段应急抢险工程封顶 邕江防洪屏障进一步巩固
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，黑芝麻（维权）（000716）涉嫌虚假陈述引发的投资者索赔案已经启动。（许峰律师专栏） 2026年4月25日，黑芝麻公告公司及公司时任董事长韦清文先生于2026年4月24日收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司及
+中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。 2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。险情处置结束后，受地方政府部
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，黑芝麻（维权）（000716）涉嫌虚假陈述引发的投资者索赔案已经启动。
+中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。
 
-（许峰律师专栏） 2026年4月25日，黑芝麻公告公司及公司时任董事长韦清文先生于2026年4月24日收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司及时任董事长韦清文立案。
+堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。
 
-许峰律师认为，暂定在2026年4月25日之前买入黑芝麻股票，并在2026年4月25日后卖出或继续持有股票的投资者，目前已可准备发起索赔。
+2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。
 
-（黑芝麻维权入口） 除了黑芝麻投资者索赔案启动，2026年4月24日，许峰律师代理的向日葵（维权）（300111）投资者索赔案再提交法院立案。
+中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。
 
-许峰律师代理的向日葵投资者索赔案前期已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。
+险情处置结束后，受地方政府部门委托，该局承接该水毁段灾后重建施工任务。
 
-律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+自进场施工以来，中国安能一局优化人员设备配置，配齐建强项目管理团队、施工班组及各类施工机械，全力保障工程推进。
 
-2026年4月8日晚，向日葵公告收到浙江证监局出具的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2025年9月22日，向日葵披露《发行股份及支付现金购买资产并募集配套资金暨关联交易预案》，称公司拟通过发行股份及支付现金的方式购买漳州兮璞材料科技有限公司（以下简称兮璞材料）100%股权、浙江贝得药业有限公司40%股权，并募集配套资金，交易预计构成重大资产重组。
+施工期间，项目团队先后攻克污水管渗漏、静载试验滞后、地质条件复杂等多项施工难题。
 
-《预案》披露兮璞材料的主要盈利模式为“定制化代工+自主生产”相结合。
+针对复杂地质易引发塌孔、地面沉降等问题，项目优化桩基施工工艺，采用专用护筒加固孔位，严格管控泥浆液面高程，规范护筒埋设、黏土夯实等施工流程，保持钻孔作业连续施工，同步做好施工隐患排查与上报处置，有效解决旋挖桩塌孔难题。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 17:13 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 17:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 17:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 17:14 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 17:17 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 17:24 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 17:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:19 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 17:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 17:30 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 17:19 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 17:37 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 17:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 17:23 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 17:36 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 17:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 17:35 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 17:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 17:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 17:18 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 17:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/007411626562.shtml)
-- 2026-06-29 17:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/8959000.shtml)
-- 2026-06-29 17:20 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6827900226.shtml)
-- 2026-06-29 17:34 - [恋与深空 731](https://www.share.minike.top/Article/details/073565725543.shtml)
-- 2026-06-29 17:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/1813494337.shtml)
-- 2026-06-29 17:25 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/8819282407.shtml)
-- 2026-06-29 17:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/327689091035.shtml)
-- 2026-06-29 17:30 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/86542998.shtml)
-- 2026-06-29 17:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/589905.shtml)
-- 2026-06-29 17:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/75429801308.shtml)
-- 2026-06-29 17:18 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/8560064984.shtml)
-- 2026-06-29 17:39 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/86234.shtml)
-- 2026-06-29 17:14 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/67685201586.shtml)
-- 2026-06-29 17:20 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/008040478.shtml)
-- 2026-06-29 17:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/3198548.shtml)
+- 2026-06-29 17:45 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/03411.shtml)
+- 2026-06-29 17:34 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/36699044251.shtml)
+- 2026-06-29 17:45 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/091328890238.shtml)
+- 2026-06-29 17:34 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/07578547166.shtml)
+- 2026-06-29 17:46 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/74539.shtml)
+- 2026-06-29 17:37 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/338971286355.shtml)
+- 2026-06-29 17:31 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/166326074184.shtml)
+- 2026-06-29 17:27 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/41900684.shtml)
+- 2026-06-29 17:46 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/5870289.shtml)
+- 2026-06-29 17:36 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/63919935.shtml)
+- 2026-06-29 17:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/332637919078.shtml)
+- 2026-06-29 17:22 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/52059845851.shtml)
+- 2026-06-29 17:19 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/135293.shtml)
+- 2026-06-29 17:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/68688182.shtml)
+- 2026-06-29 17:25 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/699919985386.shtml)

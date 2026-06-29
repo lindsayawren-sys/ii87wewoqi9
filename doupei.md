@@ -1,58 +1,49 @@
-# 人身险预定利率研究值环比上行4BP升至1.93%，业内预判年内触发再次调降概率较低
+# 沃尔玛据悉拟裁减或调任约1000员工，以整合全球技术和AI团队
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻4月27日讯（记者 陈晓娟）记者获悉，日前，中国保险行业协会组织召开人身保险业利率研究专家咨询委员会2026年一季度例会。保险业专家研究了人身保险产品预定利率研究值，提出当前普通型人身保险产品预定利率研究值为1.93%，较上季度研究值1.89%上升4个基点。需关注的是，这也是自2025年该机制落地以来首次止跌回升。 综合来看，业内专家认为，长期以来，行业陷入了“利率必须
+据知情人士称，美国最大零售商沃尔玛将裁减或调任约 1000 名公司员工，以进一步整合其全球技术和人工智能产品团队。该报道援引知情人士的话称，沃尔玛正在寻求进一步的整合。责任编辑：于健 SF069
 
 ## 正文
 
-蓝鲸新闻4月27日讯（记者 陈晓娟）记者获悉，日前，中国保险行业协会组织召开人身保险业利率研究专家咨询委员会2026年一季度例会。
+据知情人士称，美国最大零售商沃尔玛将裁减或调任约 1000 名公司员工，以进一步整合其全球技术和人工智能产品团队。
 
-保险业专家研究了人身保险产品预定利率研究值，提出当前普通型人身保险产品预定利率研究值为1.93%，较上季度研究值1.89%上升4个基点。
+该报道援引知情人士的话称，沃尔玛正在寻求进一步的整合。
 
-需关注的是，这也是自2025年该机制落地以来首次止跌回升。
-
-综合来看，业内专家认为，长期以来，行业陷入了“利率必须持续下行”的单边思维，首次回升向市场证明了定价利率是双向波动的，有助于平抑销售端和管理层对于极端利差损风险的非理性恐慌，稳定存量业务信心。
-
-结合当前利率走势，短期来看，市场相对企稳，不太可能触发保险产品预定利率的再次下调。
-
-预定利率研究值首度回升 预定利率研究值，是引导人身险公司动态调整保险产品预定利率的核心参考指标。
-
-近年来，面对持续下行的利率，为降低利差损风险，保险业不断优化负债成本。
-
-2025年初，金融监管总局发文落地新规，正式建立预定利率与市场利率挂钩的动态调整机制。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 17:16 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 17:27 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:33 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 17:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 17:13 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 17:36 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 17:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 17:34 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 17:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 17:27 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:14 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 17:23 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 17:46 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 17:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 17:24 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 17:38 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 17:40 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 17:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 17:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:37 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 17:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 17:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 17:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/154008891.shtml)
-- 2026-06-29 17:22 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/674604248.shtml)
-- 2026-06-29 17:41 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/91288135783.shtml)
-- 2026-06-29 17:31 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/47700235550.shtml)
-- 2026-06-29 17:33 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/22856867.shtml)
-- 2026-06-29 17:13 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/30757.shtml)
-- 2026-06-29 17:15 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/87497.shtml)
-- 2026-06-29 17:23 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/9318805902.shtml)
-- 2026-06-29 17:29 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/915922.shtml)
-- 2026-06-29 17:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/350487699.shtml)
-- 2026-06-29 17:30 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/44602.shtml)
-- 2026-06-29 17:28 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/1087274335.shtml)
-- 2026-06-29 17:18 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/00801278266.shtml)
-- 2026-06-29 17:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7912487.shtml)
-- 2026-06-29 17:35 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/981799.shtml)
+- 2026-06-29 17:31 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/436210.shtml)
+- 2026-06-29 17:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/844412130433.shtml)
+- 2026-06-29 17:37 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/7357927312.shtml)
+- 2026-06-29 17:43 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/91918.shtml)
+- 2026-06-29 17:45 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/26124817372.shtml)
+- 2026-06-29 17:41 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/994705.shtml)
+- 2026-06-29 17:35 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/038865.shtml)
+- 2026-06-29 17:30 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/40403331.shtml)
+- 2026-06-29 17:28 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/561770938785.shtml)
+- 2026-06-29 17:18 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/93143811.shtml)
+- 2026-06-29 17:36 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/819914616403.shtml)
+- 2026-06-29 17:37 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/6500031243.shtml)
+- 2026-06-29 17:21 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/589926484.shtml)
+- 2026-06-29 17:32 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/44568.shtml)
+- 2026-06-29 17:25 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/57715.shtml)

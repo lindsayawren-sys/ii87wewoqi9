@@ -1,56 +1,60 @@
-# 工信部：将开展“人工智能+软件”专项行动 加快智能编程研发应用
+# 跨越百年的“鼓岭故事”还在续写 中美青年共叙情谊
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-中新网4月28日电 工业和信息化部副部长柯吉欣28日在吹风会上就下一步如何加快产业创新发展作答时指出，在人工智能赋能信息服务业方面，工信部将开展“人工智能+软件”专项行动，加快智能编程研发应用，培育模型即服务、智能体即服务等相关新业态。4月28日，国务院新闻办公室举行国务院政策例行吹风会，介绍《关于推进服务业扩能提质的意见》有关情况，并答记者问。会上，有记者提问：随着“人工智能
+中新网福州5月13日电 题：跨越百年的“鼓岭故事”还在续写 中美青年共叙情谊 作者 叶秋云 初夏的福州鼓岭，千年柳杉王枝叶葳蕤，中西合璧的老别墅隐现于苍翠林间。沿着蜿蜒的青石路漫步，耳畔仿佛还能听见百年前中外孩童嬉戏的笑声。这里，不仅是福州知名的避暑胜地，更是中美民间友谊的重要见证地。 19世纪中叶，福州开埠，大批西方商人、传教士、领事人员涌入。20世纪初，鼓岭成为旅居福州的外
 
 ## 正文
 
-中新网4月28日电 工业和信息化部副部长柯吉欣28日在吹风会上就下一步如何加快产业创新发展作答时指出，在人工智能赋能信息服务业方面，工信部将开展“人工智能+软件”专项行动，加快智能编程研发应用，培育模型即服务、智能体即服务等相关新业态。
+中新网福州5月13日电 题：跨越百年的“鼓岭故事”还在续写 中美青年共叙情谊 作者 叶秋云 初夏的福州鼓岭，千年柳杉王枝叶葳蕤，中西合璧的老别墅隐现于苍翠林间。
 
-4月28日，国务院新闻办公室举行国务院政策例行吹风会，介绍《关于推进服务业扩能提质的意见》有关情况，并答记者问。
+沿着蜿蜒的青石路漫步，耳畔仿佛还能听见百年前中外孩童嬉戏的笑声。
 
-会上，有记者提问：随着“人工智能+”多领域深度融合，新兴服务业正在蓬勃发展，请问工业和信息化部，在推动软件和信息技术服务业发展方面取得了怎样的成效？
+这里，不仅是福州知名的避暑胜地，更是中美民间友谊的重要见证地。
 
-下一步如何加快产业创新发展？
+19世纪中叶，福州开埠，大批西方商人、传教士、领事人员涌入。
 
-柯吉欣表示，党的十八大以来，软件和信息技术服务业经过多年的发展，已经成为我国服务业非常重要的力量，也可以认为是基石，是“支柱”产业。
+20世纪初，鼓岭成为旅居福州的外国人的避暑胜地，据不完全统计，二十余个国家和地区的外国人曾在鼓岭居住过。
 
-2025年，软件和信息技术服务业整体行业营收达到了15.48万亿元，这是2012年的6.2倍，年均复合增长率达到了15.1%。
+那时，西式别墅、医院、网球场、邮局等设施陆续在鼓岭建起，不同肤色、不同语言的人们在此和谐共处，孕育出一个个动人的跨文化友谊故事，也为“鼓岭之友”的诞生埋下伏笔。
 
-这些成绩的取得，这些数据的背后，是我国整体产业的升级和技术迭代的生动写照，背后也是1100多万这个行业的从业人员的艰辛付出和艰苦奋斗。
+“鼓岭之友”汇聚了加德纳家族、蒲天寿家族、穆蔼仁家族等多个曾在鼓岭生活的美国家族后代。
 
-提及发展质效，柯吉欣称，“在软件方面，国产操作系统、数据库等基础软件水平是稳定提高的，我们感到，现在国产的软件在运用方面跟前几年是完全不一样的，现在越来越丝滑，越来越好用。
+鼓岭讲解员练晶晶介绍道，曾任福州协和医院院长的蒲天寿，曾在鼓岭开设医馆，不仅为外侨提供医疗服务，还时常为当地村民义诊，4位子女均在福州生活过。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 17:32 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 17:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 17:19 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 17:20 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 17:13 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 17:28 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 17:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 17:24 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 17:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 17:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 17:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 17:27 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:20 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 17:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 17:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 17:28 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 17:43 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 17:44 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 17:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 17:39 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 17:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/21051.shtml)
-- 2026-06-29 17:25 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/33275192673.shtml)
-- 2026-06-29 17:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/203348465859.shtml)
-- 2026-06-29 17:25 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/579674009211.shtml)
-- 2026-06-29 17:37 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/42126067.shtml)
-- 2026-06-29 17:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/8559793083.shtml)
-- 2026-06-29 17:41 - [AG 宫斗](https://www.blog.minike.top/Article/details/0495386436.shtml)
-- 2026-06-29 17:35 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/7683847.shtml)
-- 2026-06-29 17:37 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/76707.shtml)
-- 2026-06-29 17:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/58217004.shtml)
-- 2026-06-29 17:38 - [一见倾心](https://www.share.kurohicncr.top/Article/details/2806205.shtml)
-- 2026-06-29 17:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/6728487524.shtml)
-- 2026-06-29 17:38 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/80365191662.shtml)
-- 2026-06-29 17:33 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/93206108.shtml)
-- 2026-06-29 17:39 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/04574756.shtml)
+- 2026-06-29 17:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/9412430.shtml)
+- 2026-06-29 17:26 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/76219267.shtml)
+- 2026-06-29 17:46 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/35020.shtml)
+- 2026-06-29 17:32 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/8060412.shtml)
+- 2026-06-29 17:35 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/77557749.shtml)
+- 2026-06-29 17:36 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/088495392079.shtml)
+- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/017644.shtml)
+- 2026-06-29 17:32 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/63928602592.shtml)
+- 2026-06-29 17:26 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/648541.shtml)
+- 2026-06-29 17:33 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/12629393101.shtml)
+- 2026-06-29 17:30 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/63074505.shtml)
+- 2026-06-29 17:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/3969504.shtml)
+- 2026-06-29 17:35 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/722877.shtml)
+- 2026-06-29 17:36 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/205751547726.shtml)
+- 2026-06-29 17:42 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/440991.shtml)

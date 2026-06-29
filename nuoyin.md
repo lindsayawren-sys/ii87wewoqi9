@@ -1,51 +1,58 @@
-# 贝森特：美国实施封锁后 伊朗石油工业开始停产
+# 习近平同塔吉克斯坦总统拉赫蒙会谈
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-美国财政部长贝森特在X上发帖表示，“多亏美国的封锁，伊朗摇摇欲坠的石油工业正开始停产。” “开采很快就会崩溃，”他说，“伊朗接下来会出现汽油短缺！”责任编辑：李桐
+中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的塔吉克斯坦总统拉赫蒙举行会谈。 习近平祝贺塔吉克斯坦独立35周年并取得国家建设重大成就。习近平指出，相互坚定支持是中塔关系的核心要义。无论外部环境如何变化，中塔两国永远是守望相助的好邻居、坦诚互信的好朋友、携手发展的好伙伴。双方签署《中塔永久睦邻友好合作条约》，将充分展现两国高水平政治
 
 ## 正文
 
-美国财政部长贝森特在X上发帖表示，“多亏美国的封锁，伊朗摇摇欲坠的石油工业正开始停产。
+中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂同来华进行国事访问的塔吉克斯坦总统拉赫蒙举行会谈。
 
-” “开采很快就会崩溃，”他说，“伊朗接下来会出现汽油短缺！
+习近平祝贺塔吉克斯坦独立35周年并取得国家建设重大成就。
 
-”责任编辑：李桐
+习近平指出，相互坚定支持是中塔关系的核心要义。
+
+无论外部环境如何变化，中塔两国永远是守望相助的好邻居、坦诚互信的好朋友、携手发展的好伙伴。
+
+双方签署《中塔永久睦邻友好合作条约》，将充分展现两国高水平政治互信，为中塔世代友好提供坚实保障。
+
+中方愿同塔方一道，推动构建更加紧密的中塔命运共同体，更好造福两国人民。
+
+习近平强调，中方将一如既往支持塔吉克斯坦走符合自身国情的发展道路，支持塔方维护国家独立、主权和安全。
+
+今年是中国“十五五”开局之年，塔方也在全力推进“2030年前国家发展战略”。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 17:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:17 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 17:25 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 17:21 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 17:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 17:35 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 17:17 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 17:20 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 17:33 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 17:14 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 17:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 17:17 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 17:12 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 17:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 17:44 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:40 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:40 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 17:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 17:32 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 17:21 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 17:20 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 17:43 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 17:32 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 17:46 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 17:35 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 17:21 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/53767.shtml)
-- 2026-06-29 17:32 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/19938165906.shtml)
-- 2026-06-29 17:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/868826946.shtml)
-- 2026-06-29 17:26 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/91606316582.shtml)
-- 2026-06-29 17:17 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/7884538000.shtml)
-- 2026-06-29 17:27 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/327144074.shtml)
-- 2026-06-29 17:27 - [扬名立万](http://www.share.minike.top/Article/details/0248514461.shtml)
-- 2026-06-29 17:27 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/12167461974.shtml)
-- 2026-06-29 17:23 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/76650949595.shtml)
-- 2026-06-29 17:18 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/997551621569.shtml)
-- 2026-06-29 17:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/7908298.shtml)
-- 2026-06-29 17:32 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/254789.shtml)
-- 2026-06-29 17:20 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/757725215608.shtml)
-- 2026-06-29 17:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/07513847.shtml)
-- 2026-06-29 17:31 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/59966.shtml)
+- 2026-06-29 17:30 - [起风了](https://www.blog.kurohicncr.top/Article/details/540435.shtml)
+- 2026-06-29 17:24 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/644646.shtml)
+- 2026-06-29 17:23 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/8903768.shtml)
+- 2026-06-29 17:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/471332977.shtml)
+- 2026-06-29 17:21 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/43594034.shtml)
+- 2026-06-29 17:41 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/172400893.shtml)
+- 2026-06-29 17:44 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/016925719.shtml)
+- 2026-06-29 17:20 - [黄金也扛不住了](http://www.share.minike.top/Article/details/90028793.shtml)
+- 2026-06-29 17:19 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/80924.shtml)
+- 2026-06-29 17:35 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/33252.shtml)
+- 2026-06-29 17:31 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/695872.shtml)
+- 2026-06-29 17:26 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/648569.shtml)
+- 2026-06-29 17:28 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/0838960.shtml)
+- 2026-06-29 17:39 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/14627756.shtml)
+- 2026-06-29 17:41 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/8489739895.shtml)

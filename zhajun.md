@@ -1,56 +1,57 @@
-# 瑞银：药明康德维持“买入”评级 目标价上调至164港元
+# 开盘：美股周三开盘涨跌不一，英伟达领涨芯片股
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-瑞银发布研报称，上调药明康德（02359）目标价6.4%，从154.1港元上调至164港元，维持“买入”评级。瑞银根据药明康德2026年第一季业绩对模型进行微调，上调收入和利润率预期，将2026-2028年每股盈利预测上调10-11%。 该行指，药明康德第一季收入增长28.8%至124亿元人民币，超出该行预期的112亿元及市场普遍预期的108亿元。持续经营业务收入表现强劲，同比
+北京时间5月13日晚，美股周三开盘涨跌不一。芯片股上涨带动纳指走高。美国4月PPI同比飙升6%，创2022年以来最大涨幅。 道指跌143.24点，跌幅为0.29%，报49617.32点；标普500指数涨3.43点，涨幅为0.05%，报7404.39点；纳指涨50.60点，涨幅为0.19%，报26138.803点。 英伟达股价上涨超过2%。AMD上涨近2%，美光科技上涨超过5%。
 
 ## 正文
 
-瑞银发布研报称，上调药明康德（02359）目标价6.4%，从154.1港元上调至164港元，维持“买入”评级。
+北京时间5月13日晚，美股周三开盘涨跌不一。
 
-瑞银根据药明康德2026年第一季业绩对模型进行微调，上调收入和利润率预期，将2026-2028年每股盈利预测上调10-11%。
+芯片股上涨带动纳指走高。
 
-该行指，药明康德第一季收入增长28.8%至124亿元人民币，超出该行预期的112亿元及市场普遍预期的108亿元。
+美国4月PPI同比飙升6%，创2022年以来最大涨幅。
 
-持续经营业务收入表现强劲，同比增39.4%。
+道指跌143.24点，跌幅为0.29%，报49617.32点；标普500指数涨3.43点，涨幅为0.05%，报7404.39点；纳指涨50.60点，涨幅为0.19%，报26138.803点。
 
-经调整净利润同比增71.6%至46亿元。
+英伟达股价上涨超过2%。
 
-利润率方面，经调整毛利率年增8.5个百分点至50.4%，经调整净利率同比增9.2个百分点至37%。
+AMD上涨近2%，美光科技上涨超过5%。
 
-该公司重申其2026年全年业绩指引，持续经营业务同比增长18-22%；总收入513-530亿元，同比增12.9-16.6%；资本开支65-75亿元人民币，管理层对实现这些目标充满信心，并积极寻求机会上调业绩。
+VanEck半导体ETF（SMH）上涨2%。
 
-旗下平台TIDES业务2026年收入增长预期上调至约40%（先前预期为30%以上），与该行预期一致。
+据报道，英伟达首席执行官黄仁勋随同美国总统特朗普访华。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 17:29 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 17:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 17:25 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 17:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 17:13 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 17:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 17:29 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 17:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 17:38 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 17:32 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 17:22 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 17:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 17:42 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:23 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 17:47 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 17:39 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 17:37 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:37 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 17:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/39536.shtml)
-- 2026-06-29 17:39 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/32860320947.shtml)
-- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/846836.shtml)
-- 2026-06-29 17:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/6169469940.shtml)
-- 2026-06-29 17:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/86667.shtml)
-- 2026-06-29 17:36 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/950751065.shtml)
-- 2026-06-29 17:38 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/52269006.shtml)
-- 2026-06-29 17:27 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/99740595.shtml)
-- 2026-06-29 17:28 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/312608115463.shtml)
-- 2026-06-29 17:33 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/941652.shtml)
-- 2026-06-29 17:20 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/747970968008.shtml)
-- 2026-06-29 17:25 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/52635235.shtml)
-- 2026-06-29 17:29 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/80601392.shtml)
-- 2026-06-29 17:27 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/575750632730.shtml)
-- 2026-06-29 17:25 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/19146557.shtml)
+- 2026-06-29 17:45 - [当我回母校教书](https://www.share.minike.top/Article/details/367191.shtml)
+- 2026-06-29 17:24 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/737935004.shtml)
+- 2026-06-29 17:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/46118003.shtml)
+- 2026-06-29 17:20 - [人形机器人](https://www.blog.minike.top/Article/details/7603805.shtml)
+- 2026-06-29 17:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/89567299.shtml)
+- 2026-06-29 17:23 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/109559262829.shtml)
+- 2026-06-29 17:43 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/39698019523.shtml)
+- 2026-06-29 17:22 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/809370270069.shtml)
+- 2026-06-29 17:28 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/243675867.shtml)
+- 2026-06-29 17:28 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/900465574.shtml)
+- 2026-06-29 17:40 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/126289.shtml)
+- 2026-06-29 17:20 - [美的空调 卡bug](http://www.share.minike.top/Article/details/0074449294.shtml)
+- 2026-06-29 17:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/3181654.shtml)
+- 2026-06-29 17:47 - [乔家的儿女](https://www.blog.minike.top/Article/details/13415.shtml)
+- 2026-06-29 17:32 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/447712819485.shtml)

@@ -1,47 +1,58 @@
-# 联合包裹调整后EPS与营收均超预期
+# 伊朗战事推高德国批发物价通胀率至三年新高
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-联合包裹公布第一季度调整后每股收益为1.07美元，营收212亿美元，高于市场预期的1.02美元和209.9亿美元，但业绩指引和市场反应仍偏谨慎。责任编辑：张俊 SF065
+官方数据周三公布，受伊朗战事推高能源及原材料价格影响，德国 4 月批发物价通胀率攀升至6.3%，创三年新高；而在冲突爆发前的 2 月，该数值仅为 1.2%。 全球能源市场遭遇前所未有的供应扰动，通胀持续走高，加息预期随之升温，也给默茨总理政府再添难题，当前德国正艰难提振经济增长。 德国联邦统计局表示：“2026 年 4 月物价上涨的决定性因素是伊朗及中东地区的军事冲突，直接推高
 
 ## 正文
 
-联合包裹公布第一季度调整后每股收益为1.07美元，营收212亿美元，高于市场预期的1.02美元和209.9亿美元，但业绩指引和市场反应仍偏谨慎。
+官方数据周三公布，受伊朗战事推高能源及原材料价格影响，德国 4 月批发物价通胀率攀升至6.3%，创三年新高；而在冲突爆发前的 2 月，该数值仅为 1.2%。
 
-责任编辑：张俊 SF065
+全球能源市场遭遇前所未有的供应扰动，通胀持续走高，加息预期随之升温，也给默茨总理政府再添难题，当前德国正艰难提振经济增长。
+
+德国联邦统计局表示：“2026 年 4 月物价上涨的决定性因素是伊朗及中东地区的军事冲突，直接推高了批发物价，能源产品和原材料价格涨幅尤为明显。
+
+” 成品油价格较 2025 年 4 月大涨 37.3%。
+
+全球油价飙升主因霍尔木兹海峡近乎停运，全球约五分之一的原油及液化天然气（LNG）常规运输均途经该海峡。
+
+受市场预期欧洲央行年底前将加息 75 个基点影响，德国国债收益率周三徘徊在多年高位附近。
+
+德国 4 月整体通胀率升至 2.9%。
+
+贝伦贝格银行经济学家费利克斯・施密特表示，企业大概率会将高能源成本至少部分转嫁给消费者。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 17:31 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 17:40 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 17:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 17:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 17:39 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 17:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 17:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 17:12 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 17:12 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 17:38 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 17:21 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 17:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 17:19 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 17:29 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 17:43 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 17:42 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 17:23 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 17:35 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 17:22 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 17:33 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 17:21 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 17:47 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 17:47 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 17:37 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/386285388266.shtml)
-- 2026-06-29 17:39 - [机器人学校开学了](https://www.blog.minike.top/Article/details/415447.shtml)
-- 2026-06-29 17:36 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/6277910535.shtml)
-- 2026-06-29 17:27 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/44903625.shtml)
-- 2026-06-29 17:14 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/142855.shtml)
-- 2026-06-29 17:20 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/110486572.shtml)
-- 2026-06-29 17:34 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/58829.shtml)
-- 2026-06-29 17:31 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/80555.shtml)
-- 2026-06-29 17:36 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/06437475.shtml)
-- 2026-06-29 17:34 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/030786.shtml)
-- 2026-06-29 17:19 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/115898.shtml)
-- 2026-06-29 17:29 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/43889666899.shtml)
-- 2026-06-29 17:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/654820.shtml)
-- 2026-06-29 17:21 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/662924063640.shtml)
-- 2026-06-29 17:38 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/6930414983.shtml)
+- 2026-06-29 17:19 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/286700.shtml)
+- 2026-06-29 17:18 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/345079807665.shtml)
+- 2026-06-29 17:38 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/7689963141.shtml)
+- 2026-06-29 17:28 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/2836138.shtml)
+- 2026-06-29 17:24 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/754948918.shtml)
+- 2026-06-29 17:23 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/6760537.shtml)
+- 2026-06-29 17:37 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/504175.shtml)
+- 2026-06-29 17:31 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/07666.shtml)
+- 2026-06-29 17:35 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/5628860.shtml)
+- 2026-06-29 17:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/15504.shtml)
+- 2026-06-29 17:36 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/7819317.shtml)
+- 2026-06-29 17:18 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/4793068172.shtml)
+- 2026-06-29 17:36 - [王俊凯命名方式](https://www.share.minike.top/Article/details/250178.shtml)
+- 2026-06-29 17:40 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/989110388136.shtml)
+- 2026-06-29 17:30 - [美人鱼](http://www.share.kurohicncr.top/Article/details/5030884.shtml)

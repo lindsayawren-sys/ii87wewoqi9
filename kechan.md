@@ -1,59 +1,51 @@
-# 净息差最高1.87%！头部银行利息净收入艰难企稳
+# 1至4月全国铁路完成固定资产投资2008亿元
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者张欣 连续多个季度，贷款定价下行持续压缩银行经营空间，净息差持续走弱，直接拖累净利息收入表现，这一核心盈利指标的走向，成为观察银行业基本面的关键。 随着2025年A股上市银行年报披露收官，21世纪经济报道记者选取6家国有大行、9家全国性股份制银行共计15家头部银行经营数据为样本进行分析。整体来看，行业分化特征显著：国有大行的利息净收入以小幅收缩守住盈利基本盘
+中新网5月13日电 据“中国铁路”微信公众号消息，今年1至4月，铁路建设优质高效推进，全国铁路完成固定资产投资2008亿元，同比增长3.2%，有效发挥辐射带动作用，为区域经济社会发展注入了新动能。 今年以来，国铁集团广泛运用新技术新工艺，推动一批重点项目建设取得积极进展。4月份，西安至十堰高铁、雄安至商丘高铁山东段联调联试进展顺利，最高试验速度达到时速385公里，为开通运营奠定
 
 ## 正文
 
-21世纪经济报道记者张欣 连续多个季度，贷款定价下行持续压缩银行经营空间，净息差持续走弱，直接拖累净利息收入表现，这一核心盈利指标的走向，成为观察银行业基本面的关键。
+中新网5月13日电 据“中国铁路”微信公众号消息，今年1至4月，铁路建设优质高效推进，全国铁路完成固定资产投资2008亿元，同比增长3.2%，有效发挥辐射带动作用，为区域经济社会发展注入了新动能。
 
-随着2025年A股上市银行年报披露收官，21世纪经济报道记者选取6家国有大行、9家全国性股份制银行共计15家头部银行经营数据为样本进行分析。
+今年以来，国铁集团广泛运用新技术新工艺，推动一批重点项目建设取得积极进展。
 
-整体来看，行业分化特征显著：国有大行的利息净收入以小幅收缩守住盈利基本盘，股份制银行依托灵活经营率先修复。
-
-综合来看，在负债成本优化的支撑下，银行业净息差下行节奏放缓，利息净收入正在告别连续多年的深度下滑，整体进入企稳修复周期。
-
-大行微降守盘，股份行率先企稳 从15家样本银行整体表现看，2025 年利息净收入告别此前的快速下行，进入温和调整、结构改善阶段。
-
-作为银行业的“压舱石”，6家国有大行2025年继续扮演着稳大盘的角色。
-
-年报数据显示，国有大行全年合计实现利息净收入2.67万亿元。
-
-从个体表现看，国有大行呈现“一增五降”格局。
+4月份，西安至十堰高铁、雄安至商丘高铁山东段联调联试进展顺利，最高试验速度达到时速385公里，为开通运营奠定坚实基础；西安至安康高铁、杭州至绍兴至台州高铁温岭至玉环段相继启动静态验收；重庆至万州高铁隧道全部贯通；成渝中线高铁新建重庆科学城站、天津至潍坊高铁津沽海河隧道等一批重点控制性工程建设取得阶段性成果。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 17:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 17:18 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 17:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 17:33 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 17:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 17:27 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 17:24 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 17:37 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 17:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 17:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 17:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 17:14 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 17:30 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 17:36 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:43 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 17:28 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 17:45 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 17:20 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 17:25 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 17:25 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 17:30 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 17:27 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 17:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 17:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 17:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 17:18 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/5394860.shtml)
-- 2026-06-29 17:24 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/25022332.shtml)
-- 2026-06-29 17:25 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/557031590.shtml)
-- 2026-06-29 17:40 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/9867320.shtml)
-- 2026-06-29 17:27 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/00333.shtml)
-- 2026-06-29 17:40 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/716370694857.shtml)
-- 2026-06-29 17:18 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/125929932.shtml)
-- 2026-06-29 17:40 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/610612.shtml)
-- 2026-06-29 17:16 - [急先锋](http://www.blog.minike.top/Article/details/44446.shtml)
-- 2026-06-29 17:17 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/150242234.shtml)
-- 2026-06-29 17:29 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/165567322095.shtml)
-- 2026-06-29 17:33 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/0403200879.shtml)
-- 2026-06-29 17:15 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/383605257.shtml)
-- 2026-06-29 17:12 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/437928.shtml)
-- 2026-06-29 17:16 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/00726137772.shtml)
+- 2026-06-29 17:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/250225992805.shtml)
+- 2026-06-29 17:32 - [周生如故](https://www.share.kurohicncr.top/Article/details/377636.shtml)
+- 2026-06-29 17:37 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/03449191265.shtml)
+- 2026-06-29 17:30 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/508708.shtml)
+- 2026-06-29 17:30 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/1916428335.shtml)
+- 2026-06-29 17:47 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/1710432078.shtml)
+- 2026-06-29 17:32 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/346600574.shtml)
+- 2026-06-29 17:24 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/06732.shtml)
+- 2026-06-29 17:28 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/194847874.shtml)
+- 2026-06-29 17:38 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/719317.shtml)
+- 2026-06-29 17:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/82280812644.shtml)
+- 2026-06-29 17:28 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/03377515.shtml)
+- 2026-06-29 17:30 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/8182768.shtml)
+- 2026-06-29 17:35 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/36768132.shtml)
+- 2026-06-29 17:31 - [周生如故](http://www.share.minike.top/Article/details/26369.shtml)

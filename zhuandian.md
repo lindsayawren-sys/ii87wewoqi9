@@ -1,60 +1,56 @@
-# 早盘：美股走低 纳指下跌逾200点
+# 超级牛散一家三口刚刚砸重金扫货！下一只翻倍股定了？
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。 据报道，OpenAI近期营收和新用户增长均低于其内
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 |牛犇 今天（5月13日），A股市场延续震荡向上趋势，存储芯片相关指数仍然强势，与其协同的光模块则继续分化。其中，以源杰科技等为代表的高价股调整明显。也因此，有官媒表示，警惕千元股“高处不胜寒”。那么，科技股泡沫吹破了吗？存储芯片行情还能持续多久？光模块行情结束了吗？ 警惕千元
 
 ## 正文
 
-北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-油价上涨以及OpenAI发布的疲软报告令科技股承压。
+来源：证券市场周刊市场号 文 |牛犇 今天（5月13日），A股市场延续震荡向上趋势，存储芯片相关指数仍然强势，与其协同的光模块则继续分化。
 
-阿联酋宣布退出OPEC。
+其中，以源杰科技等为代表的高价股调整明显。
 
-道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。
+也因此，有官媒表示，警惕千元股“高处不胜寒”。
 
-据报道，OpenAI近期营收和新用户增长均低于其内部目标。
+那么，科技股泡沫吹破了吗？
 
-报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
+存储芯片行情还能持续多久？
 
-这一消息拖累科技股走低。
+光模块行情结束了吗？
 
-英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
+警惕千元股？
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 17:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 17:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 17:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 17:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 17:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 17:17 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:21 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 17:27 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 17:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 17:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 17:40 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 17:18 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 17:19 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 17:35 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 17:21 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 17:46 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 17:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 17:41 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 17:42 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 17:31 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 17:34 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 17:41 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/421185.shtml)
-- 2026-06-29 17:41 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/630178.shtml)
-- 2026-06-29 17:16 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/63564092.shtml)
-- 2026-06-29 17:22 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/0900971252.shtml)
-- 2026-06-29 17:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/311904613.shtml)
-- 2026-06-29 17:17 - [斗破苍穹](https://www.share.minike.top/Article/details/24199398450.shtml)
-- 2026-06-29 17:38 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/858008.shtml)
-- 2026-06-29 17:38 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/70009786.shtml)
-- 2026-06-29 17:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/49011.shtml)
-- 2026-06-29 17:36 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/504134421379.shtml)
-- 2026-06-29 17:15 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0052416.shtml)
-- 2026-06-29 17:40 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/1794106.shtml)
-- 2026-06-29 17:34 - [起风了](https://www.share.minike.top/Article/details/4055736137.shtml)
-- 2026-06-29 17:20 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/902449539755.shtml)
-- 2026-06-29 17:32 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/74630.shtml)
+- 2026-06-29 17:26 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/77323.shtml)
+- 2026-06-29 17:26 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/6730205511.shtml)
+- 2026-06-29 17:28 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/284188923.shtml)
+- 2026-06-29 17:29 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/776518.shtml)
+- 2026-06-29 17:45 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/929936.shtml)
+- 2026-06-29 17:47 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/891119.shtml)
+- 2026-06-29 17:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/861791622.shtml)
+- 2026-06-29 17:37 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/478312353591.shtml)
+- 2026-06-29 17:21 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/91857.shtml)
+- 2026-06-29 17:28 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/84544896685.shtml)
+- 2026-06-29 17:40 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/13930109.shtml)
+- 2026-06-29 17:45 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/3680590.shtml)
+- 2026-06-29 17:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/00530699859.shtml)
+- 2026-06-29 17:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/32274092.shtml)
+- 2026-06-29 17:36 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.minike.top/Article/details/616670269228.shtml)

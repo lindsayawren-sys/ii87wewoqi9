@@ -1,59 +1,58 @@
-# 外资加快在华设立研发中心 服务业释放外资新机遇
+# 2026年广西防灾减灾宣传周启动 救援演示引民众关注
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。 服务业释放外资新机遇 今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业
+中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。 当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事
 
 ## 正文
 
-商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。
+中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。
 
-对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。
+当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。
 
-服务业释放外资新机遇 今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。
+广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事协调机构结合实际，组织开展一系列防灾减灾科普宣教活动，在易灾区域至少开展一次应急演练，至少开展一次风险隐患排查等活动。
 
-沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业在中国设立外商独资医院；外资券商瑞银证券继续加大投入，近期又增资1亿美元，用于投资银行、资产管理等业务扩展。
+据介绍，今年广西聚焦重大基础设施和人员密集场所开展涉灾风险排查，完善监测预警“叫应”和跟踪反馈机制，围绕大震巨灾、城市内涝、山区极端暴雨—山洪—泥石流等复杂场景组织跨区域跨部门协同演练，发挥八桂应急社区响应队“第一响应人”和党员先锋模范作用，确保全区社会大局和谐稳定、全区人民安居乐业。
 
-中国社科院世界经济与政治研究所国际投资室副主任 潘圆圆：外资持续加码投资，在满足民生需要、带动就业扩容等方面发挥了重要作用，为我国服务业高质量发展提供支撑。
+本次活动拉开了集中开展防灾减灾救灾科普宣传教育的序幕，以“人人讲安全，个个会应急——提高防灾减灾救灾能力”为主题，旨在营造人人讲安全、个个会应急的社会氛围。
 
-同时，中国的市场规模、经济活力和新业态、新模式也在吸引外资持续投资。
+活动现场，广西各级各部门通过设立展板、发放资料、有奖问答等形式，为民众普及防灾减灾知识和自救互救技能。
 
-许多外资企业主动把握机遇，纷纷在住宿、出行、金融服务等领域开展业务创新。
+广西消防救援队伍、南宁消防救援机动队伍等通过应急装备展示，提高民众对于新质应急救援装备的认知度。
 
-“十五五”规划纲要指出，促进生活性服务业高品质多样化便利化发展，今年我国也将实施服务业扩能提质行动，扩大服务业市场准入和开放领域，将为包括外资企业在内的各类企业提供源源不断的新商机。
+壮小安应急安全主题馆提供沉浸式的灾害事故场景体验，进一步加深民众的避灾避险意识。
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 17:37 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 17:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 17:27 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 17:28 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:19 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 17:14 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 17:37 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 17:23 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 17:31 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 17:32 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 17:34 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 17:36 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 17:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:39 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 17:20 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 17:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 17:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 17:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 17:20 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:29 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 17:43 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/83801.shtml)
-- 2026-06-29 17:34 - [毒液2](http://www.blog.minike.top/Article/details/86949819659.shtml)
-- 2026-06-29 17:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/9733020.shtml)
-- 2026-06-29 17:17 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/211943.shtml)
-- 2026-06-29 17:23 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.kurohicncr.top/Article/details/1406388.shtml)
-- 2026-06-29 17:25 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/126698083.shtml)
-- 2026-06-29 17:41 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/91700080008.shtml)
-- 2026-06-29 17:17 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/91630543.shtml)
-- 2026-06-29 17:22 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/99012.shtml)
-- 2026-06-29 17:41 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/25871.shtml)
-- 2026-06-29 17:22 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/222241291.shtml)
-- 2026-06-29 17:34 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/574480.shtml)
-- 2026-06-29 17:25 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/41049.shtml)
-- 2026-06-29 17:38 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/30564548.shtml)
-- 2026-06-29 17:12 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/5819413374.shtml)
+- 2026-06-29 17:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/636949992.shtml)
+- 2026-06-29 17:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/847611.shtml)
+- 2026-06-29 17:20 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/93197.shtml)
+- 2026-06-29 17:37 - [逆天祖国人](https://www.blog.minike.top/Article/details/789569789.shtml)
+- 2026-06-29 17:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/7992665.shtml)
+- 2026-06-29 17:25 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/03408.shtml)
+- 2026-06-29 17:46 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/8860262.shtml)
+- 2026-06-29 17:45 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/104028125.shtml)
+- 2026-06-29 17:21 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/05291742.shtml)
+- 2026-06-29 17:25 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/96594.shtml)
+- 2026-06-29 17:41 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/60535.shtml)
+- 2026-06-29 17:21 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/6790250.shtml)
+- 2026-06-29 17:32 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/6603127.shtml)
+- 2026-06-29 17:23 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/72462729.shtml)
+- 2026-06-29 17:47 - [中国战机大片上新](https://www.blog.minike.top/Article/details/0111609506.shtml)

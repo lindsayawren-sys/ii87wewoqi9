@@ -1,57 +1,56 @@
-# 看好服务业巨大容量和开放机遇 投资中国成为外资企业“必选项”
+# 成都与比利时弗拉芒·布拉邦共庆友城十五载 携手挖掘合作新机遇
 
-> 更新时间：2026-06-29 17:42:02 UTC+8
+> 更新时间：2026-06-29 17:48:02 UTC+8
 
 ## 摘要
 
-央视网消息：商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。 今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业在中国设立
+中新网成都5月12日电 (袁牟知博)作为2026成都国际友城合作与发展大会的重要配套活动，“蓉欧产业对话：中国成都——比利时弗拉芒·布拉邦省投资机遇座谈会”12日在蓉举行。双方代表共庆两地自2011年结为友好城市15周年，并围绕双向投资与产业合作展开深入交流。 弗拉芒·布拉邦省处于欧洲心脏地带，是比利时重要经济区域之一。这里交通便利，高速公路网络发达，连接比利时首都布鲁塞尔和周
 
 ## 正文
 
-央视网消息：商务部发布的数据显示，今年一季度，服务业实际使用外资1746亿元人民币，占全国实际使用外资总额超七成，增量还在持续扩大。
+中新网成都5月12日电 (袁牟知博)作为2026成都国际友城合作与发展大会的重要配套活动，“蓉欧产业对话：中国成都——比利时弗拉芒·布拉邦省投资机遇座谈会”12日在蓉举行。
 
-对于外资企业来说，中国不仅在制造业领域具备优势，也正成为服务业投资的新“蓝海”。
+双方代表共庆两地自2011年结为友好城市15周年，并围绕双向投资与产业合作展开深入交流。
 
-今年以来，看好中国服务业的巨大容量和开放机遇，不少外资企业在商贸、文旅、医疗等多领域加快投资。
+弗拉芒·布拉邦省处于欧洲心脏地带，是比利时重要经济区域之一。
 
-沃尔玛、开市客、泰佩思琦等外资零售企业稳步拓店；新加坡医疗企业在中国设立外商独资医院；外资券商瑞银证券继续加大投入，近期又增资1亿美元，用于投资银行、资产管理等业务扩展。
+这里交通便利，高速公路网络发达，连接比利时首都布鲁塞尔和周边城市。
 
-中国社科院世界经济与政治研究所国际投资室副主任潘圆圆表示，外资持续加码投资，在满足民生需要、带动就业扩容等方面发挥了重要作用，为我国服务业高质量发展提供支撑。
+知识产业优势尤为突出，首府鲁汶市是欧洲知名大学城，鲁汶天主教大学享有盛誉，全球顶尖的IMEC微电子研究中心也坐落于此。
 
-同时，中国的市场规模、经济活力和新业态、新模式也在吸引外资持续投资，许多外资企业主动把握机遇，纷纷在住宿、出行、金融服务等领域开展业务创新。
+两地近年来的交流热络而富有成效。
 
-“十五五”规划纲要指出，促进生活性服务业高品质多样化便利化发展。
+2023年，弗拉芒·布拉邦省副省长德哈纳率团访问成都，参加由布鲁塞尔机场发起的航空物流路演活动；2024年，弗拉芒·布拉邦省在成都世界园艺博览会永久设立弗拉芒·布拉邦展园，成为友谊的绿色见证；2025年，弗拉芒·布拉邦省省长詹·斯普伦率团来蓉，参加2025成都国际友城合作与发展大会，并走进成都天府国际机场、成都国际铁路港和四川大学，实地感受成都的开放与活力。
 
-今年，我国也将实施服务业扩能提质行动，扩大服务业市场准入和开放领域，将为包括外资企业在内的各类企业提供源源不断的新商机。
+此外，弗拉芒·布拉邦省多次选派青年音乐家代表团来到成都国际友城青年音乐周，西南交通大学、四川大学与鲁汶大学在学生培养、人员互访和联合科研方面保持着亲密合作。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 17:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 17:36 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 17:39 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 17:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 17:21 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 17:30 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 17:24 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 17:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 17:36 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:13 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 17:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 17:20 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 17:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 17:34 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 17:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 17:37 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 17:20 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/022049029.shtml)
-- 2026-06-29 17:28 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/82382703.shtml)
-- 2026-06-29 17:26 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/410459887.shtml)
-- 2026-06-29 17:29 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/60787.shtml)
-- 2026-06-29 17:21 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/7648207.shtml)
-- 2026-06-29 17:12 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/784205.shtml)
-- 2026-06-29 17:38 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/9469696371.shtml)
-- 2026-06-29 17:38 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/1317568.shtml)
-- 2026-06-29 17:16 - [毒液2](https://www.blog.kurohicncr.top/Article/details/3271125212.shtml)
-- 2026-06-29 17:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/3153546.shtml)
-- 2026-06-29 17:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/86217.shtml)
-- 2026-06-29 17:34 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/390017608.shtml)
-- 2026-06-29 17:26 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/45311417.shtml)
-- 2026-06-29 17:18 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/15587.shtml)
-- 2026-06-29 17:13 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/85481999344.shtml)
+- 2026-06-29 17:35 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/18667.shtml)
+- 2026-06-29 17:31 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/58245.shtml)
+- 2026-06-29 17:35 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/963808752.shtml)
+- 2026-06-29 17:46 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/52774932008.shtml)
+- 2026-06-29 17:40 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/5126579.shtml)
+- 2026-06-29 17:22 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/72950.shtml)
+- 2026-06-29 17:27 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/4948092.shtml)
+- 2026-06-29 17:36 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/639622068634.shtml)
+- 2026-06-29 17:44 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/4521939.shtml)
+- 2026-06-29 17:24 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/83388.shtml)
+- 2026-06-29 17:28 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/88507403558.shtml)
+- 2026-06-29 17:32 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/8521126.shtml)
+- 2026-06-29 17:37 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/7425078.shtml)
+- 2026-06-29 17:23 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/53565.shtml)
+- 2026-06-29 17:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/247850367268.shtml)
