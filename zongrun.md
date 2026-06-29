@@ -1,52 +1,50 @@
-# 再鼎医药早盘涨逾8% ZL-1503临床前研究的最新数据积极
+# 北京银行获批不超600亿元资本工具计划发行额度
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-再鼎医药（09688）早盘涨逾8%，截至发稿，股价上涨7.99%，现报19.73港元，成交额2.51亿港元。 4月18日，再鼎医药公布了ZL-1503临床前研究的最新数据，数据表明公司自主研发的这款IL-13/IL-31Rα双特异性抗体可能持续抑制特应性疾病引起的剧烈瘙痒和炎症。该研究结果在马萨诸塞州波士顿举行的IMMUNOLOGY2026大会壁报展示环节发布，进一步证实了ZL
+5月9日金融一线消息，北京金融监管局发布《关于北京银行股份有限公司资本工具计划发行额度的批复》，同意该行资本工具计划发行额度不超过600亿元人民币。 北京金融监管局表示，该行发行和管理资本工具，应严格遵守《商业银行资本管理办法》等有关规定。可在批准额度内，自主决定具体工具品种、发行时间、批次和规模，并于批准后的24个月内完成发行。责任编辑：曹睿潼
 
 ## 正文
 
-再鼎医药（09688）早盘涨逾8%，截至发稿，股价上涨7.99%，现报19.73港元，成交额2.51亿港元。
+5月9日金融一线消息，北京金融监管局发布《关于北京银行股份有限公司资本工具计划发行额度的批复》，同意该行资本工具计划发行额度不超过600亿元人民币。
 
-4月18日，再鼎医药公布了ZL-1503临床前研究的最新数据，数据表明公司自主研发的这款IL-13/IL-31Rα双特异性抗体可能持续抑制特应性疾病引起的剧烈瘙痒和炎症。
+北京金融监管局表示，该行发行和管理资本工具，应严格遵守《商业银行资本管理办法》等有关规定。
 
-该研究结果在马萨诸塞州波士顿举行的IMMUNOLOGY2026大会壁报展示环节发布，进一步证实了ZL-1503有望成为治疗中重度特应性皮炎及其他IL-13和IL-31驱动的疾病的同类首创疗法。
+可在批准额度内，自主决定具体工具品种、发行时间、批次和规模，并于批准后的24个月内完成发行。
 
-据悉，再鼎医药于2025年12月启动了ZL-1503的首次人体1/1b期临床研究；临床数据预计于2026年下半年公布。
-
-责任编辑：卢昱君
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 20:54 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 20:32 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 20:58 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 20:32 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 20:44 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 20:56 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 20:57 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 20:49 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 20:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 20:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 20:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 21:05 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 20:49 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 20:50 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 20:36 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 21:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 21:02 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 20:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 20:42 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 20:49 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 20:36 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 21:05 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/59875.shtml)
-- 2026-06-29 20:59 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/755345616.shtml)
-- 2026-06-29 20:51 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/250721217958.shtml)
-- 2026-06-29 20:54 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/142975.shtml)
-- 2026-06-29 20:48 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/697841070117.shtml)
-- 2026-06-29 20:43 - [千与千寻](http://www.share.minike.top/Article/details/2215701.shtml)
-- 2026-06-29 20:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/289659008.shtml)
-- 2026-06-29 20:52 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/37982260.shtml)
-- 2026-06-29 20:31 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/9190742404.shtml)
-- 2026-06-29 20:57 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/905499166.shtml)
-- 2026-06-29 20:59 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/6338983989.shtml)
-- 2026-06-29 20:51 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/068533706950.shtml)
-- 2026-06-29 20:42 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/616853030048.shtml)
-- 2026-06-29 20:46 - [沉睡花园](https://www.blog.minike.top/Article/details/21626796.shtml)
-- 2026-06-29 20:42 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/2583462269.shtml)
+- 2026-06-29 21:02 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/465734597.shtml)
+- 2026-06-29 20:39 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/05307203449.shtml)
+- 2026-06-29 20:45 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/556653.shtml)
+- 2026-06-29 21:04 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/245040.shtml)
+- 2026-06-29 20:39 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/14583.shtml)
+- 2026-06-29 21:03 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/2062255.shtml)
+- 2026-06-29 21:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/48724090561.shtml)
+- 2026-06-29 20:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/16008823.shtml)
+- 2026-06-29 21:04 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/28974.shtml)
+- 2026-06-29 20:49 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/991021.shtml)
+- 2026-06-29 20:39 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/38816.shtml)
+- 2026-06-29 21:04 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/4635834875.shtml)
+- 2026-06-29 20:56 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/16293.shtml)
+- 2026-06-29 20:41 - [温网](https://www.blog.kurohicncr.top/Article/details/95064206423.shtml)
+- 2026-06-29 20:48 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/753893.shtml)

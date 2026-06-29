@@ -1,54 +1,61 @@
-# 赵心童顺利晋级斯诺克世锦赛16强
+# 武汉大学就OPPO母亲节文案发声：极不认同文案的价值倾向
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-北京时间4月19日凌晨，2026斯诺克世锦赛首轮较量在克鲁斯堡剧院打响，卫冕冠军赵心童迎战利亚姆·海菲尔德。双方经过17局激战，赵心童以10-7力克对手，顺利晋级16强。 第一阶段双方争夺激烈，赵心童以5-4微弱优势领先；第二阶段海菲尔德一度将比分追至5-5平，随后赵心童凭借稳定发挥与强势进攻连下四局，打出三杆破百及三杆50+，率先拿到赛点。尽管对手顽强反扑连追两局，但赵心童在
+【相关阅读】段永平谈“OPPO文案翻车”一事：确实不合适 OPPO手机余某团队“母亲节”广告文案引争议，武大文院：余某曾为敝院学生，我们极不认同此文案内容 来源：中国新闻社 近日，OPPO发布的母亲节活动文案引发争议。 武汉大学文学院5月10日发布声明称，知悉网络所传某手机企业余某团队近日“母亲节”宣传文案引发社会批评，武汉大学文学院极感诧异和震惊。 声明称，余某曾为敝院学生。
 
 ## 正文
 
-北京时间4月19日凌晨，2026斯诺克世锦赛首轮较量在克鲁斯堡剧院打响，卫冕冠军赵心童迎战利亚姆·海菲尔德。
+【相关阅读】段永平谈“OPPO文案翻车”一事：确实不合适 OPPO手机余某团队“母亲节”广告文案引争议，武大文院：余某曾为敝院学生，我们极不认同此文案内容 来源：中国新闻社 近日，OPPO发布的母亲节活动文案引发争议。
 
-双方经过17局激战，赵心童以10-7力克对手，顺利晋级16强。
+武汉大学文学院5月10日发布声明称，知悉网络所传某手机企业余某团队近日“母亲节”宣传文案引发社会批评，武汉大学文学院极感诧异和震惊。
 
-第一阶段双方争夺激烈，赵心童以5-4微弱优势领先；第二阶段海菲尔德一度将比分追至5-5平，随后赵心童凭借稳定发挥与强势进攻连下四局，打出三杆破百及三杆50+，率先拿到赛点。
+声明称，余某曾为敝院学生。
 
-尽管对手顽强反扑连追两局，但赵心童在决胜局打出单杆112分锁定胜局，成功闯过首轮关。
+其在校期间，思想端正，以护助公交车上受伤的耄耋老人而获师生赞誉。
 
-其他第一轮的比赛，张安达第一阶段5-3领先马克·艾伦，中国德比肖国栋第一阶段5-4领先周跃龙。
+但此次其职场团队所策划文案，严重牴牾敝院一以贯之的立德树人育人理念。
+
+我们极不认同此文案之内容，尤其不认同其中的戏说玩梗噱头、话语渲染和流露出的价值倾向。
+
+武汉大学文学院一直坚持以中华优秀传统文化和人类先进文化培育学子，严守和推扬“学为君子”的教育品格，砥砺师生正学以闻，肩负国家使命，弘扬先进文化，以平实、担当和坚守报效社会，服务人民。
+
+深愿余校友以自诚勇气，过则勿惮改，善对社会批评，与企业一道肩负起社会责任。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 20:43 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 20:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 20:30 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 20:43 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 20:55 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 20:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 20:31 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 20:36 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 20:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 20:47 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 20:43 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 20:42 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 20:43 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 20:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 20:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 20:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 21:02 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 20:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 20:39 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 21:02 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 20:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 20:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 21:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 20:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 20:37 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 21:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 20:51 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 20:37 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/6592424741.shtml)
-- 2026-06-29 20:44 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/92304.shtml)
-- 2026-06-29 20:56 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/759418923.shtml)
-- 2026-06-29 20:31 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/8217271.shtml)
-- 2026-06-29 20:47 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/875373713345.shtml)
-- 2026-06-29 20:35 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/3539407720.shtml)
-- 2026-06-29 20:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/6926344527.shtml)
-- 2026-06-29 20:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/642969.shtml)
-- 2026-06-29 20:50 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/00853.shtml)
-- 2026-06-29 20:31 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/58898933072.shtml)
-- 2026-06-29 20:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/61188171521.shtml)
-- 2026-06-29 20:36 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/450554495.shtml)
-- 2026-06-29 20:55 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/299202204380.shtml)
-- 2026-06-29 20:37 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/475129589930.shtml)
-- 2026-06-29 20:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1386734260.shtml)
+- 2026-06-29 20:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/7065182364.shtml)
+- 2026-06-29 20:49 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/026433.shtml)
+- 2026-06-29 20:57 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/5478123736.shtml)
+- 2026-06-29 21:03 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/88180317.shtml)
+- 2026-06-29 20:37 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/49570085849.shtml)
+- 2026-06-29 21:01 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/502407.shtml)
+- 2026-06-29 20:55 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/93917394.shtml)
+- 2026-06-29 20:40 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/710399.shtml)
+- 2026-06-29 20:59 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/12763416525.shtml)
+- 2026-06-29 20:54 - [田曦薇没招了](https://www.blog.minike.top/Article/details/392626825.shtml)
+- 2026-06-29 20:38 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/231975.shtml)
+- 2026-06-29 20:43 - [极限挑战第一季](http://www.blog.minike.top/Article/details/8209858.shtml)
+- 2026-06-29 21:02 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/406474870130.shtml)
+- 2026-06-29 21:04 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/61624.shtml)
+- 2026-06-29 20:52 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/68291.shtml)

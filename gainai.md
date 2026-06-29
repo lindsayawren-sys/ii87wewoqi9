@@ -1,57 +1,54 @@
-# 哈萨克斯坦简化签证及审批程序 便利投资者入境
+# 欧元区国债市场已消化中东战事初期价格冲击
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳4月19日电 (记者 单璐)哈萨克斯坦劳动和社会保障部19日发布消息称，该国正通过简化签证办理和许可审批流程，进一步便利投资者和企业代表入境。 消息称，目前哈萨克斯坦已简化针对投资者、企业代表等外国公民的入境、签证及许可办理程序。投资者和企业家可使用专门签证类型，并享受更快捷的审批服务和投资项目配套服务。 同时，从事紧缺职业的外国公民可享受简化入境及相关手续办理条
+德国巴登符腾堡州立银行（LBBW）资深固定收益分析师埃尔马尔・沃尔克在研报中表示，伊朗冲突爆发后，欧元区国债市场目前已消化掉初期价格冲击。 但他同时指出，由于海湾局势何时能企稳缓和仍存不确定性，近几周债价难以开启持续性修复反弹。 他表示：“总体来看，欧元区国债 4 月在明显偏低的价位区间震荡整理；与此同时，价格波动幅度较上月已显著收敛。” 该行认为，波动回落背后反映出：投资者对
 
 ## 正文
 
-中新社阿斯塔纳4月19日电 (记者 单璐)哈萨克斯坦劳动和社会保障部19日发布消息称，该国正通过简化签证办理和许可审批流程，进一步便利投资者和企业代表入境。
+德国巴登符腾堡州立银行（LBBW）资深固定收益分析师埃尔马尔・沃尔克在研报中表示，伊朗冲突爆发后，欧元区国债市场目前已消化掉初期价格冲击。
 
-消息称，目前哈萨克斯坦已简化针对投资者、企业代表等外国公民的入境、签证及许可办理程序。
+但他同时指出，由于海湾局势何时能企稳缓和仍存不确定性，近几周债价难以开启持续性修复反弹。
 
-投资者和企业家可使用专门签证类型，并享受更快捷的审批服务和投资项目配套服务。
+他表示：“总体来看，欧元区国债 4 月在明显偏低的价位区间震荡整理；与此同时，价格波动幅度较上月已显著收敛。
 
-同时，从事紧缺职业的外国公民可享受简化入境及相关手续办理条件。
+” 该行认为，波动回落背后反映出：投资者对于重演 2022 年能源危机最坏情景的担忧，目前已暂时消退。
 
-其中，紧缺职业主要集中在信息技术、医疗卫生、创意产业及工程制造等领域，包括人工智能工程师、神经外科医生、平面设计师及制药工程师等岗位。
-
-在区域合作方面，欧亚经济联盟成员国公民在哈萨克斯坦可无需办理工作许可直接就业。
-
-哈方表示，该机制有助于提升区域劳动力流动性，促进成员国间经济合作。
-
-同时，对非欧亚经济联盟国家的外国公民，哈萨克斯坦实行以配额和劳动力市场需求为基础的引进机制，在满足经济发展需要的同时，兼顾国内就业市场稳定。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 20:53 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 20:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 20:36 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 20:55 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 20:56 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 20:49 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 20:58 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 20:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 20:56 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 21:01 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 20:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 20:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 20:42 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 21:01 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 20:41 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 20:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 20:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 20:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 20:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 20:44 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 20:45 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/1177200536.shtml)
-- 2026-06-29 20:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/23265.shtml)
-- 2026-06-29 20:38 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/254797214.shtml)
-- 2026-06-29 20:36 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/628133284595.shtml)
-- 2026-06-29 20:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/47145057.shtml)
-- 2026-06-29 20:45 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/150741.shtml)
-- 2026-06-29 20:53 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/6395415999.shtml)
-- 2026-06-29 20:58 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/38252.shtml)
-- 2026-06-29 20:55 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/0862210025.shtml)
-- 2026-06-29 20:42 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/517257697.shtml)
-- 2026-06-29 20:45 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/637545763107.shtml)
-- 2026-06-29 20:30 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/4135137.shtml)
-- 2026-06-29 20:35 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/381710322780.shtml)
-- 2026-06-29 20:42 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/020282305045.shtml)
-- 2026-06-29 20:51 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/052564068.shtml)
+- 2026-06-29 20:51 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/9374811.shtml)
+- 2026-06-29 20:43 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/58245204945.shtml)
+- 2026-06-29 20:39 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/03545428963.shtml)
+- 2026-06-29 20:43 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/4376153.shtml)
+- 2026-06-29 20:39 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/79914922312.shtml)
+- 2026-06-29 21:02 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/93569086.shtml)
+- 2026-06-29 20:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/0513929.shtml)
+- 2026-06-29 20:47 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/43716032914.shtml)
+- 2026-06-29 20:44 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/048822417581.shtml)
+- 2026-06-29 20:40 - [啊啊啊](http://www.share.minike.top/Article/details/49275310.shtml)
+- 2026-06-29 20:52 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/34253998956.shtml)
+- 2026-06-29 21:02 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/338582642.shtml)
+- 2026-06-29 20:55 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/5645566708.shtml)
+- 2026-06-29 20:39 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/570960.shtml)
+- 2026-06-29 20:54 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/66245723.shtml)

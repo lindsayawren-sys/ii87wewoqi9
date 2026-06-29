@@ -1,51 +1,58 @@
-# 美议员：本届美政府只为富翁和战争服务
+# （乡村行·看振兴）一杯“蜜咖”联结城乡 “数字游民”走进浙中蜜蜂村
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-当地时间4月18日，美国民主党籍联邦众议员罗·康纳在社交媒体上发视频说，白宫至今都拒绝透露对伊朗战争的成本，白宫管理和预算办公室主任拉塞尔·沃特在国会听证会上也拒绝透露具体数额。康纳表示，据他所知，美国对伊朗的战争每天至少要花费10亿美元。 康纳还说，美国政府希望在新财年预算中申请高达1.5万亿美元的国防预算，而代价则是牺牲美国民众的育儿、教育及医疗保障。与此同时，美国政府还为
+中新网金华5月11日电 题：一杯“蜜咖”联结城乡 “数字游民”走进浙中蜜蜂村 作者 张斌 骆泽明 金加浩 推开黄林坑村一间老屋的木门，咖啡香混着蜂蜜的甜香扑面而来。最近，这座藏在浙江省金华市磐安县尚湖镇大山里的“浙中蜜蜂第一村”，因土蜂蜜和咖啡结合调制的“蜜咖”热闹了起来。 村里的老屋变身“蜜咖馆”，离不开25位来自全国各地的数字游民帮忙。他们和村干部一起，粉刷墙壁、安装玻璃顶
 
 ## 正文
 
-当地时间4月18日，美国民主党籍联邦众议员罗·康纳在社交媒体上发视频说，白宫至今都拒绝透露对伊朗战争的成本，白宫管理和预算办公室主任拉塞尔·沃特在国会听证会上也拒绝透露具体数额。
+中新网金华5月11日电 题：一杯“蜜咖”联结城乡 “数字游民”走进浙中蜜蜂村 作者 张斌 骆泽明 金加浩 推开黄林坑村一间老屋的木门，咖啡香混着蜂蜜的甜香扑面而来。
 
-康纳表示，据他所知，美国对伊朗的战争每天至少要花费10亿美元。
+最近，这座藏在浙江省金华市磐安县尚湖镇大山里的“浙中蜜蜂第一村”，因土蜂蜜和咖啡结合调制的“蜜咖”热闹了起来。
 
-康纳还说，美国政府希望在新财年预算中申请高达1.5万亿美元的国防预算，而代价则是牺牲美国民众的育儿、教育及医疗保障。
+村里的老屋变身“蜜咖馆”，离不开25位来自全国各地的数字游民帮忙。
 
-与此同时，美国政府还为富人提供了3.7万亿美元税收减免，他批评本届美国政府是“为亿万富翁和战争服务”的政府。
+他们和村干部一起，粉刷墙壁、安装玻璃顶、搬进咖啡机——原本堆满杂物的老房子，变成透亮朴拙的山野咖啡馆。
+
+今年5月1日开业那天，村民们围在门口看新鲜。
+
+来自北京的游客李静好奇地买了一杯“蜜咖”，尝了一口，竖起大拇指说：“咖啡里带着蜂蜜的清甜和草药香，不腻，很特别。
+
+” 黄林坑村生态优良，村民世代养蜂。
+
+带游客参观时，黄林坑村村委会副主任蔡金兴特意来到村里的蜂场。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 20:51 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 20:36 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 20:55 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 20:47 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 20:40 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 20:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 20:33 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 20:32 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 20:53 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 20:57 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 20:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 20:48 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 21:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 20:39 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 20:53 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 21:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 20:43 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 21:03 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 20:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 20:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 20:59 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 20:46 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 20:51 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/2623834932.shtml)
-- 2026-06-29 20:49 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/392395165.shtml)
-- 2026-06-29 20:43 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/65299849841.shtml)
-- 2026-06-29 20:38 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/400282646782.shtml)
-- 2026-06-29 20:35 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/52898040.shtml)
-- 2026-06-29 20:30 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/068470.shtml)
-- 2026-06-29 20:41 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/3951781652.shtml)
-- 2026-06-29 20:54 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/13085.shtml)
-- 2026-06-29 20:56 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/49159.shtml)
-- 2026-06-29 20:37 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/30632.shtml)
-- 2026-06-29 20:32 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/896430.shtml)
-- 2026-06-29 20:50 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/293183.shtml)
-- 2026-06-29 20:35 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/00633.shtml)
-- 2026-06-29 20:31 - [沙丘](https://www.share.minike.top/Article/details/648967812429.shtml)
-- 2026-06-29 20:45 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/3221742.shtml)
+- 2026-06-29 20:58 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/98845.shtml)
+- 2026-06-29 20:52 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/58514059.shtml)
+- 2026-06-29 20:47 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/67123252085.shtml)
+- 2026-06-29 20:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/56412725744.shtml)
+- 2026-06-29 21:04 - [炽夏](https://www.blog.minike.top/Article/details/76693303.shtml)
+- 2026-06-29 20:55 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/0505794.shtml)
+- 2026-06-29 21:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/4518992.shtml)
+- 2026-06-29 20:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/03622552.shtml)
+- 2026-06-29 20:54 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/1684986735.shtml)
+- 2026-06-29 20:58 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/655790809980.shtml)
+- 2026-06-29 20:46 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/767354.shtml)
+- 2026-06-29 21:04 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/12496546281.shtml)
+- 2026-06-29 20:53 - [速度与激情9](http://www.share.minike.top/Article/details/614916785.shtml)
+- 2026-06-29 20:36 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/4186213912.shtml)
+- 2026-06-29 20:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/98508307931.shtml)

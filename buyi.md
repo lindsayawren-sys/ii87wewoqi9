@@ -1,44 +1,59 @@
-# 美国强力球头奖升至8700万美元 周一将开奖
+# 卢比奥访意向北约盟友施压，针对伊朗局势及霍尔木兹海峡航行权引发外交分歧
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-周六7500万美元的强力球开奖无人中奖；周一开奖的头奖金额预计将增至8700万美元。责任编辑：张俊 SF065
+当地时间5月8日，美国国务卿马尔科·卢比奥在罗马会晤意大利总理乔治娅·梅洛尼。在会后的公开表态中，卢比奥对以意大利为代表的盟友未能全力支持华盛顿应对伊朗局势、重启霍尔木兹海峡的努力表示强烈质疑。 卢比奥在谈及当前中东变局时强调，国际社会普遍认同伊朗构成安全威胁且不能拥有核武器，但在具体行动层面，盟友应与美方保持步调一致。他公开质问：“世界是否准备接受伊朗控制国际水道？如果答案是
 
 ## 正文
 
-周六7500万美元的强力球开奖无人中奖；周一开奖的头奖金额预计将增至8700万美元。
+当地时间5月8日，美国国务卿马尔科·卢比奥在罗马会晤意大利总理乔治娅·梅洛尼。
 
-责任编辑：张俊 SF065
+在会后的公开表态中，卢比奥对以意大利为代表的盟友未能全力支持华盛顿应对伊朗局势、重启霍尔木兹海峡的努力表示强烈质疑。
+
+卢比奥在谈及当前中东变局时强调，国际社会普遍认同伊朗构成安全威胁且不能拥有核武器，但在具体行动层面，盟友应与美方保持步调一致。
+
+他公开质问：“世界是否准备接受伊朗控制国际水道？
+
+如果答案是否定的，那么各国必须明确将为此采取何种行动。
+
+” 卢比奥此番表态是在美伊冲突升级的背景下作出的。
+
+今年2月28日相关海域遭袭后，德黑兰方面事实上关闭了霍尔木兹海峡。
+
+美方随后敦促盟友支持美国与以色列针对伊朗的军事行动，但遭到意大利等欧洲国家的拒绝。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 20:59 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 20:32 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 20:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 20:33 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 20:38 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:52 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 20:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 20:56 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 20:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 20:48 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 20:56 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 21:01 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:38 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 20:58 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 20:49 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 20:53 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 20:47 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 20:50 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 20:54 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 20:38 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 20:49 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/117180.shtml)
-- 2026-06-29 20:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/42506891552.shtml)
-- 2026-06-29 20:53 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/087212940592.shtml)
-- 2026-06-29 20:49 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/82730.shtml)
-- 2026-06-29 20:59 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/321604901.shtml)
-- 2026-06-29 20:43 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/63384.shtml)
-- 2026-06-29 20:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/585965474.shtml)
-- 2026-06-29 20:33 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/035210.shtml)
-- 2026-06-29 20:31 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/63478477473.shtml)
-- 2026-06-29 20:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9721307.shtml)
-- 2026-06-29 20:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/1243118.shtml)
-- 2026-06-29 20:55 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/82916131.shtml)
-- 2026-06-29 20:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/04507499.shtml)
-- 2026-06-29 20:36 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/14399285678.shtml)
-- 2026-06-29 20:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/87375.shtml)
+- 2026-06-29 20:37 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/07608154310.shtml)
+- 2026-06-29 20:40 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/772223291.shtml)
+- 2026-06-29 20:37 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/0046888329.shtml)
+- 2026-06-29 20:43 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/68075.shtml)
+- 2026-06-29 20:51 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/7110110846.shtml)
+- 2026-06-29 20:44 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/574279137540.shtml)
+- 2026-06-29 20:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/223950220.shtml)
+- 2026-06-29 21:00 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/984011528892.shtml)
+- 2026-06-29 20:53 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/7392633.shtml)
+- 2026-06-29 21:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/1813284.shtml)
+- 2026-06-29 21:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/546935.shtml)
+- 2026-06-29 20:38 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/19501929759.shtml)
+- 2026-06-29 20:43 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/64195784.shtml)
+- 2026-06-29 21:03 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/828640229447.shtml)
+- 2026-06-29 20:40 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/99900.shtml)

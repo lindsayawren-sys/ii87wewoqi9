@@ -1,56 +1,59 @@
-# 避开昂贵汽油 电动汽车在欧洲主要市场销量飙升
+# Camtek Q1 2026财报前瞻：AI订单激增，市场聚焦业绩能否延续超预期势头
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网北京4月20日电 综合消息：据路透社报道，2026年第一季度，欧洲主要汽车市场的纯电动汽车销量大幅增长近三分之一。在伊朗战争引发近年来汽油价格最大涨幅之后，消费者开始寻找内燃机汽车的替代方案。 行业协会“欧洲电动汽车协会(E-Mobility Europe)”与研究机构“新动能汽车(New Automotive)”20日公布的数据显示，以注册量作为销量指标，电池电动汽车第
+半导体检测与量测设备供应商Camtek将于5月12日周二盘前发布2026年第一季度财报。在AI驱动下的先进封装需求持续爆发、公司接连斩获大额订单的背景下，市场密切关注其业绩能否延续此前连续八个季度超预期的强劲势头。 核心财务预期 根据多家机构数据汇总，分析师预计Camtek第一季度营收约1.2025亿美元，同比增长约1.4%；GAAP每股收益共识预期为0.68美元，同比下降约1
 
 ## 正文
 
-中新网北京4月20日电 综合消息：据路透社报道，2026年第一季度，欧洲主要汽车市场的纯电动汽车销量大幅增长近三分之一。
+半导体检测与量测设备供应商Camtek将于5月12日周二盘前发布2026年第一季度财报。
 
-在伊朗战争引发近年来汽油价格最大涨幅之后，消费者开始寻找内燃机汽车的替代方案。
+在AI驱动下的先进封装需求持续爆发、公司接连斩获大额订单的背景下，市场密切关注其业绩能否延续此前连续八个季度超预期的强劲势头。
 
-行业协会“欧洲电动汽车协会(E-Mobility Europe)”与研究机构“新动能汽车(New Automotive)”20日公布的数据显示，以注册量作为销量指标，电池电动汽车第一季度的销量同比增长29.4%，达到近56万辆；其中3月份单月同比增幅高达51.3%，超过24万辆，覆盖欧洲15个市场。
+核心财务预期 根据多家机构数据汇总，分析师预计Camtek第一季度营收约1.2025亿美元，同比增长约1.4%；GAAP每股收益共识预期为0.68美元，同比下降约13.9%。
 
-两家机构的联合声明称，本季度注册的约50万辆电池电动汽车足以每年减少200万桶石油消费。
+需注意的是，市场对营收的预测区间存在分歧，此前四个季度，公司营收连续超出市场预期。
 
-报告还指出，德国、法国、西班牙、意大利和波兰作为欧洲五大电动车市场，今年以来电池电动汽车销量均增长超过40%。
+最大看点：OSAT订单爆量，AI成核心引擎 本季财报的最大亮点在于公司与外包半导体封测厂客户的合作取得重大突破。
 
-(完)
+3月30日，Camtek宣布从一家领先封测厂获得价值3100万美元的多系统订单，主要用于支持CoWoS类先进封装。
+
+公司首席执行官披露，2026年第一季度从全球领先封测厂收到的订单总额已突破9000万美元，其中大部分用于同类AI应用，这些系统预计将于年内交付。
+
+财务稳健性与增长路径 展望方面，管理层此前给出的2026年第一季度营收指引约为1.2亿美元，并预计第二季度将持续增长，2026年下半年将实现更显著的增长。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 20:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 20:43 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 20:51 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 20:58 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 20:56 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 20:45 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 20:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 20:36 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 20:46 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 20:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 20:50 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 20:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:00 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 20:56 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 20:39 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 20:39 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 21:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 20:43 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 20:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 21:02 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 20:50 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 20:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 21:00 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 20:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 21:00 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/43241151.shtml)
-- 2026-06-29 20:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/3589803634.shtml)
-- 2026-06-29 20:46 - [我们的少年时代2](https://www.blog.minike.top/Article/details/87844.shtml)
-- 2026-06-29 20:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/2890623.shtml)
-- 2026-06-29 20:56 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/32056.shtml)
-- 2026-06-29 20:35 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/58820924.shtml)
-- 2026-06-29 20:57 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/5590541.shtml)
-- 2026-06-29 20:44 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/264252.shtml)
-- 2026-06-29 20:44 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/70056.shtml)
-- 2026-06-29 20:45 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/026082872298.shtml)
-- 2026-06-29 20:54 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8180866412.shtml)
-- 2026-06-29 20:40 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/915127039.shtml)
-- 2026-06-29 20:40 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/797115508898.shtml)
-- 2026-06-29 20:48 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/05733832512.shtml)
-- 2026-06-29 20:54 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/85911827395.shtml)
+- 2026-06-29 20:37 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/056048270.shtml)
+- 2026-06-29 20:43 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/1722096264.shtml)
+- 2026-06-29 20:39 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/161061.shtml)
+- 2026-06-29 20:42 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/144284799329.shtml)
+- 2026-06-29 20:42 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/6239429.shtml)
+- 2026-06-29 20:36 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/477217207.shtml)
+- 2026-06-29 20:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/83375.shtml)
+- 2026-06-29 20:50 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/9739388226.shtml)
+- 2026-06-29 21:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/726190586.shtml)
+- 2026-06-29 20:55 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/6700360344.shtml)
+- 2026-06-29 20:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/647231.shtml)
+- 2026-06-29 20:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/57266.shtml)
+- 2026-06-29 21:06 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/118385613.shtml)
+- 2026-06-29 20:54 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/1509670.shtml)
+- 2026-06-29 21:05 - [周生如故](http://www.share.kurohicncr.top/Article/details/543127.shtml)

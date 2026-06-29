@@ -1,56 +1,61 @@
-# 中信建投：持续推荐光通信产业链
+# 原创音乐剧《扎西长歌》昆明首演 以歌声致敬长征精神
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信建投证券研究 AI算力产业链已进入下游需求倒逼上游产能的深度爆发期。亚马逊一季度AI年化营收突破150亿美元，证明了云巨头在AI应用端已建立起较强的商业变现能力与确定性；而上游核心光学组件巨头Lumentum产能可能很快提前售罄至2028年，则揭示了底层硬件支撑的紧缺与建设周期之长。这种从云端软件营收增
+中新网昆明5月9日电 (时文枝)今年是红军长征胜利90周年。8日晚，原创音乐剧《扎西长歌》在云南省大剧院首演。现场，诗化的艺术语言与极具民族特色的音乐将观众带回1935年那段风云激荡的岁月，重温扎西会议作为中国革命胜利转折点的光辉历程。 1935年2月5日至10日，中共中央先后在今云南省昭通市威信县境内的水田寨花房子、大河滩庄子上和扎西镇江西会馆召开政治局常委会议、政治局会议和
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网昆明5月9日电 (时文枝)今年是红军长征胜利90周年。
 
-中信建投证券研究 AI算力产业链已进入下游需求倒逼上游产能的深度爆发期。
+8日晚，原创音乐剧《扎西长歌》在云南省大剧院首演。
 
-亚马逊一季度AI年化营收突破150亿美元，证明了云巨头在AI应用端已建立起较强的商业变现能力与确定性；而上游核心光学组件巨头Lumentum产能可能很快提前售罄至2028年，则揭示了底层硬件支撑的紧缺与建设周期之长。
+现场，诗化的艺术语言与极具民族特色的音乐将观众带回1935年那段风云激荡的岁月，重温扎西会议作为中国革命胜利转折点的光辉历程。
 
-这种从云端软件营收增速到硬件基础设施长达数年的订单锁定，构成了当前AI行业最为坚实的景气循环闭环。
+1935年2月5日至10日，中共中央先后在今云南省昭通市威信县境内的水田寨花房子、大河滩庄子上和扎西镇江西会馆召开政治局常委会议、政治局会议和政治局扩大会议，史称“扎西会议”。
 
-我们维持对全球光通信行业高景气度的判断，未来五年有望持续保持高增长态势，我们持续推荐光通信板块。
+扎西会议是长征走向胜利的新起点。
 
-中信建投证券通信&人工智能研究团队推出【光通信产业链投资机遇】： Lumentum指引积极，持续推荐光通信板块 豆包日均Token使用量破120万亿，持续看好光通信板块 北美CSP资本开支指引乐观，Clawdbot火爆，继续推荐光通信 深海科技将为海洋观测网与海洋光通信带来发展新机遇 01 Lumentum指引积极，持续推荐光通信板块 Lumentum CEO表示，公司预计将在未来半年内完成2028年全年产能的锁定。
+《扎西长歌》由昭通市文化艺术剧院有限公司打造，以中央红军长征抵达扎西为历史背景，通过红军指战员叶峰、卫生员王小川，以及扎西当地兄妹陶阿龙、陶细妹的视角，生动再现扎西会议的重大革命贡献。
 
-亚马逊CEO Andy Jassy在年度股东信中披露，公司AI布局的商业回报正全面提速。
+全剧细腻刻画了当地民众从“被救者”成长为革命“接旗人”的蜕变历程，演绎热血青年为理想、家国与情义作出的坚定抉择。
 
-AI算力产业链持续高景气。
+主创团队相关负责人介绍，该剧打破传统音乐剧呈现模式，以音乐串联全剧剧情，并融入跨时空对话等创新表达，兼顾艺术质感与时代新意，力求打动各年龄段观众。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 20:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 20:39 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 20:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 20:52 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:55 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 20:40 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 20:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 20:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 20:58 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 20:51 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 20:41 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 20:57 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 20:43 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 20:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 20:49 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 21:01 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 20:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 20:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 20:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 20:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 21:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 20:38 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/39202.shtml)
-- 2026-06-29 20:54 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/576703.shtml)
-- 2026-06-29 20:51 - [速度与激情9](http://www.share.minike.top/Article/details/86992876.shtml)
-- 2026-06-29 20:32 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/98540075.shtml)
-- 2026-06-29 20:36 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/97571.shtml)
-- 2026-06-29 20:57 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/30982353.shtml)
-- 2026-06-29 20:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/20625.shtml)
-- 2026-06-29 20:32 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/732307720.shtml)
-- 2026-06-29 20:47 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/442078779168.shtml)
-- 2026-06-29 20:41 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/9157931780.shtml)
-- 2026-06-29 20:57 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/3296087500.shtml)
-- 2026-06-29 20:52 - [TTG KSG](http://www.blog.minike.top/Article/details/094075649737.shtml)
-- 2026-06-29 20:55 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/446919.shtml)
-- 2026-06-29 20:53 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/594264946.shtml)
-- 2026-06-29 20:49 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/2744875964.shtml)
+- 2026-06-29 20:54 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/152675.shtml)
+- 2026-06-29 20:37 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/2169468.shtml)
+- 2026-06-29 20:41 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/070597742.shtml)
+- 2026-06-29 20:55 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/594280454745.shtml)
+- 2026-06-29 20:59 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/527635.shtml)
+- 2026-06-29 20:59 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/23263.shtml)
+- 2026-06-29 20:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/2463422.shtml)
+- 2026-06-29 20:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/4553039.shtml)
+- 2026-06-29 20:41 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/32275037612.shtml)
+- 2026-06-29 21:04 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/02713574.shtml)
+- 2026-06-29 20:54 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/99287751.shtml)
+- 2026-06-29 20:58 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/05703863568.shtml)
+- 2026-06-29 20:59 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/941722.shtml)
+- 2026-06-29 20:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/006765848.shtml)
+- 2026-06-29 21:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/6559812.shtml)

@@ -1,60 +1,59 @@
-# 第十七届井冈山杜鹃花节启幕 以花为媒促文旅全域融合
+# 陈茂波：粤港澳推动制定“湾区标准” 香港将成新兴产业“国际接口”
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。 开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山
+中新社香港5月10日电 香港特区政府财政司司长陈茂波10日发表网志表示，粤港澳大湾区拥有前沿人工智能研发、完整高端制造链、国际金融枢纽三重优势，使香港得以在“十五五”时期发挥产业协同、规则衔接两大功能。随着粤港澳三地推动制定“湾区标准”，香港将成为新兴产业落地大湾区的“国际接口”，以及国家标准与国际标准相互参照的交流与转换平台。 陈茂波在文中提到，香港可再生燃料生产商怡斯莱日前
 
 ## 正文
 
-中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。
+中新社香港5月10日电 香港特区政府财政司司长陈茂波10日发表网志表示，粤港澳大湾区拥有前沿人工智能研发、完整高端制造链、国际金融枢纽三重优势，使香港得以在“十五五”时期发挥产业协同、规则衔接两大功能。
 
-本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。
+随着粤港澳三地推动制定“湾区标准”，香港将成为新兴产业落地大湾区的“国际接口”，以及国家标准与国际标准相互参照的交流与转换平台。
 
-开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山市委书记廖东生致辞时表示，杜鹃花作为井冈山的市花，是革命先烈鲜血浸染的光荣之花，是大自然馈赠革命圣地的幸福之花，是春天写给老区人民的希望之花，更是井冈儿女迎接八方宾客的友谊之花。
+陈茂波在文中提到，香港可再生燃料生产商怡斯莱日前进驻东莞开展规模化生产。
 
-“连续十七年节会，一年一花期，一年一主题，我们以花为媒、以节会友，诚邀四海宾朋，共赴春日之约、共赏杜鹃芳华、共品井冈韵味、共话发展蓝图。
+该项目把香港前端研发与国际绿色金融认证优势，与大湾区内地城市的规模化制造能力相结合，是香港作为大湾区创科发展国际接口的案例。
 
-”廖东生说。
+他指出，要培育创新成果不断发展壮大，需要充足空间载体。
 
-吉安市委副书记吴艳玲在开幕式上表示，井冈山的杜鹃是大自然赐予的绚丽瑰宝，也是吉安文旅的独特IP。
+特区政府正全力推进北部都会区建设，特别是河套深港科技创新合作区香港园区及新田科技城，以承载更多科研成果转化及产业化发展。
 
-“如今的吉安和井冈山‘红古绿’三色交相辉映，山水湖美不胜收，红色文化和庐陵文化相互融合，是吉安推进‘农商文体旅’融合发展的灵魂和载体。
+陈茂波强调，产业创新离不开金融支撑。
 
-” 据了解，本届井冈山杜鹃花节以“映山红遍·乐游井冈”为主题，精心策划了“花之绽、花之美、花之影、花之味、花之游、花之行”六大主题板块，涵盖开幕式文艺展演、井冈杜鹃赏花季、“美在井冈”摄影微视频展示、“井冈好味”特色集市、骑行自驾、研学采风等系列活动。
+香港与深圳共同成立的深港金融合作委员会将于5月底召开会议，聚焦“十五五”时期粤港澳大湾区金融市场互联互通、深化金融科技与绿色金融合作等议题，进一步提升大湾区金融市场的体量和整体竞争力。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 20:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 20:55 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 20:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 20:53 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 20:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 20:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 20:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 20:59 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 20:56 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 20:33 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 20:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 20:47 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 21:03 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 20:50 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 20:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 20:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 20:59 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 20:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 20:40 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 20:51 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 20:38 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 20:59 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 20:47 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 20:42 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 20:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/48934464401.shtml)
-- 2026-06-29 20:33 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/39091701.shtml)
-- 2026-06-29 20:35 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/313326.shtml)
-- 2026-06-29 20:50 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/06766.shtml)
-- 2026-06-29 20:33 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/010976.shtml)
-- 2026-06-29 20:36 - [CORTIS 小牌大耍](http://www.blog.kurohicncr.top/Article/details/98729.shtml)
-- 2026-06-29 20:44 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/507086197.shtml)
-- 2026-06-29 20:48 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/0203805.shtml)
-- 2026-06-29 20:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/79818486933.shtml)
-- 2026-06-29 20:53 - [周生如故](http://www.share.kurohicncr.top/Article/details/651753.shtml)
-- 2026-06-29 20:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/74882.shtml)
-- 2026-06-29 20:57 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/026005497122.shtml)
-- 2026-06-29 20:39 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/7473736306.shtml)
-- 2026-06-29 20:30 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/608684774.shtml)
-- 2026-06-29 20:38 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/241317096955.shtml)
+- 2026-06-29 21:03 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/80372793.shtml)
+- 2026-06-29 20:37 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/781674.shtml)
+- 2026-06-29 20:54 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/1846608.shtml)
+- 2026-06-29 20:52 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/0441110823.shtml)
+- 2026-06-29 21:00 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/54492035498.shtml)
+- 2026-06-29 20:53 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/913132773.shtml)
+- 2026-06-29 20:53 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/1105932.shtml)
+- 2026-06-29 20:36 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/65998608.shtml)
+- 2026-06-29 20:56 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/814577136.shtml)
+- 2026-06-29 21:05 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/7884929185.shtml)
+- 2026-06-29 20:44 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/7007660535.shtml)
+- 2026-06-29 20:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/34889065.shtml)
+- 2026-06-29 21:00 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/896375.shtml)
+- 2026-06-29 21:04 - [请回答王牌2019](https://www.share.minike.top/Article/details/71018.shtml)
+- 2026-06-29 21:02 - [扫黑风暴](https://www.blog.minike.top/Article/details/3925018686.shtml)

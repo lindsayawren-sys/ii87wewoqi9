@@ -1,56 +1,59 @@
-# “薛定谔的开放”？货代在观望中焦急等待霍尔木兹海峡恢复通行
+# 港京科技研究院、香港应科院—北京成果转化中心正式揭幕
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-自当地时间17日以来，霍尔木兹海峡究竟开放与否，成为货代们最渴望知道的答案。 “我们目前也只能等待船公司的消息。”18日上午，当被问及霍尔木兹海峡或将重新开放的问题时，深圳华展国际有限公司的物流销售代表陈煜彬对第一财经记者表示。自当地时间17日以来，霍尔木兹海峡究竟开放与否，一度呈现“薛定谔状态”。伊朗外交部、特朗普政府和伊朗军方的表态并不统一，在资本市场一度欢腾之中，霍尔木兹
+中新网北京5月11日电 港京科技研究院、香港应科院—北京成果转化中心11日在北京市通州区紫光科技园正式揭幕，并同步启动“港京科技成果转化创新生态”。 据悉，此次揭幕是深化“两业融合”、打通国内国际创新资源循环、培育新质生产力的关键务实举措，标志着京港科创协同迈入全链条、产业化、常态化的全新阶段。 北京市通州区委常委、常务副区长李先侠致辞表示，此次揭幕，是前沿科研力量扎根北京城市
 
 ## 正文
 
-自当地时间17日以来，霍尔木兹海峡究竟开放与否，成为货代们最渴望知道的答案。
+中新网北京5月11日电 港京科技研究院、香港应科院—北京成果转化中心11日在北京市通州区紫光科技园正式揭幕，并同步启动“港京科技成果转化创新生态”。
 
-“我们目前也只能等待船公司的消息。
+据悉，此次揭幕是深化“两业融合”、打通国内国际创新资源循环、培育新质生产力的关键务实举措，标志着京港科创协同迈入全链条、产业化、常态化的全新阶段。
 
-”18日上午，当被问及霍尔木兹海峡或将重新开放的问题时，深圳华展国际有限公司的物流销售代表陈煜彬对第一财经记者表示。
+北京市通州区委常委、常务副区长李先侠致辞表示，此次揭幕，是前沿科研力量扎根北京城市副中心沃土、赋能区域创新发展的崭新起点，将为本地科创发展、科技成果就地转化积蓄新势能、开启新篇章。
 
-自当地时间17日以来，霍尔木兹海峡究竟开放与否，一度呈现“薛定谔状态”。
+港京科技研究院理事长于迅表示，研究院的使命是充分发挥香港背靠祖国、联通世界的独特优势，全面依托北京作为国际科技创新中心的战略纵深与产业承载力，贯通基础研究、技术转化与产业应用全链条，助力国家构建具有全球竞争力的科技创新体系。
 
-伊朗外交部、特朗普政府和伊朗军方的表态并不统一，在资本市场一度欢腾之中，霍尔木兹海峡的实际开放状态仍然扑朔迷离。
+香港应科院(全称：香港应用科技研究院)董事局主席李惠光表示，港京科技研究院、香港应科院—北京成果转化中心致力推动关键核心技术成果转化，是促进京港两地科技创新合作的重要平台，并实现“从研发创新、中试孵化到产业落地”的完整服务，加速更多科技成果从实验室走向市场应用，为区域高质量发展增添新动力。
 
-最新消息显示，据新华社报道，伊朗外交部发言人巴加埃19日凌晨说，在美国和以色列的侵略将美国军事力量带入海峡周边那一刻，霍尔木兹海峡的无条件过境通行“便已成为历史”。
+活动现场，“港京科技成果转化创新生态”正式启动。
 
-陈煜彬表示，作为物流企业，他们无法单方面行动，需要等待船公司的安排，预计对方也需要观察一段时间，等局势真正稳定下来后才会制定恢复通行的方案。
+该生态以“需求牵引、协同转化”为核心，打破传统科技成果转化“先研发、后应用”的模式，突出以场景为牵引组织创新资源，依托央国企在行业场景和产业资源方面的优势，将真实市场需求、产业痛点前置到科创研发全过程，推动形成“科技赋能产业、产业反哺创新”的良性循环。
 
-与陈煜彬一样处于“观望”状态的货代不在少数，经历了油价飙升、运价上涨、订单停滞的物流行业，对于突如其来的各种消息仍保持着习惯性的冷静。
+活动同期，全新的港京院展厅正式对外开放，集中展示两地科创融合的标杆成果。
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 20:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 20:56 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 20:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 20:53 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 20:56 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 20:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 20:42 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 20:47 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 20:43 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 20:37 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 20:43 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 21:00 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 21:03 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 20:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 20:48 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 20:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 20:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 20:54 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 20:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 20:39 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 20:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 20:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/961740979245.shtml)
-- 2026-06-29 20:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/6894583075.shtml)
-- 2026-06-29 20:52 - [第一炉香](http://www.share.minike.top/Article/details/849769912232.shtml)
-- 2026-06-29 20:56 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/1945887.shtml)
-- 2026-06-29 20:41 - [美人鱼](https://www.share.kurohicncr.top/Article/details/79503219.shtml)
-- 2026-06-29 20:40 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/553607178.shtml)
-- 2026-06-29 20:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/751007472.shtml)
-- 2026-06-29 20:47 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/939702.shtml)
-- 2026-06-29 20:42 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/12827850023.shtml)
-- 2026-06-29 20:54 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/861999684.shtml)
-- 2026-06-29 20:38 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/4993587853.shtml)
-- 2026-06-29 20:57 - [TOP Prada](https://www.share.minike.top/Article/details/487760070.shtml)
-- 2026-06-29 20:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/238771583147.shtml)
-- 2026-06-29 20:30 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/306088933021.shtml)
-- 2026-06-29 20:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/7567590328.shtml)
+- 2026-06-29 20:38 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/1698201.shtml)
+- 2026-06-29 20:50 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/9005461381.shtml)
+- 2026-06-29 20:51 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/85318781.shtml)
+- 2026-06-29 20:56 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/61417648.shtml)
+- 2026-06-29 21:03 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/825410.shtml)
+- 2026-06-29 21:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/132342495.shtml)
+- 2026-06-29 21:00 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/72873676020.shtml)
+- 2026-06-29 20:48 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/18463963.shtml)
+- 2026-06-29 20:55 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/99226.shtml)
+- 2026-06-29 20:43 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/446008423.shtml)
+- 2026-06-29 20:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/067640007109.shtml)
+- 2026-06-29 20:51 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/95123867410.shtml)
+- 2026-06-29 20:48 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/95056466.shtml)
+- 2026-06-29 20:37 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/6468832006.shtml)
+- 2026-06-29 20:37 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/7415771543.shtml)

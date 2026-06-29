@@ -1,47 +1,52 @@
-# 日本7.4级强震导致新干线紧急停运
+# 英特尔、AMD、美光科技有望延续涨势并再创新高
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网4月20日电 据日本广播协会(NHK)报道，当地时间20日16时53分许，日本三陆近海发生7.4级地震。 受其影响，日本东北新干线东京站至新青森站之间部分线路电力供应中断，该区间所有列车已紧急停运。
+半导体股在盘前交易中上涨，有望延续涨势，此前多只芯片股在上周五收于纪录高位。最新一轮上涨主要受到投资者对人工智能基础设施建设持续热情的推动。 这波半导体股涨势也蔓延至亚洲市场：亚洲芯片股飙升至历史新高，延续全球科技股涨势。 部分盘前表现突出的个股包括：英特尔涨6.9%，美光科技涨3.3%，AMD涨2.5%，高通涨1.7%。责任编辑：刘明亮
 
 ## 正文
 
-中新网4月20日电 据日本广播协会(NHK)报道，当地时间20日16时53分许，日本三陆近海发生7.4级地震。
+半导体股在盘前交易中上涨，有望延续涨势，此前多只芯片股在上周五收于纪录高位。
 
-受其影响，日本东北新干线东京站至新青森站之间部分线路电力供应中断，该区间所有列车已紧急停运。
+最新一轮上涨主要受到投资者对人工智能基础设施建设持续热情的推动。
+
+这波半导体股涨势也蔓延至亚洲市场：亚洲芯片股飙升至历史新高，延续全球科技股涨势。
+
+部分盘前表现突出的个股包括：英特尔涨6.9%，美光科技涨3.3%，AMD涨2.5%，高通涨1.7%。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 20:37 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 20:39 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 20:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 20:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 20:56 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 20:53 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 20:57 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 20:59 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 20:39 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 20:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 20:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 20:49 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 20:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 20:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 20:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 20:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 20:46 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 20:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 20:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 20:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 20:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 21:03 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 20:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/72926286312.shtml)
-- 2026-06-29 20:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/26023.shtml)
-- 2026-06-29 20:53 - [逃狱兄弟](http://www.blog.minike.top/Article/details/134122.shtml)
-- 2026-06-29 20:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/01788.shtml)
-- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/6845578840.shtml)
-- 2026-06-29 20:54 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/352902.shtml)
-- 2026-06-29 20:41 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/2050898111.shtml)
-- 2026-06-29 20:45 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/995766808.shtml)
-- 2026-06-29 20:57 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/12319.shtml)
-- 2026-06-29 20:39 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/27014762.shtml)
-- 2026-06-29 20:51 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/10463.shtml)
-- 2026-06-29 20:53 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/6656261.shtml)
-- 2026-06-29 20:37 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/784155.shtml)
-- 2026-06-29 20:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/37206147931.shtml)
-- 2026-06-29 20:43 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/41261525.shtml)
+- 2026-06-29 20:50 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/37025749.shtml)
+- 2026-06-29 20:55 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/68805142.shtml)
+- 2026-06-29 20:45 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/74211885.shtml)
+- 2026-06-29 20:43 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/33351453.shtml)
+- 2026-06-29 20:38 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/66067847038.shtml)
+- 2026-06-29 20:36 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/764423280.shtml)
+- 2026-06-29 20:46 - [金牌调解](https://www.share.minike.top/Article/details/92658511.shtml)
+- 2026-06-29 20:39 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/2181064239.shtml)
+- 2026-06-29 20:44 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/78305900.shtml)
+- 2026-06-29 20:44 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/0401520.shtml)
+- 2026-06-29 20:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/0073827.shtml)
+- 2026-06-29 20:59 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/7140349866.shtml)
+- 2026-06-29 20:41 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/079733156307.shtml)
+- 2026-06-29 20:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/01215549.shtml)
+- 2026-06-29 20:55 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/638840553572.shtml)

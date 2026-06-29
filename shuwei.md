@@ -1,58 +1,58 @@
-# 太原机场持续深耕东南亚市场 “太原-重庆-河内”航线开通
+# 联邦通信委员会专员致信迪士尼：当局正发起审查行动
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网太原4月20日电 (记者 李庭耀)20日，西部航空运力正式入驻太原武宿国际机场(以下简称“太原机场”)，并开通“太原-重庆-河内”航线。 该航线由西部航空运营，为太原首条经停重庆飞往越南河内的客运航线，每日执行一班。 去程航班PN6423，12:50从太原机场起飞，经停重庆，当地时间17:25抵达河内；回程航班PN6424，当地时间18:25从河内起飞，经停重庆，次日00
+核心摘要 联邦通信委员会（FCC）专员安娜・戈麦斯（Anna Gomez）指责特朗普政府对美国广播公司（ABC）发起 “持续且有组织的审查行动”。 联邦通信委员会专员安娜・戈麦斯在致迪士尼（ABC 母公司）首席执行官乔希・达马罗（Josh D’Amaro）的信中表示，ABC 已成为特朗普政府 “持续、有组织的审查与管控行动” 的受害者。 戈麦斯在周一发送给达马罗的信中写道，由共
 
 ## 正文
 
-中新网太原4月20日电 (记者 李庭耀)20日，西部航空运力正式入驻太原武宿国际机场(以下简称“太原机场”)，并开通“太原-重庆-河内”航线。
+核心摘要 联邦通信委员会（FCC）专员安娜・戈麦斯（Anna Gomez）指责特朗普政府对美国广播公司（ABC）发起 “持续且有组织的审查行动”。
 
-该航线由西部航空运营，为太原首条经停重庆飞往越南河内的客运航线，每日执行一班。
+联邦通信委员会专员安娜・戈麦斯在致迪士尼（ABC 母公司）首席执行官乔希・达马罗（Josh D’Amaro）的信中表示，ABC 已成为特朗普政府 “持续、有组织的审查与管控行动” 的受害者。
 
-去程航班PN6423，12:50从太原机场起飞，经停重庆，当地时间17:25抵达河内；回程航班PN6424，当地时间18:25从河内起飞，经停重庆，次日00:55抵达太原。
+戈麦斯在周一发送给达马罗的信中写道，由共和党人布伦丹・卡尔（Brendan Carr）担任主席的联邦通信委员会已被 “武器化”，旨在向 “自由独立的媒体及所有新闻机构施压，迫使其屈服”。
 
-机型为空客A320，提供20公斤免费托运行李、7公斤手提行李及机上小食服务。
+《华尔街曰报》已查阅此信。
 
-此次运力入驻充实了太原机场国际航线运力资源。
+作为委员会中唯一的民主党专员，戈麦斯一直公开批评卡尔的多项举措，她指控这些举措旨在出于政治目的向广播公司施压。
 
-近年来，太原机场持续深耕东南亚市场。
+这封信发出之际，卡尔领导的联邦通信委员会已对迪士尼及 ABC 发起多项调查，其中包括脱口秀节目《观点》（The View）是否应继续享有新闻节目豁免权。
 
-本次新增河内航线后，太原连接东南亚的航线达到3条(曼谷、芽庄、河内)。
+上周，ABC 向联邦通信委员会表示，对《观点》的调查是在 “压制特朗普政府不喜欢的政治言论”。
 
-下一步，太原机场计划开通仰光、清迈等航点，并恢复吉隆坡、新加坡航点，为本地及周边地区旅客提供更多出行选择，促进两地贸易、文化、旅游等领域交流合作。
+戈麦斯告知达马罗，这些调查与事件，加上联邦通信委员会重启对 ABC 在 2024 年大选辩论（时任候选人特朗普与对手卡玛拉・哈里斯对决）中内容审核的投诉，“并非一系列偶然的监管行为”。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 20:59 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 20:53 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 20:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 20:49 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 20:50 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 20:34 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 20:55 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:51 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 20:38 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 20:58 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 20:46 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 21:00 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 21:05 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 20:42 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 20:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 20:50 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 20:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 21:00 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 20:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 20:36 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 21:02 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 20:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/31983.shtml)
-- 2026-06-29 20:58 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/3615789.shtml)
-- 2026-06-29 20:30 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/704356.shtml)
-- 2026-06-29 20:59 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/00569.shtml)
-- 2026-06-29 20:53 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/6249483024.shtml)
-- 2026-06-29 20:54 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/100658.shtml)
-- 2026-06-29 20:55 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/98895011.shtml)
-- 2026-06-29 20:57 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/3987176929.shtml)
-- 2026-06-29 20:51 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/165858374510.shtml)
-- 2026-06-29 20:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/7924419.shtml)
-- 2026-06-29 20:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/09458877140.shtml)
-- 2026-06-29 20:31 - [金牌调解](http://www.share.kurohicncr.top/Article/details/20818.shtml)
-- 2026-06-29 20:32 - [我和我的家乡](http://www.blog.minike.top/Article/details/0634713.shtml)
-- 2026-06-29 20:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/145710.shtml)
-- 2026-06-29 20:44 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/824673950835.shtml)
+- 2026-06-29 20:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/17408936.shtml)
+- 2026-06-29 20:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/0760614.shtml)
+- 2026-06-29 21:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/725653.shtml)
+- 2026-06-29 20:43 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/42943036.shtml)
+- 2026-06-29 20:44 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/756821.shtml)
+- 2026-06-29 20:56 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/70579.shtml)
+- 2026-06-29 20:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/43342233.shtml)
+- 2026-06-29 21:03 - [小娘惹](https://www.blog.minike.top/Article/details/338282817222.shtml)
+- 2026-06-29 20:45 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/848779826.shtml)
+- 2026-06-29 20:39 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/0411357.shtml)
+- 2026-06-29 20:49 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/4066892.shtml)
+- 2026-06-29 20:40 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/837243.shtml)
+- 2026-06-29 20:40 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/2671604.shtml)
+- 2026-06-29 20:58 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/0341736.shtml)
+- 2026-06-29 20:57 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/4853625947.shtml)

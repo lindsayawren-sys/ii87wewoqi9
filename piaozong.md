@@ -1,59 +1,58 @@
-# 废旧CT片回收能炼银？紧急提醒：污染环境还涉嫌违法
+# 酒店“逢假就涨” 多重约束缘何管不住“任性定价”？
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-您家里是否还留存着过往就医时的CT片？如果有人高价回收你会动心吗？现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。记者调查发现，这些回收行为的一个最终目的是提炼白银。回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？我们又该
+酒店“逢假就涨”，平时183元一晚的房间涨到826元 多重约束缘何管不住“任性定价”？ “平时183元一晚的酒店，‘五一’假期最高涨到了826元，提前一个月预订都得花510元。”“五一”假期前，为了避开酒店涨价高峰，游客张晓提前近一个月预订了山东青岛知名景点附近的一家酒店，即便如此，预订价也比非节假日的平日价高出近2倍，而入住当天的实时价格，更是较平时翻了3倍多。 今年“五一”
 
 ## 正文
 
-您家里是否还留存着过往就医时的CT片？
+酒店“逢假就涨”，平时183元一晚的房间涨到826元 多重约束缘何管不住“任性定价”？
 
-如果有人高价回收你会动心吗？
+“平时183元一晚的酒店，‘五一’假期最高涨到了826元，提前一个月预订都得花510元。
 
-现如今，废弃医疗胶片竟然成了“抢手货”，有人开价1.5元一张回收；在二手交易平台上，这些原本记录患者骨骼、器官影像的CT片、X光片，更是被人批量收购。
+”“五一”假期前，为了避开酒店涨价高峰，游客张晓提前近一个月预订了山东青岛知名景点附近的一家酒店，即便如此，预订价也比非节假日的平日价高出近2倍，而入住当天的实时价格，更是较平时翻了3倍多。
 
-记者调查发现，这些回收行为的一个最终目的是提炼白银。
+今年“五一”假期，国内出行热度持续攀升。
 
-回收商们打着“绿色回收”“环保心意”的温情旗号，实则干着破坏环境的勾当，这背后究竟隐藏着怎样的利益链条？
+数据显示，“五一”假期，重点平台全国跨省游客数量规模同比增长7.6%，带动相应酒店住宿消费同比增长18%，连住2个及以上城市酒店的订单量同比增加121%。
 
-我们又该如何处理手中的废弃医用胶片呢？
+出行热情高涨的同时，也有不少消费者反映假期酒店价格涨幅“太过离谱”。
 
-记者在北京走访发现，在小区门口、医院周边、商超附近，悄然出现了一些医用胶片回收摊贩，开价1到2元回收一张CT片。
+“我预订时对比了周边同一档次的酒店，价格基本都在400元～800元之间。
 
-在一家超市门前，有一块写着“回收CT胶片”的牌子，记者稍作停留，摊主就推销起她的“回收业务”。
+”张晓告诉记者，自己每次假期出行，总会遇到酒店价格“逢假必涨”的情况。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 20:55 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 20:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 20:53 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 20:59 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 20:51 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 20:42 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 20:30 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 20:38 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 20:35 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 20:58 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 20:57 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 20:47 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 20:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 20:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 20:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 20:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 20:52 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 20:57 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 20:55 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:59 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 20:37 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/9217531.shtml)
-- 2026-06-29 20:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/1681563055.shtml)
-- 2026-06-29 20:35 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/5666503.shtml)
-- 2026-06-29 20:58 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/53386488.shtml)
-- 2026-06-29 20:38 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/99025905.shtml)
-- 2026-06-29 20:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/555656204084.shtml)
-- 2026-06-29 20:53 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/36535.shtml)
-- 2026-06-29 20:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/528113.shtml)
-- 2026-06-29 20:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/584434296.shtml)
-- 2026-06-29 20:45 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/86907717914.shtml)
-- 2026-06-29 20:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/7090030.shtml)
-- 2026-06-29 20:38 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/361350.shtml)
-- 2026-06-29 20:32 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/300188.shtml)
-- 2026-06-29 20:52 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/07871526.shtml)
-- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/418637.shtml)
+- 2026-06-29 20:39 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/135047736559.shtml)
+- 2026-06-29 20:58 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/006622.shtml)
+- 2026-06-29 20:51 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/1508741.shtml)
+- 2026-06-29 21:04 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/424482496.shtml)
+- 2026-06-29 20:52 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/4042640.shtml)
+- 2026-06-29 20:39 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/00232.shtml)
+- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/2429119.shtml)
+- 2026-06-29 20:44 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/8206141.shtml)
+- 2026-06-29 20:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/786377559669.shtml)
+- 2026-06-29 20:53 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/45649334515.shtml)
+- 2026-06-29 20:51 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/458679.shtml)
+- 2026-06-29 20:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/993078694.shtml)
+- 2026-06-29 20:59 - [金刚川](http://www.share.minike.top/Article/details/72106.shtml)
+- 2026-06-29 21:01 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/7556518425.shtml)
+- 2026-06-29 20:43 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/818909712.shtml)

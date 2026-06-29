@@ -1,55 +1,59 @@
-# 中国裁军大使：以全球安全倡议引领人工智能军事应用全球治理
+# 上海举办科普活动纪念数学家谷超豪诞辰100周年
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网日内瓦4月18日电 中国裁军大使沈健14日应邀为瑞士日内瓦大学“全球治理：谈判的艺术与科学”课程授课，阐述全球安全倡议、全球治理倡议理念，并就“致命性自主武器系统”政府专家组进程同师生交流。 沈健表示，当前国际安全形势复杂严峻，人工智能在军事领域应用加速发展，其带来的安全风险与挑战日益突出。全球安全倡议、全球治理倡议为人工智能军事应用治理提供了重要理念指引。中方倡导坚持共
+中新网上海5月10日电 (记者 郑莹莹)为纪念数学家、中国科学院院士谷超豪，弘扬其科学家精神，第240期上海科普大讲坛暨“遇见@科学家——致敬谷超豪院士”特别活动10日在上海科技馆举行。 2026年5月15日将是谷超豪院士诞辰100周年的纪念日。 这场活动上，中国科学院院士、复旦大学数学科学学院教授李大潜在题为《深切的缅怀，光辉的榜样——纪念谷超豪院士百岁诞辰》的讲座中深情回顾
 
 ## 正文
 
-中新网日内瓦4月18日电 中国裁军大使沈健14日应邀为瑞士日内瓦大学“全球治理：谈判的艺术与科学”课程授课，阐述全球安全倡议、全球治理倡议理念，并就“致命性自主武器系统”政府专家组进程同师生交流。
+中新网上海5月10日电 (记者 郑莹莹)为纪念数学家、中国科学院院士谷超豪，弘扬其科学家精神，第240期上海科普大讲坛暨“遇见@科学家——致敬谷超豪院士”特别活动10日在上海科技馆举行。
 
-沈健表示，当前国际安全形势复杂严峻，人工智能在军事领域应用加速发展，其带来的安全风险与挑战日益突出。
+2026年5月15日将是谷超豪院士诞辰100周年的纪念日。
 
-全球安全倡议、全球治理倡议为人工智能军事应用治理提供了重要理念指引。
+这场活动上，中国科学院院士、复旦大学数学科学学院教授李大潜在题为《深切的缅怀，光辉的榜样——纪念谷超豪院士百岁诞辰》的讲座中深情回顾了谷超豪院士的生平及杰出成就，将谷超豪院士当年引领自己步入数学殿堂的往事娓娓道来。
 
-中方倡导坚持共同、综合、合作、可持续的安全观，统筹发展与安全，坚持以人为本、智能向善，坚持联合国主导地位，遵守国际法治，在充分协商、凝聚共识基础上推动构建公平合理的治理框架。
+中国科学院院士、复旦大学数学科学学院院长、上海数学中心副主任沈维孝通过贯穿古今的讲解，向现场观众展示了数学学科内在的连续性与创造性。
+
+他引导观众理解不同数学分支之间的深刻联系，从而领略跨学科思维的魅力。
+
+与谷超豪院士同一天生日的幸运观众还参与了上海科技馆策划的“科普体验汇”活动。
+
+在结合了数学与艺术的课程《无限密铺——埃舍尔画中的数学之美》中，学生们循着埃舍尔的思维视角，一步步探索无限密铺中的数学密码。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 20:34 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 20:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 20:37 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 20:35 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 20:56 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 20:43 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 20:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 20:54 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 20:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 20:39 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 20:31 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 20:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 20:51 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 20:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 21:01 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 20:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 20:58 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 21:03 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 20:56 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:01 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 20:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 21:00 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 20:53 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:54 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 20:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 20:55 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 20:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/89854162.shtml)
-- 2026-06-29 20:38 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/8461387591.shtml)
-- 2026-06-29 20:49 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/0100768.shtml)
-- 2026-06-29 20:44 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/3403002543.shtml)
-- 2026-06-29 20:43 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/852141013.shtml)
-- 2026-06-29 20:46 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/2532419.shtml)
-- 2026-06-29 20:56 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/26651811121.shtml)
-- 2026-06-29 20:54 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/972782567.shtml)
-- 2026-06-29 20:33 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/0546697.shtml)
-- 2026-06-29 20:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/2747067.shtml)
-- 2026-06-29 20:48 - [东方风云榜直播](https://www.share.minike.top/Article/details/629632826747.shtml)
-- 2026-06-29 20:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/80307.shtml)
-- 2026-06-29 20:43 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/178298531.shtml)
-- 2026-06-29 20:34 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/89047965226.shtml)
-- 2026-06-29 20:54 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/27592318944.shtml)
+- 2026-06-29 20:49 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/8557907727.shtml)
+- 2026-06-29 20:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/79020.shtml)
+- 2026-06-29 20:57 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/82586029947.shtml)
+- 2026-06-29 20:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/5437725612.shtml)
+- 2026-06-29 20:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/547920306.shtml)
+- 2026-06-29 20:39 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/0731984943.shtml)
+- 2026-06-29 20:47 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/93150830980.shtml)
+- 2026-06-29 20:40 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/734838.shtml)
+- 2026-06-29 20:58 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/407267.shtml)
+- 2026-06-29 21:01 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/93836842.shtml)
+- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/93149.shtml)
+- 2026-06-29 20:53 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/032522234.shtml)
+- 2026-06-29 20:40 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/88552120770.shtml)
+- 2026-06-29 20:49 - [沙丘](http://www.share.kurohicncr.top/Article/details/739801.shtml)
+- 2026-06-29 20:37 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/895155579651.shtml)

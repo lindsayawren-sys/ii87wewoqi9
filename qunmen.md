@@ -1,45 +1,61 @@
-# 河南郑州：一箸香椿满嘴香 一口鲜爽解乡愁
+# 央行为何不停买黄金？
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 12:12 来源：央视网 责任编辑：【姜媛媛】
+来源：中国商报 生活或许有细碎的烦恼，但晨光永远如期而至。早安，朋友们！ 5月7日官方数据出炉，截至2026年4月末，我国外汇储备重回3.4万亿美元之上；央行黄金储备迎来连续18个月增持，4月增持力度创近14个月新高。叠加一季度国内黄金消费量同比增长4.41%，外储企稳、央行囤金、消费升温三大信号齐现，折射出黄金市场运行稳健。 外储规模重回3.4万亿美元之上 数据显示，截至20
 
 ## 正文
 
-发布时间：2026年04月20日 12:12 来源：央视网 责任编辑：【姜媛媛】
+来源：中国商报 生活或许有细碎的烦恼，但晨光永远如期而至。
+
+早安，朋友们！
+
+5月7日官方数据出炉，截至2026年4月末，我国外汇储备重回3.4万亿美元之上；央行黄金储备迎来连续18个月增持，4月增持力度创近14个月新高。
+
+叠加一季度国内黄金消费量同比增长4.41%，外储企稳、央行囤金、消费升温三大信号齐现，折射出黄金市场运行稳健。
+
+外储规模重回3.4万亿美元之上 数据显示，截至2026年4月末，我国外汇储备规模为34105亿美元，较3月末上升684亿美元，升幅为2.05%。
+
+国家外汇管理局表示，2026年4月，受宏观经济数据、主要经济体货币政策及预期等因素影响，美元指数下跌，全球主要金融资产价格表现有所分化。
+
+受汇率折算和资产价格变化等因素综合作用，当月外汇储备规模上升。
+
+我国不断巩固拓展经济稳中向好态势，发展韧性和活力进一步彰显，有利于外汇储备规模保持基本稳定。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 20:52 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 20:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 20:48 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 20:36 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 20:37 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 20:58 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 20:39 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 20:59 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 20:33 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 20:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 20:36 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 20:49 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 21:05 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 20:41 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:57 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 20:43 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 20:51 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 20:49 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 21:01 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 20:54 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 20:51 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 21:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 20:58 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 20:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 20:54 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/11208517183.shtml)
-- 2026-06-29 20:41 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/68975035100.shtml)
-- 2026-06-29 20:56 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/44792190.shtml)
-- 2026-06-29 20:37 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/341181529.shtml)
-- 2026-06-29 20:54 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/693894309760.shtml)
-- 2026-06-29 20:30 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/88120904362.shtml)
-- 2026-06-29 20:41 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/45322769744.shtml)
-- 2026-06-29 20:53 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/444753.shtml)
-- 2026-06-29 20:51 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/061162.shtml)
-- 2026-06-29 20:33 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/8425426.shtml)
-- 2026-06-29 20:33 - [扬名立万](https://www.blog.minike.top/Article/details/691925.shtml)
-- 2026-06-29 20:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/63481.shtml)
-- 2026-06-29 20:31 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/932519.shtml)
-- 2026-06-29 20:55 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/63795938929.shtml)
-- 2026-06-29 20:57 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/314697935.shtml)
+- 2026-06-29 20:53 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/47027.shtml)
+- 2026-06-29 20:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/3810119.shtml)
+- 2026-06-29 20:53 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/812786317.shtml)
+- 2026-06-29 20:42 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/059422733.shtml)
+- 2026-06-29 21:03 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/273635.shtml)
+- 2026-06-29 20:58 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/1956535574.shtml)
+- 2026-06-29 20:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/571786670061.shtml)
+- 2026-06-29 20:37 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/0904299.shtml)
+- 2026-06-29 21:00 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/874764.shtml)
+- 2026-06-29 20:49 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/94535.shtml)
+- 2026-06-29 20:47 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/178996.shtml)
+- 2026-06-29 20:57 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/537244385623.shtml)
+- 2026-06-29 20:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/2576025.shtml)
+- 2026-06-29 21:05 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/389731.shtml)
+- 2026-06-29 20:52 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/947847030448.shtml)

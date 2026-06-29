@@ -1,53 +1,52 @@
-# 中医药监管国际化与成果转化论坛在澳门举办 促产学研深度融合
+# “文天祥”亮相“赣超”赣州队绿茵场
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网澳门4月19日电 (于滢铭 郑嘉伟)“中医药监管国际化与成果转化论坛”19日在澳门大学举办，致力于搭建全球中医药监管协同与产学研成果转化的高端交流平台，吸引逾百名来自中国内地与中国香港、澳门，及新加坡、印度尼西亚等地的专家学者、政府代表及业界人士参与。 论坛以“中医药监管协同与国际合作”和“高校成果转化与产业合作”为主题，设有多场主题演讲，与会专家学者分别从澳门中医药监管
+发布时间：2026年05月11日 13:48 来源：中国新闻网 5月10日晚，江西赣州，2026“赣超”第二轮赣州队主场比赛开赛前，大型宋韵实景演绎节目《千年宋城 文山点兵》上演，历史风骨与足球激情交相辉映。七百多年前，文天祥任赣州知州，在此散尽家财、点兵出征，为“江南宋城”刻下忠义基因。今夜，他以沉浸式演绎 “归来”，策马绿茵、挥旗列阵，用宋韵国风为球队助威，让浩然正气响彻赛
 
 ## 正文
 
-中新网澳门4月19日电 (于滢铭 郑嘉伟)“中医药监管国际化与成果转化论坛”19日在澳门大学举办，致力于搭建全球中医药监管协同与产学研成果转化的高端交流平台，吸引逾百名来自中国内地与中国香港、澳门，及新加坡、印度尼西亚等地的专家学者、政府代表及业界人士参与。
+发布时间：2026年05月11日 13:48 来源：中国新闻网 5月10日晚，江西赣州，2026“赣超”第二轮赣州队主场比赛开赛前，大型宋韵实景演绎节目《千年宋城 文山点兵》上演，历史风骨与足球激情交相辉映。
 
-论坛以“中医药监管协同与国际合作”和“高校成果转化与产业合作”为主题，设有多场主题演讲，与会专家学者分别从澳门中医药监管体系与国际化政策、科技驱动的全生命周期监管、人工智能对中医药研发与监管的变革、全球格局下中医药传承创新发展等角度分享前沿观点与实践经验。
+七百多年前，文天祥任赣州知州，在此散尽家财、点兵出征，为“江南宋城”刻下忠义基因。
 
-澳门大学副校长徐建表示，中医药是中华文明的瑰宝和全球健康的重要资源，学校致力于推动中医药领域的国际学术交流与全球产业合作，希望通过此次论坛充分发挥澳门作为国际化平台的区位优势，推动澳门中医药产业高质量发展，促进产业协同创新与生态圈共建。
+今夜，他以沉浸式演绎 “归来”，策马绿茵、挥旗列阵，用宋韵国风为球队助威，让浩然正气响彻赛场。
 
-论坛期间还举行了初创企业合作签约仪式，多家中心孵化企业与产业伙伴签署协议，迈出技术落地的关键一步。
-
-澳门特区政府药物监督管理局代局长吴国良表示，未来会依托全国高校区域技术转移转化中心、粤澳合作中医药科技产业园、澳门大学药品监管科学研究中心等平台和力量，继续开展中医药研发和成果转化工作，让更多创新成果从实验室走向市场。
-
-(完)
+(刘力鑫 制作 乐小敏 视频来源 赣州市融媒体中心） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 20:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 20:52 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 20:41 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 20:35 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 20:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 20:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 20:59 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 20:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 20:51 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 20:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 21:03 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 20:37 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:41 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 20:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 20:59 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 20:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 21:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 20:52 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:46 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 20:57 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 21:03 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 20:46 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 20:52 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/17936.shtml)
-- 2026-06-29 20:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/889956.shtml)
-- 2026-06-29 20:47 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/7359766627.shtml)
-- 2026-06-29 20:39 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/61885650.shtml)
-- 2026-06-29 20:40 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/24858.shtml)
-- 2026-06-29 20:38 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/861140.shtml)
-- 2026-06-29 20:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/97012444105.shtml)
-- 2026-06-29 20:37 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/61167.shtml)
-- 2026-06-29 20:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/42239264.shtml)
-- 2026-06-29 20:53 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/4330018744.shtml)
-- 2026-06-29 20:37 - [沙丘](http://www.share.minike.top/Article/details/714631669511.shtml)
-- 2026-06-29 20:47 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/81099.shtml)
-- 2026-06-29 20:52 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/2131306.shtml)
-- 2026-06-29 20:54 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/879452183865.shtml)
-- 2026-06-29 20:49 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/7044187.shtml)
+- 2026-06-29 21:00 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/595415013.shtml)
+- 2026-06-29 20:49 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/72557.shtml)
+- 2026-06-29 20:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/852302968168.shtml)
+- 2026-06-29 20:51 - [炽夏](http://www.share.kurohicncr.top/Article/details/011867282.shtml)
+- 2026-06-29 20:53 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/714897.shtml)
+- 2026-06-29 21:00 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/456057811245.shtml)
+- 2026-06-29 21:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/89091.shtml)
+- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/184311752028.shtml)
+- 2026-06-29 20:38 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/51019710549.shtml)
+- 2026-06-29 21:04 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/830220510101.shtml)
+- 2026-06-29 20:46 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/4365667411.shtml)
+- 2026-06-29 20:40 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/1996104963.shtml)
+- 2026-06-29 20:46 - [斗破苍穹](https://www.blog.minike.top/Article/details/1403423.shtml)
+- 2026-06-29 20:57 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/485168254.shtml)
+- 2026-06-29 20:49 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/19690201.shtml)

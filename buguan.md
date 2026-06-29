@@ -1,57 +1,57 @@
-# 下周影响市场重要资讯前瞻：4月LPR报价将公布，成品油将迎调价窗口，美伊临时停火协议到期
+# 违规跨省经营，还欺骗投保人！复星联合健康保险四川分公司被罚
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【重磅新闻】 4月LPR报价将公布 央行将于下周一（4月20日）公布4月贷款市场报价利率（LPR）。3月20日，央行公布的数据显示，1年期LPR为3.0%，5年期以上LPR为3.5%，已连续十个月保持平稳。 央行公开市场将有30亿元逆回购到期 Wind数据显示，下周央行公开市场将有30亿元逆回购到期，其中下
+因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告并罚款。来源｜读创财经编辑｜薛婷阳 责编｜李耿光5月11日，国家金融监督管理总局四川监管局披露的行政处罚信息公开表显示，因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告，并合计罚款41万元。具体来看，复星
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告并罚款。
 
-【重磅新闻】 4月LPR报价将公布 央行将于下周一（4月20日）公布4月贷款市场报价利率（LPR）。
+来源｜读创财经编辑｜薛婷阳 责编｜李耿光5月11日，国家金融监督管理总局四川监管局披露的行政处罚信息公开表显示，因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告，并合计罚款41万元。
 
-3月20日，央行公布的数据显示，1年期LPR为3.0%，5年期以上LPR为3.5%，已连续十个月保持平稳。
+具体来看，复星联合健康保险股份有限公司四川分公司存在以下违法违规：违规跨省经营保险业务；欺骗投保人；财务业务数据不真实；未按规定对双录视频资料进行管理。
 
-央行公开市场将有30亿元逆回购到期 Wind数据显示，下周央行公开市场将有30亿元逆回购到期，其中下周一至下周五分别到期5亿元、10亿元、5亿元、5亿元、5亿元。
+国家金融监督管理总局四川监管局对复星联合健康保险股份有限公司四川分公司警告并罚款29万元；对张元超、尹冬、靳川磊、谭琳、王欣警告并罚款总计12万元。
 
-成品油将迎调价窗口 根据“十个工作日”原则，本轮调价窗口为4月21日24时。
+官网显示，复星联合健康保险股份有限公司（简称“复星联合健康保险”）成立于2017年1月，主要股东是上海复星产业投资有限公司、上海复星医药（集团）股份有限公司、国际金融公司（IFC）、亚洲开发银行（ADB）、广东宜华房地产开发有限公司、广州南沙科金控股集团有限公司、宁波西子资产管理有限公司、重庆东银控股集团有限公司、上海丰实资产管理有限公司和迪安诊断技术集团股份有限公司。
 
-据金联创测算，截至4月17日第八个工作日，参考原油品种均价为97.61美元/桶，变化率为-6.31%，对应的国内汽柴油零售价应下调600元/吨。
+公司注册地广东省广州市，以健康发展、特色经营、创新驱动、体验至上为宗旨，专业提供健康保障及健康管理服务。
 
-美伊临时停火协议到期 4月22日，美伊临时停火协议即将到期，倒计时仅剩3天。
+读创财经注意到，复星联合健康保险此次被罚并非孤例。
 
-据半岛电视台报道，两名巴基斯坦安全消息人士表示，美国与伊朗之间的谈判很可能会在周五之前举行。
+2024年7月12日，国家金融监督管理总局曾对复星联合健康保险开出一张 “百万级”罚单。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 20:41 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 20:35 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 20:46 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:52 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 20:48 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 20:37 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 20:40 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 20:55 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 20:44 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 20:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 20:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 21:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:52 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 20:52 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 20:49 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 20:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 21:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 20:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 20:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 20:51 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 21:03 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/76090.shtml)
-- 2026-06-29 20:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/67397488.shtml)
-- 2026-06-29 20:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/790251.shtml)
-- 2026-06-29 20:39 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/649575518.shtml)
-- 2026-06-29 20:32 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/0155315.shtml)
-- 2026-06-29 20:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/55801700778.shtml)
-- 2026-06-29 20:45 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/8854458.shtml)
-- 2026-06-29 20:45 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/561323.shtml)
-- 2026-06-29 20:39 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/4630111.shtml)
-- 2026-06-29 20:49 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/952644081936.shtml)
-- 2026-06-29 20:31 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/879005404598.shtml)
-- 2026-06-29 20:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/123896.shtml)
-- 2026-06-29 20:46 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/806094024437.shtml)
-- 2026-06-29 20:41 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/96537013757.shtml)
-- 2026-06-29 20:37 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/37855.shtml)
+- 2026-06-29 20:42 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/06869722.shtml)
+- 2026-06-29 20:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/60448.shtml)
+- 2026-06-29 20:37 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/463463.shtml)
+- 2026-06-29 20:50 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/4456271.shtml)
+- 2026-06-29 20:50 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/63074403844.shtml)
+- 2026-06-29 20:58 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/67370759475.shtml)
+- 2026-06-29 20:37 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/779051653.shtml)
+- 2026-06-29 21:02 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/72377.shtml)
+- 2026-06-29 20:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/28116.shtml)
+- 2026-06-29 20:37 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/8993808382.shtml)
+- 2026-06-29 21:05 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/990125622225.shtml)
+- 2026-06-29 20:46 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/7644378223.shtml)
+- 2026-06-29 20:54 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/91506181.shtml)
+- 2026-06-29 20:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/567378.shtml)
+- 2026-06-29 21:00 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/163114.shtml)

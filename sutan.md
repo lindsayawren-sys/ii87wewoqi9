@@ -1,61 +1,54 @@
-# 中亚班列（武汉）运行一年 实现双向贸易高效畅通
+# 商务部新闻发言人就中美经贸磋商有关问题答记者问
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月19日 14:13 来源：中国新闻网 4月18日，X9011次中亚班列满载汽车零部件、电子产品、日用百货，从武汉吴家山铁路中心站驶出，开往乌兹别克斯坦。 2025年4月，中亚班列(武汉)实现“每周六固定开行”。一年来，中亚班列(武汉)累计开行188列，运送货物超17万吨，货值约36亿元人民币。 常态化运行后，班列运输能力大幅提升，装运货物从散货转向汽车
+央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。 有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？ 答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。责任编辑：李
 
 ## 正文
 
-发布时间：2026年04月19日 14:13 来源：中国新闻网 4月18日，X9011次中亚班列满载汽车零部件、电子产品、日用百货，从武汉吴家山铁路中心站驶出，开往乌兹别克斯坦。
+央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。
 
-2025年4月，中亚班列(武汉)实现“每周六固定开行”。
+有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？
 
-一年来，中亚班列(武汉)累计开行188列，运送货物超17万吨，货值约36亿元人民币。
+答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。
 
-常态化运行后，班列运输能力大幅提升，装运货物从散货转向汽车整车、零配件、钢材、家电等大宗物资。
+双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
 
-据湖北铁路集团国际联运有限公司数据，今年以来，中亚班列(武汉)已开行82列、6793个标准集装箱，货值约18亿元，开行量同比增长6.8倍。
-
-中亚班列(武汉)精准对接湖北及周边省份产业需求，有效服务光电子、汽车、装备制造等湖北优势产业，同时吸引了重庆、安徽、上海、江苏等地货源集聚。
-
-中亚班列(武汉)已覆盖共建“一带一路”沿线9国48个城市，班列全程运行约12天，实现双向贸易高效畅通。
-
-下一步，中亚班列(武汉)将稳步扩大开行规模，同时持续拓展跨里海铁海联运等新通道。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 20:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 20:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 20:48 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 20:40 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 20:51 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 20:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 20:44 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 20:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 20:50 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 20:52 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 20:54 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 20:43 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 20:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 20:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 20:41 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 20:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 20:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 20:36 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 21:02 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 21:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 20:41 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 20:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 21:00 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 21:05 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 20:48 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 20:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 21:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 20:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/40466.shtml)
-- 2026-06-29 20:54 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/048434976055.shtml)
-- 2026-06-29 20:58 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/6060014528.shtml)
-- 2026-06-29 20:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/062073156735.shtml)
-- 2026-06-29 20:32 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/208854.shtml)
-- 2026-06-29 20:55 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/801567.shtml)
-- 2026-06-29 20:36 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/51957637.shtml)
-- 2026-06-29 20:48 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/615720812.shtml)
-- 2026-06-29 20:36 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/45560.shtml)
-- 2026-06-29 20:43 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/1015392.shtml)
-- 2026-06-29 20:41 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/42871.shtml)
-- 2026-06-29 20:31 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/56834031.shtml)
-- 2026-06-29 20:54 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/010066579.shtml)
-- 2026-06-29 20:54 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/112773799682.shtml)
-- 2026-06-29 20:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/181104847942.shtml)
+- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/89560888.shtml)
+- 2026-06-29 20:43 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/3904386.shtml)
+- 2026-06-29 20:36 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/6147014299.shtml)
+- 2026-06-29 20:40 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/041821284.shtml)
+- 2026-06-29 20:52 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/481018.shtml)
+- 2026-06-29 20:47 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/8783631.shtml)
+- 2026-06-29 20:46 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/998496.shtml)
+- 2026-06-29 21:03 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/072754818387.shtml)
+- 2026-06-29 21:01 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/23468323.shtml)
+- 2026-06-29 20:53 - [王楚钦开门红](https://www.share.minike.top/Article/details/1489537448.shtml)
+- 2026-06-29 20:58 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/54317725432.shtml)
+- 2026-06-29 21:02 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/21830.shtml)
+- 2026-06-29 20:43 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/18257.shtml)
+- 2026-06-29 20:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/5570160703.shtml)
+- 2026-06-29 20:53 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/135401577284.shtml)

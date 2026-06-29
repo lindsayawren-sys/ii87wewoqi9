@@ -1,57 +1,50 @@
-# 江西上饶举行“三月三”民族文化系列活动 游客沉浸式体验民族风情
+# 中国银行福建省分行被罚315万元：违反账户管理、数据安全管理规定等
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网上饶4月19日电 (记者 王修君 李韵涵)18日，中华民族共有精神家园建设主题文化活动·第四届上饶“三月三”民族文化系列活动暨“寻美上饶·信江文韵e起创”铅山篇活动在江西省上饶市铅山县河口镇举办。 上饶市委统战部分管日常工作的副部长、市民族宗教事务局局长王媛表示，本届活动以“寻美信江文韵，共筑精神家园”为主题，设置“和韵欢歌汇”“风味烟火集”“文脉传薪行”“融情趣享游”“
+5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某
 
 ## 正文
 
-中新网上饶4月19日电 (记者 王修君 李韵涵)18日，中华民族共有精神家园建设主题文化活动·第四届上饶“三月三”民族文化系列活动暨“寻美上饶·信江文韵e起创”铅山篇活动在江西省上饶市铅山县河口镇举办。
+5月9日金融一线消息，中国人民银行福建省分行行政处罚决定信息公示表显示，中国银行股份有限公司福建省分行存在以下违法行为类型，受到警告，并被罚款315万元。
 
-上饶市委统战部分管日常工作的副部长、市民族宗教事务局局长王媛表示，本届活动以“寻美信江文韵，共筑精神家园”为主题，设置“和韵欢歌汇”“风味烟火集”“文脉传薪行”“融情趣享游”“同心共富路”五大板块，采用市县两级“1+N”联动模式，让全市各族群众在丰富多彩的民俗体验中，心靠得更近、情融得更深。
+1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查 陈某（中国银行股份有限公司福建省分行金融科技部）对违反数据安全管理规定负有责任，被罚款2万元。
 
-据铅山县委副书记、县长叶建国介绍，近年来铅山县始终锚定“共同现代化，一个民族都不能少”目标，以铸牢中华民族共同体意识为主线，持续唱响“同心‘铅’续·甜石榴”民族工作品牌，深耕民族文化保护传承，先后举办民族广场舞大赛、“民俗·联谊、民歌·联响、民族·联欢”、体育趣味运动会等系列活动，让各族群众像石榴籽一样紧紧相拥，全方位展现了铅山民族风情与经济社会发展成果。
+序号 当事人名称 （姓名） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚 决定日期 公示期限 备注 1 中国银行股份有限公司福建省分行 闽银罚决字〔2026〕12号 1．违反账户管理规定； 2．违反数据安全管理规定； 3．违反反假货币管理规定； 4．违反人民币流通管理规定； 5．占压财政存款或者资金； 6．违反信用信息采集、提供、查询及相关管理规定； 7．未按照规定开展客户尽职调查。
 
-活动现场，非遗集市、特色美食集市、民俗文化体验集市、科普展品体验等多个互动板块在铅山县河口老街上演，吸引了众多游客沉浸式体验民族文化。
+警告，并处罚款315万元 中国人民银行福建省分行 2026年5月6日 五年 2 陈某（中国银行股份有限公司福建省分行金融科技部） 闽银罚决字〔2026〕11号 对中国银行股份有限公司福建省分行以下违法行为负有责任：违反数据安全管理规定。
 
-夜幕降临，“策马游古镇 欢歌三月三”主题文艺晚会正式开演。
-
-武术表演《狮舞少年》、民族服装秀《吉量》、非遗情景歌舞《畲家豆腐坊》等极具民族风情的节目吸引了众多观众观看。
-
-据介绍，此次活动旨在以铸牢中华民族共同体意识为主线，深入挖掘展示上饶绚烂的民族文化，并借助“寻美”平台，汇聚网络人士力量，以全新视角讲述民族团结进步故事，推动民族文化与文旅发展、乡村振兴深度融合，促进各族群众更深层次地交往、交流、交融。
-
-(完)
+罚款2万元 中国人民银行福建省分行 2026年5月6日 五年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 20:44 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 20:43 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 20:32 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 20:42 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 20:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 20:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 20:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 20:38 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 20:43 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 20:59 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 21:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 20:42 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 20:36 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 20:53 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 20:57 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:47 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 21:03 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 21:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 21:05 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [周生如故](http://www.blog.kurohicncr.top/Article/details/62218073878.shtml)
-- 2026-06-29 20:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/606048.shtml)
-- 2026-06-29 20:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/56491591376.shtml)
-- 2026-06-29 20:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/954534655.shtml)
-- 2026-06-29 20:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/69946.shtml)
-- 2026-06-29 20:51 - [急先锋](https://www.blog.kurohicncr.top/Article/details/403413.shtml)
-- 2026-06-29 20:48 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/58046.shtml)
-- 2026-06-29 20:50 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/056565642.shtml)
-- 2026-06-29 20:47 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/229879.shtml)
-- 2026-06-29 20:59 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/65331267.shtml)
-- 2026-06-29 20:37 - [斗破苍穹](http://www.share.minike.top/Article/details/55618.shtml)
-- 2026-06-29 20:37 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9393785.shtml)
-- 2026-06-29 20:59 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/17536.shtml)
-- 2026-06-29 20:39 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/492074675.shtml)
-- 2026-06-29 20:49 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/794075.shtml)
+- 2026-06-29 20:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/062174683322.shtml)
+- 2026-06-29 21:05 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/101363252.shtml)
+- 2026-06-29 20:41 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/12065.shtml)
+- 2026-06-29 20:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/2024066411.shtml)
+- 2026-06-29 20:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/8547456.shtml)
+- 2026-06-29 20:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/52864.shtml)
+- 2026-06-29 20:45 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/9651219.shtml)
+- 2026-06-29 21:02 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/31022371.shtml)
+- 2026-06-29 20:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/453835.shtml)
+- 2026-06-29 20:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/00073013.shtml)
+- 2026-06-29 20:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/95331700.shtml)
+- 2026-06-29 20:44 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/54628623.shtml)
+- 2026-06-29 20:54 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/34307026960.shtml)
+- 2026-06-29 20:55 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/7087498959.shtml)
+- 2026-06-29 20:44 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/76764371.shtml)

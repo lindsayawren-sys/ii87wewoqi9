@@ -1,57 +1,59 @@
-# LPR，继续“按兵不动”
+# 台湾方面再次无法参加世卫大会 国台办：这一局面完全是民进党当局造成的
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：人民网 中国人民银行授权全国银行间同业拆借中心公布，2026年4月20日贷款市场报价利率（LPR）为：1年期LPR为3.0%，5年期以上LPR为3.5%。两项利率均与上月水平持平，连续11个月“按兵不动”。 当前，我国经济表现出较强韧性，今年一季度GDP同比增长5%，较去年四季度加快0.5个百分点，规
+新华社北京5月11日电(记者李寒芳、马欣然)5月11日，国务院台办发言人陈斌华答记者问。 有记者问：第79届世界卫生大会的注册已于5月10日截止，台湾方面再次无法参加世卫大会。请问对此有何评论？ 陈斌华表示，这一局面完全是民进党当局造成的，是其在台湾地区参与今年世卫大会问题上进行政治操弄、是“以卫谋独”的失败，再次证明国际社会坚持一个中国原则的格局不可撼动。我们对中国台湾地区参
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月11日电(记者李寒芳、马欣然)5月11日，国务院台办发言人陈斌华答记者问。
 
-来源：人民网 中国人民银行授权全国银行间同业拆借中心公布，2026年4月20日贷款市场报价利率（LPR）为：1年期LPR为3.0%，5年期以上LPR为3.5%。
+有记者问：第79届世界卫生大会的注册已于5月10日截止，台湾方面再次无法参加世卫大会。
 
-两项利率均与上月水平持平，连续11个月“按兵不动”。
+请问对此有何评论？
 
-当前，我国经济表现出较强韧性，今年一季度GDP同比增长5%，较去年四季度加快0.5个百分点，规模以上工业增加值、进出口等表现较好，物价数据边际好转，货币政策继续宽松的紧迫性不大。
+陈斌华表示，这一局面完全是民进党当局造成的，是其在台湾地区参与今年世卫大会问题上进行政治操弄、是“以卫谋独”的失败，再次证明国际社会坚持一个中国原则的格局不可撼动。
 
-“从定价基础看，7天期逆回购利率自2025年5月下调后，已连续11个月保持在1.4%不变。
+我们对中国台湾地区参与世卫组织活动问题的立场是一贯的、明确的，即必须按照一个中国原则处理。
 
-”招联首席经济学家、上海金融与发展实验室副主任董希淼表示，定价基础未发生改变，意味着LPR报价缺乏下行的政策空间，这在很大程度上已经预示LPR会保持不动。
+此前，在两岸均坚持体现一个中国原则的“九二共识”基础上，通过两岸协商，台湾地区以“中华台北”名义、观察员身份参加世界卫生大会。
 
-东方金诚首席宏观分析师王青认为，4月两个期限品种的LPR报价保持不变，符合市场预期。
+这是在坚持体现一个中国原则的“九二共识”基础上，通过两岸协商作出的特殊安排。
 
-首先，当月LPR报价的定价基础没有变化。
+陈斌华指出，民进党当局顽固坚持“台独”分裂立场，拒不承认体现一个中国原则的“九二共识”，导致台湾地区参与世卫大会的政治基础不复存在，民进党当局的欺骗行为、挑衅行径必将遭到两岸同胞和国际社会的坚决反对，注定以失败告终。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 20:40 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 20:51 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 20:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 20:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 20:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 20:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 20:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 20:31 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 20:41 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 20:59 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 20:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 20:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 20:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 20:53 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 20:39 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 20:57 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 20:44 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 20:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 20:50 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 20:43 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:49 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 21:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/34554.shtml)
-- 2026-06-29 20:34 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/32042499801.shtml)
-- 2026-06-29 20:30 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/31762923503.shtml)
-- 2026-06-29 20:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/56470950.shtml)
-- 2026-06-29 20:48 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/780864140.shtml)
-- 2026-06-29 20:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/39180393188.shtml)
-- 2026-06-29 20:57 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/458788.shtml)
-- 2026-06-29 20:45 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/310262816462.shtml)
-- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/581082.shtml)
-- 2026-06-29 20:54 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/1996767372.shtml)
-- 2026-06-29 20:33 - [沉睡花园](https://www.blog.minike.top/Article/details/51965199012.shtml)
-- 2026-06-29 20:32 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9438839465.shtml)
-- 2026-06-29 20:52 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/7155544.shtml)
-- 2026-06-29 20:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/98609010.shtml)
-- 2026-06-29 20:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/948793667656.shtml)
+- 2026-06-29 20:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/12290245713.shtml)
+- 2026-06-29 20:44 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/2777650.shtml)
+- 2026-06-29 21:04 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/554899840.shtml)
+- 2026-06-29 21:01 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/46945267.shtml)
+- 2026-06-29 20:59 - [小娘惹](http://www.share.kurohicncr.top/Article/details/59103789.shtml)
+- 2026-06-29 20:48 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/3255712485.shtml)
+- 2026-06-29 20:46 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/17256830.shtml)
+- 2026-06-29 20:36 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/70507.shtml)
+- 2026-06-29 20:49 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/43338478.shtml)
+- 2026-06-29 21:01 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/68290259392.shtml)
+- 2026-06-29 20:48 - [勇敢的心第二部](http://www.share.minike.top/Article/details/65914290475.shtml)
+- 2026-06-29 20:58 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/889790658842.shtml)
+- 2026-06-29 20:58 - [《贺子珍》](https://www.blog.minike.top/Article/details/57205450.shtml)
+- 2026-06-29 20:59 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/697417684968.shtml)
+- 2026-06-29 21:03 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/7885258.shtml)

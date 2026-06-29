@@ -1,59 +1,61 @@
-# 从“劝业”到“劝读” 安庆百年建筑的“跨界”融合
+# 王沪宁会见出席第三届海峡两岸中华文化峰会两岸文化界人士代表
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网安庆4月19日电 (刘鸿鹤)“很多年轻人第一次走进来，是被这座百年建筑的外观吸引；真正让他们留下来的，是里面的书和氛围。”“90后”的安庆新华书店前言后记劝业场店店长杨志宏说。 4月18日，“阅响迎江·红韵赓续”全民阅读活动周在此启幕。该建筑前身为1915年落成的安徽劝业场，是中国现存最早的劝业场建筑之一。民国时期，安庆市政厅曾设于此。 “这里既有书店的文化底蕴，又有老建
+新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。 王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。本届峰
 
 ## 正文
 
-中新网安庆4月19日电 (刘鸿鹤)“很多年轻人第一次走进来，是被这座百年建筑的外观吸引；真正让他们留下来的，是里面的书和氛围。
+新华社北京5月11日电 中共中央政治局常委、全国政协主席王沪宁11日在京会见中国国民党副主席张荣恭和第三届海峡两岸中华文化峰会两岸文化界人士代表。
 
-”“90后”的安庆新华书店前言后记劝业场店店长杨志宏说。
+王沪宁表示，习近平总书记会见中国国民党主席郑丽文时发表重要讲话，为两岸关系发展指明了方向，激励全体中华儿女携手推进祖国统一大业、民族复兴伟业。
 
-4月18日，“阅响迎江·红韵赓续”全民阅读活动周在此启幕。
+习近平总书记多次强调，中华文化是两岸同胞共同的精神财富，是两岸同胞的“根”和“魂”。
 
-该建筑前身为1915年落成的安徽劝业场，是中国现存最早的劝业场建筑之一。
+本届峰会以“血脉相连、文化相通”为主题，就是要彰显两岸同胞坚守国土不可分、国家不可乱、民族不可散、文明不可断的共同信念，彰显两岸同胞做中华文化守护者、传承者、弘扬者的使命担当。
 
-民国时期，安庆市政厅曾设于此。
+王沪宁表示，中华文化是中华民族的精神命脉，两岸同胞共同的中华根、中华魂，源于血脉、植根历史、铸于心中，不会忘却，不可磨灭。
 
-“这里既有书店的文化底蕴，又有老建筑的历史厚重感。
+两岸同胞要坚定中华文化自信，担负起赓续中华文脉、繁荣中华文化的使命，铸牢中华民族共同体意识。
 
-”“90后”市民胡代吟说。
+要把中华民族精神、中华民族价值体系传承好，加强两岸文化交流，促进两岸交流合作，深化两岸融合发展，实现两岸同胞心灵契合。
 
-据悉，该店三层26个房间针对不同年龄群体精准配书，推出文学、哲学等主题书单，满足市民多元阅读需求。
+要推动中华文化创新发展，增强实现中华民族伟大复兴的精神力量。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 20:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 20:37 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 20:43 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 20:46 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 20:45 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 20:31 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 20:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 20:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:45 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 20:37 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 20:45 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 20:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 21:05 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 20:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 20:40 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 21:03 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 20:40 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 20:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 20:46 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:59 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 20:51 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 20:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 21:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:59 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 21:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 20:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 20:59 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/9276545149.shtml)
-- 2026-06-29 20:56 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/52095.shtml)
-- 2026-06-29 20:38 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/24274887575.shtml)
-- 2026-06-29 20:52 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/935635869.shtml)
-- 2026-06-29 20:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/62470.shtml)
-- 2026-06-29 20:50 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/49304.shtml)
-- 2026-06-29 20:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/3281323.shtml)
-- 2026-06-29 20:43 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/11539.shtml)
-- 2026-06-29 20:54 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/7933911.shtml)
-- 2026-06-29 20:43 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/725058391.shtml)
-- 2026-06-29 20:57 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/74065041679.shtml)
-- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/60010697487.shtml)
-- 2026-06-29 20:42 - [TOP Prada](http://www.share.minike.top/Article/details/428777.shtml)
-- 2026-06-29 20:59 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/112510081.shtml)
-- 2026-06-29 20:35 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/4095530630.shtml)
+- 2026-06-29 20:39 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/6886968.shtml)
+- 2026-06-29 20:36 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/04630545272.shtml)
+- 2026-06-29 21:06 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/7228094.shtml)
+- 2026-06-29 20:41 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/73733.shtml)
+- 2026-06-29 20:40 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/216540.shtml)
+- 2026-06-29 21:04 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/13866.shtml)
+- 2026-06-29 20:48 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/739707002495.shtml)
+- 2026-06-29 20:36 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/54792393715.shtml)
+- 2026-06-29 20:38 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/09623227.shtml)
+- 2026-06-29 21:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/49445005970.shtml)
+- 2026-06-29 20:52 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/32677965164.shtml)
+- 2026-06-29 20:58 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/431664835978.shtml)
+- 2026-06-29 20:41 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/24482.shtml)
+- 2026-06-29 20:46 - [毒液2](http://www.share.kurohicncr.top/Article/details/05590.shtml)
+- 2026-06-29 21:00 - [勇敢的心第二部](https://www.share.minike.top/Article/details/0009978370.shtml)

@@ -1,56 +1,61 @@
-# 1961年-2025年祁连山典型冰川面积持续缩减
+# 欧洲央行科赫尔：若通胀前景未见改善，将考虑调整利率
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网西宁4月17日电 (记者 孙睿)青海省气象科学研究所17日对外发布信息称，监测显示：1961年-2025年祁连山典型冰川面积持续缩减。 祁连山位于青藏高原、蒙新高原、黄土高原交汇区，作为国内重要的生态安全屏障，不仅是黄河流域和西北诸河重要产流地，更是生物多样性保护优先区域，生态环境极为脆弱、敏感。 青海省气象科学研究所正高级工程师李晓东告诉中新网记者，祁连山地区八一、岗格
+引欧洲央行管理委员会委员马丁・科赫尔周一表态：若通胀前景未能出现显著好转，欧洲央行不久或将调整利率。 科赫尔接受瑞士媒体采访时表示，即便伊朗局势推高能源价格，也没必要在 6 月 11 日政策会议召开前数周，就提前预判欧洲央行的下一步行动。 在被问及是否认同市场对欧央行 6 月加息的预期时，他称： “但如果局势没有明显改善，短期内利率调整将无可避免。” 科赫尔认为，欧洲央行 4
 
 ## 正文
 
-中新网西宁4月17日电 (记者 孙睿)青海省气象科学研究所17日对外发布信息称，监测显示：1961年-2025年祁连山典型冰川面积持续缩减。
+引欧洲央行管理委员会委员马丁・科赫尔周一表态：若通胀前景未能出现显著好转，欧洲央行不久或将调整利率。
 
-祁连山位于青藏高原、蒙新高原、黄土高原交汇区，作为国内重要的生态安全屏障，不仅是黄河流域和西北诸河重要产流地，更是生物多样性保护优先区域，生态环境极为脆弱、敏感。
+科赫尔接受瑞士媒体采访时表示，即便伊朗局势推高能源价格，也没必要在 6 月 11 日政策会议召开前数周，就提前预判欧洲央行的下一步行动。
 
-青海省气象科学研究所正高级工程师李晓东告诉中新网记者，祁连山地区八一、岗格尔肖合力、团结峰三个典型冰川面积监测评估结果表明，1961年-2025年，祁连山地区年平均气温以每10年0.44摄氏度的速率显著上升，极端气温、冷暖日数显著上升，年降水量以每10年10.4毫米的速率增加，极端降水量、极端降水日数呈增加趋势。
+在被问及是否认同市场对欧央行 6 月加息的预期时，他称： “但如果局势没有明显改善，短期内利率调整将无可避免。
 
-同期，祁连山典型冰川面积持续缩减。
+” 科赫尔认为，欧洲央行 4 月暂缓加息情有可原；但倘若能源价格无法快速、大幅回落，货币政策不宜过久拖延收紧。
 
-“监测显示，2000年-2025年，八一、岗格尔肖合力、团结峰冰川面积年均分别减少0.07平方公里、0.7平方公里、2.27平方公里。
+谈及美国与伊朗冲突可能引发的第二轮通胀效应，他表示，冲突爆发以来，欧洲尚未开启大规模薪资谈判。
 
-”李晓东表示，总体来看，祁连山冰川随气温升高消融加速，降水量在2005年后大幅增加，但对冰川的补给量不足以抵消气温升高造成的消融量，冰川退缩是气候变暖的必然结果。
+这位奥地利央行行长坦言：“可以明确的是，若战事久拖不决、能源价格居高不下，第二轮通胀效应的风险将会上升。
 
-对此，青海省气象科学研究所专家建议，夯实祁连山冰川精密监测，强化灾害机理研究与预警防控体系构建，提升适应气候变化能力建设，加强区域水资源保护，以应对未来变化。
+” 不过他也提到，此番冲击或不同于 2021 至 2022 年的通胀飙升，当前整体需求已然走弱。
 
-(完)
+被问及欧洲是否有陷入滞胀风险时，科赫尔表示，中东冲突已拖累德国与奥地利经济复苏，同时通胀风险也在攀升。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 20:45 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 20:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 20:47 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 20:48 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 20:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 20:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 20:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 20:35 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:31 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 20:59 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 21:04 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 21:02 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 20:44 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 20:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 21:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 20:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 21:03 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 20:38 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 20:54 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 20:52 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 20:39 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 20:42 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 20:57 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/04411052.shtml)
-- 2026-06-29 20:47 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/6220692.shtml)
-- 2026-06-29 20:44 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/23294812046.shtml)
-- 2026-06-29 20:52 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/539926415814.shtml)
-- 2026-06-29 20:48 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/8455520398.shtml)
-- 2026-06-29 20:40 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/38114.shtml)
-- 2026-06-29 20:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/14750802.shtml)
-- 2026-06-29 20:43 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/483533200798.shtml)
-- 2026-06-29 20:35 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/59640413351.shtml)
-- 2026-06-29 20:54 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/859589581.shtml)
-- 2026-06-29 20:57 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/6282415162.shtml)
-- 2026-06-29 20:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/548241901.shtml)
-- 2026-06-29 20:49 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/896271330077.shtml)
-- 2026-06-29 20:35 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/583435.shtml)
-- 2026-06-29 20:40 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/21138344.shtml)
+- 2026-06-29 20:52 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/579130.shtml)
+- 2026-06-29 20:44 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/29990470.shtml)
+- 2026-06-29 20:39 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/38696734.shtml)
+- 2026-06-29 20:43 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/349684765344.shtml)
+- 2026-06-29 20:48 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/6514479.shtml)
+- 2026-06-29 20:55 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/735760.shtml)
+- 2026-06-29 20:50 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/33746.shtml)
+- 2026-06-29 20:46 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/517761163459.shtml)
+- 2026-06-29 21:02 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/9324776.shtml)
+- 2026-06-29 21:02 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/88799357678.shtml)
+- 2026-06-29 20:50 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/4865860118.shtml)
+- 2026-06-29 20:59 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/6144010.shtml)
+- 2026-06-29 21:01 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/8739808.shtml)
+- 2026-06-29 21:04 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/40900.shtml)
+- 2026-06-29 20:43 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/338916.shtml)

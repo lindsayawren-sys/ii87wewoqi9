@@ -1,61 +1,56 @@
-# 周末影响市场重要资讯回顾：荣耀人形机器人半马夺冠，东方证券拟收购上海证券，原油市场再现“绝妙”押注
+# 潮汕腐乳鸡翅走红 吸引海内外食客
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周末影响市场的重要资讯有：东方证券拟收购上海证券100%股权；荣耀人形机器人半马夺冠；拼多多、美团、京东、饿了么、抖音、淘宝、天猫7家电商平台被罚没35.97亿元；伊朗外交部说霍尔木兹海峡无条件过境通行“已成历史”；原油市场再现“绝妙”押注。 【宏观经济】
+中新社广东汕头5月10日电 题：潮汕腐乳鸡翅走红 吸引海内外食客 中新社记者 李怡青 “这腐乳鸡翅，香香脆脆的，外酥里嫩。”10日在汕头龙眼南美食街，一名来自湖南的游客向记者推荐她喜欢的潮汕美食。记者走访了解到，不少游客都喜欢当地美食腐乳鸡翅，盛赞实惠又美味。 潮汕人有用腐乳制成美食的传统，如潮汕腐乳包、腐乳饼、腐乳鸡翅、腐乳五花肉等。腐乳鸡翅用的腐乳又称南乳或红方，以大豆为主
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社广东汕头5月10日电 题：潮汕腐乳鸡翅走红 吸引海内外食客 中新社记者 李怡青 “这腐乳鸡翅，香香脆脆的，外酥里嫩。
 
-本周末影响市场的重要资讯有：东方证券拟收购上海证券100%股权；荣耀人形机器人半马夺冠；拼多多、美团、京东、饿了么、抖音、淘宝、天猫7家电商平台被罚没35.97亿元；伊朗外交部说霍尔木兹海峡无条件过境通行“已成历史”；原油市场再现“绝妙”押注。
+”10日在汕头龙眼南美食街，一名来自湖南的游客向记者推荐她喜欢的潮汕美食。
 
-【宏观经济】 李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 国务院总理李强4月17日主持召开国务院常务会议，听取自由贸易试验区建设情况汇报。
+记者走访了解到，不少游客都喜欢当地美食腐乳鸡翅，盛赞实惠又美味。
 
-会议指出，面对新形势新任务，要深入实施自由贸易试验区提升战略，改革完善体制机制，进一步优化布局提升能级，更好服务国家发展大局。
+潮汕人有用腐乳制成美食的传统，如潮汕腐乳包、腐乳饼、腐乳鸡翅、腐乳五花肉等。
 
-要注重因地制宜、稳步有序、务求实效，在科学评估论证基础上，根据各地情况和实际需要，一区一策制定方案，扎实推进相关工作，推动自贸试验区高质量发展。
+腐乳鸡翅用的腐乳又称南乳或红方，以大豆为主要原料，经红曲米发酵制成。
 
-要支持上海等自贸试验区立足功能定位，主动对接国际高标准经贸规则，稳步扩大规则、规制、管理、标准等制度型开放，探索形成更多可复制可推广的经验做法，更好发挥示范引领和辐射带动作用。
+“制作腐乳鸡翅，关键在腐乳汁比例的调配和腌制，这是我爸妈秘制的配方。
 
-中证协修订发布《证券公司建立稳健薪酬制度指引》 4月17日，中证协修订发布《证券公司建立稳健薪酬制度指引》。
+”来自揭阳市的林奕友经营着一家友记潮汕腐乳鸡翅店。
 
-《指引》适用全部证券公司，各级子公司参照执行，人员范围涵盖与证券公司建立劳动关系的人员和领取薪酬的董事、监事。
+林奕友自有一套严格的标准，从油温的把控到炸制的时长，以此确保鸡翅表皮酥脆和内里鲜嫩多汁。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 20:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 20:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 20:48 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 20:48 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 20:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 20:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 20:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 20:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 20:40 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:37 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 20:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 20:49 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 20:39 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 21:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 20:54 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 20:43 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 20:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 20:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 20:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 20:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 20:41 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 20:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 20:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/944875506.shtml)
-- 2026-06-29 20:32 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/97906.shtml)
-- 2026-06-29 20:32 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/2619580.shtml)
-- 2026-06-29 20:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/329253.shtml)
-- 2026-06-29 20:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/1925400.shtml)
-- 2026-06-29 20:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/6032699671.shtml)
-- 2026-06-29 20:49 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/18986359.shtml)
-- 2026-06-29 20:52 - [温网](https://www.blog.kurohicncr.top/Article/details/253910.shtml)
-- 2026-06-29 20:32 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/4832395.shtml)
-- 2026-06-29 20:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/0050333281.shtml)
-- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/674320240212.shtml)
-- 2026-06-29 20:54 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/29433294049.shtml)
-- 2026-06-29 20:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/353341776.shtml)
-- 2026-06-29 20:46 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1940768.shtml)
-- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/056886111937.shtml)
+- 2026-06-29 20:58 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/063150022790.shtml)
+- 2026-06-29 20:53 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/60514.shtml)
+- 2026-06-29 20:52 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/3914823.shtml)
+- 2026-06-29 20:55 - [女心理师](https://www.blog.minike.top/Article/details/48430802.shtml)
+- 2026-06-29 20:48 - [起风了](http://www.share.minike.top/Article/details/3237513.shtml)
+- 2026-06-29 20:37 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/604267.shtml)
+- 2026-06-29 20:59 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/264966983871.shtml)
+- 2026-06-29 20:46 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/9408365032.shtml)
+- 2026-06-29 20:43 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/6324369883.shtml)
+- 2026-06-29 20:44 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/85482.shtml)
+- 2026-06-29 21:00 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/214585652.shtml)
+- 2026-06-29 20:38 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/441085548.shtml)
+- 2026-06-29 21:03 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/810412.shtml)
+- 2026-06-29 20:40 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/956513504262.shtml)
+- 2026-06-29 20:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/4907503.shtml)

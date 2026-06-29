@@ -1,59 +1,56 @@
-# 文化纪录片《当〈诗经〉遇见刘三姐》在广西南宁开机
+# ATFX汇市前瞻:美国通胀数据叠加美联储换届 美元波动性加剧
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网南宁4月19日电(周应军)六集文化纪录片《当〈诗经〉遇见刘三姐》18日在广西南宁举行开机仪式。该片以《诗经》与广西刘三姐歌谣两大文化IP为核心，打造“古今对话、南北交融”的文化精品力作。 该片由中央广播电视总台、广西壮族自治区党委宣传部、广西壮族自治区文化和旅游厅、广西壮族自治区广播电视局出品，中央广播电视总台影视剧纪录片中心、广西广播电视台联合摄制，并入选中央广播电视总
+专题：ATFX外汇专栏投稿 美国CPI和PPI数据 5月11日，本周二北京时间20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。 ▲ATFX图 核心CPI年率，前值为2.6%，预
 
 ## 正文
 
-中新网南宁4月19日电(周应军)六集文化纪录片《当〈诗经〉遇见刘三姐》18日在广西南宁举行开机仪式。
+专题：ATFX外汇专栏投稿 美国CPI和PPI数据 5月11日，本周二北京时间20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。
 
-该片以《诗经》与广西刘三姐歌谣两大文化IP为核心，打造“古今对话、南北交融”的文化精品力作。
+4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。
 
-该片由中央广播电视总台、广西壮族自治区党委宣传部、广西壮族自治区文化和旅游厅、广西壮族自治区广播电视局出品，中央广播电视总台影视剧纪录片中心、广西广播电视台联合摄制，并入选中央广播电视总台2026“大片看总台”纪录片片单。
+通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。
 
-该片以《诗经》为母体，立足“诗意的现实主义”创作风格，融合纪实拍摄、文化寻访、音乐译唱、民俗呈现等多元表达，在歌声与影像中铸牢中华民族共同体意识。
+▲ATFX图 核心CPI年率，前值为2.6%，预期值为2.7%，预期增幅不明显。
 
-摄制组将深入广西各地实景拍摄，围绕爱情、劳作、民俗、节日、传承等主题，用鲜活人物、真实故事、原生态歌声，记录与《诗经》名篇情感内核高度契合的多民族原生态山歌与生活场景。
+核心CPI月率，前值为0.2%，预期值为0.4%，预期增幅中等。
 
-同时，邀请《诗经》研究专家、文化学者、非遗代表性传承人、青年音乐人共同参与，推动《诗经》中的经典篇章在刘三姐歌谣旋律中焕发新生。
+显然，核心CPI数据的波动性弱于名义CPI数据，因为现阶段影响通胀数据的主要因素是国际油价，核心CPI数据已经剔除了能源和食品的影响。
 
-项目以《诗经》厚植文化根脉，用刘三姐歌谣激活经典活力，打造一部兼具文化深度、艺术价值与时代精神的精品纪录片，向观众展现我国各民族文化美美与共、中华文脉绵延不绝的生动图景。
+▲ATFX图 本周三北京时间20：30，美国将公布4月PPI年率数据，前值为4%，预期值4.9%，预期增幅较大。
 
-纪录片共分两季共六集，第一季计划于2026年12月播出，第二季于2027年广西“三月三”期间播出。
+4月PPI月率，前值为0.5%，预期值持平。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 20:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 20:49 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 20:44 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 20:52 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 20:36 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 20:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 20:55 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 20:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 20:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 20:50 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 20:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 20:34 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 20:38 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 20:57 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 21:00 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 20:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 20:41 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 20:56 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 20:40 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 20:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 20:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 20:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/063340264695.shtml)
-- 2026-06-29 20:44 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/629556589273.shtml)
-- 2026-06-29 20:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/32268.shtml)
-- 2026-06-29 20:36 - [斛珠夫人](http://www.share.minike.top/Article/details/984442213.shtml)
-- 2026-06-29 20:54 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/2332125403.shtml)
-- 2026-06-29 20:32 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/0463061.shtml)
-- 2026-06-29 20:34 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/88328111.shtml)
-- 2026-06-29 20:55 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/3168108.shtml)
-- 2026-06-29 20:55 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/907632738070.shtml)
-- 2026-06-29 20:38 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/5704423288.shtml)
-- 2026-06-29 20:37 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/9095968.shtml)
-- 2026-06-29 20:59 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/552634328.shtml)
-- 2026-06-29 20:41 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/419139835.shtml)
-- 2026-06-29 20:59 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/360710161915.shtml)
-- 2026-06-29 20:54 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.minike.top/Article/details/65514018863.shtml)
+- 2026-06-29 20:48 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/184183003160.shtml)
+- 2026-06-29 20:44 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/0651494061.shtml)
+- 2026-06-29 21:05 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/8673323.shtml)
+- 2026-06-29 21:00 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/94410.shtml)
+- 2026-06-29 20:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/349773903.shtml)
+- 2026-06-29 20:52 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/028329741978.shtml)
+- 2026-06-29 21:02 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/17527615494.shtml)
+- 2026-06-29 20:58 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/664640.shtml)
+- 2026-06-29 20:37 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/125707882.shtml)
+- 2026-06-29 20:55 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/79237664096.shtml)
+- 2026-06-29 20:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/419376.shtml)
+- 2026-06-29 20:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/21971762211.shtml)
+- 2026-06-29 21:00 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/954149662.shtml)
+- 2026-06-29 20:54 - [半导体和股市为何没让韩国人起飞](http://www.blog.kurohicncr.top/Article/details/52611.shtml)
+- 2026-06-29 20:46 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/9859530477.shtml)

@@ -1,61 +1,50 @@
-# 琼陕“双向奔赴” 海南亮相西安丝路旅博会推介康养与研学游
+# 小摩：汇丰控股目标价微升至182港元 给予“增持”评级
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网西安4月19日电 (记者 阿琳娜)2026西安丝绸之路国际旅游博览会17日至19日在陕西西安举行。海南省旅游和文化广电体育厅牵头组织30余家文旅企事业单位、百余名代表组成海南代表团集中亮相，全面展示海南自贸港在文化旅游、康养旅居、研学旅行等领域的特色优势与发展活力。 展会期间，海南省旅文厅于18日举办海南康养旅游推介会、海南研学旅游推介会。推介会上，两地文旅主管部门、行业
+摩根大通发布研报称，目前预测汇丰控股（00005）2026财年净利息收入为460亿美元，符合管理层指引，并预测2026财年综合成本率（CoR）45基点，2026年第二至第四季平均CoR约43基点。基于上述调整，该行将目标价由180港元微升至182港元。评级“增持”。 在汇丰公布2026年第一季业绩后，将2026至2028财年每股盈利预测上调1%，主要受净利息收入及手续费收入较强
 
 ## 正文
 
-中新网西安4月19日电 (记者 阿琳娜)2026西安丝绸之路国际旅游博览会17日至19日在陕西西安举行。
+摩根大通发布研报称，目前预测汇丰控股（00005）2026财年净利息收入为460亿美元，符合管理层指引，并预测2026财年综合成本率（CoR）45基点，2026年第二至第四季平均CoR约43基点。
 
-海南省旅游和文化广电体育厅牵头组织30余家文旅企事业单位、百余名代表组成海南代表团集中亮相，全面展示海南自贸港在文化旅游、康养旅居、研学旅行等领域的特色优势与发展活力。
+基于上述调整，该行将目标价由180港元微升至182港元。
 
-展会期间，海南省旅文厅于18日举办海南康养旅游推介会、海南研学旅游推介会。
+评级“增持”。
 
-推介会上，两地文旅主管部门、行业协会、重点企业、研学机构等齐聚一堂，共商合作、共谋发展。
+在汇丰公布2026年第一季业绩后，将2026至2028财年每股盈利预测上调1%，主要受净利息收入及手续费收入较强所带动，但部分被成本上升所抵销。
 
-海南康养旅游推介会以“自贸港康养+全季旅居”为核心，面向西北市场精准推介特色产品与合作机遇。
-
-推介会集中亮相三大特色产品——雨林中医药深度疗愈之旅、银龄“游学养”康养产品、滨海休闲康养套餐。
-
-活动现场，康泰旅游与西安华飞航空、深圳银龄爱护科技签署战略合作协议，成立“琼陕康养旅游高质量发展联盟”，聚焦客源互送、产品定制与渠道共建，标志着琼陕康养旅游合作迈出实质性步伐。
-
-海南研学旅游推介会以“海岛夏令营研学游天涯”为主题，将海南航天、海洋、雨林等资源转化为沉浸式研学课堂，吸引众多研学机构关注。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 20:56 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 20:41 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 20:54 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 20:59 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 20:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 20:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 20:34 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 20:44 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 20:59 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 20:52 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 20:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 20:44 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 20:36 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 20:33 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:44 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 20:42 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 20:57 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 20:51 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 20:49 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 20:51 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 20:59 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 20:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 20:59 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 21:05 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/72755345743.shtml)
-- 2026-06-29 20:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/7767107.shtml)
-- 2026-06-29 20:55 - [东方风云榜直播](https://www.blog.minike.top/Article/details/31205.shtml)
-- 2026-06-29 20:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/485892253.shtml)
-- 2026-06-29 20:59 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/61362.shtml)
-- 2026-06-29 20:55 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/46716076.shtml)
-- 2026-06-29 20:53 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/559415634811.shtml)
-- 2026-06-29 20:48 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/63539.shtml)
-- 2026-06-29 20:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/03201.shtml)
-- 2026-06-29 20:36 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/10622353.shtml)
-- 2026-06-29 20:56 - [沙丘](https://www.share.minike.top/Article/details/44870726249.shtml)
-- 2026-06-29 20:40 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/9972532.shtml)
-- 2026-06-29 20:32 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/43203504150.shtml)
-- 2026-06-29 20:51 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/3999601118.shtml)
-- 2026-06-29 20:36 - [沉睡花园](https://www.share.minike.top/Article/details/75375.shtml)
+- 2026-06-29 20:38 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/060175210593.shtml)
+- 2026-06-29 20:41 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/549988.shtml)
+- 2026-06-29 20:37 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/123501.shtml)
+- 2026-06-29 20:45 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/0580997.shtml)
+- 2026-06-29 20:37 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/72470356.shtml)
+- 2026-06-29 20:48 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/120991.shtml)
+- 2026-06-29 20:52 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/51282.shtml)
+- 2026-06-29 20:47 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/6128824.shtml)
+- 2026-06-29 21:00 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/3367640.shtml)
+- 2026-06-29 20:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/79354056271.shtml)
+- 2026-06-29 20:45 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/104867944500.shtml)
+- 2026-06-29 20:57 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/400897.shtml)
+- 2026-06-29 20:53 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/7077215.shtml)
+- 2026-06-29 20:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/519058471.shtml)
+- 2026-06-29 20:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/5505508.shtml)

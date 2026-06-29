@@ -1,60 +1,56 @@
-# AI应用反弹，华宝基金创业板人工智能ETF再创新高！光模块CPO小幅回调，机构：看好本轮行情持续性！
+# 为扩大稀有血型群体关注度 三地“熊猫侠”共建互助圈
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-周一（4月20日），热门赛道光模块CPO冲高回落，但AI应用发力上攻，创业板人工智能再收新高！其中，蓝色光标领涨超8%，华策影视、中文在线涨超6%。光模块CPO方面，中际旭创盘中刷新上市高点后收盘微跌0.12%，新易盛、天孚通信小幅回调逾1%。 热门ETF方面，一键布局光模块CPO+AI应用的创业板人工智能ETF华宝（159363）场内收涨0.47%再创上市新高，单日成交超9亿
+原标题：积极参加公益活动 扩大稀有血型群体关注度 三地“熊猫侠”共建互助圈 在河北廊坊，有一群人被称为“熊猫侠”，他们身上流淌着稀有的“熊猫血”，随时准备帮助稀有血型患者渡过难关。今年是廊坊市稀有血型协会成立10周年，作为京津冀地区首家注册的稀有血型社会团体组织，协会从最初的50人，发展到如今的1200多人，累计献血量超过43.75万毫升，救助中外患者上千人。该协会发起人左莹皓
 
 ## 正文
 
-周一（4月20日），热门赛道光模块CPO冲高回落，但AI应用发力上攻，创业板人工智能再收新高！
+原标题：积极参加公益活动 扩大稀有血型群体关注度 三地“熊猫侠”共建互助圈 在河北廊坊，有一群人被称为“熊猫侠”，他们身上流淌着稀有的“熊猫血”，随时准备帮助稀有血型患者渡过难关。
 
-其中，蓝色光标领涨超8%，华策影视、中文在线涨超6%。
+今年是廊坊市稀有血型协会成立10周年，作为京津冀地区首家注册的稀有血型社会团体组织，协会从最初的50人，发展到如今的1200多人，累计献血量超过43.75万毫升，救助中外患者上千人。
 
-光模块CPO方面，中际旭创盘中刷新上市高点后收盘微跌0.12%，新易盛、天孚通信小幅回调逾1%。
+该协会发起人左莹皓计划与北京、天津稀有血型协会管理者联手构建京津冀“互助圈”，以期建成一个覆盖京津冀区域的血型互助与救助体系。
 
-热门ETF方面，一键布局光模块CPO+AI应用的创业板人工智能ETF华宝（159363）场内收涨0.47%再创上市新高，单日成交超9亿元，资金抢筹7200万份。
+廊坊“熊猫侠” 救助中外患者上千人说起组建稀有血型协会的缘由，廊坊市稀有血型协会发起人左莹皓回忆称，2012年，她去医院产检时，被告知是O型Rh阴性血。
 
-时间拉长看，截至4月20日，创业板人工智能ETF华宝（159363）标的指数近1年累计涨幅高达200.82%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
+医院发短信建议她复查，但她没太在意，直到临产，她才意识到问题的严重。
 
-展望后市，光模块CPO、AI应用等多重利好共振，创业板人工智能有望继续受益。
+“当时当地医院对这种血液的储备很少，跑了好几家才找到肯接收我的医院。
 
-注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
+”想起那段经历，左莹皓心里一阵后怕。
 
-指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+此后，左莹皓一直想组建一个稀有血型联盟，为大家用血提供便利。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:45 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 20:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 20:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 21:00 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 20:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 20:52 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 20:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 20:47 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 20:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 20:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 20:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 20:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 20:39 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 20:37 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 20:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 20:49 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 20:46 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 20:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 20:38 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 20:47 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 20:57 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 20:55 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [扬名立万](https://www.blog.minike.top/Article/details/8793599503.shtml)
-- 2026-06-29 20:48 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/27649.shtml)
-- 2026-06-29 20:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/236295.shtml)
-- 2026-06-29 20:37 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/580582368084.shtml)
-- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/788539.shtml)
-- 2026-06-29 20:39 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/4860917.shtml)
-- 2026-06-29 20:31 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/146870.shtml)
-- 2026-06-29 20:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/9857703.shtml)
-- 2026-06-29 20:55 - [勇敢的心第二部](https://www.share.minike.top/Article/details/3123949.shtml)
-- 2026-06-29 20:55 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/7111321.shtml)
-- 2026-06-29 20:56 - [AG 宫斗](https://www.share.minike.top/Article/details/849667696.shtml)
-- 2026-06-29 20:50 - [85花告别古偶](https://www.blog.minike.top/Article/details/50712452.shtml)
-- 2026-06-29 20:57 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/374056.shtml)
-- 2026-06-29 20:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/294500224576.shtml)
-- 2026-06-29 20:47 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/291308058035.shtml)
+- 2026-06-29 21:00 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/304924867781.shtml)
+- 2026-06-29 20:45 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/4232792178.shtml)
+- 2026-06-29 20:52 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/164763.shtml)
+- 2026-06-29 21:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/68487312953.shtml)
+- 2026-06-29 20:45 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/5361523.shtml)
+- 2026-06-29 20:48 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/0213807142.shtml)
+- 2026-06-29 20:44 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/51185.shtml)
+- 2026-06-29 20:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/6715414098.shtml)
+- 2026-06-29 20:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/415085180.shtml)
+- 2026-06-29 20:38 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/815013474.shtml)
+- 2026-06-29 20:36 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/05923009314.shtml)
+- 2026-06-29 20:45 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/1197987718.shtml)
+- 2026-06-29 20:38 - [AG 宫斗](https://www.blog.minike.top/Article/details/674547.shtml)
+- 2026-06-29 20:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/17859968.shtml)
+- 2026-06-29 21:01 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/053370793.shtml)

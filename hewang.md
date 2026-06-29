@@ -1,56 +1,60 @@
-# 新党副主席李胜峰：文明累积让两岸有共同血脉
+# 软银携手韩企在日本成立电池合资公司
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新社郑州4月19日电 (记者 阚力)19日在河南新郑举行的丙午年黄帝故里拜祖大典上，专程从台湾赶来的新党副主席李胜峰接受中新社记者专访时表示，几千年来，文明的累积让两岸有共同的血脉。 轩辕黄帝是中华人文始祖。每年农历三月初三，以“同根同祖同源，和平和睦和谐”为主题的黄帝故里拜祖大典，都吸引世界各地的炎黄子孙来此寻根谒祖。 当日，首次来黄帝故里参加拜祖大典的李胜峰在现场题下“同
+在全球人工智能（AI）热潮推动电力需求激增之际，日本投资集团软银集团（SoftBank Group）推出了一项电池业务。 软银集团的电信部门软银周一表示，将与总部位于韩国的电池公司Cosmos Lab和AI公司DeltaX合作，为日本市场生产大容量电芯和储能系统。 电池和太阳能电池板的生产将在软银位于大阪市的工厂进行。该公司表示，该厂区将建有一个大型AI数据中心和一家AI硬件工
 
 ## 正文
 
-中新社郑州4月19日电 (记者 阚力)19日在河南新郑举行的丙午年黄帝故里拜祖大典上，专程从台湾赶来的新党副主席李胜峰接受中新社记者专访时表示，几千年来，文明的累积让两岸有共同的血脉。
+在全球人工智能（AI）热潮推动电力需求激增之际，日本投资集团软银集团（SoftBank Group）推出了一项电池业务。
 
-轩辕黄帝是中华人文始祖。
+软银集团的电信部门软银周一表示，将与总部位于韩国的电池公司Cosmos Lab和AI公司DeltaX合作，为日本市场生产大容量电芯和储能系统。
 
-每年农历三月初三，以“同根同祖同源，和平和睦和谐”为主题的黄帝故里拜祖大典，都吸引世界各地的炎黄子孙来此寻根谒祖。
+电池和太阳能电池板的生产将在软银位于大阪市的工厂进行。
 
-当日，首次来黄帝故里参加拜祖大典的李胜峰在现场题下“同宗共祖 振兴中华”八个大字。
+该公司表示，该厂区将建有一个大型AI数据中心和一家AI硬件工厂。
 
-“今天在这里拜的是民族共祖，祈的是两岸和平，求到的是国泰民安。
+软银表示，电池生产预计将在截至2028年3月的财年开始，目标是在次年实现大规模量产。
 
-”李胜峰表示，现场拜祖让台湾同胞更深刻地理解同根同祖同源。
+软银将与Cosmos Lab就下一代锌卤电池电芯展开合作，同时与DeltaX就高性能、高能量密度电池设计进行合作。
 
-中华民族各姓氏、各民族皆认同炎黄子孙身份，根源在于数千年文明的累积与传承，让大家拥有共同的精神血脉。
+该公司计划使用这些电池为其AI数据中心供电，并支持日本的电网和工业应用，中期内有可能拓展海外市场。
 
-“这种绵延不绝的血脉相连，凝聚了一个民族永远存在的力量。
+软银的目标是到2030财年前，使电池业务的年度收入超过1000亿日元（相当于6.38亿美元）。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 20:45 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 20:57 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 20:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 20:46 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 20:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 20:33 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 20:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 20:52 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 20:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 20:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 20:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 20:38 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 20:39 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 20:52 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 21:02 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 20:59 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 20:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 20:42 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 21:02 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 20:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 21:04 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:58 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 21:01 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/79197341132.shtml)
-- 2026-06-29 20:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/8423858.shtml)
-- 2026-06-29 20:44 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/488621012.shtml)
-- 2026-06-29 20:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/48534790761.shtml)
-- 2026-06-29 20:34 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/266517493.shtml)
-- 2026-06-29 20:42 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/41107.shtml)
-- 2026-06-29 20:59 - [恋与深空致歉](https://www.share.minike.top/Article/details/4124039.shtml)
-- 2026-06-29 20:55 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/1973702465.shtml)
-- 2026-06-29 20:59 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/893987436772.shtml)
-- 2026-06-29 20:37 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/21815.shtml)
-- 2026-06-29 20:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/2785492.shtml)
-- 2026-06-29 20:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/389807145.shtml)
-- 2026-06-29 20:44 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/416656.shtml)
-- 2026-06-29 20:52 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/24248.shtml)
-- 2026-06-29 20:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/2821163799.shtml)
+- 2026-06-29 20:37 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/9648426.shtml)
+- 2026-06-29 20:55 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/14071.shtml)
+- 2026-06-29 20:54 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/35012.shtml)
+- 2026-06-29 20:57 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/939509.shtml)
+- 2026-06-29 20:50 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/6083862.shtml)
+- 2026-06-29 20:37 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/894520919.shtml)
+- 2026-06-29 21:00 - [高质量发展看新疆](http://www.share.minike.top/Article/details/72462185652.shtml)
+- 2026-06-29 21:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/27781719.shtml)
+- 2026-06-29 20:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7346891084.shtml)
+- 2026-06-29 20:42 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/624436081634.shtml)
+- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/054260.shtml)
+- 2026-06-29 20:40 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/8631831857.shtml)
+- 2026-06-29 20:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/47679.shtml)
+- 2026-06-29 20:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/4470407526.shtml)
+- 2026-06-29 20:51 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/90820189443.shtml)

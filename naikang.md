@@ -1,56 +1,59 @@
-# 飞针走线六百年 江西永丰畲乡非遗赋能乡村振兴
+# 网友投诉演唱会座椅脏被拉黑 桂林市文旅局通报
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网江西永丰4月19日电 (付丽玲)4月18日，在江西吉安市永丰县龙冈畲族乡的畲乡刺绣门店里，绣娘张圣兰正低头专注飞针走线。银针在素色布料上起落穿梭，彩线勾勒出灵动的畲族特色纹样。 龙冈畲族乡表湖畲族村，是一个有着六百余年历史的畲族聚居村落。畲族刺绣，是当地畲民世代相传的非遗技艺。畲绣针法简约却意蕴深厚，纹样创作不拘一格，配色灵动鲜活，在蓝色衣料的衬托下，红、黄、绿、紫等色彩
+中新网5月11日电 据桂林市文化广电和旅游局官方微信消息，近日，有网友发布投诉桂林某演唱会座椅脏等相关信息，引起广泛关注。桂林市文化广电和旅游局联合相关部门开展核查，现将有关情况通报如下： 一、关于网友反映演唱会期间，体育场看台区部分座椅存在卫生未清洁的情况。经核实，情况属实。未清洁座椅位于体育场二层东3-4区看台，系主办方工作人员在清洁作业过程中疏漏所致，桂林市文旅局对主办方
 
 ## 正文
 
-中新网江西永丰4月19日电 (付丽玲)4月18日，在江西吉安市永丰县龙冈畲族乡的畲乡刺绣门店里，绣娘张圣兰正低头专注飞针走线。
+中新网5月11日电 据桂林市文化广电和旅游局官方微信消息，近日，有网友发布投诉桂林某演唱会座椅脏等相关信息，引起广泛关注。
 
-银针在素色布料上起落穿梭，彩线勾勒出灵动的畲族特色纹样。
+桂林市文化广电和旅游局联合相关部门开展核查，现将有关情况通报如下： 一、关于网友反映演唱会期间，体育场看台区部分座椅存在卫生未清洁的情况。
 
-龙冈畲族乡表湖畲族村，是一个有着六百余年历史的畲族聚居村落。
+经核实，情况属实。
 
-畲族刺绣，是当地畲民世代相传的非遗技艺。
+未清洁座椅位于体育场二层东3-4区看台，系主办方工作人员在清洁作业过程中疏漏所致，桂林市文旅局对主办方提出严厉批评，主办方已向该网友诚恳道歉。
 
-畲绣针法简约却意蕴深厚，纹样创作不拘一格，配色灵动鲜活，在蓝色衣料的衬托下，红、黄、绿、紫等色彩的凤凰、花卉纹样愈发明艳热烈。
+二、关于网友反映被桂林市文旅局官方抖音号拉黑的问题。
 
-但随着时代发展，这门老手艺一度陷入传承困境。
+经初步核查，桂林市文旅局抖音账号的确存在将该网友账号进行拉黑的情况，网友反映情况属实。
 
-受现代生活方式冲击，手工畲绣耗时费力、制作成本高，难以适配大众消费市场；年轻群体对这门技艺知晓度低，愿意潜心学艺者寥寥无几。
+桂林市文旅局已向该网友诚恳道歉，并已解除拉黑。
 
-2023年，表湖畲族村依托相关项目资金，建成表湖畲族村文创产业基地。
+此次事件，暴露出桂林市文旅局工作上还存在短板和疏漏，桂林市文旅局将以此为契机深入开展自查，认真反思、立行立改，严肃追究相关人员责任，努力补齐短板，持续优化大型活动及文旅服务体验，加强文旅官方账号运营管理，用心用情为广大游客和网友做好服务工作。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 20:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 20:42 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 20:32 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 20:50 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 20:44 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 20:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 20:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 20:33 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 20:48 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 21:03 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 20:46 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 20:54 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 20:44 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 21:05 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 20:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 20:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 20:39 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 20:56 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 20:54 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 20:48 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 21:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 20:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/644128044158.shtml)
-- 2026-06-29 20:44 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/83088801284.shtml)
-- 2026-06-29 20:31 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/9516412933.shtml)
-- 2026-06-29 20:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/2346238.shtml)
-- 2026-06-29 20:52 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/280878643072.shtml)
-- 2026-06-29 20:58 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/50106.shtml)
-- 2026-06-29 20:48 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.kurohicncr.top/Article/details/749094.shtml)
-- 2026-06-29 20:57 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/732951604.shtml)
-- 2026-06-29 20:34 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/3190321.shtml)
-- 2026-06-29 20:53 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/653991717.shtml)
-- 2026-06-29 20:49 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/186040.shtml)
-- 2026-06-29 20:38 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/09027302.shtml)
-- 2026-06-29 20:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/055568972.shtml)
-- 2026-06-29 20:36 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/66764.shtml)
-- 2026-06-29 21:00 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/093668647743.shtml)
+- 2026-06-29 20:49 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/04786169461.shtml)
+- 2026-06-29 21:03 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/577741932.shtml)
+- 2026-06-29 20:59 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/918227110582.shtml)
+- 2026-06-29 20:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/56123163.shtml)
+- 2026-06-29 20:54 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/029456234.shtml)
+- 2026-06-29 20:44 - [送你一朵小红花](https://www.blog.minike.top/Article/details/834361429746.shtml)
+- 2026-06-29 20:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/201813.shtml)
+- 2026-06-29 20:39 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/55610.shtml)
+- 2026-06-29 20:40 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/07045.shtml)
+- 2026-06-29 20:40 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/5155393740.shtml)
+- 2026-06-29 20:59 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/85742883681.shtml)
+- 2026-06-29 20:56 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/23220.shtml)
+- 2026-06-29 20:57 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/41708162.shtml)
+- 2026-06-29 20:38 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/2067252851.shtml)
+- 2026-06-29 20:39 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/886379247370.shtml)

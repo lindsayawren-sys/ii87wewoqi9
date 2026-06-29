@@ -1,61 +1,61 @@
-# 霍尔木兹海峡开放缓解供应担忧，美油跌破84美元
+# 阿波罗集团接连收购两家线下会展活动企业
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-在伊朗外交部长宣布以色列与黎巴嫩停火期间霍尔木兹海峡“完全开放”后，油价周五大幅下跌，这一巨大供应中断有望缓解的预期提振了市场。 伊朗外交部长阿巴斯·阿拉格奇在X平台上的表态，紧随美国总统特朗普的言论之后。特朗普周四晚些时候表示，于2月28日爆发的对伊战争“应该很快就会结束”。 美国原油5月期货下跌近12%，收于每桶83.85美元。国际基准布伦特原油6月期货下跌逾8%，至每桶9
+这家投资公司将收购Emerald Holding与Questex，并计划将两家公司合并运营 阿波罗全球管理集团达成协议，将收购两家独立的线下会展活动企业，旨在打造一个线下线下聚会活动综合平台。 公司于周一宣布，拟收购上市公司Emerald Holding以及非上市企业Questex，后续计划将两家企业整合合并。 交易详情 阿波罗此次官宣，证实了《华尔街曰报》此前的相关报道。 根
 
 ## 正文
 
-在伊朗外交部长宣布以色列与黎巴嫩停火期间霍尔木兹海峡“完全开放”后，油价周五大幅下跌，这一巨大供应中断有望缓解的预期提振了市场。
+这家投资公司将收购Emerald Holding与Questex，并计划将两家公司合并运营 阿波罗全球管理集团达成协议，将收购两家独立的线下会展活动企业，旨在打造一个线下线下聚会活动综合平台。
 
-伊朗外交部长阿巴斯·阿拉格奇在X平台上的表态，紧随美国总统特朗普的言论之后。
+公司于周一宣布，拟收购上市公司Emerald Holding以及非上市企业Questex，后续计划将两家企业整合合并。
 
-特朗普周四晚些时候表示，于2月28日爆发的对伊战争“应该很快就会结束”。
+交易详情 阿波罗此次官宣，证实了《华尔街曰报》此前的相关报道。
 
-美国原油5月期货下跌近12%，收于每桶83.85美元。
+根据与 Emerald 的收购条款，股东每股将获得5.03 美元现金，公司整体估值约10 亿美元。
 
-国际基准布伦特原油6月期货下跌逾8%，至每桶90.93美元。
+Emerald 上周五收盘价为 4.57 美元。
 
-在社交媒体发文中，阿拉格奇表示，通过这条关键水道的船只必须按照伊朗海事当局规定的“协调航线”航行。
+阿波罗表示，Emerald 最大股东、投资机构Onex已承诺支持本次收购交易。
 
-特朗普周五在Truth Social平台上发文感谢伊朗开放海峡。
+阿波罗还同意从私募股权公司MidOcean Partners手中收购 Questex。
 
-然而，他在另一条社交媒体发文中表示，美国对伊朗港口的海上封锁将保持“全力”，直到美国与伊朗达成协议。
+这笔全现金交易的具体金额未对外披露，但据知情人士透露，交易规模远小于 Emerald 收购案。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 20:41 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 20:36 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 20:47 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 20:31 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:51 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 20:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 20:31 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 20:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 20:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 20:50 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 20:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 20:38 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 21:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 20:51 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 20:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 21:02 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 20:40 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 20:58 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 21:01 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 21:05 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 20:54 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 21:04 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 20:59 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 20:42 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 20:49 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 20:47 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 20:47 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/93450.shtml)
-- 2026-06-29 20:38 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/4090941.shtml)
-- 2026-06-29 20:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/597735147601.shtml)
-- 2026-06-29 20:30 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/25544370.shtml)
-- 2026-06-29 20:54 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/30046.shtml)
-- 2026-06-29 20:53 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/3955798710.shtml)
-- 2026-06-29 20:59 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/93265760310.shtml)
-- 2026-06-29 20:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/21934.shtml)
-- 2026-06-29 20:43 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/22529.shtml)
-- 2026-06-29 20:57 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/83171103179.shtml)
-- 2026-06-29 20:43 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/7519029428.shtml)
-- 2026-06-29 20:53 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/9721207.shtml)
-- 2026-06-29 20:55 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/4214580.shtml)
-- 2026-06-29 20:57 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/69555172.shtml)
-- 2026-06-29 20:51 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/36723627835.shtml)
+- 2026-06-29 21:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/635047.shtml)
+- 2026-06-29 20:38 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/63658935.shtml)
+- 2026-06-29 21:02 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/37539.shtml)
+- 2026-06-29 20:53 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/367777857.shtml)
+- 2026-06-29 21:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/8653697.shtml)
+- 2026-06-29 21:03 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/404460339.shtml)
+- 2026-06-29 20:55 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/704934339513.shtml)
+- 2026-06-29 20:50 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/47156.shtml)
+- 2026-06-29 20:39 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/606491440745.shtml)
+- 2026-06-29 21:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/24096966.shtml)
+- 2026-06-29 20:44 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/89617.shtml)
+- 2026-06-29 20:53 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/244455814855.shtml)
+- 2026-06-29 20:54 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/1705109549.shtml)
+- 2026-06-29 20:49 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/849911569081.shtml)
+- 2026-06-29 20:38 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/579306.shtml)

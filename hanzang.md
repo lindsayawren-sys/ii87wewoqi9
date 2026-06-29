@@ -1,58 +1,59 @@
-# 台胞追忆抗战峥嵘岁月：唤醒两岸共御外侮记忆，让荣耀不再沉默
+# 半导体产业整合拉开帷幕！港股硬科技锐度闪耀，规模最大港股通信息技术ETF华宝（159131）十日吸金超2.3亿元
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网4月18日电(记者 陈文韬 姜雨薇 朱延静)“我的祖父雾峰林家第七代林幼春，在日据殖民黑夜中以笔为剑，以诗存史；时至今日，我的任务是还原及传播抗日历史真相。我们祖孙虽然相隔于百年，不同的年代，内心蕴藏的却是同一份深沉而坚韧的家国情怀。这份情怀，是血脉的传承，更是民族精神的守护。” 雾峰林家第九代后人、台湾抗日志士亲属协进会理事长林铭聪，深情讲述着家族在日本殖民统治下坚守民
+登录新浪财经APP 搜索【信披】查看更多考评等级 近期全球芯片半导体热度飙升，“硬科技”来到市场聚光灯下。在港股科技赛道，代表港股硬科技的中证港股通信息技术指数，自3月31日触底反弹以来累计涨幅已超30%，显著跑赢同期恒生科技（8.88%）、港股通科技（8.07%），锐度和弹性遥遥领先，被市场称为“恒生科技加强版”。 统计区间：2026.3.31-2026.5.11。港股通信息
 
 ## 正文
 
-中新网4月18日电(记者 陈文韬 姜雨薇 朱延静)“我的祖父雾峰林家第七代林幼春，在日据殖民黑夜中以笔为剑，以诗存史；时至今日，我的任务是还原及传播抗日历史真相。
+登录新浪财经APP 搜索【信披】查看更多考评等级 近期全球芯片半导体热度飙升，“硬科技”来到市场聚光灯下。
 
-我们祖孙虽然相隔于百年，不同的年代，内心蕴藏的却是同一份深沉而坚韧的家国情怀。
+在港股科技赛道，代表港股硬科技的中证港股通信息技术指数，自3月31日触底反弹以来累计涨幅已超30%，显著跑赢同期恒生科技（8.88%）、港股通科技（8.07%），锐度和弹性遥遥领先，被市场称为“恒生科技加强版”。
 
-这份情怀，是血脉的传承，更是民族精神的守护。
+统计区间：2026.3.31-2026.5.11。
 
-” 雾峰林家第九代后人、台湾抗日志士亲属协进会理事长林铭聪，深情讲述着家族在日本殖民统治下坚守民族气节、以文化护根、以风骨传家的动人故事。
+港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
 
-4月17日，第七届台胞社团论坛在京开幕。
+指数过往业绩不预示未来表现。
 
-当日下午举办的文化分论坛以“家国同梦 携手复兴”为主题，邀请两岸专家学者、抗日志士亲属、爱国文化工作者等齐聚一堂，共同回望两岸同胞共御外侮、守望家国的光辉岁月，传承爱国精神，凝聚统一共识。
+与此同时，港股硬科技的弹性优势持续吸引资金青睐。
 
-林铭聪表示，追忆祖父的事迹，不仅是缅怀家族先辈，更是为了守护台湾抗日历史的真相，传承中华传统文脉，捍卫民族尊严。
+全市场首只、同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）近5日合计获资金净流入超1.18亿元，近10日获资金净流入超2.3亿元。
 
-“无论时代如何变迁，台湾同胞对中华民族的归属感、对回到祖国怀抱的向往，始终是贯穿台湾近代史最深沉、最深厚、最坚实的力量。
+以半导体为核心的硬科技何以受到市场热捧？
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 20:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 20:54 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 20:49 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 20:57 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 20:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 20:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 20:35 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 20:57 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 20:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 20:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 20:59 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 20:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 20:58 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 20:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 20:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 20:52 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 21:01 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 20:44 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 20:58 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 20:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 20:56 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 21:06 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 20:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/911842779.shtml)
-- 2026-06-29 20:36 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/4843205.shtml)
-- 2026-06-29 20:50 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/155833100436.shtml)
-- 2026-06-29 20:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/975707.shtml)
-- 2026-06-29 20:47 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/3995057.shtml)
-- 2026-06-29 20:40 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/635955.shtml)
-- 2026-06-29 20:39 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/86036951.shtml)
-- 2026-06-29 20:34 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/3660194.shtml)
-- 2026-06-29 20:56 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/299403073.shtml)
-- 2026-06-29 20:37 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/84010220.shtml)
-- 2026-06-29 20:41 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/4167096060.shtml)
-- 2026-06-29 20:40 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/23024.shtml)
-- 2026-06-29 20:41 - [85花告别古偶](http://www.blog.minike.top/Article/details/5601370.shtml)
-- 2026-06-29 20:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/284942344114.shtml)
-- 2026-06-29 20:48 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/61870413045.shtml)
+- 2026-06-29 20:41 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/165995.shtml)
+- 2026-06-29 20:47 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/83265766.shtml)
+- 2026-06-29 21:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/8453997771.shtml)
+- 2026-06-29 20:47 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/340240.shtml)
+- 2026-06-29 20:42 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/327081007193.shtml)
+- 2026-06-29 20:56 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/353954474.shtml)
+- 2026-06-29 20:48 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/242814.shtml)
+- 2026-06-29 20:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/9324673.shtml)
+- 2026-06-29 20:40 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/916355070.shtml)
+- 2026-06-29 20:54 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/620444578.shtml)
+- 2026-06-29 20:38 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/41880478314.shtml)
+- 2026-06-29 21:03 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/548692785.shtml)
+- 2026-06-29 20:37 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/72297.shtml)
+- 2026-06-29 21:02 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/21605.shtml)
+- 2026-06-29 20:47 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/831357732552.shtml)

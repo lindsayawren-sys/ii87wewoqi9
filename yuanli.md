@@ -1,53 +1,56 @@
-# 贸促机构暨企业海南自贸港经贸交流会在海南海口举行
+# 鸡蛋：现货价格大幅上涨 近月合约走势
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-4月13日，第六届中国国际消费品博览会重要配套活动——贸促机构暨企业海南自贸港经贸交流会在海南省海口市举办，全国贸促系统、商协会及企业代表、海南市县与园区代表等400余人探讨产业合作。 海南省贸促会会长宁虹雯在会上推介海南自贸港发展优势。广东、辽宁、湖南等多地贸促机构代表先后致辞，表达看好海南发展前景，将深化省际经贸协作。 主题分享环节，专家及金融机构负责人分别解读自贸港投资机
+广发期货研究 证监许可【2011】1292号 刘珂 Z0016336 | 2026年5月11日 星期一 行情导读：今日鸡蛋期货近月合约大涨，合约2606涨超4%，合约2607上涨超2%，整体价格走势偏强。 （一）周末蛋价大幅上涨，近月向现货靠拢需求 上周末国内鸡蛋现货价格迎来大幅跳涨行情，主产区主流出厂报价站稳4.3-4.5元/斤区间，环比上周五大涨0.3–0.4元/斤，销区市
 
 ## 正文
 
-4月13日，第六届中国国际消费品博览会重要配套活动——贸促机构暨企业海南自贸港经贸交流会在海南省海口市举办，全国贸促系统、商协会及企业代表、海南市县与园区代表等400余人探讨产业合作。
+广发期货研究 证监许可【2011】1292号 刘珂 Z0016336 | 2026年5月11日 星期一 行情导读：今日鸡蛋期货近月合约大涨，合约2606涨超4%，合约2607上涨超2%，整体价格走势偏强。
 
-海南省贸促会会长宁虹雯在会上推介海南自贸港发展优势。
+（一）周末蛋价大幅上涨，近月向现货靠拢需求 上周末国内鸡蛋现货价格迎来大幅跳涨行情，主产区主流出厂报价站稳4.3-4.5元/斤区间，环比上周五大涨0.3–0.4元/斤，销区市场同步跟涨。
 
-广东、辽宁、湖南等多地贸促机构代表先后致辞，表达看好海南发展前景，将深化省际经贸协作。
+当前市场供给端新开产蛋鸡增量补充不足，市场现货流通货源整体偏紧，部分主产区甚至出现贸易商抢货补库现象，进一步助推周末蛋价集中拉涨。
 
-主题分享环节，专家及金融机构负责人分别解读自贸港投资机遇、EF账户政策等核心内容，海南相关市县及园区代表开展招商推介，广西钦州贸促会分享平陆运河经济带商机。
+往年惯例五一节后现货多步入季节性回落通道，而今年行情淡季不淡、超预期走强。
 
-产融汇(北京)科技与海南宏升置业投资等7家单位达成合作，签署物业托管运营、进口贸易等多项协议，实现经贸交流与项目合作深度衔接。
+目前产区库存、中间流通环节库存双双处于低位，货源偏紧格局凸显，缺货矛盾持续显性化，贸易商逢低补库意愿强烈，对现货价格形成坚实支撑。
 
-作为活动主办单位，海南省贸促会还组织9个国内贸促机构代表团、6个国外商协会代表团共260余人，赴市县园区考察对接。
+期货盘面方面，鸡蛋近月 06、07 合约当前运行在3600-3700元/500kg区间，相较于现货呈现深度贴水格局。
+
+截至5月8日，市场主力活跃合约基差已扩大至680元/500kg，攀升至近年同期高位水平。
+
+期现价差大幅走阔、期货盘面严重低估现货基本面，随着交割月逐步临近，基差收敛逻辑增强，盘面存在较强的向上估值修复动力，也支撑近月合约走势持续偏强。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 20:56 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 20:49 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 20:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 20:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 20:43 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 20:53 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 20:57 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 20:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 20:31 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:46 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 20:38 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:49 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 20:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 20:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 20:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 21:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 20:52 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 20:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/13350314.shtml)
-- 2026-06-29 20:36 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2671192.shtml)
-- 2026-06-29 20:30 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/83978275728.shtml)
-- 2026-06-29 20:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/367335989754.shtml)
-- 2026-06-29 20:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/3235764658.shtml)
-- 2026-06-29 20:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/765710.shtml)
-- 2026-06-29 20:50 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/5383133.shtml)
-- 2026-06-29 20:43 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/1141562.shtml)
-- 2026-06-29 20:41 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/3558575.shtml)
-- 2026-06-29 20:48 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/517963.shtml)
-- 2026-06-29 20:49 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/03849.shtml)
-- 2026-06-29 20:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/13749.shtml)
-- 2026-06-29 20:58 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/942079.shtml)
-- 2026-06-29 20:59 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/79133402.shtml)
-- 2026-06-29 20:30 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/265897628.shtml)
+- 2026-06-29 20:52 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/678372.shtml)
+- 2026-06-29 20:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/4568258941.shtml)
+- 2026-06-29 20:45 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/0449853390.shtml)
+- 2026-06-29 21:00 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/1798266559.shtml)
+- 2026-06-29 20:58 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/7659384333.shtml)
+- 2026-06-29 21:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/8621913790.shtml)
+- 2026-06-29 20:56 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/263118762.shtml)
+- 2026-06-29 21:01 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/9056598.shtml)
+- 2026-06-29 21:00 - [田曦薇没招了](http://www.share.minike.top/Article/details/86582.shtml)
+- 2026-06-29 20:52 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/7906157.shtml)
+- 2026-06-29 20:47 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/91231214.shtml)
+- 2026-06-29 21:00 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/3913184615.shtml)
+- 2026-06-29 20:50 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/557056847435.shtml)
+- 2026-06-29 20:39 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/84812095.shtml)
+- 2026-06-29 21:05 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/413858.shtml)

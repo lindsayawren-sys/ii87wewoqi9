@@ -1,60 +1,59 @@
-# 央视揭露直播间捡漏手机骗局：超500人被骗无人报警
+# 探访杭州“未来学校”：AI赋能下的教育新图景
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-一部市场价上万元的品牌手机，在网络直播间里只要199块钱，看到这样的网络直播您会不会心动？然而当您以为自己在线上“捡漏”的时候，却不知道已经掉进了诈骗的陷阱。 近日，辽宁锦州警方成功侦破一起直播引流虚假购物诈骗案件，全链条打掉以“超低价抢购高端手机”为诱饵的跨区域诈骗团伙。 辽宁锦州凌海警方持续关注了这个直播间半个多月，发现它每天直播次数不固定，每次时长约20分钟，观看人数维持
+中新网杭州5月11日电(林波)“你看，纹样生成的速度是不是很快？”5月11日，杭州市春晖小学的“非遗蓝染工坊”里，五年级学生苗翾熟练地在平板电脑上输入几个关键词，几秒钟后，绚丽而个性的蓝染纹样便呈现在大家眼前。 她和同学们借助“央馆虚拟实验室”建立项目，通过智能体“染染”学习蓝染历史与工艺，运用AI实验箱探究染液pH值与颜色深浅的关联，让传统印染工序在数字技术加持下焕发新生。
 
 ## 正文
 
-一部市场价上万元的品牌手机，在网络直播间里只要199块钱，看到这样的网络直播您会不会心动？
+中新网杭州5月11日电(林波)“你看，纹样生成的速度是不是很快？
 
-然而当您以为自己在线上“捡漏”的时候，却不知道已经掉进了诈骗的陷阱。
+”5月11日，杭州市春晖小学的“非遗蓝染工坊”里，五年级学生苗翾熟练地在平板电脑上输入几个关键词，几秒钟后，绚丽而个性的蓝染纹样便呈现在大家眼前。
 
-近日，辽宁锦州警方成功侦破一起直播引流虚假购物诈骗案件，全链条打掉以“超低价抢购高端手机”为诱饵的跨区域诈骗团伙。
+她和同学们借助“央馆虚拟实验室”建立项目，通过智能体“染染”学习蓝染历史与工艺，运用AI实验箱探究染液pH值与颜色深浅的关联，让传统印染工序在数字技术加持下焕发新生。
 
-辽宁锦州凌海警方持续关注了这个直播间半个多月，发现它每天直播次数不固定，每次时长约20分钟，观看人数维持在300人左右，最多时达500人。
+这一幕，是杭州“未来学校”建设的生动缩影。
 
-主播始终以199元、299元的价格售卖折叠屏手机，有时还以涨粉为噱头说会免费赠送，并且频繁更换直播账号。
+5月11日至13日，以“人工智能+教育：变革 发展 治理”为主题的2026世界数字教育大会在杭州举行。
 
-让民警感到意外的是，直播间内并没有观众下单付款。
+其间，作者探访杭州多所特色校园，了解他们如何用AI赋能教育，勾勒出未来教育的多元图景，让人们得以窥见中国教育数字化改革的深度与温度。
 
-辽宁锦州凌海市公安局刑侦大队副大队长 张天：她宣称自己是干了十多年手机行业的博主，现在做直播主要是为了涨粉，卖这款手机是给大家做福利，是以这个名义把顾客引进来的。
+“‘未来学校’不仅仅是一种特定的学习方式，而是选择在合适的发展时机，让新技术赋能不同的学习场景。
 
-民警发现，尽管直播是在正规平台进行，但实际交易环节却脱离了平台，转移至第三方软件完成。
+”杭州市春晖小学教育集团党总支书记田冰冰接受采访时这样界定。
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 20:34 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 20:43 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 20:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 20:46 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 20:31 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 20:52 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 20:53 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 20:52 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 20:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 20:39 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 20:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 20:58 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:33 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 20:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 20:54 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 20:48 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 20:49 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 21:02 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 20:39 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 21:00 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 20:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 20:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 20:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 20:37 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 20:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 20:56 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/589116113.shtml)
-- 2026-06-29 20:40 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/063125092275.shtml)
-- 2026-06-29 20:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/508294665.shtml)
-- 2026-06-29 20:58 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/189970261735.shtml)
-- 2026-06-29 20:51 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/714309826916.shtml)
-- 2026-06-29 20:52 - [周生如故](http://www.share.minike.top/Article/details/9529417594.shtml)
-- 2026-06-29 20:43 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/17642748471.shtml)
-- 2026-06-29 20:32 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/96092401114.shtml)
-- 2026-06-29 20:39 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/55205290.shtml)
-- 2026-06-29 20:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/56793.shtml)
-- 2026-06-29 20:51 - [爱很美味](http://www.share.minike.top/Article/details/03681909377.shtml)
-- 2026-06-29 20:44 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/103379855430.shtml)
-- 2026-06-29 20:35 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/3376946736.shtml)
-- 2026-06-29 20:39 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/646647213489.shtml)
-- 2026-06-29 20:59 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/24700850393.shtml)
+- 2026-06-29 20:51 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/1789458.shtml)
+- 2026-06-29 21:00 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/633895456835.shtml)
+- 2026-06-29 20:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/943234709051.shtml)
+- 2026-06-29 20:51 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/0612772415.shtml)
+- 2026-06-29 20:42 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/9255717914.shtml)
+- 2026-06-29 20:44 - [一生一世](https://www.share.kurohicncr.top/Article/details/6825834613.shtml)
+- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/3129176994.shtml)
+- 2026-06-29 20:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/81736260.shtml)
+- 2026-06-29 20:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/087198903.shtml)
+- 2026-06-29 20:37 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/100722910607.shtml)
+- 2026-06-29 20:51 - [急先锋](https://www.share.minike.top/Article/details/910695.shtml)
+- 2026-06-29 20:47 - [沙丘](https://www.blog.minike.top/Article/details/67025288.shtml)
+- 2026-06-29 20:45 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/711900879985.shtml)
+- 2026-06-29 20:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/176202892075.shtml)
+- 2026-06-29 21:01 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/873823.shtml)

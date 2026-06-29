@@ -1,59 +1,57 @@
-# 心系投资者！新浪财经2026年度投教案例评选正式开启
+# 儿童用药新政发布：商保入局，落地仍需“闯关”
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中国证监会始终将保护投资者合法权益作为监管工作的重中之重，近年来出台了一系列政策措施，构建了全方位的投资者保护体系。随着金融市场的不断发展和投教重要性凸显，在第八个“5·15全国投资者保护宣传日”将到来之际，新浪财经正式宣布启动“2026年度投资者教育案例评选”活动。此次活动旨在表彰那些投教领域的杰出机构，推广优秀案例，提升公众的金融素养和投资风险意识。 2026年4月20日起
+21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。 新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。而儿童用药的商保
 
 ## 正文
 
-中国证监会始终将保护投资者合法权益作为监管工作的重中之重，近年来出台了一系列政策措施，构建了全方位的投资者保护体系。
+21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。
 
-随着金融市场的不断发展和投教重要性凸显，在第八个“5·15全国投资者保护宣传日”将到来之际，新浪财经正式宣布启动“2026年度投资者教育案例评选”活动。
+新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。
 
-此次活动旨在表彰那些投教领域的杰出机构，推广优秀案例，提升公众的金融素养和投资风险意识。
+而儿童用药的商保支付之路，挑战更大。
 
-2026年4月20日起，新浪财经正式启动“2026年度投教优秀案例评选”活动。
+要打破这一困局，需要构建连接保司、药企、医院和消费者的“基础设施”。
 
-一、评选主题 本次案例征集将从公募基金公司、证券公司等多层次评选出投资者教育、投资者保护相关的“最具影响力投教项目奖、最佳投资者教育创新奖、投教项目优秀实践奖”三大优秀案例。
+全链条破局，首提“儿童基本药物目录” 此次《意见》的核心突破在于“系统思维”——不再是单一环节修补，而是覆盖研发、生产、采购、支付、使用的全链条设计。
 
-二、评选环节 本次活动分为案例征集、专家评审提名环节，最终产生“新浪财经2026年度投教优秀案例”名单。
+研发端，明确对纳入《鼓励研发申报儿童药品清单》的品种予以优先审评审批，允许滚动提交资料，早期介入、研审联动。
 
-1．案例征集 报名截止时间：2026年5月8日 2．专家评审 评选委员会由金融机构代表、专家学者等组成。
+支付端，首次鼓励商业健康保险开发儿童保险保障产品，将创新药、罕见病用药纳入保障范围。
 
-委员会负责制定评选标准、评审流程，将从案例的典型性、创新性、实际效果、社会影响力等角度对案例进行评审。
+采购端，在集采中对儿童专用药与成人药分组采购，优化差比价规则，激励儿童适宜剂型供应。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 20:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 20:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:50 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 20:34 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 20:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 20:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 20:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 20:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 20:44 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 20:33 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 20:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 20:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 20:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 20:42 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 20:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 20:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 20:36 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 20:50 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 20:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/662751533.shtml)
-- 2026-06-29 20:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/33871601677.shtml)
-- 2026-06-29 20:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/8866914.shtml)
-- 2026-06-29 20:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/10901.shtml)
-- 2026-06-29 20:43 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/584344217.shtml)
-- 2026-06-29 20:39 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/345837.shtml)
-- 2026-06-29 20:54 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/2452078123.shtml)
-- 2026-06-29 20:39 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/904537234634.shtml)
-- 2026-06-29 20:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/74508542724.shtml)
-- 2026-06-29 20:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/451942163225.shtml)
-- 2026-06-29 20:41 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/763361862470.shtml)
-- 2026-06-29 20:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/346968.shtml)
-- 2026-06-29 20:59 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/0873635.shtml)
-- 2026-06-29 20:59 - [周生如故](http://www.blog.minike.top/Article/details/385979546971.shtml)
-- 2026-06-29 20:48 - [周生如故](http://www.blog.minike.top/Article/details/26249091.shtml)
+- 2026-06-29 21:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/828910953.shtml)
+- 2026-06-29 20:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/7074135.shtml)
+- 2026-06-29 20:42 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/32804434725.shtml)
+- 2026-06-29 20:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/448849390.shtml)
+- 2026-06-29 20:57 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/8023518543.shtml)
+- 2026-06-29 21:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/6981063101.shtml)
+- 2026-06-29 21:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/43350836.shtml)
+- 2026-06-29 20:47 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/69075785.shtml)
+- 2026-06-29 20:45 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/60567.shtml)
+- 2026-06-29 20:43 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/940609.shtml)
+- 2026-06-29 20:48 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/2621674625.shtml)
+- 2026-06-29 20:51 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/086701992963.shtml)
+- 2026-06-29 20:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/37139496169.shtml)
+- 2026-06-29 21:03 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/4614377019.shtml)
+- 2026-06-29 20:59 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/7144256.shtml)

@@ -1,59 +1,58 @@
-# 海外华媒侨领走进重庆秀山 沉浸式感受高台狮舞魅力
+# “转板第一股”落幕！688287，被终止上市
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中国Token出海惠及东南亚本土语言模型中国“玩梗式”赛事掀起 成为城市新流量从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远中国咖啡第一村：从“种咖啡”到“兴体验”的转型路谷雨时节：酥雨生百谷 耕播待夏盈广西米粉一缕香味飘万里为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在转板上市仅4年后，被称作北交所转板科创板“第一股”的*ST观典（维权）（688287），将终止上市。 5月11日晚，*ST观典公告称，公司于当日收到上海证券交易所《关于观典防务技术股份有限公司股票终止上市的决定》，因2025年度财务会计报告被出具保留意见审
 
 ## 正文
 
-中国Token出海惠及东南亚本土语言模型中国“玩梗式”赛事掀起 成为城市新流量从“石旮旯”到“世界最佳” 重庆荆竹村涌文旅热潮三亚亚沙会：开幕式主题歌亮相——世界很大，天涯不远中国咖啡第一村：从“种咖啡”到“兴体验”的转型路谷雨时节：酥雨生百谷 耕播待夏盈广西米粉一缕香味飘万里为啥“100%果汁”，配料表第一位是水？
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+在转板上市仅4年后，被称作北交所转板科创板“第一股”的*ST观典（维权）（688287），将终止上市。
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+5月11日晚，*ST观典公告称，公司于当日收到上海证券交易所《关于观典防务技术股份有限公司股票终止上市的决定》，因2025年度财务会计报告被出具保留意见审计报告、财务报告内部控制被出具否定意见审计报告，公司股票被决定终止上市。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+将于5月19日进入退市整理期 据*ST观典公告，因2024年度经审计净利润为负值且扣除后营业收入低于1亿元，公司于2025年4月30日起被实施退市风险警示。
 
-苏林再坐中国高铁，背后深意耐人寻味山东菏泽：一株三并蒂的“墨润绝伦”牡丹盛放黑龙江嫩江：黑土地开展施底肥作业迎春播谷雨：雨落润万物 所盼皆如愿AI“机器腿”撑起宏福苑居民归家路浙江杭州孔庙书市启幕 书香浸润千年府学张雪：要在有限的时间里面 尽情地享受生命何润东现身宿迁奥体，为“苏超”助阵藏族少年回应演唱《北京的金山上》走红：会好好学习 以后去北京看看9秒登顶！
+2026年4月29日，公司披露2025年年报显示，公司2025年度财务会计报告被出具保留意见审计报告、2025年度财务报告内部控制被出具否定意见审计报告。
 
-来看徒手爬椰子树名场面什么比赛让早起困难的记者，自发周日5点起床桂林首届“粉超”开幕 民众分享超大碗桂林米粉“三月三”的氛围有多欢乐？
+根据相关规定，公司股票触及终止上市情形。
 
-连机器狗都被拉来跳舞了广西举办“三月三”活动 机器人来了也得“弹琴”桂黔滇湘粤五省区“网红”山歌爱好者打擂台唱山歌超治愈！
+经上海证券交易所上市审核委员会审议，上海证券交易所决定终止公司股票上市。
 
-四川成都雪山上 两只大熊猫相伴嬉闹悬空寺装上24小时“震动感知网”惠女繁花——从渔家霓裳到时代IP 三峡南线船闸结束停航检修恢复通航 西汉长信宫灯短暂“出差”北京吸引市民围观 伊朗宣布对所有商船开放霍尔木兹海峡 把春的余韵，种进夏的时光 江西高校图书馆里的古籍修复师 铜仁：一抹贵州青绿，藏着万物皆可“抹”的 北京胡同里的“链接人” 分享 评论 顶部
+公司股票进入退市整理期的起始日为2026年5月19日，交易期限为15个交易日，预计最后交易日期为2026年6月8日；首个交易日无价格涨跌幅限制，此后每日涨跌幅限制为20%。
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 20:59 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 20:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:49 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 20:40 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 20:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 20:41 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 20:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 20:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 20:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 20:30 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 20:44 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 20:39 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 20:51 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 21:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 20:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 20:45 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 21:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 20:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 20:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 20:58 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 20:54 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 20:37 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 21:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/795779693067.shtml)
-- 2026-06-29 20:42 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/2883246.shtml)
-- 2026-06-29 20:51 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/82616004.shtml)
-- 2026-06-29 20:32 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/07925813.shtml)
-- 2026-06-29 20:30 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/3613861914.shtml)
-- 2026-06-29 20:34 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/669283082.shtml)
-- 2026-06-29 20:56 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/642693.shtml)
-- 2026-06-29 20:37 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/148453.shtml)
-- 2026-06-29 20:40 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/3878959.shtml)
-- 2026-06-29 20:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/4210773.shtml)
-- 2026-06-29 20:33 - [TTG KSG](http://www.share.minike.top/Article/details/72437.shtml)
-- 2026-06-29 20:32 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/14526064.shtml)
-- 2026-06-29 20:51 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/1018940167.shtml)
-- 2026-06-29 20:34 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/362916554659.shtml)
-- 2026-06-29 20:39 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/73388680.shtml)
+- 2026-06-29 20:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/16984.shtml)
+- 2026-06-29 21:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/77637552053.shtml)
+- 2026-06-29 20:58 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/428299671459.shtml)
+- 2026-06-29 20:39 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/10382271.shtml)
+- 2026-06-29 20:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/92993395677.shtml)
+- 2026-06-29 21:02 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/98433.shtml)
+- 2026-06-29 20:47 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/160778660.shtml)
+- 2026-06-29 20:48 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/16362058684.shtml)
+- 2026-06-29 20:57 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/25305.shtml)
+- 2026-06-29 20:47 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/37755.shtml)
+- 2026-06-29 20:57 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/974038501998.shtml)
+- 2026-06-29 21:01 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/882586.shtml)
+- 2026-06-29 20:59 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/240367.shtml)
+- 2026-06-29 20:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/09752.shtml)
+- 2026-06-29 21:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/509489.shtml)

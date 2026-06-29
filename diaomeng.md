@@ -1,61 +1,56 @@
-# 黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开
+# 德国对普京提议由施罗德参与乌克兰和平谈判持怀疑态度
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周一（4月20日）国际金价大幅低开，截止07：30，一度下跌超过60美元，跌幅达到1.5%，最低触及4760美元附近。这一剧烈回调完全逆转了上周五的强势表现，主要源于周末中东局势骤然恶化：霍尔木兹海峡再度关闭，美军在阿曼湾海域向伊朗商船开火并实施扣押，而伊朗方面则明确拒绝参加第二轮美伊谈判，并誓言将予以回应和报复。这一连串事件不仅推高了全球能源风险，还加剧了
+德国周日驳回了俄罗斯总统弗拉基米尔・普京的一项提议，该提议建议由德国前总理格哈德・施罗德牵头协调与欧盟的谈判，以促成乌克兰问题和平协议达成。 欧洲理事会主席安东尼奥・科斯塔近日表示，他认为欧盟有与俄罗斯展开谈判的可能性，并可就欧洲未来安全架构议题进行磋商。普京随即称，若此类谈判启动，施罗德是他心目中首选的调停人选。 一名德国官员表示，俄方这一提议缺乏可信度，原因是俄罗斯并未做出
 
 ## 正文
 
-文章来源：汇通财经 周一（4月20日）国际金价大幅低开，截止07：30，一度下跌超过60美元，跌幅达到1.5%，最低触及4760美元附近。
+德国周日驳回了俄罗斯总统弗拉基米尔・普京的一项提议，该提议建议由德国前总理格哈德・施罗德牵头协调与欧盟的谈判，以促成乌克兰问题和平协议达成。
 
-这一剧烈回调完全逆转了上周五的强势表现，主要源于周末中东局势骤然恶化：霍尔木兹海峡再度关闭，美军在阿曼湾海域向伊朗商船开火并实施扣押，而伊朗方面则明确拒绝参加第二轮美伊谈判，并誓言将予以回应和报复。
+欧洲理事会主席安东尼奥・科斯塔近日表示，他认为欧盟有与俄罗斯展开谈判的可能性，并可就欧洲未来安全架构议题进行磋商。
 
-这一连串事件不仅推高了全球能源风险，还加剧了市场对通胀的担忧，显著打压了美联储降息预期，导致美元指数快速升至一周高位，对黄金形成明显压制。
+普京随即称，若此类谈判启动，施罗德是他心目中首选的调停人选。
 
-中东局势骤然升级：伊朗拒绝第二轮谈判与美军武力拦截事件 据多家伊朗媒体19日报道，伊朗已全面为可能重燃的战火做好准备，并明确拒绝参加与美国的第二轮谈判。
+一名德国官员表示，俄方这一提议缺乏可信度，原因是俄罗斯并未做出任何立场条件上的让步。
 
-同一天，美军在阿曼湾海域采取武力行动，拦截并扣押了一艘伊朗货船。
+该官员还补充，首要试金石是莫斯科是否愿意延长为期三天的停火。
 
-伊朗军方迅速指责美国此举公然违反停火协议，称其为“海上劫掠”行为，并表示将很快做出回应。
+施罗德 2005 年卸任总理后，几乎立刻出任颇具争议的德俄天然气管道财团董事长。
 
-早些时候，美国媒体曾援引白宫官员消息称，美国副总统万斯将率团前往巴基斯坦首都伊斯兰堡，参与美伊新一轮谈判，特朗普总统也在社交媒体上发文确认美国代表团将于20日晚抵达伊斯兰堡，甚至表示如果协议达成，他本人“很可能”亲自前往。
+因其与普京关系过从甚密，他在德国国内饱受舆论批评。
 
-然而，伊朗伊斯兰共和国广播电视台和通讯社随即辟谣，强调伊朗方面目前并无参加下一轮谈判的计划，有关伊斯兰堡第二轮会谈的消息并不属实。
+德国政府发言人周五表态，柏林方面未看到莫斯科有开展严肃谈判的意向，并强调欧盟若与俄罗斯进行任何谈判，都必须同欧盟成员国及乌克兰密切协调立场。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 20:43 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 20:53 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 20:37 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 20:55 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 20:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 20:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:54 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 20:33 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 20:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 20:56 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 20:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 20:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 20:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 20:57 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 20:47 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 20:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 20:38 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 21:03 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 20:45 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 20:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/7125182.shtml)
-- 2026-06-29 20:34 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/377354546.shtml)
-- 2026-06-29 20:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/9010398397.shtml)
-- 2026-06-29 20:43 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/3317055.shtml)
-- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/084201676972.shtml)
-- 2026-06-29 20:44 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/169274391.shtml)
-- 2026-06-29 20:34 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/8407392868.shtml)
-- 2026-06-29 20:37 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/15774.shtml)
-- 2026-06-29 20:41 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/633820236.shtml)
-- 2026-06-29 20:43 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/91346127.shtml)
-- 2026-06-29 20:50 - [东方风云榜](https://www.blog.minike.top/Article/details/014605445.shtml)
-- 2026-06-29 20:47 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/90005629835.shtml)
-- 2026-06-29 20:33 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/7539825486.shtml)
-- 2026-06-29 20:49 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/59959447.shtml)
-- 2026-06-29 20:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/28201906.shtml)
+- 2026-06-29 20:38 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/677856678.shtml)
+- 2026-06-29 20:38 - [金牌调解](https://www.share.minike.top/Article/details/09608798.shtml)
+- 2026-06-29 20:40 - [王楚钦称抽签结果出来心情不好](https://www.blog.minike.top/Article/details/333229.shtml)
+- 2026-06-29 20:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/3959309.shtml)
+- 2026-06-29 21:00 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/6635066.shtml)
+- 2026-06-29 20:40 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/316523181851.shtml)
+- 2026-06-29 20:44 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/2293370.shtml)
+- 2026-06-29 20:51 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/704096917057.shtml)
+- 2026-06-29 21:02 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/2183418418.shtml)
+- 2026-06-29 21:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/01384731426.shtml)
+- 2026-06-29 20:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/903539027.shtml)
+- 2026-06-29 20:36 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/53864425.shtml)
+- 2026-06-29 20:45 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/15604002.shtml)
+- 2026-06-29 20:38 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/951291211177.shtml)
+- 2026-06-29 20:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/0260023.shtml)

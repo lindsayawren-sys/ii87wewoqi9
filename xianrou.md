@@ -1,57 +1,60 @@
-# 第四届中国地方特色预制菜专题研讨会在江苏扬州召开
+# 微视频｜总书记引领美丽中国建设迈出新步伐
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网扬州4月20日电 (徐珊珊 王晶)科技赋能预制菜，协同共筑新未来。4月20日，第四届中国地方特色预制菜专题研讨会暨第二届餐饮科学与技术论坛在世界美食之都扬州拉开帷幕。业内专家学者、行业领军企业代表相聚瘦西湖畔，共研技术瓶颈、共商成果转化，共商产业未来。 立足“十五五”战略布局，在乡村振兴与农业强国建设纵深推进的背景下，地方特色预制菜已跃升为贯通三产、激活乡村经济、传承中华
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。 习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。 坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元
 
 ## 正文
 
-中新网扬州4月20日电 (徐珊珊 王晶)科技赋能预制菜，协同共筑新未来。
+视频：微视频｜总书记引领美丽中国建设迈出新步伐来源：新华社 美丽中国，江山如画，是习近平总书记的情之所系，也是亿万中国人民的共同心愿。
 
-4月20日，第四届中国地方特色预制菜专题研讨会暨第二届餐饮科学与技术论坛在世界美食之都扬州拉开帷幕。
+党的十八大以来，总书记走遍大江南北，为美丽中国建设指明方向。
 
-业内专家学者、行业领军企业代表相聚瘦西湖畔，共研技术瓶颈、共商成果转化，共商产业未来。
+习近平总书记强调，要统筹山水林田湖草沙系统治理，实施好生态保护修复工程，加大生态系统保护力度，提升生态系统稳定性和可持续性。
 
-立足“十五五”战略布局，在乡村振兴与农业强国建设纵深推进的背景下，地方特色预制菜已跃升为贯通三产、激活乡村经济、传承中华饮食文化的重要支柱产业。
+坚持山水林田湖草沙一体化保护和系统治理，让美丽中国呈现多元之美，是践行“绿水青山就是金山银山”理念的重要举措。
 
-当前，我国预制菜行业正从高速扩张转向“科技赋能、标准引领、品质为本”的理性升级期，多学科交叉融合正在重塑标准化、营养化、智能化的发展新范式。
+生态文明建设既是发展课题，也是改革命题。
 
-然而，产业仍面临特色与标准、风味与效率、贮藏与品质、非遗传承与产业化等突出矛盾，亟需以科技创新突破瓶颈，深化产教融合培育复合型人才，凝聚发展合力。
+今年3月，我国颁布生态环境法典，进一步筑牢了美丽中国建设的法治基石。
 
-大会上，中国工程院院士朱蓓薇在主题报告中指出：“人工智能正在深度重构人类饮食生态。
+为全局计，为长远谋。
 
-”她系统阐述了AI技术赋能家庭厨房从“工具智能”向“生态智能”的跨越，通过“食品科学+AI”实现“零厨艺”制作高品质膳食。
+习近平总书记心系人民福祉、瞩望民族未来，推动人与自然和谐共生的中国式现代化行稳致远。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 20:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 20:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 20:56 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 20:45 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 20:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 20:46 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 20:56 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 20:53 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 20:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 20:46 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 20:54 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 20:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 20:41 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 20:54 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 20:57 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 20:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 21:03 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 20:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 21:05 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 21:02 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 20:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 21:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 21:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 20:36 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/626200205.shtml)
-- 2026-06-29 20:42 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/64658.shtml)
-- 2026-06-29 20:52 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/66230159.shtml)
-- 2026-06-29 20:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/856962.shtml)
-- 2026-06-29 20:30 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/586433.shtml)
-- 2026-06-29 20:53 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/4662382.shtml)
-- 2026-06-29 20:51 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/8528865046.shtml)
-- 2026-06-29 20:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/14000078.shtml)
-- 2026-06-29 20:40 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/916628574.shtml)
-- 2026-06-29 20:45 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/500080395081.shtml)
-- 2026-06-29 20:53 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/2347178385.shtml)
-- 2026-06-29 20:31 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/035588149076.shtml)
-- 2026-06-29 20:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/225477.shtml)
-- 2026-06-29 20:55 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/8116558634.shtml)
-- 2026-06-29 20:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/1513532583.shtml)
+- 2026-06-29 20:59 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/371075190673.shtml)
+- 2026-06-29 20:53 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/75743627.shtml)
+- 2026-06-29 20:49 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/561835.shtml)
+- 2026-06-29 20:55 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/24733717351.shtml)
+- 2026-06-29 20:52 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/3146614.shtml)
+- 2026-06-29 20:54 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/40769.shtml)
+- 2026-06-29 21:01 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/617081894.shtml)
+- 2026-06-29 20:45 - [斗破苍穹](http://www.share.minike.top/Article/details/260212886.shtml)
+- 2026-06-29 21:04 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/990535805.shtml)
+- 2026-06-29 21:04 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/44206.shtml)
+- 2026-06-29 20:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/9258378.shtml)
+- 2026-06-29 20:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/73669012982.shtml)
+- 2026-06-29 20:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/1860298756.shtml)
+- 2026-06-29 20:44 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/8746281128.shtml)
+- 2026-06-29 21:03 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/6788472.shtml)

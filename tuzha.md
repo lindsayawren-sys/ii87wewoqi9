@@ -1,56 +1,46 @@
-# 霍尔木兹海峡，突然生变！明天，A股会受多大影响？
+# 华宝基金红利风向标：市场风险偏好较高，小盘策略再占优
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-每经记者|赵云 每经编辑|彭水萍 刚过去的交易周（4月13日至17日），在中东局势总体缓和的背景下，全球股市都“迫不及待”开启连续修复。截至周五，不少股指已反包或接近收复2月底以来的失地。 纳斯达克指数走出了夸张的13连涨，周五创出历史新高；而在A股，创业板指也不遑多让，周五刷新了近11年以来的新高。 这其实很生动地说明了，炒股就是炒“预期”。 当中东局势稍有缓和迹象，资金就“
+责任编辑：周守来
 
 ## 正文
 
-每经记者|赵云 每经编辑|彭水萍 刚过去的交易周（4月13日至17日），在中东局势总体缓和的背景下，全球股市都“迫不及待”开启连续修复。
-
-截至周五，不少股指已反包或接近收复2月底以来的失地。
-
-纳斯达克指数走出了夸张的13连涨，周五创出历史新高；而在A股，创业板指也不遑多让，周五刷新了近11年以来的新高。
-
-这其实很生动地说明了，炒股就是炒“预期”。
-
-当中东局势稍有缓和迹象，资金就“快进”到交易彻底和平的“未来”。
-
-本周五，这种预期达到目前的极致。
-
-创业板指新高、A股股王“换人”、宁德时代和中际旭创等权重股创新高……这些细节，都是这种极致的体现。
-
-但，不出意外地，周末消息面出了意外。
+责任编辑：周守来
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 20:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:39 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 20:58 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 20:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 20:57 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 20:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 20:39 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 20:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 20:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 20:47 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 20:50 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 21:02 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 20:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 20:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 20:40 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 20:48 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 21:04 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 20:47 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 20:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 20:57 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 21:01 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:40 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:49 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/087199.shtml)
-- 2026-06-29 20:48 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/86670820.shtml)
-- 2026-06-29 20:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/3640114110.shtml)
-- 2026-06-29 20:31 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/99293.shtml)
-- 2026-06-29 20:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/26527794378.shtml)
-- 2026-06-29 20:43 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/76484681.shtml)
-- 2026-06-29 20:41 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/97294074861.shtml)
-- 2026-06-29 20:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/3256378475.shtml)
-- 2026-06-29 20:55 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/5193646921.shtml)
-- 2026-06-29 20:47 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/0626133175.shtml)
-- 2026-06-29 20:42 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/00499149706.shtml)
-- 2026-06-29 20:37 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/4917879420.shtml)
-- 2026-06-29 20:42 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/4056265020.shtml)
-- 2026-06-29 20:33 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/46180903.shtml)
-- 2026-06-29 20:42 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/84422809038.shtml)
+- 2026-06-29 20:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/729447473.shtml)
+- 2026-06-29 21:02 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/7567985168.shtml)
+- 2026-06-29 20:50 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/9665010.shtml)
+- 2026-06-29 20:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/589262.shtml)
+- 2026-06-29 20:42 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/38940929364.shtml)
+- 2026-06-29 20:43 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/914783726228.shtml)
+- 2026-06-29 20:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/90600312.shtml)
+- 2026-06-29 21:00 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/10123848.shtml)
+- 2026-06-29 21:04 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/520792.shtml)
+- 2026-06-29 20:44 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/26542941579.shtml)
+- 2026-06-29 20:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/597637340.shtml)
+- 2026-06-29 21:01 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/1027751819.shtml)
+- 2026-06-29 20:49 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/910949.shtml)
+- 2026-06-29 20:38 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/57779797.shtml)
+- 2026-06-29 20:44 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/77333.shtml)

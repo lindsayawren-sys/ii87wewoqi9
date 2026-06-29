@@ -1,59 +1,53 @@
-# 000703，火了！迎超180家机构调研，一季度业绩大增3774%！
+# 中美联合侦破郭某等人走私贩毒案 切断一条跨国贩毒通道
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周（4月13日—17日）机构投资者调研热情不减，截至4月17日，本周共有344家A股上市公司接受机构调研。从赚钱效应来看，超七成机构调研股实现正收益，其中协创数据本周股价创近期新高，累计涨53.18%。 热门调研标的方面，本周有6家上市公司接受超百家机构调研，10家公司接受50家以上机构调研。其中，恒逸石
+中新社北京5月11日电 (记者 郭超凯)记者11日从中国公安部获悉，中美4月初成功联合侦破郭某等人走私贩毒案，成功切断一条跨中美两国的走私贩毒通道。 据介绍，4月初，中国公安部禁毒局和美国司法部缉毒署成功联合侦破郭某等人走私贩毒案，同步在中国辽宁、广东，美国佛罗里达州、内华达州等地开展收网行动，共抓获涉案犯罪嫌疑人5名(中国籍2名、美国籍3名)，缴获丙托尼秦、波玛唑仑等一批毒品
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月11日电 (记者 郭超凯)记者11日从中国公安部获悉，中美4月初成功联合侦破郭某等人走私贩毒案，成功切断一条跨中美两国的走私贩毒通道。
 
-本周（4月13日—17日）机构投资者调研热情不减，截至4月17日，本周共有344家A股上市公司接受机构调研。
+据介绍，4月初，中国公安部禁毒局和美国司法部缉毒署成功联合侦破郭某等人走私贩毒案，同步在中国辽宁、广东，美国佛罗里达州、内华达州等地开展收网行动，共抓获涉案犯罪嫌疑人5名(中国籍2名、美国籍3名)，缴获丙托尼秦、波玛唑仑等一批毒品，成功切断一条跨中美两国的走私贩毒通道。
 
-从赚钱效应来看，超七成机构调研股实现正收益，其中协创数据本周股价创近期新高，累计涨53.18%。
+该案的成功侦破，是中美禁毒执法部门深化务实合作的又一重大战果，彰显了两国共同严厉打击毒品违法犯罪活动的决心。
 
-热门调研标的方面，本周有6家上市公司接受超百家机构调研，10家公司接受50家以上机构调研。
-
-其中，恒逸石化、润泽科技两家公司本周都接受186家机构调研，成为机构最为关注的“团宠”。
-
-华特气体、蓝思科技、耐普矿机分别接受163家、118家、109家机构调研。
-
-恒逸石化一季报业绩亮眼 恒逸石化（000703）2026年一季度交出亮眼的成绩单，2026年一季度，恒逸石化实现营业收入299.48亿元，同比增长10.23%；归母净利润19.95亿元，同比大增3773.77%。
-
-据恒逸石化介绍，该公司是“炼化—化工—化纤”全产业链一体化龙头企业，以东南亚地区文莱炼化一期项目为上游战略支点，国内PTA-PET及CPL-PA6工厂为产业基石，通过境内外高效联动与上中下游垂直整合，构建了从原油加工到化纤产品的一体化全产业链闭环，形成了国内独有的“涤纶+锦纶”双轮驱动、各业务板块均衡并进的柱状产业布局。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 20:56 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 20:40 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 20:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:52 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 20:38 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 20:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 20:37 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 20:50 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 20:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 20:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 20:55 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:52 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 20:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 20:55 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:51 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 20:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 21:01 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 20:50 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 20:45 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:57 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 20:38 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 20:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:04 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 20:59 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 20:58 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 21:02 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/674390694.shtml)
-- 2026-06-29 20:34 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/723013.shtml)
-- 2026-06-29 20:48 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/6161992915.shtml)
-- 2026-06-29 20:44 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/98526061841.shtml)
-- 2026-06-29 20:30 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/6067418677.shtml)
-- 2026-06-29 20:55 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/283435419.shtml)
-- 2026-06-29 20:40 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/3215671016.shtml)
-- 2026-06-29 20:42 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/05534.shtml)
-- 2026-06-29 20:52 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/60882900583.shtml)
-- 2026-06-29 20:41 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/503934.shtml)
-- 2026-06-29 20:51 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/11465523195.shtml)
-- 2026-06-29 20:32 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/930932.shtml)
-- 2026-06-29 20:49 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/736568.shtml)
-- 2026-06-29 20:40 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/50990699480.shtml)
-- 2026-06-29 20:56 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/312786.shtml)
+- 2026-06-29 20:39 - [送你一朵小红花](https://www.share.minike.top/Article/details/36744552396.shtml)
+- 2026-06-29 20:41 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/607065503.shtml)
+- 2026-06-29 20:50 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/997333138.shtml)
+- 2026-06-29 20:39 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/05929772.shtml)
+- 2026-06-29 21:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/457375.shtml)
+- 2026-06-29 20:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/3948649422.shtml)
+- 2026-06-29 21:04 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/173524720986.shtml)
+- 2026-06-29 21:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/6225967.shtml)
+- 2026-06-29 20:39 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/827642376453.shtml)
+- 2026-06-29 20:51 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/3061183.shtml)
+- 2026-06-29 20:51 - [扬名立万](http://www.blog.minike.top/Article/details/35930.shtml)
+- 2026-06-29 21:04 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/79057.shtml)
+- 2026-06-29 20:36 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/66919.shtml)
+- 2026-06-29 20:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/488523222.shtml)
+- 2026-06-29 20:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/947555.shtml)

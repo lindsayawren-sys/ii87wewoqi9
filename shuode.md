@@ -1,58 +1,56 @@
-# 中外民众齐聚广西鱼峰歌圩唱山歌
+# 曾经的“高端王者”，在中国为啥打不动了？
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公
+中新经纬5月10日电 (张芷菡)近日，三星(中国)投资有限公司发布通知称，三星电子决定在中国大陆市场停止销售含电视、显示器在内的所有家电产品。 在中国大陆的家电市场打拼三十多年，三星这一品牌已代表了“高端”，也颇受消费者认可。在2014、2015年的“巅峰时期”，三星在中国一年彩电销售额约30亿美元，生活电器销售额约10亿美元。 而2026年，三星电子在中国的经营计划中，彩电的
 
 ## 正文
 
-为啥“100%果汁”，配料表第一位是水？
+中新经纬5月10日电 (张芷菡)近日，三星(中国)投资有限公司发布通知称，三星电子决定在中国大陆市场停止销售含电视、显示器在内的所有家电产品。
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+在中国大陆的家电市场打拼三十多年，三星这一品牌已代表了“高端”，也颇受消费者认可。
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+在2014、2015年的“巅峰时期”，三星在中国一年彩电销售额约30亿美元，生活电器销售额约10亿美元。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+而2026年，三星电子在中国的经营计划中，彩电的销售目标下滑至峰值时期的5%。
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+市场占有率也大幅压缩，根据奥维云网(AVC)监测数据，2026年开年至4月26日，在中国市场，三星品牌彩电线上、线下的销售市占率分别仅为1.33%、3.54%。
 
-开局良好！
+与此同时，以海信、TCL、小米、海尔、美的等为代表的中国品牌迅速崛起，抢占了三星的市场份额。
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+然而，这并非中国品牌与外资品牌的一场“数量战”，而是“质量战”。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+从支撑三星高端品牌形象打造的“硬参数”看，近年来，海信、TCL高端MiniLED电视在峰值亮度、背光分区、色域、刷新率等核心硬件参数上，已领先同价位三星QLED、OLED机型；TCL华星、京东方实现电视面板高度自给，三星反而大量采购国产面板，更反映出中国品牌质量实力的提升。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 20:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 20:42 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 20:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 20:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 20:51 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 20:59 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 20:55 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 20:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 20:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 20:32 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 20:42 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 21:02 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 20:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 20:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:44 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 20:56 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 21:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 20:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 20:57 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/36288675.shtml)
-- 2026-06-29 20:38 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/10031358.shtml)
-- 2026-06-29 20:53 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/629843927240.shtml)
-- 2026-06-29 20:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/528420464.shtml)
-- 2026-06-29 20:46 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/8708446.shtml)
-- 2026-06-29 20:50 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/5789873955.shtml)
-- 2026-06-29 20:46 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/9333299987.shtml)
-- 2026-06-29 20:39 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/378916809.shtml)
-- 2026-06-29 20:54 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/40803.shtml)
-- 2026-06-29 20:30 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/33597477.shtml)
-- 2026-06-29 20:46 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/60282481.shtml)
-- 2026-06-29 20:42 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/3751453975.shtml)
-- 2026-06-29 20:51 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/36729.shtml)
-- 2026-06-29 20:38 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/63477888158.shtml)
-- 2026-06-29 20:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/8629267.shtml)
+- 2026-06-29 20:38 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/16084516030.shtml)
+- 2026-06-29 20:57 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/17088993358.shtml)
+- 2026-06-29 20:55 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/15797644.shtml)
+- 2026-06-29 20:39 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/6144571558.shtml)
+- 2026-06-29 20:36 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/79766372.shtml)
+- 2026-06-29 20:39 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7784345.shtml)
+- 2026-06-29 20:56 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/83494729.shtml)
+- 2026-06-29 21:03 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/579062487288.shtml)
+- 2026-06-29 20:56 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/03855846.shtml)
+- 2026-06-29 20:59 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/03265.shtml)
+- 2026-06-29 20:59 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/743245618929.shtml)
+- 2026-06-29 20:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/3664840.shtml)
+- 2026-06-29 20:36 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/8150352.shtml)
+- 2026-06-29 20:42 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/17650054100.shtml)
+- 2026-06-29 20:43 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/05012949.shtml)

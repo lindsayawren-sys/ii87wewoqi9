@@ -1,60 +1,56 @@
-# 国防部新闻发言人就日本自卫队舰艇过航台湾海峡答记者问
+# 刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-新华社北京4月17日电(记者王春涛)国防部新闻发言人张晓刚17日就日本自卫队舰艇过航台湾海峡答记者问。 有记者问，4月17日，一艘日本自卫队舰艇过航台湾海峡，请问对此有何评论？ 张晓刚表示，日本“雷”号驱逐舰过航台湾海峡，东部战区组织海空兵力对其全程跟监，有效瞰制管控。我们已向日方严正交涉，提出强烈抗议。 “日方此举蓄意挑衅，一错再错，意欲何为？”张晓刚说，“日本首相高市早苗发
+发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？这其实就说明我们有共同的历史认同，这些历史
 
 ## 正文
 
-新华社北京4月17日电(记者王春涛)国防部新闻发言人张晓刚17日就日本自卫队舰艇过航台湾海峡答记者问。
+发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。
 
-有记者问，4月17日，一艘日本自卫队舰艇过航台湾海峡，请问对此有何评论？
+谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。
 
-张晓刚表示，日本“雷”号驱逐舰过航台湾海峡，东部战区组织海空兵力对其全程跟监，有效瞰制管控。
+比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？
 
-我们已向日方严正交涉，提出强烈抗议。
+这其实就说明我们有共同的历史认同，这些历史人物其实深深根植于老百姓的心中。
 
-“日方此举蓄意挑衅，一错再错，意欲何为？
+如果扮演得好，我们都认为他和他所扮演那个角色是合一的，所以我们才能把对这个角色的感情、对这个历史人物的感情，寄托在这样的艺人身上”。
 
-”张晓刚说，“日本首相高市早苗发表涉台错误言论，至今不思悔改。
-
-日本自卫队舰艇在台湾海峡兴风作浪，向‘台独’分裂势力发出错误信号，这只会激起中国人民更大的义愤，更加坚定反击日方玩火挑衅的决心意志。
-
-”张晓刚表示，我们敦促日方迷途知返，恪守一个中国原则和中日四个政治文件精神，不要在错误的道路上越走越远。
+(范思忆 刘子衿 制作 王雪茵） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 20:56 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 20:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 20:30 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 20:39 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 20:37 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 20:46 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 20:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 20:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 20:44 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 20:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 20:38 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:57 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 20:48 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 20:56 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 20:40 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 20:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 20:39 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:52 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 20:44 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 20:56 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 20:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 21:01 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 21:01 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 20:43 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 21:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/3337321.shtml)
-- 2026-06-29 20:47 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/82511.shtml)
-- 2026-06-29 20:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/3625815.shtml)
-- 2026-06-29 20:39 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/159955061.shtml)
-- 2026-06-29 20:31 - [起风了](https://www.blog.minike.top/Article/details/23120636088.shtml)
-- 2026-06-29 20:49 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/820490.shtml)
-- 2026-06-29 20:32 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/9889650911.shtml)
-- 2026-06-29 20:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/00165942768.shtml)
-- 2026-06-29 20:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/09707.shtml)
-- 2026-06-29 20:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/32907.shtml)
-- 2026-06-29 20:36 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/44179396.shtml)
-- 2026-06-29 20:31 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/73732356.shtml)
-- 2026-06-29 20:48 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/50652035.shtml)
-- 2026-06-29 20:59 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/9333132.shtml)
-- 2026-06-29 20:47 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/88082.shtml)
+- 2026-06-29 20:38 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/8850405.shtml)
+- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/09263.shtml)
+- 2026-06-29 20:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/29922.shtml)
+- 2026-06-29 20:52 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/8143859263.shtml)
+- 2026-06-29 20:50 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/652975.shtml)
+- 2026-06-29 20:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/59828253608.shtml)
+- 2026-06-29 20:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/09937552.shtml)
+- 2026-06-29 20:59 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/9924282.shtml)
+- 2026-06-29 20:41 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/37430.shtml)
+- 2026-06-29 20:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/96309801325.shtml)
+- 2026-06-29 20:55 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/972967.shtml)
+- 2026-06-29 20:54 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/5090932298.shtml)
+- 2026-06-29 20:38 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/03571537.shtml)
+- 2026-06-29 20:44 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/76584772.shtml)
+- 2026-06-29 20:40 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/044858198437.shtml)

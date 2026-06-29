@@ -1,59 +1,57 @@
-# （经济观察）中国新一轮开放提速 服务业成发力重点
+# 日本“新型军国主义”严重威胁地区和平稳定（国际论坛）
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新社北京4月18日电 (记者 尹倩芸)在制造业外资准入限制全面“清零”后，中国新一轮对外开放的重心，正加速转向服务业。 从政府工作报告提出“有序放宽服务业准入限制”，到“十五五”规划纲要明确“扩大服务业高水平对外开放”，再到日前召开的全国服务业大会释出积极扩大开放信号。官方系列部署表明，服务业正成为中国新阶段对外开放的重要突破口。 数据显示，服务业对中国经济增长贡献率连续11
+人民日报 丁铎 日本任何试图挑战战后秩序、破坏地区稳定的军事冒险，终将遭到地区各国的共同反对，注定以失败收场 日前，日本政府就推进启动“安保三文件”修订工作召开首次专家会议。日本首相高市早苗在会议上妄言，修订“安保三文件”工作是左右国家命运的重要工作，要推进应对“新型作战方式”以及为长期战争做好准备，推进海上安保能力、网络安全和经济安全保障。近来，日本“新型军国主义”妄动不断。
 
 ## 正文
 
-中新社北京4月18日电 (记者 尹倩芸)在制造业外资准入限制全面“清零”后，中国新一轮对外开放的重心，正加速转向服务业。
+人民日报 丁铎 日本任何试图挑战战后秩序、破坏地区稳定的军事冒险，终将遭到地区各国的共同反对，注定以失败收场 日前，日本政府就推进启动“安保三文件”修订工作召开首次专家会议。
 
-从政府工作报告提出“有序放宽服务业准入限制”，到“十五五”规划纲要明确“扩大服务业高水平对外开放”，再到日前召开的全国服务业大会释出积极扩大开放信号。
+日本首相高市早苗在会议上妄言，修订“安保三文件”工作是左右国家命运的重要工作，要推进应对“新型作战方式”以及为长期战争做好准备，推进海上安保能力、网络安全和经济安全保障。
 
-官方系列部署表明，服务业正成为中国新阶段对外开放的重要突破口。
+近来，日本“新型军国主义”妄动不断。
 
-数据显示，服务业对中国经济增长贡献率连续11年占比超过50%，并在2025年达到61.4%，是稳增长、扩就业、促消费的重要支撑。
+日本自卫队派遣逾千兵力参加美菲“肩并肩”联合军演，是二战后日本首次以成建制作战力量登陆菲律宾参与军演。
 
-有分析指出，将服务业作为开放重点，正是顺应中国经济结构变化的主动布局，也是推动经济高质量发展的务实之举。
+演习期间使用88式岸基反舰导弹进行实弹射击。
 
-从开放进程看，经过多年持续推进，中国制造业开放已取得明显进展。
+日本政府正式修改“防卫装备转移三原则”及其运用指南，宣布大幅放宽防卫装备出口限制。
 
-相较而言，服务业长期以来仍是开放相对不足、限制约束较多的领域，同时蕴含着更大的增量空间。
+作为二战战败国，日本本应谨守和平承诺、汲取历史教训，如今却大肆推进军事力量向外扩张。
 
-但服务业开放的复杂性，决定了其不仅是“放开市场”这么简单。
+一连串危险举动严重破坏地区和平稳定，是对战后国际秩序的公开挑衅。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 20:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 20:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 20:41 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 20:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 20:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 20:48 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 20:46 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 20:54 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 20:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:31 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 20:36 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 20:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 20:55 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 20:49 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 20:58 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 20:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 20:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 21:00 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 21:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 20:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 20:45 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/1902589941.shtml)
-- 2026-06-29 20:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/369606475.shtml)
-- 2026-06-29 20:30 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/438928446590.shtml)
-- 2026-06-29 20:51 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/95571423.shtml)
-- 2026-06-29 20:36 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/780857664100.shtml)
-- 2026-06-29 20:52 - [新官上任三把火](http://www.share.minike.top/Article/details/14549585.shtml)
-- 2026-06-29 20:33 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/8225519537.shtml)
-- 2026-06-29 20:39 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/226668.shtml)
-- 2026-06-29 20:58 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/09391649212.shtml)
-- 2026-06-29 20:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/21715066686.shtml)
-- 2026-06-29 20:36 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/82088.shtml)
-- 2026-06-29 20:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/65797121215.shtml)
-- 2026-06-29 20:51 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/18930731641.shtml)
-- 2026-06-29 20:43 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/67000669456.shtml)
-- 2026-06-29 20:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/69618.shtml)
+- 2026-06-29 21:00 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/586168637546.shtml)
+- 2026-06-29 20:42 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/407398304544.shtml)
+- 2026-06-29 20:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/24241273083.shtml)
+- 2026-06-29 20:44 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/270688338.shtml)
+- 2026-06-29 20:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/9707681971.shtml)
+- 2026-06-29 21:02 - [温网](https://www.share.kurohicncr.top/Article/details/550717801021.shtml)
+- 2026-06-29 20:42 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/70293746696.shtml)
+- 2026-06-29 20:59 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/02327320825.shtml)
+- 2026-06-29 20:48 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/1663462.shtml)
+- 2026-06-29 20:48 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/9369301632.shtml)
+- 2026-06-29 20:58 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/9490908171.shtml)
+- 2026-06-29 20:59 - [黄金也扛不住了](https://www.share.minike.top/Article/details/8594197.shtml)
+- 2026-06-29 20:37 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/296648395.shtml)
+- 2026-06-29 21:03 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/7870841466.shtml)
+- 2026-06-29 21:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/8532779.shtml)

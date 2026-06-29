@@ -1,60 +1,61 @@
-# 霍尔木兹海峡重新开放，油价暴跌推动股市上涨
+# 提前发红包，工行、农行近900亿分红 就在本周
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-随着伊朗宣布重新开放霍尔木兹海峡，原油价格大幅下跌，全球股市周五延续涨势，投资者对中东局势升级导致能源供应中断的担忧得到缓解。 股市全面走高 标普500指数连续第二天创下历史新高，欧洲斯托克600指数也在本周强劲上涨。MSCI全球所有国家指数有望录得自2023年11月以来的最佳单周表现。美国股市期货上涨，道琼斯工业平均指数期货上涨约500点，此前标普500指数和纳斯达克指数均在
+工行、农行、瑞丰银行本周内派息 银行分红即将进入落地期，工商银行、农业银行、瑞丰银行将在本周进行A股派息，总额接近900亿元。其中，工行、农行派息日较上年提前了两个多月。 根据年报中披露的分红方案，A股42家上市银行除郑州银行再次不分红外，其余41家银行2025年度累计分红金额接近6500亿元。其中，14家分红率在30%以上，沪农商行以34.07%分红率居首。 不过，截至5月1
 
 ## 正文
 
-随着伊朗宣布重新开放霍尔木兹海峡，原油价格大幅下跌，全球股市周五延续涨势，投资者对中东局势升级导致能源供应中断的担忧得到缓解。
+工行、农行、瑞丰银行本周内派息 银行分红即将进入落地期，工商银行、农业银行、瑞丰银行将在本周进行A股派息，总额接近900亿元。
 
-股市全面走高 标普500指数连续第二天创下历史新高，欧洲斯托克600指数也在本周强劲上涨。
+其中，工行、农行派息日较上年提前了两个多月。
 
-MSCI全球所有国家指数有望录得自2023年11月以来的最佳单周表现。
+根据年报中披露的分红方案，A股42家上市银行除郑州银行再次不分红外，其余41家银行2025年度累计分红金额接近6500亿元。
 
-美国股市期货上涨，道琼斯工业平均指数期货上涨约500点，此前标普500指数和纳斯达克指数均在周四创下收盘新高。
+其中，14家分红率在30%以上，沪农商行以34.07%分红率居首。
 
-伊朗外交部长周五在社交媒体上宣布，为配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向所有商船完全开放通行。
+不过，截至5月11日，今年内仅13家上市银行股价上涨，青岛银行、成都银行、宁波银行表现靠前；浦发银行、兴业银行、农业银行跌幅最大。
 
-美国总统特朗普周四宣布以色列和黎巴嫩领导人同意停火十天，并表示伊朗战争“应该很快就会结束”。
+按照最新收盘价计算，上市银行目前股息率最高超过6%，最低不足3%，分化明显。
 
-油价暴跌，能源股承压 原油价格创下自2022年以来的最大跌幅，西德克萨斯中质原油和布伦特原油均大幅下挫。
+尽管去年年报和今年一季报传递出不少业绩企稳的信号，但资产质量风险和资本补充压力仍对分红形成一定压制。
 
-这一消息对能源股构成压力，标普500能源板块在早盘交易中下跌约3%，有望创下自2024年9月以来的最大单日跌幅。
+有机构人士判断，高分红投资价值将进一步集中体现于拨备水平较为扎实的国有大行和优质中小银行。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 20:30 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 20:30 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 20:30 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 20:42 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 20:51 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 20:37 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 20:45 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 20:49 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 20:36 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 20:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 20:47 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:03 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 20:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 20:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 20:49 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 20:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 20:41 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 20:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 21:00 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 20:43 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 20:50 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 20:46 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 20:51 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 20:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 20:52 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 20:41 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/7533749.shtml)
-- 2026-06-29 20:49 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/079711.shtml)
-- 2026-06-29 20:35 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/8966362.shtml)
-- 2026-06-29 20:47 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/809266290090.shtml)
-- 2026-06-29 20:51 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/96908741.shtml)
-- 2026-06-29 20:57 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/55046.shtml)
-- 2026-06-29 20:52 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/86753477758.shtml)
-- 2026-06-29 20:32 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/81983327432.shtml)
-- 2026-06-29 20:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/777281.shtml)
-- 2026-06-29 20:56 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/1909222.shtml)
-- 2026-06-29 20:52 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/254439203.shtml)
-- 2026-06-29 20:39 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/53284.shtml)
-- 2026-06-29 20:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/04243105211.shtml)
-- 2026-06-29 20:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9671130.shtml)
-- 2026-06-29 20:32 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/46220520.shtml)
+- 2026-06-29 20:57 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/5437173322.shtml)
+- 2026-06-29 20:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/698621157.shtml)
+- 2026-06-29 21:01 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/816932.shtml)
+- 2026-06-29 20:39 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/18245168.shtml)
+- 2026-06-29 20:47 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/826817.shtml)
+- 2026-06-29 20:56 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/52947720.shtml)
+- 2026-06-29 20:50 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/432849955.shtml)
+- 2026-06-29 20:48 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/0447876023.shtml)
+- 2026-06-29 20:47 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/926135481535.shtml)
+- 2026-06-29 21:00 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/7714532883.shtml)
+- 2026-06-29 21:05 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/55930.shtml)
+- 2026-06-29 20:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/6298911.shtml)
+- 2026-06-29 20:45 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/93394876.shtml)
+- 2026-06-29 20:54 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/723102594.shtml)
+- 2026-06-29 20:54 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/827419620.shtml)

@@ -1,57 +1,57 @@
-# 美伊谈判在即，A股下周怎么走？8大机构最新研判
+# 湖南三湘银行降息、下架5年期存款，去年营收净利润双降，个贷占比降至60%
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，中东地缘冲突持续涌现积极信号，推动全球权益市场反弹，创业板指刷新11年来新高，国际原油价格大幅回落。尽管目前谈判进程仍有波动，但业内机构认为，投资者对海外地缘形势的变化可能已经不再一味悲观，在地缘冲突对A股的影响逐步钝化后，风险偏好提升或助推指数在二季度突破前期高点。 就后市配置而言，机构预计4月市场
+登录新浪财经APP 搜索【信披】查看更多考评等级 消费日报讯（记者 刘锦桃）5月8日，湖南三湘银行宣布对人民币存款产品利率进行调整：三年定期存款年利率降至1.95%，同时下架五年定期存款，存量产品到期后不再滚存。 这一不同寻常的调整引发市场对其经营状况的关注。数据显示，2025年上半年，三湘银行实现营收6.51亿元，同比下滑了28.78%，净利润为亏损2.14亿元。去年，三湘银
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 消费日报讯（记者 刘锦桃）5月8日，湖南三湘银行宣布对人民币存款产品利率进行调整：三年定期存款年利率降至1.95%，同时下架五年定期存款，存量产品到期后不再滚存。
 
-本周，中东地缘冲突持续涌现积极信号，推动全球权益市场反弹，创业板指刷新11年来新高，国际原油价格大幅回落。
+这一不同寻常的调整引发市场对其经营状况的关注。
 
-尽管目前谈判进程仍有波动，但业内机构认为，投资者对海外地缘形势的变化可能已经不再一味悲观，在地缘冲突对A股的影响逐步钝化后，风险偏好提升或助推指数在二季度突破前期高点。
+数据显示，2025年上半年，三湘银行实现营收6.51亿元，同比下滑了28.78%，净利润为亏损2.14亿元。
 
-就后市配置而言，机构预计4月市场风格或在成长及防御间进行轮动，泛新能源及电力基础设施建设方向、具备业绩支撑的AI相关板块是值得关注的中期主线。
+去年，三湘银行的营收净利润双双下降，其中净利润仅为0.16亿元。
 
-机构后市投资观点 东吴证券：聚焦泛新能源等两条主线 总体而言，美伊两方积极接洽，风险趋势性缓和。
+从最新披露的2025年年报来看，三湘银行作为中部地区首家开业的民营银行，正面临转型关键期的多重挑战。
 
-结合当前宏观格局与产业优势，核心聚焦两条中期主线：一是泛新能源及电力基础设施建设方向，储能、风电、光伏、锂电、电网等板块景气度向好；二是具备业绩支撑的AI相关板块，借鉴美股经验，关注存储、先进制程、光通信、半导体设备材料等核心赛道。
+1 存款利率下调，长期存款产品缩减 湖南三湘银行股份有限公司是中部地区首家开业的民营银行，由三一集团联合同发集团、汉森制药等9家湖南省内知名民营企业共同发起设立，于2016年12月26日正式开业，注册资本金30亿元，注册地湖南长沙。
 
-光大证券：预计4月市场风格或在成长及防御之间轮动 中东地缘冲突或继续成为影响市场情绪的主导因素，在谈判与冲突的反复拉扯下，市场情绪可能会出现大幅度的反复波动。
+据三湘银行发布的《关于调整存款产品挂牌利率的公告》，自5月8日起，三年期定期存款年利率将从2.05%下调至1.95%，并下架五年期定期存款，存量产品到期后不再滚存。
 
-总体而言，预计4月市场风格或在成长及防御间进行轮动，投资者短期可继续关注涨价线及清洁能源等主题性投资机会，中期需观察原油价格是否长时间在高位停留，如此或会引发市场对美国经济“类滞胀”的担忧，造成各大类资产波动率放大的可能。
+该行上一次调整存款利率是在2025年5月28日，当时其五年期定期存款利率下调至2.0%。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 20:41 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 20:51 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 20:41 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 20:45 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 20:49 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 20:38 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 20:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 20:58 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 20:41 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 20:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 20:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 20:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 20:38 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 20:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 21:05 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 20:52 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 20:45 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 21:04 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 21:01 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 20:43 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 20:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/337766091923.shtml)
-- 2026-06-29 20:48 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/76568215098.shtml)
-- 2026-06-29 20:34 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/7202208.shtml)
-- 2026-06-29 20:41 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/34456441.shtml)
-- 2026-06-29 20:56 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/44729725577.shtml)
-- 2026-06-29 20:39 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/2326399326.shtml)
-- 2026-06-29 20:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/9709972555.shtml)
-- 2026-06-29 20:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/826948664279.shtml)
-- 2026-06-29 20:35 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/402963.shtml)
-- 2026-06-29 20:58 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/3792819.shtml)
-- 2026-06-29 20:53 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/67458.shtml)
-- 2026-06-29 20:53 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/933855564.shtml)
-- 2026-06-29 20:48 - [我们的少年时代2](https://www.blog.minike.top/Article/details/6118884915.shtml)
-- 2026-06-29 20:58 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/8628337270.shtml)
-- 2026-06-29 20:36 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/2307134950.shtml)
+- 2026-06-29 21:02 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/896920.shtml)
+- 2026-06-29 21:02 - [金牌调解](https://www.share.kurohicncr.top/Article/details/103289281.shtml)
+- 2026-06-29 21:06 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/9630692.shtml)
+- 2026-06-29 20:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/502743846.shtml)
+- 2026-06-29 20:53 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/88882947.shtml)
+- 2026-06-29 20:49 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/4900324736.shtml)
+- 2026-06-29 20:50 - [扬名立万](https://www.share.minike.top/Article/details/337235.shtml)
+- 2026-06-29 21:02 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/74065065134.shtml)
+- 2026-06-29 20:48 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/6674496.shtml)
+- 2026-06-29 21:04 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/186513.shtml)
+- 2026-06-29 20:42 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/81089.shtml)
+- 2026-06-29 20:38 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/754650469682.shtml)
+- 2026-06-29 20:50 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/593046500730.shtml)
+- 2026-06-29 21:01 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/97156993897.shtml)
+- 2026-06-29 20:53 - [起风了](http://www.blog.kurohicncr.top/Article/details/73481821281.shtml)

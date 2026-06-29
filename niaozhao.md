@@ -1,51 +1,49 @@
-# 伊朗抓捕逾百名涉恐人员 查获3000余件武器
+# 霍尔木兹海峡受阻世界喊“痛” 专家：负面影响可能长时间持续
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网4月20日电 据伊朗媒体当地时间19日报道，伊朗当局近期展开大规模安全行动，逮捕100余人，查获大量武器及监控设备。 据报道，伊朗警方负责人拉丹19日表示，伊朗安全部队近期行动中已逮捕100多名与恐怖组织有关联的人员。 拉丹还称，当局在行动中查获3000多件武器，以及大量实弹和刀具等利器；同时缴获约6000件监控设备和间谍工具，并拘捕了与这些设备有关的嫌疑人。他表示：“我
+发布时间：2026年05月11日 14:15 来源：中国新闻网 一场远在中东的战事，给全世界带来诸多挑战。近日，新加坡南洋理工大学拉惹勒南国际研究院学术副院长李明江在接受采访时指出，霍尔木兹海峡紧张局势已对新加坡经济体造成负面影响，包括能源价格、物价上涨，老百姓日常开支成本增加等等，甚至可能在较长的时间内，还会继续看到这些负面影响的存在。(观海潮工作室 记者 林士杰) 责任编辑
 
 ## 正文
 
-中新网4月20日电 据伊朗媒体当地时间19日报道，伊朗当局近期展开大规模安全行动，逮捕100余人，查获大量武器及监控设备。
+发布时间：2026年05月11日 14:15 来源：中国新闻网 一场远在中东的战事，给全世界带来诸多挑战。
 
-据报道，伊朗警方负责人拉丹19日表示，伊朗安全部队近期行动中已逮捕100多名与恐怖组织有关联的人员。
+近日，新加坡南洋理工大学拉惹勒南国际研究院学术副院长李明江在接受采访时指出，霍尔木兹海峡紧张局势已对新加坡经济体造成负面影响，包括能源价格、物价上涨，老百姓日常开支成本增加等等，甚至可能在较长的时间内，还会继续看到这些负面影响的存在。
 
-拉丹还称，当局在行动中查获3000多件武器，以及大量实弹和刀具等利器；同时缴获约6000件监控设备和间谍工具，并拘捕了与这些设备有关的嫌疑人。
-
-他表示：“我们的战士正驻守边境，全副武装，严阵以待。
-
-” 报道称，伊朗当局表示，将通过扩大行动和加强安全协同，进一步强化边境防护，维护国内稳定。
+(观海潮工作室 记者 林士杰) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 20:35 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 20:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 20:50 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 20:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 20:58 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 20:43 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:36 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 20:54 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 20:56 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 20:54 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 20:53 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 20:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 20:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 20:36 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 20:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 20:59 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 21:05 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:40 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 20:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 21:03 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 20:56 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:51 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/258782.shtml)
-- 2026-06-29 20:44 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/232457086.shtml)
-- 2026-06-29 20:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/840264.shtml)
-- 2026-06-29 20:45 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/713514283.shtml)
-- 2026-06-29 20:58 - [逃狱兄弟](http://www.blog.minike.top/Article/details/069644995.shtml)
-- 2026-06-29 20:30 - [扬名立万](http://www.share.kurohicncr.top/Article/details/81028.shtml)
-- 2026-06-29 20:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/12557573381.shtml)
-- 2026-06-29 20:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/57764.shtml)
-- 2026-06-29 20:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/300506598275.shtml)
-- 2026-06-29 20:42 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/6398329.shtml)
-- 2026-06-29 20:36 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/58173.shtml)
-- 2026-06-29 20:59 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/235479435.shtml)
-- 2026-06-29 20:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/66271004859.shtml)
-- 2026-06-29 20:42 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/370978.shtml)
-- 2026-06-29 20:43 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/76815610632.shtml)
+- 2026-06-29 20:52 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/644566723582.shtml)
+- 2026-06-29 20:48 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/289008977.shtml)
+- 2026-06-29 20:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/710845357.shtml)
+- 2026-06-29 20:38 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/16256917.shtml)
+- 2026-06-29 20:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/28757743708.shtml)
+- 2026-06-29 21:04 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/073037439.shtml)
+- 2026-06-29 20:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/935911978614.shtml)
+- 2026-06-29 20:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/6171777.shtml)
+- 2026-06-29 20:59 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/0763542.shtml)
+- 2026-06-29 20:39 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/124600.shtml)
+- 2026-06-29 20:39 - [扬名立万](https://www.blog.minike.top/Article/details/23782.shtml)
+- 2026-06-29 20:39 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/03892435606.shtml)
+- 2026-06-29 20:48 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/71497121010.shtml)
+- 2026-06-29 20:58 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/569071395.shtml)
+- 2026-06-29 20:54 - [温网](https://www.blog.kurohicncr.top/Article/details/61107895954.shtml)

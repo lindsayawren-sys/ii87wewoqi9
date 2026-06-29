@@ -1,61 +1,61 @@
-# 长安期货范磊：海峡关闭停火到期，关注三条谈判要点
+# 搭上火箭，A股装修龙头斩获11涨停，商业航天多股爆发
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-自4月7日美国与伊朗达成为期两周的停火协议以来，国际油价便持续处在下行通道之中，这主要是由于市场前期对于战争升级的担忧情绪明显缓解。然而周末时间则伊朗则表示因美国“屡次违背承诺”，对霍尔木兹海峡的控制权已恢复到以前的状态，这导致短期内的地缘不确定性再度有所升级。此前美国与伊朗虽然达成了协议，但关于黎以停火的具体进展、伊朗核资源的后续处理以及美国放开对伊朗的国际制裁等问题尚未达成
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨彭新 编辑丨郑世凤 江佩霞 张明艳 A股商业航天版块近期反复活跃。 5月11日A股市场商业航天股集体走强，截至收盘，中证卫星产业指数上涨1.33%，收获六连涨。商业航天概念股方面，天通股份、大元泵业、沃格光电、中航光电、大唐电信等多股10CM涨停，波导股份盘中涨停，已连收4个涨停板，截至收盘涨幅回落至
 
 ## 正文
 
-自4月7日美国与伊朗达成为期两周的停火协议以来，国际油价便持续处在下行通道之中，这主要是由于市场前期对于战争升级的担忧情绪明显缓解。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-然而周末时间则伊朗则表示因美国“屡次违背承诺”，对霍尔木兹海峡的控制权已恢复到以前的状态，这导致短期内的地缘不确定性再度有所升级。
+记者丨彭新 编辑丨郑世凤 江佩霞 张明艳 A股商业航天版块近期反复活跃。
 
-此前美国与伊朗虽然达成了协议，但关于黎以停火的具体进展、伊朗核资源的后续处理以及美国放开对伊朗的国际制裁等问题尚未达成明显的结果，而这三点也将是近期美伊谈判再度开始的关键话题。
+5月11日A股市场商业航天股集体走强，截至收盘，中证卫星产业指数上涨1.33%，收获六连涨。
 
-其一，关于以色列与黎巴嫩的停火问题。
+商业航天概念股方面，天通股份、大元泵业、沃格光电、中航光电、大唐电信等多股10CM涨停，波导股份盘中涨停，已连收4个涨停板，截至收盘涨幅回落至超5%。
 
-上周五时间特朗普突然宣布以色列将与黎巴嫩停火10天，随后黎以双方的武装力量均对外释放出了同意停火的信号。
+值得注意的是，A股建筑装饰老牌龙头金螳螂（002081），近期突然被贴上了“商业航天”“算力”等热门标签，甚至被捧为“太空装修第一股”，5月11日盘中，金螳螂斩获14天11板，截至收盘涨幅回落至超6%。
 
-随后伊朗表示鉴于黎巴嫩与以色列达成停火，伊朗在停火期间对所有商船开放霍尔木兹海峡，允许非军用船只通行，但特朗普则表示在协议正式达成前，不会解除对伊朗的海上封锁。
+5月7日，金螳螂再发风险提示，澄清近期市场热炒的“商业航天”“算力”概念，试图给疯狂的行情“降温”。
 
-这表明目前黎以的停火或并不是特朗普敦促下形成的结果，而是在为和伊朗的谈判增加另外一份筹码，这将意味着若后续伊朗无法顺利与美国达成协议，以色列与黎巴嫩的冲突或再度重燃。
+近期商业航天领域传来多个利好消息。
 
-其二，关于伊朗核资源的后续处理问题。
+消息面上，据中国载人航天工程办公室消息，北京时间2026年5月11日8时14分，搭载天舟十号货运飞船的长征七号遥十一运载火箭，在我国文昌航天发射场点火发射，约10分钟后，天舟十号货运飞船与火箭成功分离并进入预定轨道，之后飞船太阳能帆板顺利展开，发射任务圆满成功。
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 20:45 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 20:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:40 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 20:33 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 20:32 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 20:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 20:46 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 20:36 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 20:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 20:32 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 20:30 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 20:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 20:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 20:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 20:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 20:38 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 21:05 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 20:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 21:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 20:57 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 20:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 20:41 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 20:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 20:43 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 21:02 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 20:56 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 20:57 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 20:37 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/844516.shtml)
-- 2026-06-29 20:41 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/63675160.shtml)
-- 2026-06-29 20:54 - [周生如故](http://www.blog.minike.top/Article/details/5616681.shtml)
-- 2026-06-29 20:41 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/200700.shtml)
-- 2026-06-29 20:35 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/54586826063.shtml)
-- 2026-06-29 20:40 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/49928.shtml)
-- 2026-06-29 20:47 - [我和我的家乡](http://www.share.minike.top/Article/details/06318462.shtml)
-- 2026-06-29 20:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/812713926.shtml)
-- 2026-06-29 20:55 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/245290308.shtml)
-- 2026-06-29 20:59 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/810359056.shtml)
-- 2026-06-29 20:31 - [金刚川](https://www.blog.kurohicncr.top/Article/details/144984.shtml)
-- 2026-06-29 20:33 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/782316667823.shtml)
-- 2026-06-29 20:40 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/67726.shtml)
-- 2026-06-29 20:56 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/8190623.shtml)
-- 2026-06-29 20:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/80977307840.shtml)
+- 2026-06-29 20:48 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/65934.shtml)
+- 2026-06-29 21:01 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/72495126234.shtml)
+- 2026-06-29 20:47 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/5226473.shtml)
+- 2026-06-29 21:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/275533382430.shtml)
+- 2026-06-29 20:38 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/919051005511.shtml)
+- 2026-06-29 20:53 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/891214.shtml)
+- 2026-06-29 20:50 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/50826.shtml)
+- 2026-06-29 20:44 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/2232835856.shtml)
+- 2026-06-29 21:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/03374.shtml)
+- 2026-06-29 20:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/25680425633.shtml)
+- 2026-06-29 20:58 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6643161.shtml)
+- 2026-06-29 21:02 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/749959243933.shtml)
+- 2026-06-29 20:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/8702511.shtml)
+- 2026-06-29 20:46 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/7688830.shtml)
+- 2026-06-29 21:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/507121472.shtml)

@@ -1,61 +1,50 @@
-# 刚刚，全线跳水！伊朗，突然宣布
+# 台北售货小姐姐直言冷清 伊能静：盼两岸多交流 共看一部剧 共听一首歌
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】市场押注“不确定性高峰”已过，A股上涨，盘后伊朗宣布要谈判，但很快，伊朗又宣布没有谈判的计划 中国基金报记者 泰勒 兄弟姐妹们啊，尽管美伊谈判再生变数，但今天亚洲股市已经脱敏，继续上涨，一起看看发生了什么事。 伊朗释放矛盾信号 欧洲股市跳水 卡塔尔半岛电视台4月20日报道，伊朗伊斯
+发布时间：2026年05月12日 11:34 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕。伊能静接受中新社记者采访时表示，“我前阵刚回了台北，然后我去百货公司购物的时候，售货小姐姐就跟我说了一句话，说以前大陆的同胞来的时候，我们这边都是满的、热热闹闹的，然后现在就显得冷清了很多，然后说特别怀念那个时候。所以我也希望，如果真的有机会的话，两岸能够真正交流起
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月12日 11:34 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在北京开幕。
 
-来源：中国基金报 【导读】市场押注“不确定性高峰”已过，A股上涨，盘后伊朗宣布要谈判，但很快，伊朗又宣布没有谈判的计划 中国基金报记者 泰勒 兄弟姐妹们啊，尽管美伊谈判再生变数，但今天亚洲股市已经脱敏，继续上涨，一起看看发生了什么事。
+伊能静接受中新社记者采访时表示，“我前阵刚回了台北，然后我去百货公司购物的时候，售货小姐姐就跟我说了一句话，说以前大陆的同胞来的时候，我们这边都是满的、热热闹闹的，然后现在就显得冷清了很多，然后说特别怀念那个时候。
 
-伊朗释放矛盾信号 欧洲股市跳水 卡塔尔半岛电视台4月20日报道，伊朗伊斯兰议会国家安全和外交政策委员会主席易卜拉欣·阿齐兹对该媒体表示，伊朗已决定继续与美国进行谈判，但这“并不意味着不惜一切代价进行谈判”，也不意味着接受“对方采取的任何做法”。
+所以我也希望，如果真的有机会的话，两岸能够真正交流起来，哪怕是去逛一个百货公司，然后一起共同看一部剧、一起共同听一首歌”。
 
-但随后，据伊朗媒体4月20日报道，伊朗外交部发言人表示，目前暂无与美国进行第二轮谈判的计划。
-
-此外，伊朗武装部队发言人表示，在美国对一艘伊朗船只发动“侵略”行动后，“我们已做好与美国对抗的准备”。
-
-“由于被扣押船只上载有船员家属，我们的报复行动将会推迟。
-
-在确保船员及其家属安全后，我们将对美国采取必要行动。
-
-” 所以各位读者，你们做一下阅读理解：伊朗究竟要不要谈判？
+(范思忆 刘子衿 制作 王雪茵） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 20:48 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 20:37 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 20:47 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 20:55 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 20:31 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 20:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 20:40 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 20:56 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 20:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 20:41 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 20:30 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:41 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 20:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 20:37 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 20:53 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 20:42 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 20:49 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 20:52 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 21:00 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 20:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 20:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 20:53 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 20:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 21:01 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [请回答王牌2019](http://www.blog.minike.top/Article/details/78100481331.shtml)
-- 2026-06-29 20:43 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/8531427707.shtml)
-- 2026-06-29 20:45 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/3517815351.shtml)
-- 2026-06-29 20:35 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/503787.shtml)
-- 2026-06-29 20:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/69900768.shtml)
-- 2026-06-29 20:50 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/52789874.shtml)
-- 2026-06-29 20:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/8371069379.shtml)
-- 2026-06-29 20:43 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/9201645.shtml)
-- 2026-06-29 20:36 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/06414745.shtml)
-- 2026-06-29 20:31 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/3785789.shtml)
-- 2026-06-29 20:36 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/3386531320.shtml)
-- 2026-06-29 20:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/534362207.shtml)
-- 2026-06-29 20:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/114281724.shtml)
-- 2026-06-29 20:41 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/541382.shtml)
-- 2026-06-29 20:55 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/00880020.shtml)
+- 2026-06-29 20:45 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/723289989.shtml)
+- 2026-06-29 20:49 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/094316439248.shtml)
+- 2026-06-29 20:56 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/13886.shtml)
+- 2026-06-29 21:01 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/775914567.shtml)
+- 2026-06-29 20:42 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/0134954649.shtml)
+- 2026-06-29 21:00 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/66177372.shtml)
+- 2026-06-29 20:50 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/6180731.shtml)
+- 2026-06-29 20:50 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/4453808.shtml)
+- 2026-06-29 20:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/118653526244.shtml)
+- 2026-06-29 20:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/96949.shtml)
+- 2026-06-29 20:38 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/433120066.shtml)
+- 2026-06-29 20:58 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/57339932.shtml)
+- 2026-06-29 20:58 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/357952538.shtml)
+- 2026-06-29 20:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/830920726616.shtml)
+- 2026-06-29 21:04 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/481451687.shtml)

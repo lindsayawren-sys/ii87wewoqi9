@@ -1,56 +1,57 @@
-# 新西兰采购商到广州推动绿色低碳领域合作
+# 新疆文旅，下一站更惊艳
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网广州4月18日电 (记者 蔡敏婕)第139届广交会正在广州举行，21家新西兰采购商企业到广州参加广交会，开展全链条供需对接。 本届广交会第一期聚焦先进制造业，集中展示制冷、机械、储能、绿色低碳等前沿成果，是推动广货精准对接全球市场的重要窗口。 访穗期间，21家新西兰采购商企业走进广交会展馆洽谈，与中国参展企业高效对接。采购商实地走访广州黄埔区智光电气，深入生产一线考察技术
+新华社乌鲁木齐5月9日电(记者关俏俏、王菲)刚刚过去的“五一”假期，新疆文旅市场活力迸发，赛里木湖、天山天池游人如织，天山隧道、盘龙古道自驾热潮涌动，低空飞行、沙漠穿越等体验备受追捧。这个假期，新疆共接待游客972.9万人次，同比增长5.8%；游客花费94.94亿元，同比增长6.4%。与此同时，电影《万桐书》热映刷屏；导游迪丽努尔·吐尔逊江以一句“不是打穿天山容易，而是天山那头
 
 ## 正文
 
-中新网广州4月18日电 (记者 蔡敏婕)第139届广交会正在广州举行，21家新西兰采购商企业到广州参加广交会，开展全链条供需对接。
+新华社乌鲁木齐5月9日电(记者关俏俏、王菲)刚刚过去的“五一”假期，新疆文旅市场活力迸发，赛里木湖、天山天池游人如织，天山隧道、盘龙古道自驾热潮涌动，低空飞行、沙漠穿越等体验备受追捧。
 
-本届广交会第一期聚焦先进制造业，集中展示制冷、机械、储能、绿色低碳等前沿成果，是推动广货精准对接全球市场的重要窗口。
+这个假期，新疆共接待游客972.9万人次，同比增长5.8%；游客花费94.94亿元，同比增长6.4%。
 
-访穗期间，21家新西兰采购商企业走进广交会展馆洽谈，与中国参展企业高效对接。
+与此同时，电影《万桐书》热映刷屏；导游迪丽努尔·吐尔逊江以一句“不是打穿天山容易，而是天山那头有人民”火出圈。
 
-采购商实地走访广州黄埔区智光电气，深入生产一线考察技术实力，并与恒运集团、三晶电气、迪森股份、力田电力等储能相关企业围绕新能源、绿色低碳领域深度磋商开展座谈。
+以文塑旅、以旅彰文，新疆“十五五”文旅蓝图已绘就，正推动资源优势加速蝶变为产业优势。
 
-采购商亦与新西兰粤商会、广州市外办、广州市贸促会、天河区贸促会等代表座谈交流。
+新疆文旅的火，从不是偶然。
 
-采购商还体验了珠江夜游，在璀璨夜景中沉浸式感受广州千年商都的开放底蕴与现代城市活力。
+新疆处处皆风景——这里旅游资源极为丰富，涵盖地文景观、水域景观、生物景观、天象与气候景观等8大主类，囊括国标分类中除海洋类型以外的全部亚类。
 
-据悉，本届广交会期间，广州市贸促会新西兰联络处等联合新西兰粤商会，组织50余家新西兰采购商企业到中国开展全链条供需对接。
+阿尔泰山、天山、昆仑山以及准噶尔盆地、塔里木盆地形成“三山夹两盆”的独特地貌。
 
-此次活动也是“全球青年看广州”系列活动的展会篇，通过“外事+展会”联动，从“看广州”延伸到“携手广州”，实现合作共赢。
+雪山、戈壁、沙漠、草原、湖泊交织成壮阔画卷。
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 20:58 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 20:32 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 20:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 20:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 20:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 20:41 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 20:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 20:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 20:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 20:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 20:44 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:57 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 20:41 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 21:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 20:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 21:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 20:55 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 20:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 20:37 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/050966092238.shtml)
-- 2026-06-29 20:46 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/1376689.shtml)
-- 2026-06-29 20:31 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/128055625.shtml)
-- 2026-06-29 20:59 - [起风了](https://www.share.minike.top/Article/details/689011231.shtml)
-- 2026-06-29 20:37 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/923283.shtml)
-- 2026-06-29 20:31 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/996663.shtml)
-- 2026-06-29 20:58 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/190864356.shtml)
-- 2026-06-29 20:42 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/4822458564.shtml)
-- 2026-06-29 20:44 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/5355729.shtml)
-- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/55129.shtml)
-- 2026-06-29 20:48 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/98873830.shtml)
-- 2026-06-29 20:59 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/718954557371.shtml)
-- 2026-06-29 20:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/32712.shtml)
-- 2026-06-29 20:33 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/675400879.shtml)
-- 2026-06-29 20:43 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/479483.shtml)
+- 2026-06-29 20:44 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/0307821.shtml)
+- 2026-06-29 20:47 - [千与千寻](http://www.share.minike.top/Article/details/8965908.shtml)
+- 2026-06-29 20:44 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/123529937239.shtml)
+- 2026-06-29 21:06 - [急先锋](http://www.share.kurohicncr.top/Article/details/258507457978.shtml)
+- 2026-06-29 20:48 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/56507.shtml)
+- 2026-06-29 20:44 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/144970.shtml)
+- 2026-06-29 21:00 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/932701.shtml)
+- 2026-06-29 20:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/52441482790.shtml)
+- 2026-06-29 20:47 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/66031999106.shtml)
+- 2026-06-29 20:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/461199369.shtml)
+- 2026-06-29 20:37 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/64118.shtml)
+- 2026-06-29 20:49 - [爱很美味](http://www.blog.minike.top/Article/details/9741696920.shtml)
+- 2026-06-29 20:44 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/97898.shtml)
+- 2026-06-29 20:57 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/05508426.shtml)
+- 2026-06-29 21:00 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/565062.shtml)

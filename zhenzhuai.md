@@ -1,58 +1,61 @@
-# Vatee万腾:油气贸易盈利解析
+# 515投资者保护|华夏基金B站“硬核”科普视频播放超165万！3期短视频讲透金融知识
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-4月20日，近期，大型石油公司尽管上游产量增幅有限，但交易部门表现异常强劲，推动整体业绩稳步增长。Vatee万腾表示，在供应紧张和国际油气市场波动加剧的背景下，壳牌、BP、道达尔能源和Equinor等企业通过灵活的交易策略获得可观利润。壳牌预计其石油和天然气交易收益将显著增长，这主要源于中东地区生产中断和出口不稳定带来的市场波动。 在具体数据上，BP预计2026年第一季度的交易
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。华夏基金B站《金融“硬核”知识科普系列短视频》参选“最具影响力投教项目优秀案例”类别。>>活动详情 据悉，B站《金融“硬核”知识科普系列短视频》项目针对个人投资者在宏观经济运行和基础金融工具认知上的盲区，制作并发布了3期“硬核”系列金融科普短视频。项
 
 ## 正文
 
-4月20日，近期，大型石油公司尽管上游产量增幅有限，但交易部门表现异常强劲，推动整体业绩稳步增长。
+专题：515投资者保护！
 
-Vatee万腾表示，在供应紧张和国际油气市场波动加剧的背景下，壳牌、BP、道达尔能源和Equinor等企业通过灵活的交易策略获得可观利润。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-壳牌预计其石油和天然气交易收益将显著增长，这主要源于中东地区生产中断和出口不稳定带来的市场波动。
+华夏基金B站《金融“硬核”知识科普系列短视频》参选“最具影响力投教项目优秀案例”类别。
 
-在具体数据上，BP预计2026年第一季度的交易业绩将“异常出色”，布伦特原油现货价格一度攀升至每桶150美元。
+>>活动详情 据悉，B站《金融“硬核”知识科普系列短视频》项目针对个人投资者在宏观经济运行和基础金融工具认知上的盲区，制作并发布了3期“硬核”系列金融科普短视频。
 
-Vatee万腾认为，这反映出高波动市场中，现货与期货套利机会被放大，交易部门能够在价格波动中获取超额收益。
+项目依托B站平台传播，旨在用通俗直观的表达方式降低金融知识门槛，帮助投资者建立清晰、客观的投资分析框架。
 
-道达尔能源的第一季度交易利润也因国际油气价格上涨和液化天然气业务增长而显著提升，而Equinor则得益于欧洲地域性价差以及波斯湾冲突引发的价格波动，其贸易部门营业收入预计超过4亿美元。
+入围的3期视频从宏观体系到具体工具，构建了完整的知识闭环： 宏观层面：《如何读懂金融指标》。
 
-尽管油气交易利润表现亮眼，但上游产量停滞仍是不可忽视的现实。
+重点科普了M2、社融、MLF、LPR及十年期国债收益率等核心宏观数据，使投资者具备独立跟踪市场资金面、理解货币政策导向的能力。
 
-壳牌第一季度产量预计为每日88万至92万桶油当量，低于2025年第四季度的94.8万桶。
+中观层面：《一口气带你了解中国的金融机构》。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 20:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 20:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 20:44 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 20:42 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:56 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 20:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 20:59 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 20:34 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 20:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:35 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 20:57 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 21:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:41 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 20:58 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 21:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 20:46 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 20:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 20:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 20:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 20:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 20:41 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 21:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 20:43 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 20:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 20:55 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/40121.shtml)
-- 2026-06-29 20:44 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/2957844087.shtml)
-- 2026-06-29 20:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/020958921757.shtml)
-- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/910547.shtml)
-- 2026-06-29 20:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/1012169840.shtml)
-- 2026-06-29 20:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/26184231061.shtml)
-- 2026-06-29 20:37 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/870305953948.shtml)
-- 2026-06-29 20:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/023857.shtml)
-- 2026-06-29 20:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/0386442930.shtml)
-- 2026-06-29 20:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/36270276.shtml)
-- 2026-06-29 20:33 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/970683601051.shtml)
-- 2026-06-29 20:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/59966112209.shtml)
-- 2026-06-29 20:44 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/247695058.shtml)
-- 2026-06-29 20:44 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/9039174959.shtml)
-- 2026-06-29 20:56 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/37286625.shtml)
+- 2026-06-29 20:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/759313856.shtml)
+- 2026-06-29 20:56 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/387256010421.shtml)
+- 2026-06-29 21:01 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/252734252.shtml)
+- 2026-06-29 20:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/028477.shtml)
+- 2026-06-29 20:55 - [美人鱼](https://www.share.kurohicncr.top/Article/details/65307808697.shtml)
+- 2026-06-29 21:04 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/40875969533.shtml)
+- 2026-06-29 20:48 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/48715086163.shtml)
+- 2026-06-29 21:00 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/9578477423.shtml)
+- 2026-06-29 20:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9895092221.shtml)
+- 2026-06-29 20:52 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/3214628.shtml)
+- 2026-06-29 20:36 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/236140202.shtml)
+- 2026-06-29 20:37 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/523189102792.shtml)
+- 2026-06-29 20:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/521273.shtml)
+- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/72534090.shtml)
+- 2026-06-29 21:00 - [爱很美味](https://www.share.kurohicncr.top/Article/details/515610083164.shtml)

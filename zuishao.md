@@ -1,54 +1,58 @@
-# 特朗普再称北约是“纸老虎”
+# 酒价内参5月11日价格发布：青花郎上涨5元
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-当地时间4月17日，美国总统特朗普在其社交平台“真实社交”发文说，“霍尔木兹海峡局势结束后，我接到北约的电话，问我们是否需要帮助。我告诉他们离远点，他们只想用石油装满他们的船。需要他们的时候，他们一点用都没有，简直就是纸老虎！” 特朗普近期多次抱怨北约盟国未积极响应他此前提出的所谓“霍尔木兹海峡护航”要求，称北约是“纸老虎”。特朗普在社交媒体上称，北约盟友不愿加入美国和以色列对
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
 
 ## 正文
 
-当地时间4月17日，美国总统特朗普在其社交平台“真实社交”发文说，“霍尔木兹海峡局势结束后，我接到北约的电话，问我们是否需要帮助。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
 
-我告诉他们离远点，他们只想用石油装满他们的船。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
 
-需要他们的时候，他们一点用都没有，简直就是纸老虎！
+市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
 
-” 特朗普近期多次抱怨北约盟国未积极响应他此前提出的所谓“霍尔木兹海峡护航”要求，称北约是“纸老虎”。
+今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
 
-特朗普在社交媒体上称，北约盟友不愿加入美国和以色列对伊朗的战事，也不愿协助美国保障霍尔木兹海峡的通行，如今它们却抱怨被迫支付高油价。
+上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
 
-(央视记者 许弢)
+前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
+
+下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
+
+五粮液普五八代的价格环比保持不变。
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 20:43 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:52 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 20:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 20:55 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 20:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 20:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 20:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 20:45 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 20:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 20:54 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 20:54 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 20:59 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 20:48 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 20:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:48 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 20:37 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 21:03 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 20:59 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 20:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 20:41 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:40 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/6196349336.shtml)
-- 2026-06-29 20:58 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/14548394920.shtml)
-- 2026-06-29 20:34 - [天道](https://www.blog.minike.top/Article/details/5438346671.shtml)
-- 2026-06-29 20:45 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/000546210521.shtml)
-- 2026-06-29 20:36 - [我们的少年时代2](http://www.blog.minike.top/Article/details/993269.shtml)
-- 2026-06-29 20:30 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/0889198.shtml)
-- 2026-06-29 20:43 - [TTG KSG](https://www.blog.minike.top/Article/details/60127387.shtml)
-- 2026-06-29 20:52 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/3767196.shtml)
-- 2026-06-29 20:30 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/90061900159.shtml)
-- 2026-06-29 20:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/253179.shtml)
-- 2026-06-29 20:44 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/152879442.shtml)
-- 2026-06-29 20:49 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/92429957.shtml)
-- 2026-06-29 20:53 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/4824135.shtml)
-- 2026-06-29 20:33 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.minike.top/Article/details/98141.shtml)
-- 2026-06-29 20:48 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/838687.shtml)
+- 2026-06-29 20:50 - [炽夏](http://www.blog.minike.top/Article/details/72911.shtml)
+- 2026-06-29 20:49 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/4314862288.shtml)
+- 2026-06-29 21:01 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/2538217.shtml)
+- 2026-06-29 21:06 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/10473092264.shtml)
+- 2026-06-29 20:51 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/3739606.shtml)
+- 2026-06-29 21:02 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/304414838.shtml)
+- 2026-06-29 20:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/98150643097.shtml)
+- 2026-06-29 20:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/785892.shtml)
+- 2026-06-29 20:41 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/4612914139.shtml)
+- 2026-06-29 20:49 - [新官上任三把火](https://www.share.minike.top/Article/details/85749012.shtml)
+- 2026-06-29 20:58 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/349054056.shtml)
+- 2026-06-29 20:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/12629.shtml)
+- 2026-06-29 21:04 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/03655.shtml)
+- 2026-06-29 20:51 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/1650581.shtml)
+- 2026-06-29 20:51 - [急先锋](https://www.blog.kurohicncr.top/Article/details/37169378796.shtml)

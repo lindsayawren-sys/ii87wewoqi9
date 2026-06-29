@@ -1,54 +1,60 @@
-# 伊朗开放霍尔木兹海峡表态刺激国际油价下跌超10%
+# 神秘闪光、悬浮物体、绝密报告……美国的UFO文件说了啥？
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-伊朗外长17日表示霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船通行完全开放，国际原油期货价格受此消息影响快速走低，跌幅超10%。 美国东部时间17日上午，纽约商品交易所5月交货的轻质原油期货价格盘中一度跌至每桶84.48美元，与前一交易日收盘价相比跌幅超12%。同时，6月交货的伦敦布伦特原油期货价格最低降至每桶88.76美元，与前一交易日收盘价相比跌幅超10%。 伊朗外长阿拉
+中新网5月10日电(管娜)美军拍到的不明飞行物、宇航员看到的“神秘闪光”……当地时间8日，美国国防部公布了一批不明飞行物(UFO)相关文件，迅速引起广泛关注。 美媒指出，首批公开的161份文件记录了全球400多起事件，时间跨度长达数十年。不过，对于外星生命是否存在，美国政府并未给出结论。 信息密集，解密文件都有啥？ 当地时间8日，美国国防部开始陆续公布不明飞行物(UFO)相关文
 
 ## 正文
 
-伊朗外长17日表示霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船通行完全开放，国际原油期货价格受此消息影响快速走低，跌幅超10%。
+中新网5月10日电(管娜)美军拍到的不明飞行物、宇航员看到的“神秘闪光”……当地时间8日，美国国防部公布了一批不明飞行物(UFO)相关文件，迅速引起广泛关注。
 
-美国东部时间17日上午，纽约商品交易所5月交货的轻质原油期货价格盘中一度跌至每桶84.48美元，与前一交易日收盘价相比跌幅超12%。
+美媒指出，首批公开的161份文件记录了全球400多起事件，时间跨度长达数十年。
 
-同时，6月交货的伦敦布伦特原油期货价格最低降至每桶88.76美元，与前一交易日收盘价相比跌幅超10%。
+不过，对于外星生命是否存在，美国政府并未给出结论。
 
-伊朗外长阿拉格齐17日说，鉴于黎巴嫩和以色列达成停火，在停火期间，伊朗对所有商船开放霍尔木兹海峡。
+信息密集，解密文件都有啥？
 
-美国总统特朗普随后予以确认。
+当地时间8日，美国国防部开始陆续公布不明飞行物(UFO)相关文件，包含视频、照片及原始资料文档。
 
-霍尔木兹海峡是全球能源运输要道，承载全球约四分之一海运石油贸易以及大量液化天然气和化肥运输。
+美国全国广播公司(NBC)指出，这些文件记录了全球各地400多起事件。
 
-美国和以色列2月底开始对伊朗发动军事打击导致霍尔木兹海峡航运几乎完全中断，刺激国际油价大幅飙升。
+其中一些最新的目击者证词采集于2025年，而另一些案例则可以追溯到20世纪40年代。
+
+报道称，许多解密视频都是来自美军红外传感器的模糊画面，此外文件中包含大量照片，但这些照片大多难以辨识，仅显示一些光点或暗点，以及形状异常的物体。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 20:52 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 20:51 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 20:49 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 20:33 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 20:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 20:41 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 20:51 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 20:53 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 20:45 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 21:00 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 20:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 20:52 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 20:58 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 20:43 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 20:51 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 20:45 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 20:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 21:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 20:47 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 20:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 21:00 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 21:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 20:38 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/84669.shtml)
-- 2026-06-29 20:42 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/517986226352.shtml)
-- 2026-06-29 20:47 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/240370607108.shtml)
-- 2026-06-29 20:39 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/278496981329.shtml)
-- 2026-06-29 20:58 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/979398.shtml)
-- 2026-06-29 20:35 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/9282199726.shtml)
-- 2026-06-29 20:42 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/1652313.shtml)
-- 2026-06-29 20:51 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/50135.shtml)
-- 2026-06-29 20:33 - [扫黑风暴](https://www.share.minike.top/Article/details/783425701347.shtml)
-- 2026-06-29 20:30 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/3509530805.shtml)
-- 2026-06-29 20:39 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/613673.shtml)
-- 2026-06-29 20:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/3989290490.shtml)
-- 2026-06-29 20:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/3159018560.shtml)
-- 2026-06-29 20:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/647876.shtml)
-- 2026-06-29 20:47 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/689605459509.shtml)
+- 2026-06-29 20:52 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/588948.shtml)
+- 2026-06-29 20:49 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/418609962.shtml)
+- 2026-06-29 20:53 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/91848.shtml)
+- 2026-06-29 20:55 - [金牌调解](https://www.share.minike.top/Article/details/589257547343.shtml)
+- 2026-06-29 20:56 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/011191999.shtml)
+- 2026-06-29 20:47 - [请回答王牌2019](https://www.blog.minike.top/Article/details/149315242.shtml)
+- 2026-06-29 20:44 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/026884944.shtml)
+- 2026-06-29 20:44 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/9371770840.shtml)
+- 2026-06-29 20:39 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/2092329.shtml)
+- 2026-06-29 20:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/135872.shtml)
+- 2026-06-29 20:58 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/1673474110.shtml)
+- 2026-06-29 21:04 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/451338869.shtml)
+- 2026-06-29 20:41 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/3582590866.shtml)
+- 2026-06-29 20:37 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/744250927.shtml)
+- 2026-06-29 20:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/12259260.shtml)

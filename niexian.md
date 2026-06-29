@@ -1,56 +1,61 @@
-# 高盛：文远知行获首次覆盖给予买入评级 目标价54.23港元
+# 广州推出人工智能场景交易平台 首批49个真实场景订单发布
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-高盛发布文远知行（00800）首次覆盖研究报告，给予文远知行买入评级及目标价54.23港元，该目标价相较于4月16日的收盘价21.56港元有151.5%的上升空间。 高盛认为，文远知行作为自动驾驶技术的领导者，其Robotaxi运营服务收入增加和车队规模扩张、在国内及海外市场的先发优势以及用户体验的持续优化，将共同支持公司业务的增长前景。 高盛提到日前文远知行在国内和海外Rob
+中新网广州5月10日电 (记者 许青青)广州海珠区人工智能场景交易平台9日正式上线，首批发布49个场景订单，意向金额超1300万元。 据介绍，该平台由海珠区政府集中打造，旨在高效链接全国AI供需资源，推动场景订单精准对接。该平台设置场景机会订单(全国)、场景能力库(全国)、投资机会、超级场景等功能板块，预计到今年年底，平台累计上架订单超400个，入驻AI能力企业超1500家。
 
 ## 正文
 
-高盛发布文远知行（00800）首次覆盖研究报告，给予文远知行买入评级及目标价54.23港元，该目标价相较于4月16日的收盘价21.56港元有151.5%的上升空间。
+中新网广州5月10日电 (记者 许青青)广州海珠区人工智能场景交易平台9日正式上线，首批发布49个场景订单，意向金额超1300万元。
 
-高盛认为，文远知行作为自动驾驶技术的领导者，其Robotaxi运营服务收入增加和车队规模扩张、在国内及海外市场的先发优势以及用户体验的持续优化，将共同支持公司业务的增长前景。
+据介绍，该平台由海珠区政府集中打造，旨在高效链接全国AI供需资源，推动场景订单精准对接。
 
-高盛提到日前文远知行在国内和海外Robotaxi部署的最新进展，例如其在迪拜及利雅得的商业化Robotaxi公众服务及在瑞士、斯洛伐克等欧洲地区的业务落地等。
+该平台设置场景机会订单(全国)、场景能力库(全国)、投资机会、超级场景等功能板块，预计到今年年底，平台累计上架订单超400个，入驻AI能力企业超1500家。
 
-此外，文远知行依托轻资产业务模式实现车队铺排效率的提升并获取经常性服务收入。
+当日首批发布的49个场景订单全部来自真实主体，市场侧占比达73%，覆盖智能制造、文旅消费、金融安全等核心赛道。
 
-与此同时高盛认为，文远知行持续推进的技术迭代与提升，叠加车辆成本的下降趋势，将进一步优化Robotaxi的业务模式。
+其中超60%的场景已明确预算区间(3万至500万元)并配套量化指标：如牙套AI质检要求“缺陷检出率≥99%、设计周期缩短40%”。
 
-责任编辑：卢昱君
+其中，海珠区本地企业广东循证滋补生命科技有限公司一次性释放6大真实AI场景需求，覆盖“研产销服”全链路——从基于古籍药典的AI新品研发、AIGC内容生产平台，到工厂视觉质检、全渠道智能客服，再到私域营销自动化与包装合规智能审核，预算明确3万至30万元。
+
+该企业相关研发负责人表示：“之前找技术合作全靠朋友介绍，选择少、效率低，也不清楚AI到底能做到哪一步。
+
+现在AI发展太快，我们希望通过这个平台，可以把真实需求亮出来，快速找到靠谱的技术团队，实实在在把AI落地到业务里”。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 20:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 20:51 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 20:46 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 20:44 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 20:42 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 20:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 20:30 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 20:30 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 20:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 20:55 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 20:39 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 20:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 20:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 20:39 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 20:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 20:45 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 21:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 20:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:03 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 20:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 20:53 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 20:46 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 20:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 20:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [锐评白玉兰提名片段](https://www.share.minike.top/Article/details/889987534.shtml)
-- 2026-06-29 20:38 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/9765053.shtml)
-- 2026-06-29 20:46 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/963995128.shtml)
-- 2026-06-29 20:34 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/2199854.shtml)
-- 2026-06-29 20:32 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/670095811.shtml)
-- 2026-06-29 20:42 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/65464489.shtml)
-- 2026-06-29 20:44 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/987094961867.shtml)
-- 2026-06-29 20:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/4804900635.shtml)
-- 2026-06-29 20:36 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/8562570316.shtml)
-- 2026-06-29 20:50 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/76824803413.shtml)
-- 2026-06-29 20:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/70461712.shtml)
-- 2026-06-29 20:57 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/3743650.shtml)
-- 2026-06-29 20:46 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/575163071.shtml)
-- 2026-06-29 20:48 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/687648.shtml)
-- 2026-06-29 20:35 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/17720.shtml)
+- 2026-06-29 20:46 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/991589838.shtml)
+- 2026-06-29 20:47 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/8768077813.shtml)
+- 2026-06-29 21:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/15774.shtml)
+- 2026-06-29 20:45 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/25256992.shtml)
+- 2026-06-29 20:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/20570309730.shtml)
+- 2026-06-29 20:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/99007.shtml)
+- 2026-06-29 20:45 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/6850634.shtml)
+- 2026-06-29 20:50 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/97040.shtml)
+- 2026-06-29 21:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/801242609175.shtml)
+- 2026-06-29 20:39 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/92925598.shtml)
+- 2026-06-29 20:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/64992543.shtml)
+- 2026-06-29 20:54 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/46001041686.shtml)
+- 2026-06-29 20:43 - [85花告别古偶](http://www.share.minike.top/Article/details/81042416.shtml)
+- 2026-06-29 20:59 - [东方风云榜](https://www.share.minike.top/Article/details/08382458.shtml)
+- 2026-06-29 20:54 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/1017492.shtml)

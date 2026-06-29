@@ -1,57 +1,53 @@
-# 杭州多民族同胞共庆“三月三” 沉浸式体验畲村风情
+# 天舟十号货运飞船发射任务取得圆满成功
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网杭州4月19日电(吴怡欣)4月19日，农历三月初三，浙江杭州临安区太阳镇枫树岭村热闹非凡。记者走进村落，便见一位身着畲族服饰的村民奋力挥槌打制糍粑，一旁的村民齐声唱起畲族民歌，现场气氛热烈。 “三月三”是中国多个民族的传统节日。杭州临安区现有五个多民族聚居村，以畲族人口居多，每逢“三月三”，当地都会举办特色庆祝活动。 “作为土家族同胞，这次能和畲族同胞一同过节，我感受到了
+中新网海南文昌5月11日电 (记者 马帅莎)据中国载人航天工程办公室消息，北京时间5月11日8时14分，搭载天舟十号货运飞船的长征七号遥十一运载火箭，在我国文昌航天发射场点火发射，约10分钟后，天舟十号货运飞船与火箭成功分离并进入预定轨道，之后飞船太阳能帆板顺利展开，发射任务圆满成功。后续，天舟十号货运飞船将与在轨运行的空间站组合体进行交会对接。天舟十号货运飞船装载了1套舱外航
 
 ## 正文
 
-中新网杭州4月19日电(吴怡欣)4月19日，农历三月初三，浙江杭州临安区太阳镇枫树岭村热闹非凡。
+中新网海南文昌5月11日电 (记者 马帅莎)据中国载人航天工程办公室消息，北京时间5月11日8时14分，搭载天舟十号货运飞船的长征七号遥十一运载火箭，在我国文昌航天发射场点火发射，约10分钟后，天舟十号货运飞船与火箭成功分离并进入预定轨道，之后飞船太阳能帆板顺利展开，发射任务圆满成功。
 
-记者走进村落，便见一位身着畲族服饰的村民奋力挥槌打制糍粑，一旁的村民齐声唱起畲族民歌，现场气氛热烈。
+后续，天舟十号货运飞船将与在轨运行的空间站组合体进行交会对接。
 
-“三月三”是中国多个民族的传统节日。
+天舟十号货运飞船装载了1套舱外航天服以及航天员在轨驻留消耗品、推进剂、应用实(试)验装置等物资。
 
-杭州临安区现有五个多民族聚居村，以畲族人口居多，每逢“三月三”，当地都会举办特色庆祝活动。
+这次任务是我国载人航天工程进入空间站应用与发展阶段后的第5次货运补给任务，是工程立项实施以来的第39次发射任务，也是长征系列运载火箭的第641次飞行、天舟飞船的第10次飞行。
 
-“作为土家族同胞，这次能和畲族同胞一同过节，我感受到了满满的热情以及民族团结的温暖。
-
-”杭州市临安区民促会副会长、贤聚堂民族家园主理人雨珊说，她带着壮族、侗族等多民族同胞一同走进畲村，沉浸式体验民族风情。
-
-游客傅倩倩便是其中一员。
-
-一走进村落，她就换上了畲族传统服饰——玫红色上衣搭配深蓝色长裙，领口与裙摆绣满精致的畲族纹样，瞬间融入畲村氛围。
+(完）
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 20:47 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 20:54 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 20:55 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 20:33 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 20:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 20:46 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 20:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:59 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 20:37 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 20:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:43 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 20:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 20:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 20:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 21:04 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 20:52 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 21:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 21:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 20:42 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 20:51 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:58 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:44 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [王楚钦开门红](https://www.blog.minike.top/Article/details/950536.shtml)
-- 2026-06-29 20:56 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/862594402690.shtml)
-- 2026-06-29 20:41 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/303869668298.shtml)
-- 2026-06-29 20:53 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/252346.shtml)
-- 2026-06-29 20:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/282679130.shtml)
-- 2026-06-29 20:46 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/2137488164.shtml)
-- 2026-06-29 20:34 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/032477.shtml)
-- 2026-06-29 20:36 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/30160019.shtml)
-- 2026-06-29 20:58 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/8370219256.shtml)
-- 2026-06-29 20:57 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/0076827.shtml)
-- 2026-06-29 20:37 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/755879235291.shtml)
-- 2026-06-29 20:46 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/3852759.shtml)
-- 2026-06-29 20:47 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/378465129183.shtml)
-- 2026-06-29 20:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/6554669956.shtml)
-- 2026-06-29 20:30 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/581353.shtml)
+- 2026-06-29 20:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/897424896.shtml)
+- 2026-06-29 21:01 - [天道](https://www.blog.minike.top/Article/details/7511022.shtml)
+- 2026-06-29 20:39 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/398086301976.shtml)
+- 2026-06-29 20:58 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/163254910.shtml)
+- 2026-06-29 21:04 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6633524325.shtml)
+- 2026-06-29 20:57 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/70999658152.shtml)
+- 2026-06-29 20:59 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/663219.shtml)
+- 2026-06-29 20:49 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/172873499599.shtml)
+- 2026-06-29 20:45 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/72170200.shtml)
+- 2026-06-29 20:55 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/30937370.shtml)
+- 2026-06-29 20:38 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/5331571585.shtml)
+- 2026-06-29 20:48 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/3272602.shtml)
+- 2026-06-29 20:40 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/6818844473.shtml)
+- 2026-06-29 20:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5497984.shtml)
+- 2026-06-29 20:52 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/02427054.shtml)

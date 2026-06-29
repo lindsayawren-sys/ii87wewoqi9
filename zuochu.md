@@ -1,61 +1,61 @@
-# 中国LPR连续11个月不变
+# 乐动机器人登陆港股，靠割草机器人撑起百亿市值？
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新社北京4月20日电 (记者 庞无忌)中国贷款市场报价利率(LPR)连续11个月不变。 20日，中国人民银行授权全国银行间同业拆借中心公布最新一期LPR：1年期LPR为3.0%，5年期以上LPR为3.5%。两个期限品种的LPR已连续11个月保持不变。 东方金诚首席宏观分析师王青表示，年初以来LPR一直“按兵不动”，主要受到年初出口大幅超预期、一季度投资增速止跌回升、消费有所改
+来源：TechWeb 【TechWeb】5月11日消息，深圳乐动机器人股份有限公司（01236.HK）正式在港交所主板敲锣上市，开盘报53.5港元，较发行价26.36港元高开约103%，对应市值178亿港元。截至收盘，涨幅扩大至127.62%，报60港元，总市值达200亿港元。 此次IPO，乐动机器人全球发售3333.34万股H股，募资总额约8.79亿港元，募资净额约8.07亿
 
 ## 正文
 
-中新社北京4月20日电 (记者 庞无忌)中国贷款市场报价利率(LPR)连续11个月不变。
+来源：TechWeb 【TechWeb】5月11日消息，深圳乐动机器人股份有限公司（01236.HK）正式在港交所主板敲锣上市，开盘报53.5港元，较发行价26.36港元高开约103%，对应市值178亿港元。
 
-20日，中国人民银行授权全国银行间同业拆借中心公布最新一期LPR：1年期LPR为3.0%，5年期以上LPR为3.5%。
+截至收盘，涨幅扩大至127.62%，报60港元，总市值达200亿港元。
 
-两个期限品种的LPR已连续11个月保持不变。
+此次IPO，乐动机器人全球发售3333.34万股H股，募资总额约8.79亿港元，募资净额约8.07亿港元。
 
-东方金诚首席宏观分析师王青表示，年初以来LPR一直“按兵不动”，主要受到年初出口大幅超预期、一季度投资增速止跌回升、消费有所改善，以及包括高技术制造业在内的新质生产力领域较快发展等推动，2026年开年中国宏观经济起步有力，一季度国内生产总值(GDP)同比增长5%，处于今年“4.5%-5%”增速目标的上沿，因此，货币政策处于观察期，政策利率和LPR报价保持稳定。
+更引人注目的是其认购热情，香港公开发售部分获6707.66倍超额认购，认购倍数堪称“历史级”。
 
-王青指出，3月以来，中东地区地缘政治冲突对中国物价形成一定推升，对经济增长动能的扰动尚待进一步观察。
+乐动机器人的股东名单中，赫然列着阿里巴巴集团CEO吴泳铭的名字。
 
-综合各类因素，二季度宏观经济运行将以稳为主。
+根据招股书，吴泳铭的元璟资本及其旗下子公司曾在2022年参与乐动的C轮融资，目前持有公司4.08%股份。
 
-考虑到国际油价大幅上冲、二季度出口还将保持正增长，短期内宏观政策将继续处于观察期，降息降准落地可能性不大。
+两条腿走路，哪条是主心骨？
 
-不过，该机构认为，受输入性通胀、综合整治“内卷式”竞争等影响，今年物价水平会温和回升，但居民消费价格指数(CPI)涨幅预计仍较低，货币政策在包括降息在内的适度宽松方向上有充足空间。
+乐动机器人名为“机器人公司”，实则是两条增长曲线并行——视觉感知产品和割草机器人。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 20:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 20:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 20:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 20:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 20:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 20:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 20:33 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 20:55 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 20:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 20:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 20:59 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 20:54 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 20:41 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 20:49 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 20:42 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 20:38 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 20:58 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 20:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 20:58 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 20:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 20:38 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 20:51 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 20:53 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:56 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 20:57 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 20:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 21:05 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 20:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/452006229.shtml)
-- 2026-06-29 20:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/76866625.shtml)
-- 2026-06-29 20:59 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/84318072805.shtml)
-- 2026-06-29 20:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/082592997.shtml)
-- 2026-06-29 20:32 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/4010378.shtml)
-- 2026-06-29 20:40 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/30815993.shtml)
-- 2026-06-29 20:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/76679288485.shtml)
-- 2026-06-29 20:55 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/691870601008.shtml)
-- 2026-06-29 20:55 - [新官上任三把火](https://www.blog.minike.top/Article/details/91065.shtml)
-- 2026-06-29 20:31 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/14327087630.shtml)
-- 2026-06-29 20:54 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/80306.shtml)
-- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/09119327384.shtml)
-- 2026-06-29 20:32 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/257804869.shtml)
-- 2026-06-29 20:45 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/52642636.shtml)
-- 2026-06-29 20:46 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/353508.shtml)
+- 2026-06-29 20:51 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/438904259.shtml)
+- 2026-06-29 20:57 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/631122.shtml)
+- 2026-06-29 20:43 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/14343344392.shtml)
+- 2026-06-29 20:46 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/6997557.shtml)
+- 2026-06-29 20:40 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/7702832.shtml)
+- 2026-06-29 20:50 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/4053513292.shtml)
+- 2026-06-29 20:50 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/898026428847.shtml)
+- 2026-06-29 20:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/849476.shtml)
+- 2026-06-29 20:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/0987973026.shtml)
+- 2026-06-29 20:43 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/80917453566.shtml)
+- 2026-06-29 20:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/04395.shtml)
+- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/150200.shtml)
+- 2026-06-29 20:45 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/454967.shtml)
+- 2026-06-29 20:49 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/766376.shtml)
+- 2026-06-29 20:55 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/210553678825.shtml)

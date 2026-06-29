@@ -1,56 +1,58 @@
-# 美国法官驳回拜耳要求阻止强生前列腺癌药物索赔的申请
+# 零跑汽车午前涨超4% 机构预计公司2026年销量102万辆
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-一名美国联邦法官驳回了拜耳提出的禁止强生发布其价值数十亿美元的药物可将前列腺癌死亡风险降低一半的虚假广告的请求。 在周五晚的裁决中，美国曼哈顿地区法官戴尔-何（Dale Ho）说，拜耳没有证明它有可能胜诉，其诉讼请求包括强生为其药物Erleada所做的宣传造成了无法弥补的伤害，并有可能削弱人们对拜耳自己的药物Nubeqa的信任。 拜耳和强生均未在盘后立即回应置评请求。 拜耳于
+零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。 5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。2023年10月，Stellantis通过收购零
 
 ## 正文
 
-一名美国联邦法官驳回了拜耳提出的禁止强生发布其价值数十亿美元的药物可将前列腺癌死亡风险降低一半的虚假广告的请求。
+零跑汽车（09863）午前涨超4%，截至发稿，股价上涨4.48%，现报49.94港元，成交额3.41亿港元。
 
-在周五晚的裁决中，美国曼哈顿地区法官戴尔-何（Dale Ho）说，拜耳没有证明它有可能胜诉，其诉讼请求包括强生为其药物Erleada所做的宣传造成了无法弥补的伤害，并有可能削弱人们对拜耳自己的药物Nubeqa的信任。
+5月8日，全球汽车巨头Stellantis宣布与零跑汽车扩大战略合作，零跑的技术架构将首次应用于欧宝品牌全新纯电SUV，双方位于西班牙的工厂将进行联合生产。
 
-拜耳和强生均未在盘后立即回应置评请求。
+此次的战略合作还涉及到提升和整合产能、降低成本以及联合采购等方面。
 
-拜耳于 2 月 23 日起诉强生公司，指控其谎称根据美国食品药品管理局 “严格 ”标准进行的测试，如果患者使用 Erleada 而不是 Nubeqa 治疗，其 “死亡风险降低 51%”。
+2023年10月，Stellantis通过收购零跑汽车约21%的股份，成为其单一最大股东。
 
-这家德国制药商说，Erleada疗效更好的说法并不可靠，因为大多数Nubeqa患者是在标签外接受药物治疗的。
+Stellantis在双方合资的“零跑国际”持股51%，并拥有在大中华区以外市场独家销售和制造零跑产品的权利。
 
-它还说，美国食品和药物管理局没有审查强生公司的后向真实世界分析，以取代传统的临床试验。
+华创证券近期指出，公司今年新车周期强劲，3月上市小型SUVA10、4月上市大型SUVD19，并规划6-7月上市A05及首款MPVD99。
 
-在一份长达 41 页的决定中，Ho 表示强生的宣传准确地表达了其研究结论，拜耳没有发现 “重大 ”的方法错误，从而使这家总部位于新泽西州新不伦瑞克的制药商的声明具有实质性的虚假或误导性。
+其中新车型A10、D19产品力强、定价超预期、上市后热度高，延续零跑高性价比的产品策略。
 
-法官写道： “根据目前的记录”，“这项研究的作者所做的方法选择在相关科学界并没有错误或偏离步调”。
+随新车型上市，公司产品矩阵将进一步完善，为后续销量增长提供强劲支撑。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 20:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 20:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 20:38 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 20:50 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 20:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 20:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:51 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 20:34 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 20:45 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 20:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 20:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 20:53 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 20:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 20:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 20:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 20:44 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 20:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 20:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 20:51 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/892321.shtml)
-- 2026-06-29 20:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/39410374840.shtml)
-- 2026-06-29 20:37 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/53394503.shtml)
-- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/37143.shtml)
-- 2026-06-29 20:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/41025432804.shtml)
-- 2026-06-29 20:55 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/18593130.shtml)
-- 2026-06-29 20:34 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/99999927101.shtml)
-- 2026-06-29 20:32 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/560762636.shtml)
-- 2026-06-29 20:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/42450.shtml)
-- 2026-06-29 20:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/80114982803.shtml)
-- 2026-06-29 20:37 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/6724903.shtml)
-- 2026-06-29 20:55 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/19918253463.shtml)
-- 2026-06-29 20:41 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/204446.shtml)
-- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/14707101866.shtml)
-- 2026-06-29 20:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/0058103394.shtml)
+- 2026-06-29 20:45 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/091784099666.shtml)
+- 2026-06-29 20:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/035513357.shtml)
+- 2026-06-29 20:42 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/645480843625.shtml)
+- 2026-06-29 20:46 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/293324664.shtml)
+- 2026-06-29 21:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/54157.shtml)
+- 2026-06-29 21:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/048897282587.shtml)
+- 2026-06-29 20:44 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/083513538020.shtml)
+- 2026-06-29 20:43 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/00937.shtml)
+- 2026-06-29 21:02 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/686223225239.shtml)
+- 2026-06-29 20:58 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/47475.shtml)
+- 2026-06-29 20:51 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/9827880.shtml)
+- 2026-06-29 20:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/0389810053.shtml)
+- 2026-06-29 20:59 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/861915.shtml)
+- 2026-06-29 20:53 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/6822731544.shtml)
+- 2026-06-29 21:04 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/68709095272.shtml)

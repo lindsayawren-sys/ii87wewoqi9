@@ -1,56 +1,47 @@
-# 普瑞巴林等成瘾性药品全链条严管！此前每经调查发现普瑞巴林存滥用情况，网络平台暴露“无病历可购药”漏洞
+# 全国注册护士总量达606.2万人
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|高涵 据央视新闻4月20日报道，国家药监局、公安部、国家禁毒委员会办公室最新联合发布通告，将进一步强化普瑞巴林口服单方制剂、愈美制剂等成瘾性药品全链条监管，坚决遏制药物滥用蔓延态势。 2025年12月，《每日经济新闻》记者（以下简称每经记者）通过调查和多方采访，刊发了《处方药变“瘾品”：国内首次报
+国际护士节即将到来。国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。 记者：李恒 海报制作：李恒 新华社国内部出品
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+国际护士节即将到来。
 
-每经记者|高涵 据央视新闻4月20日报道，国家药监局、公安部、国家禁毒委员会办公室最新联合发布通告，将进一步强化普瑞巴林口服单方制剂、愈美制剂等成瘾性药品全链条监管，坚决遏制药物滥用蔓延态势。
+国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。
 
-2025年12月，《每日经济新闻》记者（以下简称每经记者）通过调查和多方采访，刊发了《处方药变“瘾品”：国内首次报告普瑞巴林滥用致成瘾病例，网络平台暴露“无病历可购药”漏洞，列管与否尚需科学考量》报道。
-
-每经记者调查发现，越来越多的药物成瘾者，尤其是青少年，正通过网络购买普瑞巴林。
-
-而线上药店无需真实病历即可开处方，让这款处方药轻易流入滥用群体手中。
-
-据央视新闻4月20日报道，国家药监局、公安部、国家禁毒委员会办公室最新发布的通告，聚焦普瑞巴林等药品的生产、流通、零售全环节，实施严格管控。
-
-国家药监局要求省级药监部门严格执行生产计划，从源头降低滥用风险；与此同时，全面规范购销行为，禁止网络零售或变相零售相关药品，实体零售端产品实行专柜、专人、严格凭处方销售，购买销售记录专册管理，记录信息至少包括药品名称、规格、销售数量、生产企业、生产批号、购药日期、购药者姓名及身份证号码等。
-
-严格凭处方销售，并留存处方原件归档备查，非处方药一次销售量不得超过5个最小包装。
+记者：李恒 海报制作：李恒 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 20:34 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 20:58 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 20:53 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 20:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 20:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 20:34 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 20:57 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 20:52 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 21:04 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 20:43 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 20:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 20:56 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 20:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 21:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 20:49 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 20:53 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 20:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 20:53 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/66130218.shtml)
-- 2026-06-29 20:48 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/535404204.shtml)
-- 2026-06-29 20:47 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/371432.shtml)
-- 2026-06-29 20:37 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/4153532.shtml)
-- 2026-06-29 20:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/287273316.shtml)
-- 2026-06-29 20:32 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/778876.shtml)
-- 2026-06-29 20:52 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/88050154.shtml)
-- 2026-06-29 20:50 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/122074674.shtml)
-- 2026-06-29 20:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/1761927.shtml)
-- 2026-06-29 20:30 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/2626950298.shtml)
-- 2026-06-29 20:54 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/69580932.shtml)
-- 2026-06-29 20:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/568015.shtml)
-- 2026-06-29 20:34 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/76134780808.shtml)
-- 2026-06-29 20:42 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/58911406300.shtml)
-- 2026-06-29 20:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/913408343.shtml)
+- 2026-06-29 20:55 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/55337.shtml)
+- 2026-06-29 21:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/43974.shtml)
+- 2026-06-29 21:04 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/21186501.shtml)
+- 2026-06-29 20:49 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/56647.shtml)
+- 2026-06-29 20:43 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/342933290799.shtml)
+- 2026-06-29 20:42 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/829928428229.shtml)
+- 2026-06-29 20:59 - [炽夏](https://www.blog.kurohicncr.top/Article/details/2016847.shtml)
+- 2026-06-29 20:41 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/837074990.shtml)
+- 2026-06-29 20:37 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/408578.shtml)
+- 2026-06-29 21:00 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/619321691.shtml)
+- 2026-06-29 20:42 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/30572245.shtml)
+- 2026-06-29 20:43 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/9439592.shtml)
+- 2026-06-29 20:53 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/75998.shtml)
+- 2026-06-29 20:54 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/0444238.shtml)
+- 2026-06-29 21:05 - [时光音乐会](http://www.blog.minike.top/Article/details/832619.shtml)

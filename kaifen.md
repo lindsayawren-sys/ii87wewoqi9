@@ -1,60 +1,60 @@
-# 2026年公祭大禹陵典礼举行 循古代最高祭祀礼仪“禘礼”
+# （神州写真）中国多地加速布局商业航天产业
 
-> 更新时间：2026-06-29 21:00:03 UTC+8
+> 更新时间：2026-06-29 21:06:03 UTC+8
 
 ## 摘要
 
-中新网绍兴4月20日电(项菁)4月20日，谷雨节气，2026年公祭大禹陵典礼在浙江绍兴大禹陵前举行。港澳台同胞、海外侨胞、大禹后裔等各界代表齐聚会稽山下，共同追念华夏先祖，传承弘扬大禹精神。 9时50分(意为“九五之尊”)，典礼正式开始，全体参祭人员肃立雅静，九位号手连续吹响九声，意为禹定九州。随后，敬献花篮、敬献黄酒、恭读祭文、颂唱《大禹纪念歌》、献祭舞等依次进行。 “克绍先
+中新社安徽蚌埠5月11日电 题：中国多地加速布局商业航天产业 作者 张强 付敏 在安徽蚌埠的商业航天科技产业园，九州云箭航天技术有限公司的工人正在进行火箭发动机的装配、焊接和测试。 “去年9月完成整体搬迁，企业迎来发展新阶段。”公司副总经理石奇说，新厂区建筑面积从3000平方米扩容至2万余平方米，为规模化生产与技术迭代提供了更大空间。 蚌埠是老工业基地城市，近年来，“嫦娥”“神
 
 ## 正文
 
-中新网绍兴4月20日电(项菁)4月20日，谷雨节气，2026年公祭大禹陵典礼在浙江绍兴大禹陵前举行。
+中新社安徽蚌埠5月11日电 题：中国多地加速布局商业航天产业 作者 张强 付敏 在安徽蚌埠的商业航天科技产业园，九州云箭航天技术有限公司的工人正在进行火箭发动机的装配、焊接和测试。
 
-港澳台同胞、海外侨胞、大禹后裔等各界代表齐聚会稽山下，共同追念华夏先祖，传承弘扬大禹精神。
+“去年9月完成整体搬迁，企业迎来发展新阶段。
 
-9时50分(意为“九五之尊”)，典礼正式开始，全体参祭人员肃立雅静，九位号手连续吹响九声，意为禹定九州。
+”公司副总经理石奇说，新厂区建筑面积从3000平方米扩容至2万余平方米，为规模化生产与技术迭代提供了更大空间。
 
-随后，敬献花篮、敬献黄酒、恭读祭文、颂唱《大禹纪念歌》、献祭舞等依次进行。
+蚌埠是老工业基地城市，近年来，“嫦娥”“神舟”“天宫”等重大航天工程背后都有“蚌埠智造”的身影。
 
-“克绍先烈，敬我大禹！
+自2019年引进首家商业航天企业以来，蚌埠构建了“箭、星、端”全产业链生态体系。
 
-四海以清，万世永赖……”绍兴市委书记施惠芳现场恭读祭文，颂扬大禹治水的伟大功绩，表达绍兴儿女推进产城人文融合发展的共富示范市建设的坚定决心。
+截至目前，该市已集聚23家商业航天企业，建立4支总规模超60亿元(人民币，下同)的商业航天产业基金。
 
-大禹是中华民族治水英雄，被后人尊为“立国之祖”。
+2025年，该市商业航天产业实现产值翻倍。
 
-公元前2059年左右，大禹之子夏王启首创祭禹祀典。
+今年4月印发的《安徽省加快发展商业航天产业行动方案(2026—2028年)》提出，支持蚌埠建设面向长三角和中部地区的火箭发动机测试基地。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 20:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 20:50 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 20:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 20:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 20:35 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 20:57 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 20:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 20:58 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 20:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 20:53 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 20:44 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 20:45 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 20:42 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 20:40 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 20:38 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 20:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:47 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 21:03 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 20:43 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:36 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 20:43 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 21:05 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 20:58 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 20:42 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 20:38 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 21:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/739598760298.shtml)
-- 2026-06-29 20:44 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/864151.shtml)
-- 2026-06-29 20:51 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/423041.shtml)
-- 2026-06-29 20:45 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/5001713.shtml)
-- 2026-06-29 20:33 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/54169300.shtml)
-- 2026-06-29 20:59 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/165577946.shtml)
-- 2026-06-29 20:44 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/1143362.shtml)
-- 2026-06-29 20:43 - [沙丘](https://www.blog.minike.top/Article/details/71876985.shtml)
-- 2026-06-29 20:47 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/22995355312.shtml)
-- 2026-06-29 20:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/6126732191.shtml)
-- 2026-06-29 20:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/22955.shtml)
-- 2026-06-29 20:54 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/60413552528.shtml)
-- 2026-06-29 20:48 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/88852230784.shtml)
-- 2026-06-29 20:41 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/981298544095.shtml)
-- 2026-06-29 20:53 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/415150835.shtml)
+- 2026-06-29 20:47 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/249388410.shtml)
+- 2026-06-29 20:54 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/82042.shtml)
+- 2026-06-29 20:44 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/44939469100.shtml)
+- 2026-06-29 20:44 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/4463763855.shtml)
+- 2026-06-29 21:02 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/279016899.shtml)
+- 2026-06-29 21:00 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/7619609664.shtml)
+- 2026-06-29 20:42 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/68550102405.shtml)
+- 2026-06-29 21:00 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/18808.shtml)
+- 2026-06-29 20:45 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9984562324.shtml)
+- 2026-06-29 20:54 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/8657489675.shtml)
+- 2026-06-29 21:03 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/274745.shtml)
+- 2026-06-29 20:38 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/94018780.shtml)
+- 2026-06-29 20:36 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/528596.shtml)
+- 2026-06-29 20:42 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/52943073.shtml)
+- 2026-06-29 21:03 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/212666.shtml)
