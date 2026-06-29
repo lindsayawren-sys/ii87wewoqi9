@@ -1,57 +1,56 @@
-# 穗港龙舟队齐聚广州同河竞渡
+# 巴西国家电信管理局：700MHz频段拍卖吸引8家企业参与
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月14日电 (张璐 许婉)“我们在香港划龙舟，去年也来广州参加过龙舟比赛，在这里能与专业选手交流学习，体验非常好。”香港代表队选手郭锦威在接受中新网采访时说。 广州开发区、黄埔区首届职工龙舟邀请赛(简称“赛事”)13日在广州市黄埔区长洲岛新担涌劈波斩浪，33支龙舟队、近千名职工健儿挥桨竞渡。 赛事现场，战鼓擂响，桨影翻飞，船头鼓手节奏铿锵，桨手动作整齐划一，船尾舵手
+巴西国家电信管理局（Anatel）于本周三（4月15日）完成了700MHz频段拍卖的提案接收工作，共有8家企业提交了竞标方案，预计总投资规模将达到20亿雷亚尔。此次拍卖的报价开标会议定于4月30日举行。 竞标企业名单公布，三大运营商齐聚 根据Anatel公布的名单，提交提案的8家企业涵盖了巴西电信市场的主要参与者，其中包括巴西三大移动运营商Claro、TIM以及Telefôni
 
 ## 正文
 
-中新网广州6月14日电 (张璐 许婉)“我们在香港划龙舟，去年也来广州参加过龙舟比赛，在这里能与专业选手交流学习，体验非常好。
+巴西国家电信管理局（Anatel）于本周三（4月15日）完成了700MHz频段拍卖的提案接收工作，共有8家企业提交了竞标方案，预计总投资规模将达到20亿雷亚尔。
 
-”香港代表队选手郭锦威在接受中新网采访时说。
+此次拍卖的报价开标会议定于4月30日举行。
 
-广州开发区、黄埔区首届职工龙舟邀请赛(简称“赛事”)13日在广州市黄埔区长洲岛新担涌劈波斩浪，33支龙舟队、近千名职工健儿挥桨竞渡。
+竞标企业名单公布，三大运营商齐聚 根据Anatel公布的名单，提交提案的8家企业涵盖了巴西电信市场的主要参与者，其中包括巴西三大移动运营商Claro、TIM以及Telefônica Brasil（Vivo）。
 
-赛事现场，战鼓擂响，桨影翻飞，船头鼓手节奏铿锵，桨手动作整齐划一，船尾舵手精准把控方向，龙舟如离弦之箭破浪前行。
+此外，参与竞标的还有多家区域性和专业电信服务商：Amazônia Serviços Digitais、Brisanet、IEZ！
 
-木桨入水溅起大片水花，出水时又带起成串水珠，与岸边观众此起彼伏的呐喊助威声一起，点燃全场激情。
+Telecom、MHNet以及Unifique。
 
-以龙舟为桥，以水为媒，穗港职工同河竞渡，成为本次赛事最动人的画面之一。
+本次拍卖出让的是708 MHz至718 MHz和763 MHz至773 MHz两个子频段的使用授权。
 
-本次赛事邀请香港长洲龙舟队参赛。
+700MHz频段因其信号覆盖范围广、穿透力强的特性，被视为扩展4G网络覆盖范围以及增强5G网络在偏远地区服务能力的战略资源。
 
-这支以香港长洲“长征龙”(CJ Dragon)为核心班底的队伍，队员全是当地热爱龙舟的街坊，常年征战香港各区赛事。
+拍卖规则：聚焦投资承诺，服务偏远地区 与单纯追求财政收入不同，本次拍卖采用的是以投资承诺为核心的非税模型。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 20:49 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 20:46 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:46 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 21:07 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 20:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 21:06 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 20:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 21:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 20:45 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 20:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 21:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 20:52 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 21:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 21:07 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 20:53 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 21:15 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 20:48 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 21:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 21:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/478723372071.shtml)
-- 2026-06-29 20:47 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/50323561.shtml)
-- 2026-06-29 20:51 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/91708.shtml)
-- 2026-06-29 20:55 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/9640200430.shtml)
-- 2026-06-29 21:01 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/259910051.shtml)
-- 2026-06-29 21:00 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/2599449720.shtml)
-- 2026-06-29 21:09 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/8485845659.shtml)
-- 2026-06-29 21:03 - [起风了](http://www.blog.kurohicncr.top/Article/details/036652601.shtml)
-- 2026-06-29 20:59 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/945454880.shtml)
-- 2026-06-29 20:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/2130277848.shtml)
-- 2026-06-29 21:03 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/19801755226.shtml)
-- 2026-06-29 21:05 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/35148417425.shtml)
-- 2026-06-29 20:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/070192311.shtml)
-- 2026-06-29 21:10 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/51706036291.shtml)
-- 2026-06-29 20:54 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/8688568.shtml)
+- 2026-06-29 21:13 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/10347536982.shtml)
+- 2026-06-29 21:04 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/7409996.shtml)
+- 2026-06-29 21:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/492635471504.shtml)
+- 2026-06-29 21:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/45518985.shtml)
+- 2026-06-29 20:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/913562.shtml)
+- 2026-06-29 20:54 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/626673.shtml)
+- 2026-06-29 20:56 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/166053731845.shtml)
+- 2026-06-29 21:01 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/1122775.shtml)
+- 2026-06-29 21:01 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/28550163701.shtml)
+- 2026-06-29 21:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/52420451.shtml)
+- 2026-06-29 21:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/7024402098.shtml)
+- 2026-06-29 20:51 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/339374083302.shtml)
+- 2026-06-29 20:57 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/8181414560.shtml)
+- 2026-06-29 21:09 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/704910183339.shtml)
+- 2026-06-29 20:54 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/2282381.shtml)

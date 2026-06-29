@@ -1,57 +1,46 @@
-# A股黄金股集体上涨，金饰克价重返1300元
+# 西藏首例 HX自研国产机器人膝关节置换手术落地林芝
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-6月15日早盘，A股、港股黄金股大幅度上涨！ A股黄金板块集体上涨，截至发稿，Wind贵金属指数大涨超5%，板块内个股盛龙股份、招金黄金涨停，赤峰黄金涨幅超6%，紫金矿业、山金国际、晓程科技等涨幅超4%。 港股紫金黄金国际大涨超10%，紫金矿业大涨超8%，招金矿业涨超7%，中国黄金国际、潼关黄金涨超7%，灵宝黄金、赤峰黄金涨超6%，山东黄金涨超2%，珠峰黄金、集海黄金跟涨。 据
+发布时间：2026年04月17日 20:27 来源：中国新闻网 4月17日，西藏自治区林芝市人民医院顺利完成两台HX自研机械臂骨科手术机器人辅助全膝关节置换手术，这是国产全自研骨科手术机器人首次在西藏临床应用，验证了国产机器人在高原环境的安全性与有效性。(记者 贡桑拉姆 制作 乐小敏） 责任编辑：【罗攀】
 
 ## 正文
 
-6月15日早盘，A股、港股黄金股大幅度上涨！
+发布时间：2026年04月17日 20:27 来源：中国新闻网 4月17日，西藏自治区林芝市人民医院顺利完成两台HX自研机械臂骨科手术机器人辅助全膝关节置换手术，这是国产全自研骨科手术机器人首次在西藏临床应用，验证了国产机器人在高原环境的安全性与有效性。
 
-A股黄金板块集体上涨，截至发稿，Wind贵金属指数大涨超5%，板块内个股盛龙股份、招金黄金涨停，赤峰黄金涨幅超6%，紫金矿业、山金国际、晓程科技等涨幅超4%。
-
-港股紫金黄金国际大涨超10%，紫金矿业大涨超8%，招金矿业涨超7%，中国黄金国际、潼关黄金涨超7%，灵宝黄金、赤峰黄金涨超6%，山东黄金涨超2%，珠峰黄金、集海黄金跟涨。
-
-据新华社报道，美国与伊朗达成临时和平协议，6月15日，现货黄金震荡走高，日内涨2.72%，站上4300美元/盎司。
-
-国内金饰克价今日也随之上涨。
-
-周生生足金首饰克价1306元，较前一日1274元涨了32元；老凤祥今日足金首饰克价1290元，较前一日1271元涨了19元；老庙黄金足金首饰克价1299元，较前一日1271元涨了28元。
-
-中信期货报告称，美伊和谈短期地缘缓和信号已足够驱动市场对紧缩预期的修正，分母端改善直接利好对利率敏感的有色板块估值修复。
-
-华福证券指出，中长期而言，全球关税政策和地缘政治不确定性背景下，避险和滞涨交易仍是黄金交易的核心，长期配置价值不改。
+(记者 贡桑拉姆 制作 乐小敏） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 20:48 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 21:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 21:07 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 20:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 20:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 21:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 20:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 21:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 20:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 20:46 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 21:02 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 20:52 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 20:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 20:53 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 20:48 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 21:13 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 21:04 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 20:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 21:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 21:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 21:13 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 20:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/603306254392.shtml)
-- 2026-06-29 20:46 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/871365441.shtml)
-- 2026-06-29 20:53 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/39177024.shtml)
-- 2026-06-29 20:45 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/116192.shtml)
-- 2026-06-29 21:11 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/7080538561.shtml)
-- 2026-06-29 20:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/1664359.shtml)
-- 2026-06-29 21:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/96554036515.shtml)
-- 2026-06-29 20:47 - [恋与深空回应争议](https://www.share.minike.top/Article/details/118435315340.shtml)
-- 2026-06-29 20:49 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/1741698545.shtml)
-- 2026-06-29 21:09 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/518867957644.shtml)
-- 2026-06-29 20:45 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/513654.shtml)
-- 2026-06-29 20:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/789714700.shtml)
-- 2026-06-29 20:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.minike.top/Article/details/44558.shtml)
-- 2026-06-29 21:08 - [东方风云榜直播](https://www.blog.minike.top/Article/details/925240943442.shtml)
-- 2026-06-29 21:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/9873485098.shtml)
+- 2026-06-29 20:57 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/619548.shtml)
+- 2026-06-29 21:02 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/5187088760.shtml)
+- 2026-06-29 20:58 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/342389125792.shtml)
+- 2026-06-29 21:11 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/849918.shtml)
+- 2026-06-29 20:54 - [东方风云榜直播](https://www.blog.minike.top/Article/details/4790120.shtml)
+- 2026-06-29 21:06 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/53228217.shtml)
+- 2026-06-29 21:12 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/975886128532.shtml)
+- 2026-06-29 21:11 - [起风了](https://www.share.minike.top/Article/details/338133473582.shtml)
+- 2026-06-29 20:59 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/91048430.shtml)
+- 2026-06-29 21:06 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/36579.shtml)
+- 2026-06-29 20:48 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/81559406.shtml)
+- 2026-06-29 21:17 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/652127.shtml)
+- 2026-06-29 21:08 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/84200.shtml)
+- 2026-06-29 21:05 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/403085721559.shtml)
+- 2026-06-29 21:00 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/02490566804.shtml)

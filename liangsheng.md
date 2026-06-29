@@ -1,56 +1,59 @@
-# 新加坡5月船用燃油销量反弹，创两个月新高
+# 塔吉克斯坦政党研修班走进宁夏 共享减贫与生态治理经验
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。 新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。 5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。 主流传统燃油销量整体平
+中新网银川4月17日电 (记者 李佩珊)4月17日，塔吉克斯坦人民民主党干部减贫专题研修班在宁夏拉开帷幕。此次研修班由中联部邀请，塔吉克斯坦人民民主党第一副主席马利克绍·涅玛特佐达率领30人代表团参与，将持续至23日。作为《中国—中亚政党对话会第二次会议政党行动计划清单》框架下的重要活动，研修班以减贫合作为核心，旨在通过经验互鉴，探索符合中塔实际的减贫路径，为构建更紧密的中国—
 
 ## 正文
 
-新加坡海事及港务管理局周一公布官方数据显示，受到港船舶数量回升带动，该国5月船用燃油销量在上月下滑后迎来反弹，创下两个月以来新高。
+中新网银川4月17日电 (记者 李佩珊)4月17日，塔吉克斯坦人民民主党干部减贫专题研修班在宁夏拉开帷幕。
 
-新加坡作为全球最大船舶加油枢纽，5月船用燃油总销量达455万吨，较4月增长4.5%，但同比去年5月仍下降6.8%。
+此次研修班由中联部邀请，塔吉克斯坦人民民主党第一副主席马利克绍·涅玛特佐达率领30人代表团参与，将持续至23日。
 
-5月前来加注燃油的船舶艘次环比增加7.3%，至3690艘次；集装箱吞吐量环比上升4.9%，达394万标准箱。
+作为《中国—中亚政党对话会第二次会议政党行动计划清单》框架下的重要活动，研修班以减贫合作为核心，旨在通过经验互鉴，探索符合中塔实际的减贫路径，为构建更紧密的中国—中亚命运共同体、深化中塔全面战略合作伙伴关系凝聚力量。
 
-主流传统燃油销量整体平稳、部分品类走高。
+此次研修班注重专题讲座与实地参访相结合，相关领域专家学者将围绕闽宁协作、乡村振兴、生态治理等主题授课，详解中国减贫方案的宁夏实践。
 
-主力低硫船用燃料油（硫含量0.5%，VLSFO）5月销量为229万吨，环比4月增长4.7%；高硫船用燃油销量持平，维持在179万吨。
+同时，宁夏还将邀请学员赴闽宁镇、长城花园社区、宁夏灵武白芨滩国家级自然保护区等地考察，实地了解产业扶贫、防沙治沙、基层治理及特色产业发展等成效，并通过研讨交流促进思想碰撞，提升学习实效。
 
-责任编辑：王永生
+近年来，宁夏与塔吉克斯坦交往密切、合作务实。
+
+双方高层互访频繁，在矿产开发、农业技术、教育卫生等领域合作成果丰硕。
+
+特别是中国—中亚荒漠化防治合作中心落地宁夏后，双方生态合作持续深化，成为双边互利合作的新引擎。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 21:01 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 21:03 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 21:11 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 20:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 20:42 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 20:58 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 21:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 20:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 20:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 20:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 20:50 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 20:45 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 21:09 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 21:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 20:51 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 20:58 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:49 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 21:04 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 21:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 21:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 20:57 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 21:01 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 20:51 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 20:54 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 21:09 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 21:07 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/62187.shtml)
-- 2026-06-29 20:47 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/042904700347.shtml)
-- 2026-06-29 21:09 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/130061705160.shtml)
-- 2026-06-29 20:46 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/170285.shtml)
-- 2026-06-29 20:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/315518711911.shtml)
-- 2026-06-29 20:44 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/880483343.shtml)
-- 2026-06-29 20:49 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/55718322050.shtml)
-- 2026-06-29 21:05 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/154658.shtml)
-- 2026-06-29 21:06 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/660721205.shtml)
-- 2026-06-29 21:05 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/73252.shtml)
-- 2026-06-29 21:11 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/4684014.shtml)
-- 2026-06-29 20:56 - [绘画区你赢了](http://www.blog.minike.top/Article/details/035511.shtml)
-- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/18207.shtml)
-- 2026-06-29 20:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/21750685.shtml)
-- 2026-06-29 20:55 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/763211285.shtml)
+- 2026-06-29 20:50 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/4929995.shtml)
+- 2026-06-29 20:48 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/51961.shtml)
+- 2026-06-29 21:16 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/800552391.shtml)
+- 2026-06-29 20:51 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/07814025.shtml)
+- 2026-06-29 21:15 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/85800950.shtml)
+- 2026-06-29 21:13 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/298160.shtml)
+- 2026-06-29 20:59 - [速度与激情9](https://www.blog.minike.top/Article/details/58933.shtml)
+- 2026-06-29 20:58 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/622980984829.shtml)
+- 2026-06-29 21:04 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/778404502.shtml)
+- 2026-06-29 21:16 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/30396.shtml)
+- 2026-06-29 20:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/7312924692.shtml)
+- 2026-06-29 21:00 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/506493824494.shtml)
+- 2026-06-29 21:10 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/515998086860.shtml)
+- 2026-06-29 21:11 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/5495751085.shtml)
+- 2026-06-29 21:00 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/495496512294.shtml)

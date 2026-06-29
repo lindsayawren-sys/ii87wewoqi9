@@ -1,59 +1,59 @@
-# 浦江中国复牌后涨超55% 获微盟集团董事会主席孙涛勇折让提现金要约
+# 商业航天政策利好来了！华宝基金通用航空ETF（159231）逆市上涨冲击6连涨，盘中获资金净申购1300万份
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-浦江中国（01417）复牌后一度涨超60%，截至发稿，股价上涨55.08%，现报2.90港元，成交额1716.68万港元。 浦江中国及要约人Yomi.sun Holding Limited联合公布，于2026年6月15日，要约人与出售股东订立买卖协议，以总代价1.156亿港元向出售股东收购合共 2.23亿股股份，相当于于本联合公告日期本公司已发行股本总额的约55.03%；以及L
+4月17日午后，航空航天逆市飘红，英搏尔涨超7%，海特高新涨超6%，广电计量、航天南湖涨超4%。一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内现涨0.61%有望冲击6日连涨，右侧资金涌入，盘中实时净申购1300万份！ 消息面上，国新办4月17日上午举行“开局起步‘十五五’”系列主题新闻发布会，发改委副主任王昌林表示，在民间投资方面，发改委将
 
 ## 正文
 
-浦江中国（01417）复牌后一度涨超60%，截至发稿，股价上涨55.08%，现报2.90港元，成交额1716.68万港元。
+4月17日午后，航空航天逆市飘红，英搏尔涨超7%，海特高新涨超6%，广电计量、航天南湖涨超4%。
 
-浦江中国及要约人Yomi.sun Holding Limited联合公布，于2026年6月15日，要约人与出售股东订立买卖协议，以总代价1.156亿港元向出售股东收购合共 2.23亿股股份，相当于于本联合公告日期本公司已发行股本总额的约55.03%；以及Lucky Yang Limited与出售股东订立买卖协议，以总代价4007.11万港元向出售股东收购7728万股股份，相当于于本联合公告日期本公司已发行股本总额的约19.08%。
+一键布局商业航天+卫星导航+低空经济+大飞机的通用航空ETF华宝（159231）场内现涨0.61%有望冲击6日连涨，右侧资金涌入，盘中实时净申购1300万份！
 
-根据收购守则规则26.1，要约人须就本公司已发行股本中所有股份（不包括要约人及其一致行动人士已拥有及/或同意将予收购的股份）提出强制性无条件现金要约。
+消息面上，国新办4月17日上午举行“开局起步‘十五五’”系列主题新闻发布会，发改委副主任王昌林表示，在民间投资方面，发改委将进一步完善民营企业参与重大项目建设长效机制，聚焦数字经济、人工智能、商业航天等高成长性领域，推出一系列促进民间投资的政策和改革举措。
 
-每股要约股份要约价现金0.519港元，较2026年6月12日在联交所所报收市价每股1.870港元折让约72.25%。
+中信建投点评指出， 4月下旬起，中国商业航天将进入可回收火箭密集验证窗口，核心催化来自长征十号乙预计于4月28日在文昌首飞并同步验证海上网系回收，以及朱雀三号遥二在二季度内再次冲刺一子级回收，单位发射成本降低有望加速商业化进程。
 
-孙涛勇先生为要约人的唯一董事，也是要约人的最终实益拥有人。
+此外，各地商业航天政策持续加码，进一步助力产业发展。
 
-孙先生亦为Weimob Inc．的创始人，Weimob Inc．是一家在开曼群岛注册成立的有限公司，并在香港联合交易所上市（02013）。
+大国之翼，大展鸿图！
 
-孙先生目前担任Weimob Inc．董事会主席、执行董事兼首席执行官。
+通用航空ETF华宝（159231）及联接基金（A类：024766；C类：024767）标的指数全面覆盖50只航空航天成份股，涵盖低空经济、商业航天、卫星导航、大飞机、无人机、军用飞机等热门领域，其中低空经济概念含量超88%，商业航天含量超65%，卫星导航概念超47%，是一键配置中国航空航天产业链的利器。
 
-责任编辑：卢昱君
+（截至2026.3.31） 数据来源：沪深交易所 基金费用说明：通用航空ETF不收取销售服务费，申购赎回代理机构可按照不超过0.5%的标准收取佣金。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 20:52 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 20:47 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 21:11 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 21:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 20:54 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 20:50 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 21:06 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 21:08 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 21:04 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 20:57 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 20:50 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 20:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 20:49 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 20:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 20:58 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:54 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 21:17 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 21:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 21:16 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 21:08 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 21:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 21:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/106253673.shtml)
-- 2026-06-29 20:43 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/799349491.shtml)
-- 2026-06-29 21:01 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/716540433535.shtml)
-- 2026-06-29 21:01 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/7528494.shtml)
-- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/75379294519.shtml)
-- 2026-06-29 21:04 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/88837768853.shtml)
-- 2026-06-29 21:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/9528254.shtml)
-- 2026-06-29 21:11 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/745281678.shtml)
-- 2026-06-29 21:02 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/0820384.shtml)
-- 2026-06-29 20:55 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/5502927937.shtml)
-- 2026-06-29 21:11 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/149931625850.shtml)
-- 2026-06-29 21:10 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/1559127.shtml)
-- 2026-06-29 20:52 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/0318025.shtml)
-- 2026-06-29 20:51 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/57416320.shtml)
-- 2026-06-29 20:59 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/071556215.shtml)
+- 2026-06-29 21:06 - [逃狱兄弟](https://www.share.minike.top/Article/details/535228024453.shtml)
+- 2026-06-29 20:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/80546328276.shtml)
+- 2026-06-29 21:01 - [天道](http://www.blog.minike.top/Article/details/17066785477.shtml)
+- 2026-06-29 20:55 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/11971082.shtml)
+- 2026-06-29 20:52 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/353960033767.shtml)
+- 2026-06-29 21:11 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/8195530996.shtml)
+- 2026-06-29 21:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/426931664242.shtml)
+- 2026-06-29 21:02 - [天道](http://www.blog.minike.top/Article/details/412405957395.shtml)
+- 2026-06-29 20:48 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/252947677.shtml)
+- 2026-06-29 20:54 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/80190891.shtml)
+- 2026-06-29 20:56 - [乔家的儿女](http://www.blog.minike.top/Article/details/73341445.shtml)
+- 2026-06-29 20:50 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/82493860.shtml)
+- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/02664495326.shtml)
+- 2026-06-29 21:02 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/305633451.shtml)
+- 2026-06-29 20:57 - [恋与深空致歉](http://www.blog.minike.top/Article/details/91768500005.shtml)

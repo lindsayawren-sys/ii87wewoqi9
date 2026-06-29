@@ -1,57 +1,58 @@
-# 第二十四届海创会聚焦人工智能等领域技术应用
+# 佛慈制药扣非净利暴跌38%、坏账激增68% 集采压境，产品同质，老牌中药企业深陷增长困局
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网福州6月15日电 (叶秋云)记者从15日在福州举行的第二十四届中国·海峡创新项目成果交易会(以下简称“海创会”)新闻发布会获悉，海创会首次推出福建省“企业家+科学家+投资人”智能匹配大模型，平台汇聚千余家科研机构、海量研发数据、全球高校资源与高端科研人才。本届海创会将于本月18日到20日举行。海创会组委会副主任程立平介绍，海创会运用AI大模型，实现科技成果与产业需求的智能
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，佛慈制药披露2025年年度报告。报告数据显示，公司全年实现营业总收入9.16亿元，同比下降6.60%，为连续第二年营收下滑；归母净利润4920.72万元，同比下降18.08%，自2023年起连续三年下滑。 扣非净利润仅2023.98万元，继2024年同比下降36.38%后再度同比暴跌37.54%，创近
 
 ## 正文
 
-中新网福州6月15日电 (叶秋云)记者从15日在福州举行的第二十四届中国·海峡创新项目成果交易会(以下简称“海创会”)新闻发布会获悉，海创会首次推出福建省“企业家+科学家+投资人”智能匹配大模型，平台汇聚千余家科研机构、海量研发数据、全球高校资源与高端科研人才。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-本届海创会将于本月18日到20日举行。
+近日，佛慈制药披露2025年年度报告。
 
-海创会组委会副主任程立平介绍，海创会运用AI大模型，实现科技成果与产业需求的智能匹配与精准对接，着力打造海创会科技成果转化应用示范平台。
+报告数据显示，公司全年实现营业总收入9.16亿元，同比下降6.60%，为连续第二年营收下滑；归母净利润4920.72万元，同比下降18.08%，自2023年起连续三年下滑。
 
-据介绍，本届海创会将同步举办人工智能、卫星应用、氢能、空天安全四场产业生态大会，还配套开展金融赋能科创系列对接活动。
+扣非净利润仅2023.98万元，继2024年同比下降36.38%后再度同比暴跌37.54%，创近五年扣非净利润新低。
 
-人工智能产业生态大会作为核心主场活动，将邀请中国科学院院士赵国屏、主宾高校浙江大学和中国科学技术大学负责人致辞分享，现场还将举行同济大学国家卓越工程师学院福建基地的揭牌仪式，并围绕大模型、数实融合、智能运维等方向开展项目路演。
+在中成药集采常态化、产品同质化竞争激烈、研发创新不足、营运效率恶化等多重压力下，佛慈制药的转型突围之路显得步履维艰。
 
-卫星应用大会汇聚行业专家，现场将为福建省卫星应用产业园揭牌、发布产业发展倡议，展示遥感技术在农业、海洋、生态等领域的落地成果。
+主业盈利持续萎缩，超58%利润依赖政府补助 2025年，佛慈制药公司全年实现营业总收入9.16亿元，同比下降6.60%，为连续第二年营收下滑。
 
-氢能大会邀请专家分享制氢、储氢、用氢前沿技术，多个福建省内龙头企业带来实景项目路演。
+同期公司归母净利润4920.72万元，同比下降18.08%，自2023年起连续三年呈现下滑趋势。
 
-空天安全大会则聚焦低空经济管控与6G技术应用，依托铁塔基础设施优势，探索全域低空安全防护体系建设。
+扣非净利润仅2023.98万元，继2024年同比下降36.38%后，再度暴跌37.54%，跌至近五年最低水平。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 20:58 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 21:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 20:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 20:46 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 20:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 20:52 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 20:44 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 20:53 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 20:54 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 21:03 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 21:04 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 21:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 20:59 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 21:15 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 21:17 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 21:00 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 21:01 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 20:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 21:11 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 21:05 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/50258790.shtml)
-- 2026-06-29 20:53 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/367783.shtml)
-- 2026-06-29 21:03 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/89228.shtml)
-- 2026-06-29 20:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/7219669513.shtml)
-- 2026-06-29 20:57 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/114484.shtml)
-- 2026-06-29 21:05 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/8852270.shtml)
-- 2026-06-29 21:11 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/434372.shtml)
-- 2026-06-29 20:43 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/033572943320.shtml)
-- 2026-06-29 21:03 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/78229596.shtml)
-- 2026-06-29 21:04 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/602090466852.shtml)
-- 2026-06-29 21:11 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/789019.shtml)
-- 2026-06-29 21:01 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/85531.shtml)
-- 2026-06-29 20:57 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/84740964.shtml)
-- 2026-06-29 20:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/69203899.shtml)
-- 2026-06-29 21:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/3279372135.shtml)
+- 2026-06-29 21:08 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/88147407.shtml)
+- 2026-06-29 20:51 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/98442.shtml)
+- 2026-06-29 21:07 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/323707.shtml)
+- 2026-06-29 20:57 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/73284908.shtml)
+- 2026-06-29 20:49 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/707173.shtml)
+- 2026-06-29 21:05 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/72734428706.shtml)
+- 2026-06-29 20:58 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/25436.shtml)
+- 2026-06-29 21:07 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/95120.shtml)
+- 2026-06-29 21:09 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/4073362.shtml)
+- 2026-06-29 21:01 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/011311.shtml)
+- 2026-06-29 20:48 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/283415.shtml)
+- 2026-06-29 21:16 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/69819.shtml)
+- 2026-06-29 21:07 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/2940617667.shtml)
+- 2026-06-29 20:58 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/550513521.shtml)
+- 2026-06-29 21:13 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/18873656.shtml)

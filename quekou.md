@@ -1,58 +1,47 @@
-# 抓泥鳅打麻糍 六十余名新加坡华侨走进浙江遂昌
+# 加拿大邮政将终止住宅邮件投递
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网丽水6月15日电(胡丰盛 刘岚)“这里的山水风光很美，以后有机会我还要来，到别的乡村看看。”近日，在浙江省丽水市遂昌县西畈乡举淤口村，新加坡华侨黄山兴奋不已。 6月6日至16日，六十余名新加坡华侨研学团队走进遂昌田间地头、穿梭乡村小院、体验特色农事活动，在乡村烟火中沉浸式感受浙西南文化与中华传统韵味。 稻田旁的泥塘里，孩子们卷起裤腿、赤脚踩进泥浆，弯腰追逐滑溜的泥鳅，惊呼
+加拿大邮政公司将终止住宅邮件投递，并开始把13个社区约13.6万个地址转换为社区邮箱，这是其在五年内逐步取消上门投递以减少亏损的第一步。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网丽水6月15日电(胡丰盛 刘岚)“这里的山水风光很美，以后有机会我还要来，到别的乡村看看。
+加拿大邮政公司将终止住宅邮件投递，并开始把13个社区约13.6万个地址转换为社区邮箱，这是其在五年内逐步取消上门投递以减少亏损的第一步。
 
-”近日，在浙江省丽水市遂昌县西畈乡举淤口村，新加坡华侨黄山兴奋不已。
-
-6月6日至16日，六十余名新加坡华侨研学团队走进遂昌田间地头、穿梭乡村小院、体验特色农事活动，在乡村烟火中沉浸式感受浙西南文化与中华传统韵味。
-
-稻田旁的泥塘里，孩子们卷起裤腿、赤脚踩进泥浆，弯腰追逐滑溜的泥鳅，惊呼声和欢笑声此起彼伏。
-
-“我觉得抓泥鳅非常有意思，以前从来没有见过泥鳅，来到这里以后觉得特别新奇。
-
-”黄山说。
-
-石臼边，大家轮流抡起木槌，在反复捶打中将热气腾腾的糯米变成软糯筋道的麻糍；石磨缓缓转动，雪白的豆浆顺着磨盘流出，豆香四溢。
-
-这些古老的手艺活，让远道而来的游客们亲身触摸到乡村的烟火日常。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 21:02 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 21:01 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 21:04 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 20:44 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 21:09 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 21:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 20:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 20:57 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 21:07 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 20:57 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:12 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 21:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 21:10 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 21:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 21:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 20:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 21:02 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 21:02 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 21:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 21:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 21:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/719079064689.shtml)
-- 2026-06-29 20:59 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/44912301581.shtml)
-- 2026-06-29 21:05 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/494882914.shtml)
-- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/49991420592.shtml)
-- 2026-06-29 21:03 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/87871041.shtml)
-- 2026-06-29 21:05 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/8761576684.shtml)
-- 2026-06-29 21:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/51657184.shtml)
-- 2026-06-29 20:53 - [女心理师](https://www.share.kurohicncr.top/Article/details/68016967409.shtml)
-- 2026-06-29 20:55 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/21037253.shtml)
-- 2026-06-29 20:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/8155952.shtml)
-- 2026-06-29 21:08 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/7357201.shtml)
-- 2026-06-29 20:55 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/20867.shtml)
-- 2026-06-29 20:56 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/65385.shtml)
-- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/728849.shtml)
-- 2026-06-29 21:01 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/1281076851.shtml)
+- 2026-06-29 20:51 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/90071144617.shtml)
+- 2026-06-29 21:16 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/09548.shtml)
+- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/98033482.shtml)
+- 2026-06-29 21:04 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/3754672996.shtml)
+- 2026-06-29 21:04 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/137599.shtml)
+- 2026-06-29 20:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/765737912845.shtml)
+- 2026-06-29 20:58 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/960334.shtml)
+- 2026-06-29 21:16 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/002487.shtml)
+- 2026-06-29 21:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/61307840724.shtml)
+- 2026-06-29 21:03 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/641194786.shtml)
+- 2026-06-29 20:52 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/64075221666.shtml)
+- 2026-06-29 20:48 - [流金岁月](http://www.share.minike.top/Article/details/1471998307.shtml)
+- 2026-06-29 21:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/12538069.shtml)
+- 2026-06-29 20:56 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/744137.shtml)
+- 2026-06-29 20:55 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/761321.shtml)

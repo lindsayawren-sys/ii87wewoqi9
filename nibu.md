@@ -1,60 +1,58 @@
-# 各国领导人欢迎美伊和平协议，欧洲表态拟放松制裁并呼吁重开霍尔木兹海峡
+# 中国远洋海运集团总经理调整
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-核心要点 多国领导人对结束中东战事的美伊协议表示欢迎，部分欧洲国家释放信号：若伊朗采取实质性行动限制核计划，欧洲准备解除对德黑兰的相关制裁。 巴基斯坦总理夏巴兹・谢里夫透露，历经三个多月交战，美伊于周日达成和平协议，将立即、永久终止冲突；双方定于本周五在瑞士签署协议，随后开启为期 60 天的伊朗核问题补充谈判。 美国总统特朗普表示，将批准立即解除美国对伊朗的海上封锁。完整协议条
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：星岛记事 据“中远海运”官方公众号消息，4月17日，中国远洋海运集团有限公司召开领导班子（扩大）会议。 受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国远洋海运集团有限公司总经理调整的决定： 林戟同志任中国远洋海运集团有限公司董事、总经理、党组副书记；免去朱碧新同志的中国远洋海运
 
 ## 正文
 
-核心要点 多国领导人对结束中东战事的美伊协议表示欢迎，部分欧洲国家释放信号：若伊朗采取实质性行动限制核计划，欧洲准备解除对德黑兰的相关制裁。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-巴基斯坦总理夏巴兹・谢里夫透露，历经三个多月交战，美伊于周日达成和平协议，将立即、永久终止冲突；双方定于本周五在瑞士签署协议，随后开启为期 60 天的伊朗核问题补充谈判。
+来源：星岛记事 据“中远海运”官方公众号消息，4月17日，中国远洋海运集团有限公司召开领导班子（扩大）会议。
 
-美国总统特朗普表示，将批准立即解除美国对伊朗的海上封锁。
+受中央组织部领导委托，中央组织部有关干部局负责同志宣布了党中央关于中国远洋海运集团有限公司总经理调整的决定： 林戟同志任中国远洋海运集团有限公司董事、总经理、党组副书记；免去朱碧新同志的中国远洋海运集团有限公司董事、总经理、党组副书记职务。
 
-完整协议条款尚未对外公布，但伊朗国家媒体上周五披露，一份 14 页谅解备忘录草案约定：美国取消对伊朗石油制裁，伊朗承诺 30 天内重开霍尔木兹海峡。
+相关职务任免，按有关法律和章程的规定办理。
 
-中国外交部对这份初步和平协议表示欢迎，期待协议如期签署。
+▲林戟 资料图 公开报道显示，林戟出生于1970年4月，福建福州人，长期在中远海运工作，曾任中远海运（欧洲）有限公司董事长等职，2022年6月任集团副总经理。
 
-外交部发言人周一例行记者会上表态：“中方希望各方坚持和平道路，通过对话化解分歧。
+直至此番履新。
 
-” 英、法、德、意四国在协议官宣后发布联合声明，称赞这份协议 “为恢复地区稳定、稳住全球经济创造契机”，并表示若伊朗拿出 “清晰、可核查的核管控举措”，四国将解除对应制裁。
+官网简介显示，2025年，中远海运位居《财富》世界500强榜单第212位，排名全球航运企业第一。
 
-这四个国家合称欧洲四国（E4），声明同时要求全面、快速落地协议，并强调 “亟需无条件、无限制恢复霍尔木兹海峡通航自由，此事至关重要”。
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 21:02 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 20:48 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 21:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 20:48 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 20:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 20:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 20:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 21:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 20:58 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 20:52 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 21:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 20:46 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 21:11 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 21:17 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 20:55 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 20:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 20:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 20:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 21:01 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 21:01 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 20:58 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 21:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 21:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 21:16 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/1276686230.shtml)
-- 2026-06-29 20:48 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/62849148.shtml)
-- 2026-06-29 20:51 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/17801411442.shtml)
-- 2026-06-29 21:02 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/52191.shtml)
-- 2026-06-29 20:51 - [《贺子珍》](http://www.share.minike.top/Article/details/3799779231.shtml)
-- 2026-06-29 20:50 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/105452841.shtml)
-- 2026-06-29 20:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/5553583666.shtml)
-- 2026-06-29 20:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/6980160.shtml)
-- 2026-06-29 21:04 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/4106705747.shtml)
-- 2026-06-29 21:09 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/41198268.shtml)
-- 2026-06-29 20:42 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/4133943875.shtml)
-- 2026-06-29 20:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/315929434882.shtml)
-- 2026-06-29 20:48 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/081731827.shtml)
-- 2026-06-29 21:09 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/7932165832.shtml)
-- 2026-06-29 20:46 - [黄金也扛不住了](https://www.share.minike.top/Article/details/4173170.shtml)
+- 2026-06-29 20:58 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/1630087.shtml)
+- 2026-06-29 20:55 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/9030822.shtml)
+- 2026-06-29 20:48 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/5690152.shtml)
+- 2026-06-29 20:56 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/865236092739.shtml)
+- 2026-06-29 21:08 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/159866170.shtml)
+- 2026-06-29 20:54 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/7026278.shtml)
+- 2026-06-29 21:16 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/50173451.shtml)
+- 2026-06-29 21:14 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/934022684.shtml)
+- 2026-06-29 20:57 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/5347124681.shtml)
+- 2026-06-29 20:51 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/277351297.shtml)
+- 2026-06-29 21:15 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/22699736.shtml)
+- 2026-06-29 20:59 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/11703735863.shtml)
+- 2026-06-29 21:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/682954830653.shtml)
+- 2026-06-29 21:05 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/1397543.shtml)
+- 2026-06-29 20:51 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/3551432952.shtml)

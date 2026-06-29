@@ -1,56 +1,61 @@
-# “十五五”国资改革启幕，央企红利ETF华泰柏瑞（561580）中长期价值有望凸显
+# 台胞谈“十五五”规划：政策支持和技术优势拓发展空间
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-近日，国务院国资委近期召开专题会议研究审议《中央企业“十五五”发展规划纲要》编制工作。会议要求围绕打好产业升级攻坚战，聚焦增强核心功能，提升核心竞争力，推动中央企业产业体系整体跃升。在顶层政策持续加码、国企改革纵深推进的行业大背景下，汇聚了50家优质高分红央企的央企红利ETF华泰柏瑞（561580）或成为助力投资者布局央企改革红利、把握高股息长期配置价值的核心标的之一。 Win
+中新社北京4月16日电 (黄欣欣)“大陆的政策坚持长期主义，一张蓝图绘到底，分阶段稳步实施。”台湾光复纪念协会执行秘书长罗至善16日在北京表示。 当日，由全国台联主办的第七届台胞社团论坛举行专题讲座。国务院发展研究中心发展战略和区域经济研究部副部长、一级巡视员何建武向参会台胞解读大陆“十五五”规划的重点任务等。规划对“十五五”时期对台工作作出顶层设计，明确提出“深化两岸交流合作
 
 ## 正文
 
-近日，国务院国资委近期召开专题会议研究审议《中央企业“十五五”发展规划纲要》编制工作。
+中新社北京4月16日电 (黄欣欣)“大陆的政策坚持长期主义，一张蓝图绘到底，分阶段稳步实施。
 
-会议要求围绕打好产业升级攻坚战，聚焦增强核心功能，提升核心竞争力，推动中央企业产业体系整体跃升。
+”台湾光复纪念协会执行秘书长罗至善16日在北京表示。
 
-在顶层政策持续加码、国企改革纵深推进的行业大背景下，汇聚了50家优质高分红央企的央企红利ETF华泰柏瑞（561580）或成为助力投资者布局央企改革红利、把握高股息长期配置价值的核心标的之一。
+当日，由全国台联主办的第七届台胞社团论坛举行专题讲座。
 
-Wind数据显示，6月以来央企红利ETF华泰柏瑞（561580）资金关注度明显升温，10个交易日中累计7个交易日获资金净流入，累计“吸金”达1.60亿元，成为同期全市场央国企类ETF中仅有的资金净流入额超1亿元的产品。
+国务院发展研究中心发展战略和区域经济研究部副部长、一级巡视员何建武向参会台胞解读大陆“十五五”规划的重点任务等。
 
-交易所数据显示，截至2026/6/12，基金最新规模达23.50亿元，刷新成立以来新高。
+规划对“十五五”时期对台工作作出顶层设计，明确提出“深化两岸交流合作”“推动两岸经济合作”等内容。
 
-今年是“十五五”规划开局之年，也是新一轮深化国资国企改革启动之年，各地围绕提升国企核心竞争力、增强核心功能两大主线不断出台相关政策，为央国企发展注入强劲动能。
+罗至善注意到，与台湾当局政策经常变动不同，大陆相关规划的延续性强，避免政策反复带来的资源浪费，让台胞对未来有稳定预期。
 
-政策面上的加持也逐步向基本面传导，在2025年国资央企营收和利润增速整体继续放缓的背景下，2026年一季度出现回升。
+在他看来，“十五五”规划明确提出深化两岸交流合作、落实台湾同胞享受同等待遇政策等，将为台胞在大陆学习、就业、创业创造更便利的环境。
 
-Wind数据显示，央企红利ETF华泰柏瑞（561580）紧密跟踪的中证央企红利指数成份股今年一季度净利润增速由负转正，同时其ROE水平由2025年度的1.95%攀升至2.29%，价值创造能力攀升，也有望进一步筑牢央企红利ETF华泰柏瑞（561580）中长期配置价值。
+在武汉从事文创产业的台胞薛颖穜特别关注“十五五”规划中“全面实施‘人工智能+’行动”的部署。
 
 ## 相关推荐
 
-- 2026-06-29 21:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 20:53 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 21:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 20:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 20:42 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 21:07 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 20:45 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 20:48 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 20:51 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 20:49 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 20:55 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 21:01 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 20:55 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 20:55 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 20:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:58 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 20:59 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 21:15 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 21:06 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 21:17 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 20:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 21:15 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 20:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 20:54 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/526986156790.shtml)
-- 2026-06-29 20:48 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/876660606.shtml)
-- 2026-06-29 20:43 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/31596150701.shtml)
-- 2026-06-29 20:53 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/38618.shtml)
-- 2026-06-29 21:01 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/074243984.shtml)
-- 2026-06-29 20:51 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/2926570.shtml)
-- 2026-06-29 20:55 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/213143332.shtml)
-- 2026-06-29 20:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/91911884479.shtml)
-- 2026-06-29 21:08 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/95140943891.shtml)
-- 2026-06-29 20:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/08194715704.shtml)
-- 2026-06-29 21:01 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/5245762.shtml)
-- 2026-06-29 20:44 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/87847.shtml)
-- 2026-06-29 21:04 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/48537090.shtml)
-- 2026-06-29 20:42 - [一见倾心](https://www.share.minike.top/Article/details/6268492.shtml)
-- 2026-06-29 21:05 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/2607383044.shtml)
+- 2026-06-29 20:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/683897.shtml)
+- 2026-06-29 21:06 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/85550185860.shtml)
+- 2026-06-29 21:04 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/945601402.shtml)
+- 2026-06-29 21:10 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/1017667284.shtml)
+- 2026-06-29 20:56 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/7307118429.shtml)
+- 2026-06-29 20:54 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/587667578.shtml)
+- 2026-06-29 20:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/005779603.shtml)
+- 2026-06-29 20:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/143362198.shtml)
+- 2026-06-29 21:09 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/70526.shtml)
+- 2026-06-29 20:49 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/17111598390.shtml)
+- 2026-06-29 21:11 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/704768.shtml)
+- 2026-06-29 21:06 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/803194682790.shtml)
+- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/94065245.shtml)
+- 2026-06-29 20:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/87129964.shtml)
+- 2026-06-29 21:09 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/329255465785.shtml)

@@ -1,57 +1,61 @@
-# （聚焦海峡论坛）业界人士吁深化两岸影视合拍等交流合作
+# 王沪宁出席第七届台胞社团论坛开幕式
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社厦门6月15日电 (郑江洛 徐雪莹)正在厦门举行的第十八届海峡论坛上，多位两岸影视从业者认为文化共鸣是最牢固的纽带，呼吁深化两岸间的影视合拍等交流合作。 台湾青年导演邱庆龄表示，近期大陆电影《给阿嬤的情书》的热播印证了“情感是共通的语言”。两岸创作者扎根生活、聚焦真实情感，就能引发两岸观众共鸣，让文化纽带联结得更紧密。 《沉默的荣耀》《太平年》《逐玉》等多部大陆影视作品近
+新华社北京4月17日电 第七届台胞社团论坛17日在京举行。中共中央政治局常委、全国政协主席王沪宁出席开幕式并讲话。 王沪宁表示，4月10日，习近平总书记就两岸关系发展提出坚持以正确认同促进心灵契合、坚持以和平发展守护共同家园、坚持以交流融合增进民生福祉、坚持以团结奋斗实现中华民族伟大复兴的重要主张，必将激励两岸同胞同心共创祖国统一、民族复兴的光明前景。我们要贯彻新时代党解决台湾
 
 ## 正文
 
-中新社厦门6月15日电 (郑江洛 徐雪莹)正在厦门举行的第十八届海峡论坛上，多位两岸影视从业者认为文化共鸣是最牢固的纽带，呼吁深化两岸间的影视合拍等交流合作。
+新华社北京4月17日电 第七届台胞社团论坛17日在京举行。
 
-台湾青年导演邱庆龄表示，近期大陆电影《给阿嬤的情书》的热播印证了“情感是共通的语言”。
+中共中央政治局常委、全国政协主席王沪宁出席开幕式并讲话。
 
-两岸创作者扎根生活、聚焦真实情感，就能引发两岸观众共鸣，让文化纽带联结得更紧密。
+王沪宁表示，4月10日，习近平总书记就两岸关系发展提出坚持以正确认同促进心灵契合、坚持以和平发展守护共同家园、坚持以交流融合增进民生福祉、坚持以团结奋斗实现中华民族伟大复兴的重要主张，必将激励两岸同胞同心共创祖国统一、民族复兴的光明前景。
 
-《沉默的荣耀》《太平年》《逐玉》等多部大陆影视作品近年来也受到台湾民众喜爱。
+我们要贯彻新时代党解决台湾问题的总体方略，坚持一个中国原则和“九二共识”，团结广大台湾同胞，共同推动两岸关系和平发展、推进祖国统一大业。
 
-台湾中华广播电视节目制作商业同业公会创会理事长汪威江表示，大陆电视剧在台湾已拥有稳定收视群体，成为影视市场的重要内容。
+王沪宁表示，台胞社团论坛自2010年举办以来，为加强两岸交流、增进同胞亲情、促进心灵契合作出了许多贡献。
 
-他呼吁两岸合拍电视剧、联合打造栏目，实现人才互通、携手创作。
+本届论坛以“服务乡亲、沟通两岸——持续深化两岸融合发展，坚定推进祖国统一大业”为主题，表达了海内外台胞心系祖国发展、共促国家统一的心愿，传递了要和平、要发展、要交流、要合作的心声。
 
-大陆导演杨正浓接受中新社采访时说，大陆影视剧在台湾持续引发讨论，本质是“两岸同根同源的文化底色在持续共鸣”。
+王沪宁表示，两岸同胞同属中华民族，都期盼台海和平安宁、期盼两岸关系改善发展、期盼生活更加美好。
 
-如今社交媒体、短视频二次解读、网友观后感分享等渠道让好剧“出圈”，很多台湾观众乐于交流剧情、讨论人物、对比两岸生活异同。
+希望广大台湾同胞把握历史大势，坚定守护好建设好中华民族共同家园，坚定实现祖国完全统一的信心和决心。
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 21:06 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 20:58 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 20:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 21:02 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 21:00 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 20:46 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 21:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 21:09 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 20:46 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 21:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 21:02 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 21:02 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:01 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 20:58 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 21:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 20:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 20:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 21:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 21:00 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 21:15 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 20:55 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 20:49 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 21:15 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 21:08 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 21:16 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/0177809.shtml)
-- 2026-06-29 20:51 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/62180.shtml)
-- 2026-06-29 20:57 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/813823788981.shtml)
-- 2026-06-29 21:00 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/2484816.shtml)
-- 2026-06-29 20:52 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/69993470866.shtml)
-- 2026-06-29 20:59 - [沉睡花园](http://www.share.minike.top/Article/details/09464.shtml)
-- 2026-06-29 20:46 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/171892845.shtml)
-- 2026-06-29 21:11 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/23389.shtml)
-- 2026-06-29 20:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/01314126101.shtml)
-- 2026-06-29 20:52 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/2400437.shtml)
-- 2026-06-29 21:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/086402.shtml)
-- 2026-06-29 20:57 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/952284.shtml)
-- 2026-06-29 21:05 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/56435084.shtml)
-- 2026-06-29 21:11 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/05196.shtml)
-- 2026-06-29 21:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/689910.shtml)
+- 2026-06-29 21:07 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/818346005334.shtml)
+- 2026-06-29 21:12 - [女心理师](https://www.blog.minike.top/Article/details/53641.shtml)
+- 2026-06-29 21:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/5877723.shtml)
+- 2026-06-29 21:02 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/92020837.shtml)
+- 2026-06-29 21:17 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/866643180266.shtml)
+- 2026-06-29 20:59 - [一生一世](https://www.share.minike.top/Article/details/59232474013.shtml)
+- 2026-06-29 21:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/643699.shtml)
+- 2026-06-29 21:17 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/55924.shtml)
+- 2026-06-29 20:58 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/35070231.shtml)
+- 2026-06-29 20:56 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/744234.shtml)
+- 2026-06-29 21:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/38611798085.shtml)
+- 2026-06-29 21:13 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/784672871207.shtml)
+- 2026-06-29 21:06 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/465185.shtml)
+- 2026-06-29 21:17 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/740133205.shtml)
+- 2026-06-29 20:52 - [温网](https://www.blog.kurohicncr.top/Article/details/7258435945.shtml)

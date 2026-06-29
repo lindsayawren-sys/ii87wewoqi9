@@ -1,56 +1,58 @@
-# 万斯：美伊协议仍有大量细节待敲定，但美国手握全部谈判筹码
+# 易事特索赔再次递交立案，时效告急抓紧加入
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-核心要点 美国副总统 JD・万斯于周一表态，美伊虽已达成初步协议，但仍有大量条款细节需要逐一敲定；同时他自信表示，在后续谈判中美国手握全部筹码、占据绝对优势。 万斯在《财经早间》节目中称，伊朗外长阿巴斯・阿拉格希、伊朗议会议长穆罕默德・巴盖尔・加利巴夫都会参与接下来的磋商。加利巴夫属于伊朗政坛强硬保守派，他参与谈判，意味着伊朗保守派系认可这份协议。 双方周日达成的协议将美伊停火
+一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。一旦错过，即便曾经
 
 ## 正文
 
-核心要点 美国副总统 JD・万斯于周一表态，美伊虽已达成初步协议，但仍有大量条款细节需要逐一敲定；同时他自信表示，在后续谈判中美国手握全部筹码、占据绝对优势。
+一、索赔时效开启倒计时 上海沪紫律师事务所刘鹏律师团队近日再次提交多批次案件至法院立案，投资者诉易事特（维权）证券虚假陈述案件早已获法院一审胜诉判决，法院判决公司对投资者损失承担赔偿责任，原实控人对此承担连带赔偿责任。
 
-万斯在《财经早间》节目中称，伊朗外长阿巴斯・阿拉格希、伊朗议会议长穆罕默德・巴盖尔・加利巴夫都会参与接下来的磋商。
+（刘鹏律师专栏） 需提醒投资者的是该案时效将在2026年5月11日到期，所剩时间不多。
 
-加利巴夫属于伊朗政坛强硬保守派，他参与谈判，意味着伊朗保守派系认可这份协议。
+对于符合索赔条件的易事特投资者而言，这最后的期限至关重要。
 
-双方周日达成的协议将美伊停火有效期延长 60 天，同时确立谈判框架，后续将围绕伊朗核计划等关键分歧展开磋商。
+一旦错过，即便曾经遭受损失，也将难以通过法律途径获得相应赔偿。
 
-这份初步协议尚未正式签署，完整文本也未对外公布。
+同时，投资者还需密切关注法院和证监会的公告，了解案件进展和索赔程序的具体要求。
 
-万斯周一早间介绍，协议两大核心内容：一是重开霍尔木兹海峡；二是敲定伊朗永久放弃研发核武器的长期承诺。
+除了通过法律途径索赔外，投资者还应加强自我保护意识，提高风险识别能力。
 
-特朗普总统多次公开表态，这场冲突爆发的根本目的就是阻止伊朗获得核武器。
+二、财务造假引发维权 回溯此案，公司曾发布公告称收到中国证监会出具的《行政处罚决定书》，因财务造假被严惩。
 
-万斯透露，若伊朗严格遵守协议全部承诺，美方将放宽对伊经济制裁与各类贸易限制，让伊朗 “重新融入全球经济体系”。
+还因财务造假行为恶劣在2024年还被证监会点名，成为从严打击资本市场财务造假的典型案例。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 21:07 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 20:57 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 20:46 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 20:52 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 21:09 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 20:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 21:10 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 21:08 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 20:42 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 20:49 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 20:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 20:52 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 21:11 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 21:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 21:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 20:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 21:06 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 21:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 20:59 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 21:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 21:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/65368.shtml)
-- 2026-06-29 20:47 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/413504.shtml)
-- 2026-06-29 20:47 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/06456336.shtml)
-- 2026-06-29 20:47 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/7386549.shtml)
-- 2026-06-29 21:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/8391745480.shtml)
-- 2026-06-29 20:58 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/7611411.shtml)
-- 2026-06-29 20:48 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/381802.shtml)
-- 2026-06-29 20:45 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/38259384.shtml)
-- 2026-06-29 20:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/9872292.shtml)
-- 2026-06-29 20:59 - [新官上任三把火](http://www.share.minike.top/Article/details/14115726.shtml)
-- 2026-06-29 20:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/82618533.shtml)
-- 2026-06-29 20:42 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/690971.shtml)
-- 2026-06-29 20:49 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/921070670.shtml)
-- 2026-06-29 21:06 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/56311459.shtml)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/0551277902.shtml)
+- 2026-06-29 21:02 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/179530429.shtml)
+- 2026-06-29 21:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/792581457.shtml)
+- 2026-06-29 21:13 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/10769.shtml)
+- 2026-06-29 21:17 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/5847315263.shtml)
+- 2026-06-29 21:13 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/78509.shtml)
+- 2026-06-29 20:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/23452696690.shtml)
+- 2026-06-29 21:10 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/916430.shtml)
+- 2026-06-29 21:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/16797326646.shtml)
+- 2026-06-29 21:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/267576.shtml)
+- 2026-06-29 21:17 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/781128615.shtml)
+- 2026-06-29 21:01 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/349750643.shtml)
+- 2026-06-29 20:57 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/554436.shtml)
+- 2026-06-29 20:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/283393275632.shtml)
+- 2026-06-29 21:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7183497077.shtml)
+- 2026-06-29 20:50 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/719007956.shtml)

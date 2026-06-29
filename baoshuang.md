@@ -1,59 +1,48 @@
-# 天津宁河：“村晚”海选遇上龙舟竞渡 “水岸联动”聚人气
+# 花旗：降中国再保险目标价至1.55港元 评级“中性”
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网天津6月14日电 (薛淳月 周亚强)13日，“我要上村晚”2026年天津市乡村文化艺术展演启动仪式暨首场线下海选与2026天津海河龙舟系列赛(宁河站)在天津宁河举办，以“水岸联动”串起文化展示、体育赛事和消费体验。 2026天津海河龙舟系列赛(宁河站)是海河龙舟赛事首次落地宁河。赛事采用200米直道竞速模式，综合小组赛与决赛成绩排定名次。随着发令声响起，一艘艘龙舟破浪前行
+花旗发布研报称，更新中国再保险（01508）的模型，予中国再保险“中性”评级。该行将中国再保险下调2026及2027财年每股盈利预测分别19%及16%，以反映来自联营公司的利润份额预期降低。因应盈利预测调整，花旗将中国再保险目标价由1.7港元下调至1.55港元，并引入2028财年预测。责任编辑：史丽君
 
 ## 正文
 
-中新网天津6月14日电 (薛淳月 周亚强)13日，“我要上村晚”2026年天津市乡村文化艺术展演启动仪式暨首场线下海选与2026天津海河龙舟系列赛(宁河站)在天津宁河举办，以“水岸联动”串起文化展示、体育赛事和消费体验。
+花旗发布研报称，更新中国再保险（01508）的模型，予中国再保险“中性”评级。
 
-2026天津海河龙舟系列赛(宁河站)是海河龙舟赛事首次落地宁河。
+该行将中国再保险下调2026及2027财年每股盈利预测分别19%及16%，以反映来自联营公司的利润份额预期降低。
 
-赛事采用200米直道竞速模式，综合小组赛与决赛成绩排定名次。
+因应盈利预测调整，花旗将中国再保险目标价由1.7港元下调至1.55港元，并引入2028财年预测。
 
-随着发令声响起，一艘艘龙舟破浪前行，鼓点与呐喊声回荡在蓟运河两岸。
-
-此次比赛共设高校组、公开组两大组别，17支代表队近300名选手竞逐水面。
-
-高校组集合了来自清华大学、北京大学、南开大学等京津冀高校的队伍，公开组则集结了宁河消防救援支队、宝坻舟艇运动协会、唐山盛隆体育龙舟队等4支津冀实力派队伍参加比赛。
-
-其中，外籍留学生和国际友人组建的队伍也参与其中，为赛事增添了国际化元素。
-
-赛事结束后，参赛选手和国际友人走进芦台大集，感受百年大集的烟火气、品尝特色美食。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 21:00 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 21:00 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 20:48 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 21:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 21:02 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 21:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 20:59 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 21:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 20:46 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 20:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 20:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 20:44 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 20:54 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 20:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 20:52 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 21:15 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 20:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 20:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 21:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 21:08 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 21:06 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 21:01 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/249647.shtml)
-- 2026-06-29 21:08 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/575156691.shtml)
-- 2026-06-29 20:45 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/15926214.shtml)
-- 2026-06-29 20:54 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/30125741.shtml)
-- 2026-06-29 20:56 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/841234904.shtml)
-- 2026-06-29 20:59 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/50826064.shtml)
-- 2026-06-29 21:01 - [扫黑风暴](http://www.blog.minike.top/Article/details/508021560.shtml)
-- 2026-06-29 21:07 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/36925.shtml)
-- 2026-06-29 20:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/11772.shtml)
-- 2026-06-29 20:48 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/303978261.shtml)
-- 2026-06-29 20:43 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/004178.shtml)
-- 2026-06-29 21:01 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/20868079.shtml)
-- 2026-06-29 20:44 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/217110.shtml)
-- 2026-06-29 20:45 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/4026101.shtml)
-- 2026-06-29 21:11 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/166995191.shtml)
+- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/9896263.shtml)
+- 2026-06-29 21:12 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/933961784.shtml)
+- 2026-06-29 21:17 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/4772865876.shtml)
+- 2026-06-29 21:00 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/5827315.shtml)
+- 2026-06-29 20:57 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/54062274.shtml)
+- 2026-06-29 21:13 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/327387.shtml)
+- 2026-06-29 20:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/8726308.shtml)
+- 2026-06-29 20:53 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/4712948790.shtml)
+- 2026-06-29 20:52 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/27851039038.shtml)
+- 2026-06-29 21:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/51824630671.shtml)
+- 2026-06-29 20:55 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/8559899542.shtml)
+- 2026-06-29 21:13 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/769048048.shtml)
+- 2026-06-29 21:06 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/995817928.shtml)
+- 2026-06-29 21:14 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/41191876048.shtml)
+- 2026-06-29 20:49 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/44511971.shtml)

@@ -1,60 +1,61 @@
-# 活力中国调研行丨“人造太阳”能发电吗？“中关村两院”企业用AI挑战能源终极之问
+# 市场监管总局对天猫“幽灵外卖”案罚没3174.28万元，暂停新增蛋糕店铺6个月
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-6月11日，记者跟随2026年“活力中国调研行”北京主题采访活动来到北京中关村学院与中关村人工智能研究院(简称“中关村两院”)，AI在这里正在被赋予更强的能力。中关村两院能源科学方向负责人，新烛时代联合创始人兼CTO汪跃介绍，团队构建了“物理+数据”双轮驱动的技术内核，依托强化学习、生成式模型、自进化智能体等前沿能力，试图通过AI对可控核聚变的快速诊断、等离子体预测、不稳定性控
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
 
 ## 正文
 
-6月11日，记者跟随2026年“活力中国调研行”北京主题采访活动来到北京中关村学院与中关村人工智能研究院(简称“中关村两院”)，AI在这里正在被赋予更强的能力。
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
 
-中关村两院能源科学方向负责人，新烛时代联合创始人兼CTO汪跃介绍，团队构建了“物理+数据”双轮驱动的技术内核，依托强化学习、生成式模型、自进化智能体等前沿能力，试图通过AI对可控核聚变的快速诊断、等离子体预测、不稳定性控制等问题的破解实现加速和赋能。
+同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
 
-据了解，中国EAST“人造太阳”实现了1亿摄氏度1066秒高约束模式等离子体运行。
+经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
 
-“人造太阳”即可控核聚变装置，等离子体在其中以极端条件长时间稳定“燃烧”。
+上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
 
-为了获得足够的聚变功率，需要同时提高温度、密度和约束时间，但这些要求会把等离子体推向不稳定状态。
+案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
 
-汪跃解释，AI与能源是当下相辅相成共同驱动时代发展的动力，AI的发展竞争，本质上比拼的是能源供给；而可控核聚变这类终极能源的技术突破，同样离不开AI技术的赋能。
+国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕19号 当事人：浙江天猫网络有限公司 主体资格证照名称：营业执照 统一社会信用代码：91330110571460916M 住所：浙江省杭州市余杭区五常街道文一路西969号3幢5层506室 法定代表人：刘博 依据对当事人初步核查所发现的违法线索，本局于2025年12月16日依法对当事人立案调查。
 
-在聚变这种高度复杂的工业场景里，过往的工程突破大多依赖行业专家依靠人工经验反复试错，不仅效率低下，也越来越难以应对日渐复杂多变的聚变工况；而如果仅依靠单点AI技术辅助传统作业流程，又会陷入AI专业人才稀缺、业务难以规模化落地的困境。
+本局通过现场检查、询问当事人、电子取证、数据分析等方式，确定其违法事实。
 
-团队通过拆解聚变应用场景与AI底层技术要素，提炼出可复用的通用技术模块，再依托智能体技术，融合生成式AI代理模型、强化学习、物理信息神经网络等前沿AI能力，结合仿真数据与实地实测数据，训练基础基座模型以及行业专用模型，能够快速实现等离子体诊断、状态预判、破裂预警、实时调控以及实验规划设计等落地应用。
+当事人系“天猫”平台的经营主体，已取得增值电信业务经营许可证、ICP备案及网络食品销售第三方平台提供者备案。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 20:56 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 20:55 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 20:57 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 20:42 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 20:57 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 20:56 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 20:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 21:04 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 20:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 21:00 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 20:58 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 21:11 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 20:52 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:07 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 20:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 21:01 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 21:04 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 20:55 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 20:53 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 21:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 21:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 20:57 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 20:53 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 21:01 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 20:54 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 20:49 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 21:16 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/62805939071.shtml)
-- 2026-06-29 20:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/792558.shtml)
-- 2026-06-29 21:01 - [一生一世](https://www.blog.minike.top/Article/details/8125620.shtml)
-- 2026-06-29 21:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/766800514.shtml)
-- 2026-06-29 20:44 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/7975880321.shtml)
-- 2026-06-29 21:03 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/3602525.shtml)
-- 2026-06-29 20:47 - [美人鱼](http://www.blog.minike.top/Article/details/7063354038.shtml)
-- 2026-06-29 21:04 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/267503142119.shtml)
-- 2026-06-29 21:08 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/0883551715.shtml)
-- 2026-06-29 20:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/98111406539.shtml)
-- 2026-06-29 20:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/901264.shtml)
-- 2026-06-29 20:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/275386790886.shtml)
-- 2026-06-29 20:53 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/14215561.shtml)
-- 2026-06-29 20:54 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/65986024.shtml)
-- 2026-06-29 21:00 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/77081909520.shtml)
+- 2026-06-29 20:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/110187263.shtml)
+- 2026-06-29 20:54 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/09251275.shtml)
+- 2026-06-29 20:51 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/21768.shtml)
+- 2026-06-29 21:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/56846681.shtml)
+- 2026-06-29 21:11 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/1007088437.shtml)
+- 2026-06-29 21:12 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/56952984.shtml)
+- 2026-06-29 20:56 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/289506.shtml)
+- 2026-06-29 20:51 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/17153.shtml)
+- 2026-06-29 20:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/33842935.shtml)
+- 2026-06-29 21:05 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/23656442.shtml)
+- 2026-06-29 21:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/05472.shtml)
+- 2026-06-29 21:08 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/748171792932.shtml)
+- 2026-06-29 20:49 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/058258595.shtml)
+- 2026-06-29 21:01 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/8046958.shtml)
+- 2026-06-29 21:16 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/12335.shtml)

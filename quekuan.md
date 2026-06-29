@@ -1,54 +1,55 @@
-# 第10届南博会：迪庆携手马来西亚共启山海文旅新合作
+# 德黑兰表示霍尔木兹海峡开放后 美元回吐伊朗战争以来全部涨幅
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 21:38 来源：中国新闻网 6月15日，正在云南昆明举行的第10届中国—南亚博览会上，云南省迪庆藏族自治州与马来西亚携手打造联合特色展区，融合迪庆“雪山”与马来西亚“碧海”文化意象，搭建跨境文旅交流桥梁，成为本届展会文旅板块亮点。 位于中国西南的迪庆香格里拉地处举世闻名的“三江并流”腹地，自然风光壮美，民族文化多元而独特，是马来西亚游客向往的
+美元抹去了自美伊战争爆发以来的全部涨幅，此前德黑兰宣布霍尔木兹海峡已“完全向商业航运开放”，这进一步削弱了对避险资产的需求。 美元即期指数下跌0.5%，至2月27日以来最低水平，延续此前跌势，因投资者将注意力转向停火以及达成更广泛协议的可能性。周五，伊朗外长阿巴斯·阿拉格齐 在X上表示，在停火剩余期间，商业船只可以通过这一关键航道。 在冲突初期，由于投资者涌向避险资产、油价飙升
 
 ## 正文
 
-发布时间：2026年06月15日 21:38 来源：中国新闻网 6月15日，正在云南昆明举行的第10届中国—南亚博览会上，云南省迪庆藏族自治州与马来西亚携手打造联合特色展区，融合迪庆“雪山”与马来西亚“碧海”文化意象，搭建跨境文旅交流桥梁，成为本届展会文旅板块亮点。
+美元抹去了自美伊战争爆发以来的全部涨幅，此前德黑兰宣布霍尔木兹海峡已“完全向商业航运开放”，这进一步削弱了对避险资产的需求。
 
-位于中国西南的迪庆香格里拉地处举世闻名的“三江并流”腹地，自然风光壮美，民族文化多元而独特，是马来西亚游客向往的人生第一座雪山目的地。
+美元即期指数下跌0.5%，至2月27日以来最低水平，延续此前跌势，因投资者将注意力转向停火以及达成更广泛协议的可能性。
 
-展区融合迪庆高原雪域风情与马来西亚南洋滨海风貌，集中展示梅里雪山、普达措等迪庆优质文旅资源，以及马来西亚南洋海岸文旅资源。
+周五，伊朗外长阿巴斯·阿拉格齐 在X上表示，在停火剩余期间，商业船只可以通过这一关键航道。
 
-现场同步开展藏族歌舞展演、藏香手作、非遗文创展示等沉浸式体验活动，立体呈现两地特色人文魅力。
+在冲突初期，由于投资者涌向避险资产、油价飙升，美元曾走强。
 
-展会期间，两地文旅从业者、旅行商开展精准对接洽谈，围绕文旅资源共享、线路共建、客源互送等领域深入交流。
+然而，随着宣布为期两周的停火以及美伊官员释放出愿意进一步进行和平谈判的信号，能源价格回落，投资者近期已转向其他货币。
 
-此次联展以展会为纽带，打破地域壁垒，推动迪庆特色高原文旅走出国门，深化云南与马来西亚的文旅经贸双向合作。
+周五，在伊朗表示这一关键石油运输通道已向商业船只开放后，美元指数跌势进一步加速。
 
-(白玲） 责任编辑：【李季】
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 21:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 20:52 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:06 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 20:52 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 20:51 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 20:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 21:00 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 20:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 20:44 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 21:05 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 21:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 20:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 21:08 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 21:16 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:04 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 20:52 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 20:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 21:17 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 21:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/3080870.shtml)
-- 2026-06-29 21:01 - [温网](https://www.share.kurohicncr.top/Article/details/6705931384.shtml)
-- 2026-06-29 20:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/02856188816.shtml)
-- 2026-06-29 20:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9630999.shtml)
-- 2026-06-29 21:00 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/81042529531.shtml)
-- 2026-06-29 21:06 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/79964753.shtml)
-- 2026-06-29 20:45 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/593792.shtml)
-- 2026-06-29 21:10 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/79942.shtml)
-- 2026-06-29 20:51 - [东方风云榜](https://www.share.minike.top/Article/details/0489983.shtml)
-- 2026-06-29 21:08 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/193832733040.shtml)
-- 2026-06-29 21:00 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/228446.shtml)
-- 2026-06-29 21:03 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/3218105.shtml)
-- 2026-06-29 21:06 - [流金岁月](http://www.share.kurohicncr.top/Article/details/166947.shtml)
-- 2026-06-29 20:45 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/1932694065.shtml)
-- 2026-06-29 20:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/3199884053.shtml)
+- 2026-06-29 20:50 - [锐评T1零封KC](https://www.share.minike.top/Article/details/113258983764.shtml)
+- 2026-06-29 21:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/257542973.shtml)
+- 2026-06-29 21:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/98051.shtml)
+- 2026-06-29 21:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/9922522957.shtml)
+- 2026-06-29 20:55 - [我们的少年时代2](http://www.blog.minike.top/Article/details/8330211.shtml)
+- 2026-06-29 20:48 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/595735537.shtml)
+- 2026-06-29 21:13 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/41495223.shtml)
+- 2026-06-29 21:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/0464942102.shtml)
+- 2026-06-29 20:48 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/39700023.shtml)
+- 2026-06-29 21:15 - [绘画区你赢了](https://www.blog.minike.top/Article/details/29348824.shtml)
+- 2026-06-29 21:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/1282687214.shtml)
+- 2026-06-29 21:06 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/0940924.shtml)
+- 2026-06-29 21:09 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/71367034.shtml)
+- 2026-06-29 21:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/9800633151.shtml)
+- 2026-06-29 20:56 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/1066702590.shtml)

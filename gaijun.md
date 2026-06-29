@@ -1,60 +1,50 @@
-# 广州大学2026年本科招生7100人 新增低空技术与工程专业
+# 浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月14日电 (记者 许青青)据广州大学14日举行的2026年本科招生新闻媒体通气会，该校今年面向全国27个省(自治区、直辖市)招生，新增黑龙江、浙江、陕西3个招生省份。本科招生计划数7100人，较2025年扩招100人，其中广东省内招生6163人。 全校开设76个本科招生专业，包括理工类专业43个，人文社科类专业23个，艺体类专业10个，理工类专业的比例继续提高，占
+【欧洲专线】浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车 中新社浙江义乌4月17日电 (董易鑫)浙江义乌至俄罗斯莫斯科双枢纽互联班列4月17日从义乌西站正式发车，全程运输时效压缩至15天。 据悉，此次班列依托金华(义乌)中欧班列集结中心、中铁集装箱俄罗斯(莫斯科)中欧班列集结中心两大核心枢纽，由中铁集装箱公司与浙江中欧班列运营平台联合组织开行，旨在打造双向枢纽互联、境内外协同高
 
 ## 正文
 
-中新网广州6月14日电 (记者 许青青)据广州大学14日举行的2026年本科招生新闻媒体通气会，该校今年面向全国27个省(自治区、直辖市)招生，新增黑龙江、浙江、陕西3个招生省份。
+【欧洲专线】浙江义乌至俄罗斯莫斯科双枢纽互联班列正式发车 中新社浙江义乌4月17日电 (董易鑫)浙江义乌至俄罗斯莫斯科双枢纽互联班列4月17日从义乌西站正式发车，全程运输时效压缩至15天。
 
-本科招生计划数7100人，较2025年扩招100人，其中广东省内招生6163人。
+据悉，此次班列依托金华(义乌)中欧班列集结中心、中铁集装箱俄罗斯(莫斯科)中欧班列集结中心两大核心枢纽，由中铁集装箱公司与浙江中欧班列运营平台联合组织开行，旨在打造双向枢纽互联、境内外协同高效的班列运营新模式。
 
-全校开设76个本科招生专业，包括理工类专业43个，人文社科类专业23个，艺体类专业10个，理工类专业的比例继续提高，占招生专业计划数59%。
+浙江中欧班列(义乌—俄罗斯)自2016年首发以来，通道运行持续稳定、运输时效稳步提升，综合服务水平与跨境物流成本竞争力不断增强，更好满足了市场对高效跨境运输的需求。
 
-学校聚焦国家战略与湾区产业急需，重点布局基础学科、前沿交叉学科和新兴战略领域人才培养。
+近年来，浙江中欧班列持续完善运行网络，在俄罗斯莫斯科、德国杜伊斯堡、哈萨克斯坦阿拉木图、乌兹别克斯坦塔什干等地建设海外集散中心，并与27条国际铁路货运线路实现高效联动，逐步形成覆盖50多个国家、160多个城市的国际物流网络，构建起“境内集结、海外分拨”的运行体系。
 
-今年新增新能源材料与器件、低空技术与工程两大热门专业，精准匹配新能源、低空经济两大新兴产业赛道。
-
-同时，学校在遥感科学与技术、电气工程及其自动化、人工智能、建筑环境与能源应用工程、智能建造(港标班)、统计学(创新班)、数学与应用数学(云山拔尖班)、物理学(科学方向)(教师专项)、化学工程与工艺(创新班)等社会紧缺专业，新增招生计划数275个，持续做强优势刚需专业集群。
-
-学校还开设27个微专业与2个辅修专业，拓宽学生跨学科学识视野。
-
-新增了以直通湾区就业为导向的智能建造(港标班)等特色班，以及5个国际联合培养专业。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 21:05 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 20:52 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 21:09 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 20:54 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 20:58 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 21:10 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 20:49 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 20:56 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 21:07 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:06 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 21:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 20:50 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 21:14 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 20:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 20:53 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 21:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 20:57 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 21:01 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 21:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 21:13 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 20:48 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.kurohicncr.top/Article/details/1939056171.shtml)
-- 2026-06-29 21:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/96605833.shtml)
-- 2026-06-29 20:48 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/022160993.shtml)
-- 2026-06-29 21:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/716348465.shtml)
-- 2026-06-29 20:54 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/49470166.shtml)
-- 2026-06-29 21:00 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/73831884.shtml)
-- 2026-06-29 20:46 - [斛珠夫人](http://www.blog.minike.top/Article/details/87599105214.shtml)
-- 2026-06-29 20:46 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/41589113074.shtml)
-- 2026-06-29 20:58 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/68266899.shtml)
-- 2026-06-29 20:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/44908529.shtml)
-- 2026-06-29 20:59 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/00609.shtml)
-- 2026-06-29 20:50 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/023294194090.shtml)
-- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/089384590.shtml)
-- 2026-06-29 21:01 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/911871597729.shtml)
-- 2026-06-29 20:52 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.kurohicncr.top/Article/details/6599020.shtml)
+- 2026-06-29 21:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/070165.shtml)
+- 2026-06-29 21:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/74654260130.shtml)
+- 2026-06-29 21:05 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/74611116013.shtml)
+- 2026-06-29 21:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/3226660.shtml)
+- 2026-06-29 21:00 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/331470307687.shtml)
+- 2026-06-29 20:48 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/873340488765.shtml)
+- 2026-06-29 20:57 - [美人鱼](http://www.share.kurohicncr.top/Article/details/76565.shtml)
+- 2026-06-29 20:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/784403.shtml)
+- 2026-06-29 21:01 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/2608760711.shtml)
+- 2026-06-29 21:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/636897.shtml)
+- 2026-06-29 20:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/37891.shtml)
+- 2026-06-29 20:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/299166.shtml)
+- 2026-06-29 21:07 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/262486589826.shtml)
+- 2026-06-29 21:16 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/0775086.shtml)
+- 2026-06-29 21:06 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/653342319657.shtml)

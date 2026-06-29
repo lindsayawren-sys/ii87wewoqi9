@@ -1,58 +1,56 @@
-# 有毒的“养生烟”：电商宣称养生润肺，神秘厂家难寻
+# 第十五届中国饭店文化节将在横琴和澳门两地举办
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-影子调查｜有毒的“养生烟”：电商热销宣称“养生润肺”，神秘厂家难寻 到底是卷烟？还是保健品？ 宣称不含尼古丁，内含艾草及人参、虫草、藏红花等多种中草药，具有养生保健、祛湿排寒、润肺、清除血管垃圾等多重功效，可作为“香烟平替”的“李时珍1518蕲艾香灸”火了起来，被网友称其为“养生届的新晋黑马”。该产品包装精美，在淘宝、抖音等平台均有销售，且销量不低。 然而，根据其包装信息，由湖
+中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒
 
 ## 正文
 
-影子调查｜有毒的“养生烟”：电商热销宣称“养生润肺”，神秘厂家难寻 到底是卷烟？
+中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。
 
-还是保健品？
+澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。
 
-宣称不含尼古丁，内含艾草及人参、虫草、藏红花等多种中草药，具有养生保健、祛湿排寒、润肺、清除血管垃圾等多重功效，可作为“香烟平替”的“李时珍1518蕲艾香灸”火了起来，被网友称其为“养生届的新晋黑马”。
+据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。
 
-该产品包装精美，在淘宝、抖音等平台均有销售，且销量不低。
+主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒店业发展报告》《2026酒店集团及品牌发展报告》及酒店集团规模TOP50、品牌领跑者TOP100榜单。
 
-然而，根据其包装信息，由湖北中艾农业集团有限公司(下称：中艾公司)出品。
+平行论坛包括首届粤澳饭店业合作发展大会、2026饭店业高质量发展标杆案例分享会、第六届酒店数字化发展论坛、首届休闲度假生态合作大会、第六届饭店工匠节等活动。
 
-生产地址位于湖北省黄冈市蕲春县漕河镇李时珍医药港。
+澳门酒店旅业商会会长张健中表示，澳门在“一国两制”下拥有自由港、单独关税区及广泛的国际联系网络等独特优势，希望借此次活动推动中国内地和澳门旅游酒店业品牌出海协同平台建设；同时借助澳门国际先进酒店管理经验，推动中国饭店业服务标准、绿色标准与国际接轨。
 
-湖北中艾仙草科技有限公司相关负责人则否认生产该产品。
+此外，中国饭店文化节期间，澳门酒店旅业商会将与中国饭店协会共同发布《粤澳饭店产业协作发展三年行动计划》，明确连续三年在琴澳举办中国饭店文化节活动。
 
-襄阳市襄城区市场监督管理局和烟草专卖局接到投诉后介入，“两个月仍没找到生产方”。
+“商会亦将积极发挥自身资源优势，继续致力于探索粤澳酒店、文旅产业在人才培养、标准互认、品牌联动、绿色低碳等领域的合作路径，将国家级高水平活动项目引入并留在横琴，促进琴澳一体化发展。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 20:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 21:00 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 21:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 20:46 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 20:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 21:00 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 21:03 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 21:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 20:53 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 20:56 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 21:00 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 21:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:48 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 21:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 21:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 21:14 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 21:06 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 20:58 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 21:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 20:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/075544207652.shtml)
-- 2026-06-29 20:54 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/201633612.shtml)
-- 2026-06-29 21:07 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/4240920425.shtml)
-- 2026-06-29 21:05 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/793790270.shtml)
-- 2026-06-29 20:57 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/58823268.shtml)
-- 2026-06-29 21:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/5570712.shtml)
-- 2026-06-29 21:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/214563.shtml)
-- 2026-06-29 20:57 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/95606056.shtml)
-- 2026-06-29 21:10 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/54421.shtml)
-- 2026-06-29 20:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/9820817.shtml)
-- 2026-06-29 21:08 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.minike.top/Article/details/95466.shtml)
-- 2026-06-29 20:48 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/147451569.shtml)
-- 2026-06-29 20:56 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/17225.shtml)
-- 2026-06-29 20:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/03360958530.shtml)
-- 2026-06-29 20:57 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/1884640853.shtml)
+- 2026-06-29 21:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/217735412268.shtml)
+- 2026-06-29 21:00 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/977858.shtml)
+- 2026-06-29 20:48 - [流金岁月](https://www.share.kurohicncr.top/Article/details/02961.shtml)
+- 2026-06-29 20:52 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/76090420.shtml)
+- 2026-06-29 21:17 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/47213258163.shtml)
+- 2026-06-29 20:49 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/64637.shtml)
+- 2026-06-29 20:53 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/355397136111.shtml)
+- 2026-06-29 21:09 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/660285.shtml)
+- 2026-06-29 21:03 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/210231359735.shtml)
+- 2026-06-29 21:04 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/714639880726.shtml)
+- 2026-06-29 21:17 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/68334999877.shtml)
+- 2026-06-29 21:14 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/887973399.shtml)
+- 2026-06-29 21:04 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/2556160695.shtml)
+- 2026-06-29 20:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/275060274263.shtml)
+- 2026-06-29 21:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/8353310733.shtml)

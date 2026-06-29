@@ -1,57 +1,59 @@
-# 美国政府结束对达美航空2024年大规模航班中断事件调查，不予处罚
+# 列车紧急寻医广播响起 河南一医学生冲上去救人
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-特朗普政府周一表示，已结束对达美航空2024年7月因全球系统故障引发的“崩溃”事件的调查，且未寻求任何处罚。该事件导致130万乘客的出行计划受阻，并给达美航空造成5亿美元的损失。 在其他主要航空公司能够更快地恢复正常运营后，美国前总统拜登的政府在CrowdStrike计算机软件故障事件发生后对达美航空展开了调查。 美国交通部发言人周一表示，审查结果显示，“达美航空的乘客获得了及
+中新网洛阳4月17日电 (记者 韩章云)“当列车广播紧急寻医的声音响起时，是吴子轩第一时间挺身而出……”4月16日，一封来自中国铁路北京局集团有限公司石家庄客运段的感谢信送达河南省洛阳职业技术学院，以感谢该校基础医学院学生吴子轩在列车上紧急救人的善举。 4月15日6时40分左右，从襄阳至北京西的K474次列车上，一段紧急寻医广播响起。刚刚结束实习、前往北京求职的洛阳职业技术学院
 
 ## 正文
 
-特朗普政府周一表示，已结束对达美航空2024年7月因全球系统故障引发的“崩溃”事件的调查，且未寻求任何处罚。
+中新网洛阳4月17日电 (记者 韩章云)“当列车广播紧急寻医的声音响起时，是吴子轩第一时间挺身而出……”4月16日，一封来自中国铁路北京局集团有限公司石家庄客运段的感谢信送达河南省洛阳职业技术学院，以感谢该校基础医学院学生吴子轩在列车上紧急救人的善举。
 
-该事件导致130万乘客的出行计划受阻，并给达美航空造成5亿美元的损失。
+4月15日6时40分左右，从襄阳至北京西的K474次列车上，一段紧急寻医广播响起。
 
-在其他主要航空公司能够更快地恢复正常运营后，美国前总统拜登的政府在CrowdStrike计算机软件故障事件发生后对达美航空展开了调查。
+刚刚结束实习、前往北京求职的洛阳职业技术学院基础医学院2023级中医专业学生吴子轩，毫不犹豫地冲到12号车厢。
 
-美国交通部发言人周一表示，审查结果显示，“达美航空的乘客获得了及时的退款、充足的行李协助以及针对残疾乘客的适当帮助。
+据他回忆，现场一名中年男性坐在座位上，面色通红、神志不清，情况十分危急。
 
-” 在特朗普上任后，美国交通部一直在着手撤销前总统拜登政府推出的一些航空消费者保护举措，并已撤销了多项处罚。
+凭借所学医学知识，吴子轩迅速对男子进行初步检查，发现其收缩压已高达180mmHg以上，属于高危状态。
 
-达美航空在一份声明中表示，感谢美国交通部认可“我们航空业在这次史无前例的中断事故中所面临的灾难性处境，并驳回了调查，因为我们妥善照顾了乘客，包括提供数百万美元的退款、酒店住宿、餐饮和行李援助。
+因病情影响，男子始终无法清晰表达自身情况。
 
-” 美国交通部表示，其终止调查的决定包括指示达美航空“提供充分的客户服务援助，包括及时告知乘客其有权申请退款。
+“结合当时他的症状，我初步推断他可能有‘三高’病史，为突发高血压急症，急需降压处理。
 
-” 去年12月，美国交通部豁免了美国西南航空公司因2022年12月假日旅行高峰期航班崩溃而被判处的1100万美元罚款，该罚款是双方达成1.4亿美元和解协议的一部分。
+”吴子轩介绍，紧急时刻一名热心乘客提供了降压药。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 21:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 20:44 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 20:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 20:44 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:05 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 21:07 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 20:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 20:47 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 20:45 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 21:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 20:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 21:00 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 21:03 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 21:03 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 21:16 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 21:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:07 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 21:10 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 20:53 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 21:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 21:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 20:53 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/378067.shtml)
-- 2026-06-29 21:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/1018248.shtml)
-- 2026-06-29 20:57 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/8413527402.shtml)
-- 2026-06-29 21:07 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/13776019.shtml)
-- 2026-06-29 20:42 - [沙丘](http://www.blog.kurohicncr.top/Article/details/3871466.shtml)
-- 2026-06-29 20:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/89188.shtml)
-- 2026-06-29 20:51 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/367871387463.shtml)
-- 2026-06-29 20:56 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/83545809019.shtml)
-- 2026-06-29 20:52 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/8086531.shtml)
-- 2026-06-29 20:47 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/850924.shtml)
-- 2026-06-29 20:59 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/9144592122.shtml)
-- 2026-06-29 20:45 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/204188724.shtml)
-- 2026-06-29 20:44 - [天道](http://www.share.minike.top/Article/details/179569638.shtml)
-- 2026-06-29 21:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/578961806.shtml)
-- 2026-06-29 20:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/7034338880.shtml)
+- 2026-06-29 21:10 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/48582.shtml)
+- 2026-06-29 21:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/5056474456.shtml)
+- 2026-06-29 20:54 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/896860.shtml)
+- 2026-06-29 20:57 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/4284400182.shtml)
+- 2026-06-29 20:52 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/2586286.shtml)
+- 2026-06-29 20:58 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/853448.shtml)
+- 2026-06-29 21:05 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/03721798.shtml)
+- 2026-06-29 21:03 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/003936.shtml)
+- 2026-06-29 21:02 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/41999154385.shtml)
+- 2026-06-29 21:15 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/82660031.shtml)
+- 2026-06-29 21:07 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/616321326300.shtml)
+- 2026-06-29 21:10 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/84537751.shtml)
+- 2026-06-29 20:54 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/4952766282.shtml)
+- 2026-06-29 21:11 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/6709830.shtml)
+- 2026-06-29 21:01 - [一见倾心](https://www.blog.minike.top/Article/details/420421158.shtml)

@@ -1,60 +1,55 @@
-# 为文物立档 为历史存证（中国道路中国梦）
+# 云南省2026年跨境电商政策解读和“跨境电商+产业带”推进活动楚雄专场成功举办
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。近代以来山河动荡，一大批非经考古发掘的青铜器非法流失
+近期，云南省商务厅在楚雄州开展以“政策入企”为主题的2026年度跨境电商、市场开拓政策解读，跨境电商雏鹰行动计划和“跨境电商+产业带”推进活动，楚雄州商务局、楚雄州各县(市)商务主管部门、外贸企业、电商企业和商协会等单位代表70余人参加。政策解读会上，省商务厅系统解读了2026年跨境电商支持政策、“云企出海联盟”国际市场开拓政策、“跨境电商+产业带”项目运营政策，通过问题答疑、
 
 ## 正文
 
-人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。
+近期，云南省商务厅在楚雄州开展以“政策入企”为主题的2026年度跨境电商、市场开拓政策解读，跨境电商雏鹰行动计划和“跨境电商+产业带”推进活动，楚雄州商务局、楚雄州各县(市)商务主管部门、外贸企业、电商企业和商协会等单位代表70余人参加。
 
-它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。
+政策解读会上，省商务厅系统解读了2026年跨境电商支持政策、“云企出海联盟”国际市场开拓政策、“跨境电商+产业带”项目运营政策，通过问题答疑、互动交流、举例论证等方式解答企业政策疑虑和困难问题。
 
-“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。
+同时，政策宣讲人员深入云南世纪华宝医药产业开发有限公司、楚雄彝绣智链科技有限公司、姚安县晟锦智慧农业发展有限公司、大姚中诺商贸有限公司等7家企业进行政策和雏鹰行动计划宣讲。
 
-近代以来山河动荡，一大批非经考古发掘的青铜器非法流失，分散在世界各地的博物馆、研究机构、大学、古董行乃至私人收藏中。
+楚雄州彝绣、生物医药、魔芋、冻干果脯、花卉等产业的6家企业初步达成建设独立站、共拓国际市场合作意向。
 
-有的长期陈列，有的深藏库房，只在老旧的图录里留下寥寥数语，成为中华文明悬在海外的“文化乡愁”。
-
-流散海外的中国青铜器，是中华文明不可分割的一部分。
-
-2012年，国家文物局委托北京大学调查流散海外的中国青铜器状况。
-
-说实话，彼时，即使是长期做中国青铜器研究的学者，也说不清楚这个底数。
+下一步，省商务厅将结合扎实开展树立和践行正确政绩观学习教育，继续到各州(市)开展“政策入企”和“跨境电商+产业带”推进活动，从跨境电商产业园区建设、品牌营销、产业带培育、人才培养和海外仓建设等方面全链条助力云南外贸稳进提质。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 20:54 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 21:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 20:55 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 20:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 21:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 21:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 20:58 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 20:44 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 21:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 20:45 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 20:54 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 21:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 21:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 20:51 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 20:52 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 21:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 21:13 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 21:04 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 20:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 21:02 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 21:10 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:05 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 20:55 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 20:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 21:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 21:12 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/905425.shtml)
-- 2026-06-29 20:50 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/38516.shtml)
-- 2026-06-29 21:07 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/12702043.shtml)
-- 2026-06-29 20:55 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/78710781030.shtml)
-- 2026-06-29 20:56 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/622615.shtml)
-- 2026-06-29 20:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/362883.shtml)
-- 2026-06-29 20:54 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/28280600029.shtml)
-- 2026-06-29 20:55 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/80367456630.shtml)
-- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/8751600528.shtml)
-- 2026-06-29 21:11 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/30970222112.shtml)
-- 2026-06-29 21:09 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/8536264031.shtml)
-- 2026-06-29 21:09 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/2466359.shtml)
-- 2026-06-29 21:04 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/0146687.shtml)
-- 2026-06-29 21:01 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/25071.shtml)
-- 2026-06-29 20:50 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/236908.shtml)
+- 2026-06-29 21:10 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/6617632383.shtml)
+- 2026-06-29 20:53 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/607190915851.shtml)
+- 2026-06-29 21:16 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/664238.shtml)
+- 2026-06-29 21:16 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/8977295.shtml)
+- 2026-06-29 20:48 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/337878734684.shtml)
+- 2026-06-29 21:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/388197935104.shtml)
+- 2026-06-29 20:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/6797106.shtml)
+- 2026-06-29 20:49 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/917167.shtml)
+- 2026-06-29 21:03 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/16138696767.shtml)
+- 2026-06-29 20:58 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/272588445.shtml)
+- 2026-06-29 21:16 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/200245.shtml)
+- 2026-06-29 20:56 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/9448302820.shtml)
+- 2026-06-29 21:12 - [爱很美味](https://www.blog.minike.top/Article/details/913819577.shtml)
+- 2026-06-29 20:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/47842.shtml)
+- 2026-06-29 21:12 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/1649059408.shtml)

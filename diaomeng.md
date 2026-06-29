@@ -1,60 +1,46 @@
-# 韩国股市大涨
+# 龙旗科技将派发末期股息每10股5元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社首尔6月15日电 (记者 金旭)受美国与伊朗就第一阶段谅解备忘录内容达成一致消息提振，韩国股市15日大幅上涨，韩国综合股价指数(KOSPI)收涨5.2%，重回8500点大关。 据韩国交易所消息，KOSPI当日高开402.5点，涨幅达4.95%。随后涨幅进一步扩大，收盘报8545.98点，较前一交易日上涨422.36点，涨幅达5.2%。 韩联社报道称，KOSPI开盘后大幅上
+龙旗科技（09611）发布公告，将派发截至2025年12月31日止年度的末期股息每10股5元。责任编辑：卢昱君
 
 ## 正文
 
-中新社首尔6月15日电 (记者 金旭)受美国与伊朗就第一阶段谅解备忘录内容达成一致消息提振，韩国股市15日大幅上涨，韩国综合股价指数(KOSPI)收涨5.2%，重回8500点大关。
+龙旗科技（09611）发布公告，将派发截至2025年12月31日止年度的末期股息每10股5元。
 
-据韩国交易所消息，KOSPI当日高开402.5点，涨幅达4.95%。
-
-随后涨幅进一步扩大，收盘报8545.98点，较前一交易日上涨422.36点，涨幅达5.2%。
-
-韩联社报道称，KOSPI开盘后大幅上涨，韩国证券交易所开盘后6分钟启动“临时停牌”措施。
-
-同时，被称作“韩版纳斯达克”的高斯达克指数(KOSDAQ)当日开盘报1048.19点，较前一交易日上涨19.14点，涨幅达1.86%，收盘报1034.03点，较前一交易日上涨4.98点，涨幅0.48%。
-
-据韩国《亚洲日报》此前报道，上一周韩国股市持续剧烈震荡，暴涨与暴跌交替出现。
-
-有分析认为，美国与伊朗和谈取得明显进展，两国宣布达成停战谅解备忘录，缓解了市场对地缘政治风险的担忧，同时国际油价回落等因素也将增强韩国股市上行动能。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 21:04 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 20:51 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 20:43 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 20:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 20:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:02 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 21:02 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 20:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 21:03 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 21:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 21:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 20:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 21:17 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 20:55 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 21:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 21:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 21:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 20:48 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 20:52 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 20:55 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 21:13 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 20:56 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/539402320.shtml)
-- 2026-06-29 21:04 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/678736188556.shtml)
-- 2026-06-29 21:06 - [急先锋](http://www.blog.minike.top/Article/details/426160.shtml)
-- 2026-06-29 21:05 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/37595.shtml)
-- 2026-06-29 20:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/978493122.shtml)
-- 2026-06-29 21:02 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/53005282.shtml)
-- 2026-06-29 21:04 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/152864163.shtml)
-- 2026-06-29 20:54 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/56050038.shtml)
-- 2026-06-29 20:52 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/81401326292.shtml)
-- 2026-06-29 20:44 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/85449814.shtml)
-- 2026-06-29 20:45 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/246813.shtml)
-- 2026-06-29 20:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/02037046379.shtml)
-- 2026-06-29 20:55 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/1122533953.shtml)
-- 2026-06-29 20:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/774713755324.shtml)
-- 2026-06-29 21:11 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/903728429769.shtml)
+- 2026-06-29 21:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/16208.shtml)
+- 2026-06-29 20:50 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/87995042.shtml)
+- 2026-06-29 21:10 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/80924.shtml)
+- 2026-06-29 21:12 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/68206024156.shtml)
+- 2026-06-29 21:04 - [绘画区你赢了](https://www.share.minike.top/Article/details/37384.shtml)
+- 2026-06-29 21:10 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/78144649.shtml)
+- 2026-06-29 21:10 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/7450740219.shtml)
+- 2026-06-29 20:54 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/145441936.shtml)
+- 2026-06-29 21:05 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/89948400711.shtml)
+- 2026-06-29 20:48 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/36415.shtml)
+- 2026-06-29 20:59 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/03263880851.shtml)
+- 2026-06-29 21:12 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/184998104.shtml)
+- 2026-06-29 20:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/99771330.shtml)
+- 2026-06-29 21:16 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/97000684.shtml)
+- 2026-06-29 21:15 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/5016940859.shtml)

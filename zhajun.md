@@ -1,49 +1,61 @@
-# 日韩股市开盘 韩股开盘上涨1.8%
+# Stellantis与微软签署五年合作协议，全力推进人工智能布局
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-日经225指数上午开盘报69288.91点，跌幅0.04%。韩国综合股价指数（KOSPI）开盘上涨1.8%，至8696.55点。责任编辑：王永生
+Stellantis 与微软周四宣布，双方已达成一项五年战略合作协议，将共同开发人工智能（AI）、网络安全及工程技术能力。这家汽车制造商正加紧追赶以科技为核心的竞争对手。 软件与数据驱动型服务已成为车企长期战略的核心，尤其是在中国车企加速研发各类功能以吸引国内外消费者的背景下。 传统车企往往难以独立攻克软件与技术难题，因此正越来越多地与科技企业合作，借助其专业能力与技术速度实现
 
 ## 正文
 
-日经225指数上午开盘报69288.91点，跌幅0.04%。
+Stellantis 与微软周四宣布，双方已达成一项五年战略合作协议，将共同开发人工智能（AI）、网络安全及工程技术能力。
 
-韩国综合股价指数（KOSPI）开盘上涨1.8%，至8696.55点。
+这家汽车制造商正加紧追赶以科技为核心的竞争对手。
 
-责任编辑：王永生
+软件与数据驱动型服务已成为车企长期战略的核心，尤其是在中国车企加速研发各类功能以吸引国内外消费者的背景下。
+
+传统车企往往难以独立攻克软件与技术难题，因此正越来越多地与科技企业合作，借助其专业能力与技术速度实现突破。
+
+“通过与微软的合作，我们将在全公司范围内加快人工智能布局步伐。
+
+”Stellantis 首席工程与技术官内德・丘里奇在联合声明中表示。
+
+双方并未披露此项合作的财务细节。
+
+Stellantis 此前一直依靠科技合作来支撑其软件战略，并为驾驶者提供更个性化的体验，不过该公司已放弃部分相关项目，目前正聚焦于提升核心汽车销量与产品质量。
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 20:51 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 21:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 20:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 20:59 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 20:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 21:09 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 20:53 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 21:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 21:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 21:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 21:09 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 20:45 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 20:53 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 21:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 21:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 21:08 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 21:11 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 20:49 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 20:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 21:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 20:57 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 20:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 21:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 21:13 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 21:16 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 21:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/9184339.shtml)
-- 2026-06-29 20:51 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/8582897.shtml)
-- 2026-06-29 21:05 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/0245744.shtml)
-- 2026-06-29 20:52 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/63109.shtml)
-- 2026-06-29 20:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/694193782449.shtml)
-- 2026-06-29 21:08 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/648420.shtml)
-- 2026-06-29 21:04 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/7980125.shtml)
-- 2026-06-29 21:03 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/4779767241.shtml)
-- 2026-06-29 20:46 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/355760774433.shtml)
-- 2026-06-29 20:57 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/465130274.shtml)
-- 2026-06-29 20:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/3212156648.shtml)
-- 2026-06-29 21:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/839645.shtml)
-- 2026-06-29 21:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/71749.shtml)
-- 2026-06-29 21:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/2768601.shtml)
-- 2026-06-29 21:11 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/952176065.shtml)
+- 2026-06-29 21:11 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/807290670139.shtml)
+- 2026-06-29 21:00 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/444739855.shtml)
+- 2026-06-29 20:53 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/696395972352.shtml)
+- 2026-06-29 21:17 - [佛得角队长门德斯被控强奸](https://www.blog.minike.top/Article/details/00958068711.shtml)
+- 2026-06-29 20:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/7514470.shtml)
+- 2026-06-29 21:02 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/3954440009.shtml)
+- 2026-06-29 21:11 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/761904720378.shtml)
+- 2026-06-29 20:54 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/438271294.shtml)
+- 2026-06-29 21:13 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/0660246548.shtml)
+- 2026-06-29 21:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/2752217.shtml)
+- 2026-06-29 20:53 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/4224500158.shtml)
+- 2026-06-29 21:15 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/146604571863.shtml)
+- 2026-06-29 21:01 - [第一炉香](https://www.share.minike.top/Article/details/481683107942.shtml)
+- 2026-06-29 21:18 - [起风了](https://www.blog.kurohicncr.top/Article/details/5293274597.shtml)
+- 2026-06-29 21:04 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/43146445201.shtml)

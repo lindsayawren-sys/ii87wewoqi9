@@ -1,59 +1,57 @@
-# 跨越海峡 相向而行（观沧海）
+# 青海省投一季度发电量创历史新高
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-夏日暖风拂过海峡，带来了熟悉的乡音与亲情。第十八届海峡论坛如约而至，延续“扩大民间交流、深化融合发展”主题，两岸各界同胞再次相聚福建，共赴四大板块58项活动的两岸民间交流盛会。 这场海峡两岸规模最大、范围最广、影响最深的民间交流盛会，坚持“民间性、草根性、广泛性”定位。历经十八届，一届届论坛、一场场活动，化作两岸同胞交流交往交心的广阔平台，让两岸同胞厚植情谊、增进福祉，越走越近
+一季度，国家电投集团青海省投电力板块累计完成发电量17.8亿千瓦时，同比翻一番，创历史同期新高，实现首季“开门红”。火电板块持续发力，充分彰显能源保供的责任担当。作为能源保供的“压舱石”，火电累计完成发电量14.5亿千瓦时，供暖65万吉焦，为青海省的能源保供以及新能源消纳发挥了至关重要的作用，有力保障了区域能源的平稳运行。水电板块积极应对挑战、攻坚克难，成功破解了黄丰水电站长达
 
 ## 正文
 
-夏日暖风拂过海峡，带来了熟悉的乡音与亲情。
+一季度，国家电投集团青海省投电力板块累计完成发电量17.8亿千瓦时，同比翻一番，创历史同期新高，实现首季“开门红”。
 
-第十八届海峡论坛如约而至，延续“扩大民间交流、深化融合发展”主题，两岸各界同胞再次相聚福建，共赴四大板块58项活动的两岸民间交流盛会。
+火电板块持续发力，充分彰显能源保供的责任担当。
 
-这场海峡两岸规模最大、范围最广、影响最深的民间交流盛会，坚持“民间性、草根性、广泛性”定位。
+作为能源保供的“压舱石”，火电累计完成发电量14.5亿千瓦时，供暖65万吉焦，为青海省的能源保供以及新能源消纳发挥了至关重要的作用，有力保障了区域能源的平稳运行。
 
-历经十八届，一届届论坛、一场场活动，化作两岸同胞交流交往交心的广阔平台，让两岸同胞厚植情谊、增进福祉，越走越近、越走越亲。
+水电板块积极应对挑战、攻坚克难，成功破解了黄丰水电站长达十年的水位抬升难题。
 
-跨越海峡，话桑梓、叙乡情。
+在来水情况不及预期的条件下，使得电站的水能利用率大幅提升，累计完成发电量3.3亿千瓦时，确保了一季度发电计划能够按期完成。
 
-在本届论坛的“海峡百姓论坛”上，“百谱归宗”仪式让众多两岸同胞为之动容。
+面对电力供需市场总体宽松、新能源消纳压力持续加大、电力现货市场连续运行等复杂多变的外部环境，青海省投压实安全生产责任，深耕设备精细化管理，严控机组非计划停运。
 
-两岸同宗族代表互证族谱、互赠家书，泛黄纸页上，记录的是两岸同胞血脉中共同的根。
+通过量化指标与发挥比较优势，各项生产指标不断向好，经营效益持续提升。
 
-“寻根，是我们刻在骨子里的情分；血脉，是再远也隔不断的牵挂。
+转载自：国家电投官网WETOWN ELECTRIC威腾电气--坚持以“让世界信赖中国电气”为使命，秉承客户至上，创新致远，为善担当的核心价值观，以科技创新为引领，以为客户创造价值为驱动，致力于为新能源、工业制造、电力电网、数据通讯、轨道交通、商业地产等行业和领域的客户提供解决方案与优质服务。
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:44 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 20:42 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 20:47 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 20:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 20:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 21:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 21:06 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 20:49 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 20:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 20:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 21:06 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 21:15 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 20:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 20:49 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 20:54 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 21:12 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 21:10 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 21:09 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 20:53 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:50 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 21:16 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 21:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/68916.shtml)
-- 2026-06-29 21:08 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/82389887.shtml)
-- 2026-06-29 21:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/01694.shtml)
-- 2026-06-29 20:42 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/9757387101.shtml)
-- 2026-06-29 21:09 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/92248945554.shtml)
-- 2026-06-29 20:42 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/68226374.shtml)
-- 2026-06-29 21:06 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/025233082232.shtml)
-- 2026-06-29 20:44 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/92858493.shtml)
-- 2026-06-29 21:03 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/7422640189.shtml)
-- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/685388755296.shtml)
-- 2026-06-29 20:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/94514233.shtml)
-- 2026-06-29 21:00 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/82557480698.shtml)
-- 2026-06-29 20:53 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/755722990788.shtml)
-- 2026-06-29 21:03 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/488733.shtml)
-- 2026-06-29 21:10 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/61816.shtml)
+- 2026-06-29 21:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/925643.shtml)
+- 2026-06-29 20:49 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/92411116773.shtml)
+- 2026-06-29 21:17 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/178921751441.shtml)
+- 2026-06-29 21:07 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/39207815.shtml)
+- 2026-06-29 20:55 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/825015.shtml)
+- 2026-06-29 20:55 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/433813.shtml)
+- 2026-06-29 20:55 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/84040513639.shtml)
+- 2026-06-29 21:07 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/04580.shtml)
+- 2026-06-29 21:17 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/66892530830.shtml)
+- 2026-06-29 21:05 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/402849848.shtml)
+- 2026-06-29 20:59 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/9715629518.shtml)
+- 2026-06-29 20:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/3231759.shtml)
+- 2026-06-29 21:02 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/88514288082.shtml)
+- 2026-06-29 20:56 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/2823972469.shtml)
+- 2026-06-29 20:53 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/167772.shtml)

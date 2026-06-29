@@ -1,56 +1,60 @@
-# 网购竟能借假退货“薅”现金“羊毛”，保险还能扛住吗
+# “成为中国人”风潮助推“中文热”升温 外交部：欢迎更多外国朋友学中文
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。 《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。 每经记者获得的截图显示，一位消费者对在某购物平台购买的已签
+中新网北京4月16日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆16日主持例行记者会。 有记者提问：第17个联合国中文日(4月20日)即将到来，今年的主题是“翰墨和鸣，华章同赋”，联合国总部和全球各国文化机构纷纷举办形式多样的庆祝活动，社交媒体上“成为中国人”风潮助推“中文热”持续升温。发言人对此有何评论？ 郭嘉昆：今年是中文列为联合国官方语言80周年。中国驻外机构与联合
 
 ## 正文
 
-每经记者｜潘婷 “最近收到货的大额商品都去假退货试试，自营店的，什么理由都行。
+中新网北京4月16日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆16日主持例行记者会。
 
-”资深“羊毛党”刘洋(化名)在群里发出一张截图，上面显示已成功获得理赔款100多元。
+有记者提问：第17个联合国中文日(4月20日)即将到来，今年的主题是“翰墨和鸣，华章同赋”，联合国总部和全球各国文化机构纷纷举办形式多样的庆祝活动，社交媒体上“成为中国人”风潮助推“中文热”持续升温。
 
-《每日经济新闻》记者(以下简称每经记者)注意到，上述理赔是由“某某保险”为优质客户提供的服务。
+发言人对此有何评论？
 
-不过也有人表示，假退货并没有真正退款，只显示可以退一张优惠券。
+郭嘉昆：今年是中文列为联合国官方语言80周年。
 
-每经记者获得的截图显示，一位消费者对在某购物平台购买的已签收商品申请退货后，弹出了协商留用商品可以获得退款补贴的选择框，该服务由某保险公司提供。
+中国驻外机构与联合国秘书处在纽约、日内瓦、维也纳等地，举办了一系列精彩纷呈的庆祝活动。
 
-此类保险产品的设计初衷是什么？
+作为世界上最古老的语言之一，中文绵延古今、跨越山海，传承着“和而不同”“和谐共生”的东方智慧，见证了联合国80多年来承载的和平梦想。
 
-目前承保盈利情况如何？
+文字是文明的载体。
 
-对于通过协商留用获得现金的“薅羊毛”行为，业内如何看待？
+每一种文明都是人类社会的共同财富，不可或缺，值得珍惜和共同保护。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 20:47 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 21:09 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 21:08 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 20:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 20:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 21:08 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 20:54 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 20:50 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 20:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 21:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 20:56 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 21:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 21:10 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 20:52 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 20:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 20:49 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 20:50 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 21:01 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:10 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 21:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/3789740.shtml)
-- 2026-06-29 21:07 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/445921.shtml)
-- 2026-06-29 20:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/63956.shtml)
-- 2026-06-29 20:47 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/702250.shtml)
-- 2026-06-29 20:55 - [锐评T1零封KC](http://www.share.minike.top/Article/details/26618.shtml)
-- 2026-06-29 20:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/66163078.shtml)
-- 2026-06-29 20:54 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/7768155.shtml)
-- 2026-06-29 20:53 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/628233.shtml)
-- 2026-06-29 21:11 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/748194321.shtml)
-- 2026-06-29 21:10 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/26990407.shtml)
-- 2026-06-29 21:03 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/611183081.shtml)
-- 2026-06-29 21:01 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/642546447904.shtml)
-- 2026-06-29 20:49 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/657057800.shtml)
-- 2026-06-29 21:04 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/9671920875.shtml)
-- 2026-06-29 20:54 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/2665018813.shtml)
+- 2026-06-29 20:51 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/84147257559.shtml)
+- 2026-06-29 20:50 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/86058889.shtml)
+- 2026-06-29 20:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/9959933649.shtml)
+- 2026-06-29 21:01 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/44176.shtml)
+- 2026-06-29 21:06 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/30486946110.shtml)
+- 2026-06-29 21:14 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/912186202.shtml)
+- 2026-06-29 20:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/14975737.shtml)
+- 2026-06-29 21:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/13286007.shtml)
+- 2026-06-29 20:48 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/14021008.shtml)
+- 2026-06-29 21:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/90803401.shtml)
+- 2026-06-29 20:57 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/128245660.shtml)
+- 2026-06-29 20:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/399679708.shtml)
+- 2026-06-29 20:49 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/98817118.shtml)
+- 2026-06-29 21:11 - [乔家的儿女](http://www.share.minike.top/Article/details/92621896.shtml)
+- 2026-06-29 20:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/90579851.shtml)

@@ -1,45 +1,57 @@
-# 北京：积极对接入境游 带动外国游客新消费
+# 纽约联储行长称不确定性阻碍提供利率指引 料长期仍将降息
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 11:01 来源：央视新闻 责任编辑：【王祎】
+纽约联储行长威廉姆斯表示，高度的不确定性应该阻止政策制定者对未来利率路径给出任何明确的指引，尽管他预计长期仍将会降息。 “鉴于每天、每周都有各种变化，我们试图给出明确的指引并不合理，”威廉姆斯周四在纽约一场活动间隙对记者表示。但他补充称，一旦通胀开始回落，将有空间下调利率，以确保货币政策仅保持适度限制。 他说：“随着通胀回落至2%，我们需要降低名义利率，以避免实际利率被动上升。
 
 ## 正文
 
-发布时间：2026年06月15日 11:01 来源：央视新闻 责任编辑：【王祎】
+纽约联储行长威廉姆斯表示，高度的不确定性应该阻止政策制定者对未来利率路径给出任何明确的指引，尽管他预计长期仍将会降息。
+
+“鉴于每天、每周都有各种变化，我们试图给出明确的指引并不合理，”威廉姆斯周四在纽约一场活动间隙对记者表示。
+
+但他补充称，一旦通胀开始回落，将有空间下调利率，以确保货币政策仅保持适度限制。
+
+他说：“随着通胀回落至2%，我们需要降低名义利率，以避免实际利率被动上升。
+
+” 他在对记者发表上述讲话前在演讲中表示，短期内货币政策仍处于有利位置，可以应对由战争引发的长期供应冲击的威胁。
+
+他表示，如果能源供应中断很快缓解，这场冲突带来的影响可能会在今年部分逆转。
+
+但如果危机持续时间更长，影响可能会更加严重。
+
+“这场冲突还可能造成一次重大供应冲击，产生显著影响，在推高通胀——通过中间成本和大宗商品价格飙升——的同时抑制经济活动，”威廉姆斯说。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 21:08 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 21:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 20:49 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 21:01 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 20:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 20:46 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 20:43 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 20:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:11 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 20:57 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 20:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:45 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 20:51 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 21:06 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 21:12 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 20:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 20:59 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 20:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 21:01 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 21:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 20:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 20:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/833478.shtml)
-- 2026-06-29 20:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/956834561.shtml)
-- 2026-06-29 21:06 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/1436369025.shtml)
-- 2026-06-29 20:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/16593558.shtml)
-- 2026-06-29 20:47 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/6356354.shtml)
-- 2026-06-29 20:51 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/22568996.shtml)
-- 2026-06-29 20:58 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/95816688.shtml)
-- 2026-06-29 21:10 - [第一炉香](https://www.blog.minike.top/Article/details/128199334.shtml)
-- 2026-06-29 21:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/291194221851.shtml)
-- 2026-06-29 20:49 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/1136800734.shtml)
-- 2026-06-29 20:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/3920825856.shtml)
-- 2026-06-29 20:51 - [教育部高校学生资助热线7月1日开通](https://www.blog.minike.top/Article/details/625443.shtml)
-- 2026-06-29 20:44 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/66656306.shtml)
-- 2026-06-29 21:10 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/3251603055.shtml)
-- 2026-06-29 21:09 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/457724140.shtml)
+- 2026-06-29 20:53 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/272652618834.shtml)
+- 2026-06-29 20:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/78239713.shtml)
+- 2026-06-29 21:05 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/42173.shtml)
+- 2026-06-29 20:57 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/77249912.shtml)
+- 2026-06-29 20:55 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/719074943.shtml)
+- 2026-06-29 21:13 - [斗破苍穹](http://www.share.minike.top/Article/details/936487.shtml)
+- 2026-06-29 21:17 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/870063.shtml)
+- 2026-06-29 21:02 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/484926849.shtml)
+- 2026-06-29 21:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/81643867.shtml)
+- 2026-06-29 21:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/284987.shtml)
+- 2026-06-29 21:15 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/47725229923.shtml)
+- 2026-06-29 20:49 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/84133757.shtml)
+- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/550883217947.shtml)
+- 2026-06-29 21:01 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/17966832981.shtml)
+- 2026-06-29 20:53 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/140807841496.shtml)

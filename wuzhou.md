@@ -1,57 +1,57 @@
-# 长春54年老牌赛事“春城杯”足球超级联赛开幕
+# 广东江门：警企联动 为柑园低空作业系上“安全缰绳”
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网长春6月14日电 (谭伟旗 金乔)14日，“春城杯”2026年长春市足球超级联赛正式开赛。这项拥有54年历史的老牌赛事全新升级，为“北国春城”点燃火热的足球氛围。 本届联赛由长春市人民政府主办，长春市体育局统筹牵头，各县(市)区政府、开发区管委会联合长春市教育局、长春市总工会等单位共同承办，搭建起“政府主导、部门协同、社会参与”的赛事组织体系。 “春城杯”始创于1972年
+中新网江门4月16日电 (郭军 王忠豪)时下，在广东侨乡江门新会，14.3万亩陈皮柑园正值挂花飘香的黄金时节。在这片孕育出超260亿元全产业链产值的“中国陈皮之乡”，农用无人机往来穿梭，为柑树精准喷洒、高效植保，绘就了一幅现代农业的繁忙图景。 然而，当科技的速度邂逅钢铁动脉的威严，一道新的“安全课题”随之浮现。每当无人机在铁路沿线的柑林上空呼啸而过，铁路民警的心随之悬紧：头顶是
 
 ## 正文
 
-中新网长春6月14日电 (谭伟旗 金乔)14日，“春城杯”2026年长春市足球超级联赛正式开赛。
+中新网江门4月16日电 (郭军 王忠豪)时下，在广东侨乡江门新会，14.3万亩陈皮柑园正值挂花飘香的黄金时节。
 
-这项拥有54年历史的老牌赛事全新升级，为“北国春城”点燃火热的足球氛围。
+在这片孕育出超260亿元全产业链产值的“中国陈皮之乡”，农用无人机往来穿梭，为柑树精准喷洒、高效植保，绘就了一幅现代农业的繁忙图景。
 
-本届联赛由长春市人民政府主办，长春市体育局统筹牵头，各县(市)区政府、开发区管委会联合长春市教育局、长春市总工会等单位共同承办，搭建起“政府主导、部门协同、社会参与”的赛事组织体系。
+然而，当科技的速度邂逅钢铁动脉的威严，一道新的“安全课题”随之浮现。
 
-“春城杯”始创于1972年，承载着几代人的绿茵情怀，也见证了当地社会足球从起步到繁荣的发展历程。
+每当无人机在铁路沿线的柑林上空呼啸而过，铁路民警的心随之悬紧：头顶是2.75万伏的高压接触网，脚下是飞驰的高铁钢铁巨龙，一旦无人机失控或误入禁飞区，轻则引发列车紧急制动，重则车毁人亡。
 
-今年赛事通过优化办赛架构、更新竞赛赛制、扩充参赛队伍等方式，让经典赛事焕发新活力。
+面对上千户种柑人手中的“喷药施肥神器”，单靠事后巡查处罚难以从根本上遏制，广州铁路公安处江门北站派出所民警意识到：唯有将安全理念植入每一次无人机的“起飞前”，方能从源头上筑牢铁路安全防线。
 
-开幕式现场，2027长春大冬会吉祥物“吉冰”“吉雪”登场，并为联赛开球，活泼可爱的形象瞬间点燃全场热情。
+为此，江门北站派出所主动将宣防工作的阵地前移，专程走访位于新会区双水镇的江门市星光农业科技服务有限公司——江门、中山、珠海大疆农用无人机授权经销商，积极探索警企协作共治。
 
-揭幕战由双阳区队迎战南关区队。
+当得知该企业每月开展2场农业无人驾驶航空器培训考核，依托企业精准触达无人机操作手的渠道优势，民警主张将“铁路安全飞行课”纳入了无人机驾驶证培训考核中的必修环节。
 
-90分钟的比赛里，双方球员全力拼抢，攻防转换节奏紧凑。
+2025年7月起，20余场次别开生面的“铁路安全警示课”在警企携手下拉开帷幕。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 20:49 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 20:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 20:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 20:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 20:55 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 20:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 20:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 20:47 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 21:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 21:13 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 20:51 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 21:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 21:04 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 20:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 20:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 20:57 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 21:04 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 21:03 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 20:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 21:03 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/42493012.shtml)
-- 2026-06-29 21:01 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/9829247560.shtml)
-- 2026-06-29 20:43 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/10283.shtml)
-- 2026-06-29 20:53 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/622960.shtml)
-- 2026-06-29 20:53 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.kurohicncr.top/Article/details/8914148827.shtml)
-- 2026-06-29 20:53 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/215088055.shtml)
-- 2026-06-29 20:45 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/97066383153.shtml)
-- 2026-06-29 20:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/6607956802.shtml)
-- 2026-06-29 20:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/7428513422.shtml)
-- 2026-06-29 20:46 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/0178857.shtml)
-- 2026-06-29 20:58 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/9170786.shtml)
-- 2026-06-29 20:44 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/082269152758.shtml)
-- 2026-06-29 20:56 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/453400710.shtml)
-- 2026-06-29 21:03 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/35375970795.shtml)
-- 2026-06-29 20:49 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/6325610511.shtml)
+- 2026-06-29 20:53 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/9833924.shtml)
+- 2026-06-29 21:17 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/0042042.shtml)
+- 2026-06-29 21:02 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/80703.shtml)
+- 2026-06-29 21:08 - [第一炉香](https://www.share.minike.top/Article/details/29345069.shtml)
+- 2026-06-29 21:13 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/99220638635.shtml)
+- 2026-06-29 20:57 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/09581.shtml)
+- 2026-06-29 21:03 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/48210116833.shtml)
+- 2026-06-29 20:52 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/305137470.shtml)
+- 2026-06-29 21:05 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/446450901.shtml)
+- 2026-06-29 21:06 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/24222821.shtml)
+- 2026-06-29 21:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/745347205.shtml)
+- 2026-06-29 21:02 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/562535561163.shtml)
+- 2026-06-29 20:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/81963803.shtml)
+- 2026-06-29 21:04 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/094743.shtml)
+- 2026-06-29 21:11 - [高质量发展看新疆](https://www.share.minike.top/Article/details/914767.shtml)

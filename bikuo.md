@@ -1,61 +1,57 @@
-# 【习声回响】做好盐碱地特色农业这篇大文章
+# 中老铁路一季度进出口货值达68.1亿元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-“三夏”时节，机声隆隆，河北省沧州市黄骅市旧城镇仙庄片区旱碱麦田抢收忙。当地村民张杰随手搓开一穗麦子，麦粒滚落掌心。“看，今年这麦子颗粒饱满，又是个丰收年。我们这里的盐碱地原先一亩地只能收二百来斤小麦，现在亩产600斤左右，最高能收七八百斤，搁以前想都不敢想！”张杰高兴地告诉记者。 2023年5月11日，习近平总书记在黄骅市旧城镇仙庄片区旱碱地麦田考察时，同种植户、农技专家亲切
+据昆明海关所属勐腊海关统计，截至四月七号，中老铁路通车以来，进出口货值超800亿元，进出口商品品类从500多种增至3800多种运输服务，覆盖全国超6000家企业，辐射老挝、泰国等19个国家和地区。今年一季度中，中老铁路进出口货值达68.1亿元，同比增长百分之62.7%，创历年同期新高。进口方面，干鲜瓜果增长一倍，榴莲成亮点，磨憨铁路口岸跃居全国最大榴莲进口铁路口岸。出口新三样产
 
 ## 正文
 
-“三夏”时节，机声隆隆，河北省沧州市黄骅市旧城镇仙庄片区旱碱麦田抢收忙。
+据昆明海关所属勐腊海关统计，截至四月七号，中老铁路通车以来，进出口货值超800亿元，进出口商品品类从500多种增至3800多种运输服务，覆盖全国超6000家企业，辐射老挝、泰国等19个国家和地区。
 
-当地村民张杰随手搓开一穗麦子，麦粒滚落掌心。
+今年一季度中，中老铁路进出口货值达68.1亿元，同比增长百分之62.7%，创历年同期新高。
 
-“看，今年这麦子颗粒饱满，又是个丰收年。
+进口方面，干鲜瓜果增长一倍，榴莲成亮点，磨憨铁路口岸跃居全国最大榴莲进口铁路口岸。
 
-我们这里的盐碱地原先一亩地只能收二百来斤小麦，现在亩产600斤左右，最高能收七八百斤，搁以前想都不敢想！
+出口新三样产品激增10.4倍，其中光伏产品增长43.2倍。
 
-”张杰高兴地告诉记者。
+依托中老铁路开展跨境贸易的企业中，民营企业占比超八成，越来越多市场主体共享中老铁路对外开放红利。
 
-2023年5月11日，习近平总书记在黄骅市旧城镇仙庄片区旱碱地麦田考察时，同种植户、农技专家亲切交流。
-
-总书记指出，要立足我国盐碱地多、开发潜力大的实际，发挥科技创新的关键作用，加大盐碱地改造提升力度，加强适宜盐碱地作物品种开发推广，有效拓展适宜作物播种面积，积极发展深加工，做好盐碱地特色农业这篇大文章。
-
-河北是全国盐碱地面积较大省份之一，沧州属于滨海盐碱地的典型区域。
+今年以来，昆明海关推出优化口岸营商环境，促进跨境贸易便利化十六条具体措施，推动实施畅通丝绸之路等服务高水平对外开放，推动云南外贸高质量发展八大行动，深入实施“铁路快通”“先放后检”等监管模式改革，全力保障澜湄快线、“中老铁路+中欧班列”、国际货运班列高效运行。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 20:47 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 20:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 20:55 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 20:56 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 20:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 20:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 20:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 20:50 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 21:05 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 20:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 20:53 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 20:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 21:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 21:07 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 20:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 20:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 20:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 20:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 21:09 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:59 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 21:05 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 20:57 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 21:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 21:17 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 21:06 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 20:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 21:00 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/0569290.shtml)
-- 2026-06-29 21:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/63230209.shtml)
-- 2026-06-29 20:58 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/470356.shtml)
-- 2026-06-29 21:10 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/5794948008.shtml)
-- 2026-06-29 21:00 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/25824451878.shtml)
-- 2026-06-29 20:45 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/531343440.shtml)
-- 2026-06-29 20:43 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/36416450.shtml)
-- 2026-06-29 20:57 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/524768669102.shtml)
-- 2026-06-29 21:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/8976518138.shtml)
-- 2026-06-29 20:51 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/84412.shtml)
-- 2026-06-29 20:54 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/681146531516.shtml)
-- 2026-06-29 21:10 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/33158532300.shtml)
-- 2026-06-29 20:46 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9188572572.shtml)
-- 2026-06-29 21:08 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/870558419.shtml)
-- 2026-06-29 21:11 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/46742158065.shtml)
+- 2026-06-29 21:05 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/20116794581.shtml)
+- 2026-06-29 20:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/0121084201.shtml)
+- 2026-06-29 20:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/47441112464.shtml)
+- 2026-06-29 20:56 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/56527.shtml)
+- 2026-06-29 21:15 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/75642.shtml)
+- 2026-06-29 21:02 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/779184.shtml)
+- 2026-06-29 21:06 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/160509.shtml)
+- 2026-06-29 20:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/24372.shtml)
+- 2026-06-29 21:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/869436341867.shtml)
+- 2026-06-29 20:59 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/1096195.shtml)
+- 2026-06-29 20:58 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/328571222847.shtml)
+- 2026-06-29 21:10 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/5777201600.shtml)
+- 2026-06-29 20:49 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/33337.shtml)
+- 2026-06-29 21:11 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/64892.shtml)
+- 2026-06-29 21:08 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/730952901.shtml)

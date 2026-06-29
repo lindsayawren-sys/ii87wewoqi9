@@ -1,56 +1,58 @@
-# 各地端午民俗活动轮番上演打造消费“盛宴” “文体旅”融合成为新亮点
+# 海西新药午前涨超4% HXP056有望成为全球首款治疗视网膜疾病的口服药物
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。 龙舟竞渡是活动的重头戏。在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。队员们奋臂挥桨，动作整齐划一、向前飞驰。 此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17
+海西新药（02637）早盘涨超4%，截至发稿，股价上涨4.12%，现报197.20港元，成交额4004.77万港元。 海西新药此前发布公告，公司创新药物项目HXP056，即有望成为全球首款针对出血性视网膜疾病的口服药物，目前已完成一期临床试验中单次给药剂量递增（SAD）与多次给药剂量递增（MAD）阶段的所有患者招募工作。HXP056预期能克服多个技术难题，既实现BRB穿透以抵达
 
 ## 正文
 
-央视网消息：端午将至，13日，在浙江湖州市南浔区民当村，一场端午民俗文化活动开幕，上万名游客齐聚于此，观看龙舟竞渡，体验端午民俗。
+海西新药（02637）早盘涨超4%，截至发稿，股价上涨4.12%，现报197.20港元，成交额4004.77万港元。
 
-龙舟竞渡是活动的重头戏。
+海西新药此前发布公告，公司创新药物项目HXP056，即有望成为全球首款针对出血性视网膜疾病的口服药物，目前已完成一期临床试验中单次给药剂量递增（SAD）与多次给药剂量递增（MAD）阶段的所有患者招募工作。
 
-在民当村新港河道上，来自和孚镇、八里店镇、道场乡等地的6支龙舟队开展竞渡。
+HXP056预期能克服多个技术难题，既实现BRB穿透以抵达视网膜病变部位，同时优化系统暴露以确保患者安全。
 
-队员们奋臂挥桨，动作整齐划一、向前飞驰。
+HXP056有望成为全球首款治疗视网膜疾病的口服药物，这不仅代表重大技术突破，更蕴含爆发性的全球市场潜力。
 
-此外，“潞荻市集”同样人头攒动，作为“潞村—荻港片区”首次举办的大型民俗活动，本次盛会汇聚了湖州两区三镇17村的特色资源，现场设置了绿色养生、文创村礼、乡村旅游等五大市集板块，还以端午民俗体验为主线，设置了趣味游戏及风俗展示活动，吸引村民游客打卡体验、休闲逛游。
+华福证券表示，wAMD口服药物开发难度大，伏罗尼布II期临床失败，II期实验显示口服药物可以实现抗VEGF注射次数的剂量依赖性减少，但肝毒性问题较为突出，患者治疗中的风险获益比不足。
 
-潞村的钱山漾遗址被誉为“世界丝绸之源”，荻港村拥有全球重要农业文化遗产——桑基鱼塘系统，今年，湖州市谋划了“潞村—荻港”跨区域片区组团发展的蓝图。
+该行指出，临床前数据显示，海西新药HXP056显著抑制眼底渗漏，I期临床试验的wAMD初治或经治患者中均可观察到眼底形态与视网膜功能有初步改善，II期已于25Q4开展，若后续成功上市则有望改写wAMD治疗格局。
 
-湖州市委宣传部副部长钱振宇介绍，今年在民当村的活动，集聚了片区里3个乡镇17个村的文化资源以及旅游资源，通过“潞荻集市”把这些资源展示出来。
-
-一方面，主要考虑让民俗文化活动能进一步得到振兴。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 20:47 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:05 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 21:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 20:46 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 20:52 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 21:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 20:43 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 20:50 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 21:00 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 20:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 20:50 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 21:00 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 21:08 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 20:53 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 20:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 20:55 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 20:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 21:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 20:56 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 20:49 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 21:11 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 20:53 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 20:55 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [炽夏](http://www.blog.minike.top/Article/details/80248769873.shtml)
-- 2026-06-29 20:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/5215947442.shtml)
-- 2026-06-29 21:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/982610046.shtml)
-- 2026-06-29 20:42 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/21108699.shtml)
-- 2026-06-29 20:45 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/540287.shtml)
-- 2026-06-29 21:07 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/65177.shtml)
-- 2026-06-29 20:55 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/239808546062.shtml)
-- 2026-06-29 21:02 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/68513142.shtml)
-- 2026-06-29 21:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/248177.shtml)
-- 2026-06-29 21:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/47616286175.shtml)
-- 2026-06-29 21:10 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/519776.shtml)
-- 2026-06-29 20:49 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/645708994.shtml)
-- 2026-06-29 20:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/89362455484.shtml)
-- 2026-06-29 21:04 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/64299399.shtml)
-- 2026-06-29 20:51 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/785896280650.shtml)
+- 2026-06-29 20:49 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/83960585256.shtml)
+- 2026-06-29 20:54 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/92110746.shtml)
+- 2026-06-29 20:55 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/80263937076.shtml)
+- 2026-06-29 21:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/254955266.shtml)
+- 2026-06-29 20:48 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/3364427539.shtml)
+- 2026-06-29 21:00 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/97099.shtml)
+- 2026-06-29 21:06 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/63700.shtml)
+- 2026-06-29 21:15 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/21388980.shtml)
+- 2026-06-29 20:52 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/075407690847.shtml)
+- 2026-06-29 21:02 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/6526846494.shtml)
+- 2026-06-29 20:57 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/90961213343.shtml)
+- 2026-06-29 20:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/14139128315.shtml)
+- 2026-06-29 21:08 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/1456395.shtml)
+- 2026-06-29 21:00 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/349131922.shtml)
+- 2026-06-29 20:54 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/8263131108.shtml)

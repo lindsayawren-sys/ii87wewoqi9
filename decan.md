@@ -1,55 +1,56 @@
-# 英矽智能获纳入中证指数系列
+# 香港青少年探馆消博会：遇见全球精品，点赞前沿科技
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-英矽智能（03696）公布，英矽智能获纳入中证指数系列，包括中证港股通创新药指数（代码：931250）、中证香港创新药指数（代码：931787） 及中证港股通医药卫生综合指数（代码：930965）。此次纳入于2026年6月15日（星期一）起生效。 自在香港联合交易所有限公司上市以来，英矽智能在获得中证指数系列认可之前，已陆续被纳入数个主要指数系列，即恒生综合指数、恒生医疗保健指
+中新网海口4月16日电(记者 符宇群)“消博会上的精品非常多，让人眼花缭乱，我非常想探知每位观众满满的手提包里都装着什么好物。”首次走进消博会的香港青少年石旭嘉受访时表示，第六届中国国际消费品博览会(简称“消博会”)就像一个连接世界的窗口，让大家看到中国对外开放的成果，也看到了国家发展的广阔平台。 由海南省政府港澳事务办公室主办、海南港澳青年创新创业服务中心承办的2026年港澳
 
 ## 正文
 
-英矽智能（03696）公布，英矽智能获纳入中证指数系列，包括中证港股通创新药指数（代码：931250）、中证香港创新药指数（代码：931787） 及中证港股通医药卫生综合指数（代码：930965）。
+中新网海口4月16日电(记者 符宇群)“消博会上的精品非常多，让人眼花缭乱，我非常想探知每位观众满满的手提包里都装着什么好物。
 
-此次纳入于2026年6月15日（星期一）起生效。
+”首次走进消博会的香港青少年石旭嘉受访时表示，第六届中国国际消费品博览会(简称“消博会”)就像一个连接世界的窗口，让大家看到中国对外开放的成果，也看到了国家发展的广阔平台。
 
-自在香港联合交易所有限公司上市以来，英矽智能在获得中证指数系列认可之前，已陆续被纳入数个主要指数系列，即恒生综合指数、恒生医疗保健指数、恒生生物科技指数、富时全球小盘股指数、富时全球全市值指数及富时全球总盘指数。
+由海南省政府港澳事务办公室主办、海南港澳青年创新创业服务中心承办的2026年港澳青年体验官暨青少年志愿者交流项目14日在海口启动，来自深圳香港培侨书院龙华信义学校、香港科技大学、深圳大学的30余名香港青少年，首站走进消博会，在60多个国家和地区超过3400个品牌构筑的消费盛宴中，沉浸式感受全球精品魅力与前沿科技活力，见证国家开放发展的蓬勃气象。
 
-董事会认为，公司获纳入上述指数系列，反映了市场对其稳健基本面、技术能力及发展潜力的认可。
+前沿科技展区成为香港青少年的“打卡热点”。
 
-此等纳入预期将提升公司在国际机构投资者和研究分析师中的知名度，吸引追踪相关指数的被动基金资金流入，使股东基础更加多元化，并提高其股份的交易流动性。
+15岁的彭怡可在国货精品展区里近距离观察仿生鱼，眼神里满是惊喜。
 
-责任编辑：卢昱君
+“我以为是一条真的鱼在游！
+
+以前我对AI科技的应用还停留在算法数据分析的印象里，没想到国内的AI科技已经可以活灵活现地应用到生物多样性中。
+
+”彭怡可说，展会上的科技产品不仅智能还很实用，更让他看到未来生活的样子。
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 20:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 20:44 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 20:48 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 20:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 20:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 20:43 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 20:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 21:09 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 21:02 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 21:00 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 20:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 21:11 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 21:05 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 20:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 21:15 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:10 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 21:09 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 21:02 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 21:13 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 20:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/33291.shtml)
-- 2026-06-29 21:08 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/84713099.shtml)
-- 2026-06-29 21:06 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/54700853.shtml)
-- 2026-06-29 20:59 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/20544401.shtml)
-- 2026-06-29 21:05 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/893663382.shtml)
-- 2026-06-29 20:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/642074.shtml)
-- 2026-06-29 20:56 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/095500.shtml)
-- 2026-06-29 20:42 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/95495645.shtml)
-- 2026-06-29 21:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/0825438.shtml)
-- 2026-06-29 21:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/304459.shtml)
-- 2026-06-29 21:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/76654258033.shtml)
-- 2026-06-29 20:52 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/049799817.shtml)
-- 2026-06-29 21:10 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/603234.shtml)
-- 2026-06-29 20:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/58762196778.shtml)
-- 2026-06-29 20:42 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/86733262.shtml)
+- 2026-06-29 21:08 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/58761372152.shtml)
+- 2026-06-29 20:53 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/243610524135.shtml)
+- 2026-06-29 21:17 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/696601.shtml)
+- 2026-06-29 21:02 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/21646459883.shtml)
+- 2026-06-29 21:08 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/082167652.shtml)
+- 2026-06-29 21:02 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/108770650633.shtml)
+- 2026-06-29 20:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/704299434.shtml)
+- 2026-06-29 20:50 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/582173.shtml)
+- 2026-06-29 20:51 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.kurohicncr.top/Article/details/7214323120.shtml)
+- 2026-06-29 21:00 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/315655128.shtml)
+- 2026-06-29 20:51 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/86795561.shtml)
+- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/066158809.shtml)
+- 2026-06-29 21:06 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/253147.shtml)
+- 2026-06-29 21:10 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/5150489642.shtml)
+- 2026-06-29 20:59 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/6499563789.shtml)

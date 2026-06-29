@@ -1,61 +1,52 @@
-# （活力中国调研行）跨界人才聚力未来产业 北京创新创业活力持续释放
+# 共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月14日电 题：跨界人才聚力未来产业 北京创新创业活力持续释放 中新社记者 杜燕 李梦 贾天勇 人工智能快速发展，机器人进入工厂、仓库和商场，大模型成为创业者的新工具。一批既懂技术、又懂产业，还能推动成果落地的复合型人才也正在北京涌现。 在北京银河通用机器人有限公司展厅里，人形机器人熟练地从货架上抓取商品；在北京星动纪元科技有限公司测试区，智能机器人正在模拟快递分拣
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
 
 ## 正文
 
-中新社北京6月14日电 题：跨界人才聚力未来产业 北京创新创业活力持续释放 中新社记者 杜燕 李梦 贾天勇 人工智能快速发展，机器人进入工厂、仓库和商场，大模型成为创业者的新工具。
+4月17日，市场监管总局依法对上海寻梦信息技术有限公司(拼多多)、北京三快科技有限公司(美团)、北京京东叁佰陆拾度电子商务有限公司(京东)、上海拉扎斯信息科技有限公司(原饿了么，现淘宝闪购)、北京抖音科技有限公司(抖音)、浙江淘宝网络有限公司(淘宝)、浙江天猫网络有限公司(天猫)等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
 
-一批既懂技术、又懂产业，还能推动成果落地的复合型人才也正在北京涌现。
+同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
 
-在北京银河通用机器人有限公司展厅里，人形机器人熟练地从货架上抓取商品；在北京星动纪元科技有限公司测试区，智能机器人正在模拟快递分拣作业。
+经查，上述7家电商平台对入网食品经营者许可证审核把关不严，未依法履行资质审查义务；与转单平台签订合作协议，明知或应知转单行为侵害消费者合法权益，但未采取必要措施；7家电商平台法定代表人和食品安全总监，负有食品安全管理责任，但未全面履行有关岗位职责。
 
-具身智能技术正加速走向真实场景。
+上述行为严重违反《中华人民共和国食品安全法》《中华人民共和国电子商务法》《中华人民共和国食品安全法实施条例》有关规定。
 
-“我们不是在实验室里做机器人，而是在真实快递场景里打磨产品。
+案件启动调查后，市场监管总局第一时间责成电商平台立行立改，7家电商平台均已下架未经审核的有关“幽灵店铺”，停止与相关转单平台的餐饮转单合作。
 
-”星动纪元联合创始人席悦近日在北京受访时表示，研发机器人不仅需要掌握人工智能技术和大模型能力，还要理解物流、制造、零售等行业运行规律，知道用户真正需要解决什么问题。
-
-机器人走进真实场景，对人才培养模式也提出新挑战。
-
-在北京中关村学院，学生不仅接触前沿科研课题，也参与产业实践和创新创业探索。
+(总台央视记者 王婧 汪君）
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 20:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 20:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 21:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 20:45 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 21:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 20:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 20:58 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 20:50 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 21:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 20:52 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 20:46 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 20:42 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 20:45 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 21:05 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 21:01 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 21:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 20:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 20:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 20:51 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 21:11 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 21:13 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 21:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 21:17 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:17 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/257320825443.shtml)
-- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/568010.shtml)
-- 2026-06-29 20:54 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/941270.shtml)
-- 2026-06-29 20:58 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/450084.shtml)
-- 2026-06-29 20:48 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/1442110023.shtml)
-- 2026-06-29 21:02 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/528594090541.shtml)
-- 2026-06-29 20:55 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/73962869.shtml)
-- 2026-06-29 20:44 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/8535848206.shtml)
-- 2026-06-29 20:59 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/345034418.shtml)
-- 2026-06-29 20:59 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/806900.shtml)
-- 2026-06-29 20:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/81772440.shtml)
-- 2026-06-29 21:02 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0902815730.shtml)
-- 2026-06-29 20:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/09867.shtml)
-- 2026-06-29 20:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/9504274.shtml)
-- 2026-06-29 20:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/4856551295.shtml)
+- 2026-06-29 21:12 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/187448639.shtml)
+- 2026-06-29 21:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/573025844.shtml)
+- 2026-06-29 20:52 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/3635523.shtml)
+- 2026-06-29 21:08 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/783200.shtml)
+- 2026-06-29 21:13 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/5984895.shtml)
+- 2026-06-29 20:53 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/912816.shtml)
+- 2026-06-29 20:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/775264623307.shtml)
+- 2026-06-29 20:54 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/43040438312.shtml)
+- 2026-06-29 20:55 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/22337.shtml)
+- 2026-06-29 21:13 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/1352962629.shtml)
+- 2026-06-29 20:49 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/9172677407.shtml)
+- 2026-06-29 20:53 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/24618003210.shtml)
+- 2026-06-29 21:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/94329.shtml)
+- 2026-06-29 21:13 - [起风了](http://www.share.minike.top/Article/details/7486732726.shtml)
+- 2026-06-29 20:48 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/11908.shtml)

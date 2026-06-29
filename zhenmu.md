@@ -1,61 +1,53 @@
-# 道明证券警告日元贬值风险加剧，美元兑日元上涨或触发日本干预
+# 江苏南京：飞絮如 “毛毛雨” 城管精准施策治理飞絮
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 随着美元兑日元持续维持在160关口上方，市场对于日本政府是否再次采取外汇干预措施的讨论明显升温。道明证券高级亚洲经济学家亚历克斯·卢和外汇策略师杜浩伟在最新研究报告中表示，本周美联储与日本央行利率决议将成为影响日元走势的重要事件，若会议后美元兑日元进一步走高，日本当局出手稳定汇市的概率将大幅增加。 两位分析师指出，从实际有效汇率角度观察，日元的贬值趋势已经越
+发布时间：2026年04月16日 20:41 来源：中国新闻网 悬铃木为悬铃木科悬铃木属落叶大乔木，因果实呈球形、下垂如铃而得名，也是市民俗称的“法桐”，广泛用作城市行道树。每年4至5月，随着气温回升、树木生长，悬铃木飞絮与杨柳絮同步进入高发时段。记者在南京市鼓楼区中山北路看到，负责该片区的江苏玖生环境集团有限公司环卫工作人员正有序清扫路面，配合大型雾炮车开展综合冲洗作业。 针
 
 ## 正文
 
-文章来源：汇通财经 随着美元兑日元持续维持在160关口上方，市场对于日本政府是否再次采取外汇干预措施的讨论明显升温。
+发布时间：2026年04月16日 20:41 来源：中国新闻网 悬铃木为悬铃木科悬铃木属落叶大乔木，因果实呈球形、下垂如铃而得名，也是市民俗称的“法桐”，广泛用作城市行道树。
 
-道明证券高级亚洲经济学家亚历克斯·卢和外汇策略师杜浩伟在最新研究报告中表示，本周美联储与日本央行利率决议将成为影响日元走势的重要事件，若会议后美元兑日元进一步走高，日本当局出手稳定汇市的概率将大幅增加。
+每年4至5月，随着气温回升、树木生长，悬铃木飞絮与杨柳絮同步进入高发时段。
 
-两位分析师指出，从实际有效汇率角度观察，日元的贬值趋势已经越来越明显，虽然当前外汇市场波动率并未出现异常上升，但日元持续单边走弱本身已经足以引起政策制定者的关注。
+记者在南京市鼓楼区中山北路看到，负责该片区的江苏玖生环境集团有限公司环卫工作人员正有序清扫路面，配合大型雾炮车开展综合冲洗作业。
 
-因此，日本当局仍可能通过外汇干预的方式，减缓日元快速贬值带来的经济压力 道明证券预计，美元兑日元上涨至162附近时，将成为日本当局下一次可能采取行动的重要观察水平。
+针对飞絮高发特点，南京市城市管理局推行“立体抑絮、智慧清絮、精准控絮、协同治絮”四位一体治理体系，同时联合相关单位建立“一路一档”动态数据库，定人定岗定责，规范开展保洁作业。
 
-不过，考虑到近期美元并非只针对日元走强，而是在全球范围内普遍维持强势，日本金融厅可能会给予市场更大的波动空间，等待美元兑日元进一步升至165附近后再考虑实施干预。
+下一步，南京城管部门将根据天气变化动态加密作业频次，及时启动应急响应，持续精准治理飞絮，全力守护市民出行环境。
 
-目前市场普遍预计，美联储将在本周政策会议上维持利率不变，但投资者将密切关注新任主席凯文·沃什对于未来利率路径的表态。
-
-如果美联储维持偏鹰派立场，美国与日本之间较大的利差可能继续推动资金流向美元资产，从而支撑美元兑日元维持高位。
-
-另一方面，日本央行虽然已经进入加息周期，但市场对于其未来加息速度仍保持谨慎。
+记者 葛勇 江苏南京报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 20:56 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 20:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:11 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 21:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 21:07 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 21:09 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 20:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 20:45 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 20:48 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 21:01 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 20:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 20:43 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 20:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 20:54 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 21:04 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 21:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 21:12 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:54 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 21:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 20:56 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 20:51 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 21:08 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 21:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 21:12 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/633210252.shtml)
-- 2026-06-29 21:09 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/48296823041.shtml)
-- 2026-06-29 20:50 - [第一炉香](http://www.share.kurohicncr.top/Article/details/65927.shtml)
-- 2026-06-29 21:02 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/5933983.shtml)
-- 2026-06-29 21:11 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/467700381.shtml)
-- 2026-06-29 21:01 - [沙丘](http://www.share.kurohicncr.top/Article/details/11748472.shtml)
-- 2026-06-29 21:10 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/21906767648.shtml)
-- 2026-06-29 20:56 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/17802407.shtml)
-- 2026-06-29 20:43 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/87122955237.shtml)
-- 2026-06-29 21:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/7449770071.shtml)
-- 2026-06-29 20:58 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/324809764885.shtml)
-- 2026-06-29 21:00 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/708034353107.shtml)
-- 2026-06-29 21:01 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/1487729.shtml)
-- 2026-06-29 21:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/53387197586.shtml)
-- 2026-06-29 21:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/0337578.shtml)
+- 2026-06-29 20:51 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/37044169509.shtml)
+- 2026-06-29 21:10 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/60760987.shtml)
+- 2026-06-29 20:49 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/381007.shtml)
+- 2026-06-29 21:08 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/815458.shtml)
+- 2026-06-29 21:08 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/20087452.shtml)
+- 2026-06-29 20:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/43774.shtml)
+- 2026-06-29 21:11 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/82205.shtml)
+- 2026-06-29 21:03 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/459835711.shtml)
+- 2026-06-29 21:11 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/97409.shtml)
+- 2026-06-29 21:16 - [乔家的儿女](http://www.share.minike.top/Article/details/622342.shtml)
+- 2026-06-29 21:12 - [千与千寻](http://www.blog.minike.top/Article/details/994155984770.shtml)
+- 2026-06-29 21:02 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/405969.shtml)
+- 2026-06-29 20:58 - [金刚川](https://www.blog.kurohicncr.top/Article/details/42960291.shtml)
+- 2026-06-29 21:02 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/448772812157.shtml)
+- 2026-06-29 21:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/7234131269.shtml)

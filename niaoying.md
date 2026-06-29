@@ -1,58 +1,60 @@
-# 海南鲜活东星斑首次出口美国
+# 光大证券：维持华润置地“买入”评级 资产运营品牌龙头
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网海口6月15日电 (曾湘仪 韩晴)海口海关15日介绍，近日近1吨产自海南乐东的鲜活东星斑在海口海关所属三亚海关监管下完成通关，即将登陆美国市场。这也是海南优质东星斑首次出口美国，实现海南高端海水养殖鱼类对美出口新的突破。乐东黎族自治县拥有优质的近海海域资源，海域水质洁净、水温适宜、生态环境优良。当地培育的东星斑品相优异、肉质细嫩、口感鲜美，凭借过硬的品质，成为海南极具代表
+光大证券发布研报称，当前全国房地产销售仍处下行通道，城市分化和区域分化明显，下调华润置地（01109）2026-2027年归母净利润（基本）预测为236.8/230.7亿元（原为252.7/255.3亿元），新增2028年归母净利润（基本）预测为238.9亿元，当前股价对应2026-2028年PE估值（基本）分别为8.2/8.4/8.1倍。公司投资聚焦核心城市，资产运营品牌龙头
 
 ## 正文
 
-中新网海口6月15日电 (曾湘仪 韩晴)海口海关15日介绍，近日近1吨产自海南乐东的鲜活东星斑在海口海关所属三亚海关监管下完成通关，即将登陆美国市场。
+光大证券发布研报称，当前全国房地产销售仍处下行通道，城市分化和区域分化明显，下调华润置地（01109）2026-2027年归母净利润（基本）预测为236.8/230.7亿元（原为252.7/255.3亿元），新增2028年归母净利润（基本）预测为238.9亿元，当前股价对应2026-2028年PE估值（基本）分别为8.2/8.4/8.1倍。
 
-这也是海南优质东星斑首次出口美国，实现海南高端海水养殖鱼类对美出口新的突破。
+公司投资聚焦核心城市，资产运营品牌龙头，央企信用优势显著，维持“买入”评级。
 
-乐东黎族自治县拥有优质的近海海域资源，海域水质洁净、水温适宜、生态环境优良。
+光大证券主要观点如下： 事件 公司发布截至2026年3月31日未经审核运营数据。
 
-当地培育的东星斑品相优异、肉质细嫩、口感鲜美，凭借过硬的品质，成为海南极具代表性的特色高端水产品。
+2026年3月，实现合同销售金额224.2亿元，同比下降14.1%；合同销售面59.4万平方米，同比下降34.5%。
 
-出口企业有关负责人表示，此次首单出口美国，为企业打通了北美高端水产市场渠道。
+2026年1-3月，实现合同销售金额441.2亿元，同比下降13.8%；合同销售面积124.9万平方米，同比下降36.9%。
 
-经过海关指导，一天内完成了注册企业变更，加上“云签发”等多种手段，最大限度缩短物流滞留时间，保障鲜活东星斑全程新鲜、高品质交付。
+资产运营品牌龙头，稳定现金流贡献提升 2025年，经营性不动产收租型业务板块营业收入254.4亿元（同比增长9.2%），核心净利润98.7亿元（同比增长15.2%）。
 
-海口海关表示，依托海南自贸港通关便利化政策优势，将持续深挖海南特色海洋产业资源优势，助力更多优质水产、特色农产品走向国际。
+截至2025年末，1）在营购物中心98座（其中82个零售额位列当地市场前三），总建筑面积1242万平方米（同比增加8.4%），零售额2392亿元（同比增长22.4%），整体经营利润率63.1%，再创历史新高；2）写字楼总建筑面积146万平方米，在营写字楼23座，平均出租率77.7%（同比增长2.8个pct．）；3）酒店总面积79万平方米（同比增长1.2%），平均入住率67.3%（同比增长3.1个pct．）。
 
-(完)
+2026年1-3月，公司实现租金累计收入91.6亿元（同比增长14.0%）。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 20:44 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 20:42 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 20:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 20:45 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 20:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 20:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 20:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 21:06 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 20:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 21:07 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 20:47 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 20:58 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 21:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 20:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 20:55 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 20:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 20:50 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 20:53 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 21:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 21:04 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 21:15 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 21:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 21:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 21:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 20:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/187627621641.shtml)
-- 2026-06-29 21:08 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/453340777259.shtml)
-- 2026-06-29 21:09 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/913779533613.shtml)
-- 2026-06-29 20:59 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/606198220.shtml)
-- 2026-06-29 20:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/82515418.shtml)
-- 2026-06-29 20:47 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/4025091990.shtml)
-- 2026-06-29 21:06 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/71535462892.shtml)
-- 2026-06-29 21:12 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/668858244987.shtml)
-- 2026-06-29 20:44 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/01256864211.shtml)
-- 2026-06-29 20:48 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/1888074.shtml)
-- 2026-06-29 20:50 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/19657914979.shtml)
-- 2026-06-29 21:11 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/4394162821.shtml)
-- 2026-06-29 20:54 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/08334156786.shtml)
-- 2026-06-29 21:07 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/5975857.shtml)
-- 2026-06-29 20:54 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/2741766.shtml)
+- 2026-06-29 20:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/59200158.shtml)
+- 2026-06-29 20:56 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/54616.shtml)
+- 2026-06-29 20:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6384528.shtml)
+- 2026-06-29 21:17 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/589343.shtml)
+- 2026-06-29 21:00 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/46199663993.shtml)
+- 2026-06-29 20:49 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/10674642574.shtml)
+- 2026-06-29 21:06 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/20955666.shtml)
+- 2026-06-29 20:53 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/799383913014.shtml)
+- 2026-06-29 20:55 - [毒液2](https://www.blog.kurohicncr.top/Article/details/538246623407.shtml)
+- 2026-06-29 20:56 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/2386171030.shtml)
+- 2026-06-29 21:05 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/787326206549.shtml)
+- 2026-06-29 20:59 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/853945084856.shtml)
+- 2026-06-29 21:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/7512086755.shtml)
+- 2026-06-29 21:04 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/26815282.shtml)
+- 2026-06-29 20:52 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/6020967996.shtml)

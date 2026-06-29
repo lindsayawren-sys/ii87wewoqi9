@@ -1,61 +1,49 @@
-# 从“小众秘境”到热门“打卡地” 湖南湘潭点燃文旅“新”引擎
+# 特变电工：为应对原材料价格的波动风险，对于已签订的订单，公司始终坚持对大宗原材料进行套期保值
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网湘潭6月14日电 (张雪盈)从曹家坳瀑布“九瀑齐泻”刷屏短视频平台，到云盘寨露营基地“霸榜”抖音人气榜；从万楼·青年码头的集装箱集市成青年打卡胜地，到千万级粉丝博主探访莲城……临近第六届湖南旅游发展大会，湘潭文旅持续“火出圈”。热度攀升的背后，离不开“新”力量的深度参与，他们以新媒体为笔、以创意为墨，为这座红色之城注入青春动能。 新媒体人士把流量“引进来” “这里是曹家坳
+证券日报网讯4月16日，特变电工在互动平台回答投资者提问时表示，为应对原材料价格的波动风险，对于已签订的订单，公司始终坚持对大宗原材料进行套期保值。变压器产品毛利受产品结构、市场结构、竞争环境、原材料价格等多重因素影响，公司将持续围绕产品结构优化、成本管控、技术革新、运营效率等方面提升产品盈利能力。
 
 ## 正文
 
-中新网湘潭6月14日电 (张雪盈)从曹家坳瀑布“九瀑齐泻”刷屏短视频平台，到云盘寨露营基地“霸榜”抖音人气榜；从万楼·青年码头的集装箱集市成青年打卡胜地，到千万级粉丝博主探访莲城……临近第六届湖南旅游发展大会，湘潭文旅持续“火出圈”。
+证券日报网讯4月16日，特变电工在互动平台回答投资者提问时表示，为应对原材料价格的波动风险，对于已签订的订单，公司始终坚持对大宗原材料进行套期保值。
 
-热度攀升的背后，离不开“新”力量的深度参与，他们以新媒体为笔、以创意为墨，为这座红色之城注入青春动能。
-
-新媒体人士把流量“引进来” “这里是曹家坳瀑布，今天我将一次性和大家说清楚怎么玩，请跟随我的镜头一起来感受瀑布的壮美……”在湖南湘潭石鼓镇曹家坳瀑布前，新媒体人士郑莎莎又一次开启了直播观景，吸引不少网友“云上”围观。
-
-石鼓镇铜梁村拥有得天独厚的原生态瀑布群，但长期“养在深闺人未识”。
-
-本地自媒体博主郑莎莎、土豆、易俊等人背着器材徒步进山，用无人机航拍瀑布全貌，用特写镜头捕捉水花飞溅的瞬间，通过短视频、攻略图文等形式多角度、高频次推介，让曹家坳瀑布从“小众秘境”跃升为长株潭及周边游客争相打卡的自然奇观。
-
-流量来了，人潮也随之而来。
-
-据统计，自“出圈”以来，曹家坳瀑布累计接待游客超7万人次，带动全链条综合收入超千万元，周边多个村近万人受益，村民庭院成为“黄金铺位”，顶峰腊肉、非遗油纸伞等产品一度售罄。
-
-“以前愁销路，现在不够卖。
+变压器产品毛利受产品结构、市场结构、竞争环境、原材料价格等多重因素影响，公司将持续围绕产品结构优化、成本管控、技术革新、运营效率等方面提升产品盈利能力。
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 20:45 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 21:00 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 20:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 21:01 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 21:09 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 20:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 21:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 20:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 20:56 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 20:56 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 21:09 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 20:59 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 20:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 21:00 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 21:04 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 20:55 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 21:01 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 21:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 20:58 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:16 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 20:56 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 21:04 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 20:52 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 20:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 20:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 20:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 21:13 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 20:53 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/22568462.shtml)
-- 2026-06-29 20:42 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/585659343.shtml)
-- 2026-06-29 20:53 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/722603418.shtml)
-- 2026-06-29 20:52 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/15078773581.shtml)
-- 2026-06-29 20:50 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/923294806975.shtml)
-- 2026-06-29 20:55 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/71585.shtml)
-- 2026-06-29 20:56 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/475872103.shtml)
-- 2026-06-29 20:58 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/713549.shtml)
-- 2026-06-29 21:01 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/736146884222.shtml)
-- 2026-06-29 20:43 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/96663829.shtml)
-- 2026-06-29 20:42 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/52408848.shtml)
-- 2026-06-29 20:51 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/81796858829.shtml)
-- 2026-06-29 20:49 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/7916143759.shtml)
-- 2026-06-29 20:54 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/469358934.shtml)
-- 2026-06-29 20:59 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/45804.shtml)
+- 2026-06-29 20:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/64139.shtml)
+- 2026-06-29 20:51 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/305161954264.shtml)
+- 2026-06-29 20:56 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/11830393.shtml)
+- 2026-06-29 20:54 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/842259038.shtml)
+- 2026-06-29 21:12 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/469238609034.shtml)
+- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/46953816323.shtml)
+- 2026-06-29 21:11 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/13506581.shtml)
+- 2026-06-29 21:07 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/8105753217.shtml)
+- 2026-06-29 21:10 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/77763.shtml)
+- 2026-06-29 21:01 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/195709802951.shtml)
+- 2026-06-29 20:51 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/7079019064.shtml)
+- 2026-06-29 21:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/1764926.shtml)
+- 2026-06-29 21:03 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4473242264.shtml)
+- 2026-06-29 21:01 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/760212253.shtml)
+- 2026-06-29 20:59 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/361764030.shtml)

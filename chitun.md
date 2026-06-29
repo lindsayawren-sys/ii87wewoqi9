@@ -1,52 +1,61 @@
-# 世茂集团前5个月累计合约销售总额约69.51亿元
+# 编排股市“小作文”关号就可以了？“杰克船长”领罚80万传递新信号
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-世茂集团（00813）公布，截至2026年5月31日止五个月，该集团的累计合约销售总额约为人民币69.51亿元，累计合约销售总面积为566，543平方米。平均销售价格为每平方米人民币12，269元。 集团于 2026 年 5 月 的合约销售额约为人民币 12.20 亿元，合约销售面积为 96，846平方米。2026年5月平均销售价格为每平方米人民币12，597 元。责任编辑：卢
+监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。证监会强调：“资本市场具有很强的信息敏感性，编造、传播资本市场虚假信息以及其他违法违规言论，扰乱信息传播秩序，影响市场稳定运行，将受到法律惩处。” 在被国家网信办通报、关号近一年后，“杰克船长”胡博领到了证监会开出的80万元罚单。 4月17日，证监会公布了
 
 ## 正文
 
-世茂集团（00813）公布，截至2026年5月31日止五个月，该集团的累计合约销售总额约为人民币69.51亿元，累计合约销售总面积为566，543平方米。
+监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。
 
-平均销售价格为每平方米人民币12，269元。
+证监会强调：“资本市场具有很强的信息敏感性，编造、传播资本市场虚假信息以及其他违法违规言论，扰乱信息传播秩序，影响市场稳定运行，将受到法律惩处。
 
-集团于 2026 年 5 月 的合约销售额约为人民币 12.20 亿元，合约销售面积为 96，846平方米。
+” 在被国家网信办通报、关号近一年后，“杰克船长”胡博领到了证监会开出的80万元罚单。
 
-2026年5月平均销售价格为每平方米人民币12，597 元。
+4月17日，证监会公布了对胡博的行政处罚决定，经查明，2023年8月以来，胡博控制使用新浪微博“杰克船长宏观策略”“杰克船长宏观策略八卦”等账号编造、传播涉资本市场监管动态、监管政策的虚假信息或误导性信息，扰乱证券市场。
 
-责任编辑：卢昱君
+证监会认定胡博的违法行为情节严重，对其采取3年证券市场禁入措施，在禁入期间内，除不得继续在原机构从事证券业务、证券服务业务或者担任原证券发行人的董事、监事、高级管理人员职务外，也不得在其他任何机构中从事证券业务、证券服务业务或者担任其他证券发行人的董事、监事、高级管理人员职务。
+
+关于胡博的具体身份，市场人士猜测其为甬兴证券的投资顾问，中国证券业协会也能查到“胡博”的从业信息，但第一财经从有关渠道了解到，“杰克船长”胡博并不在券商任职。
+
+去年以来，监管部门对网上金融乱象持续加大打击力度，涉及违法行为类型不断增加、涉及平台范围不断扩大，处罚措施也从关停账号扩大到行政处罚。
+
+第一财经记者注意到，胡博控制的账号在去年上半年已经被国家网信办关闭。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 20:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 20:43 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 20:50 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 21:04 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 21:02 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 20:57 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 21:09 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 21:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 21:09 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 21:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 20:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 21:05 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 21:08 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 21:11 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 21:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 20:50 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 21:09 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 20:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 21:01 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 21:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 21:00 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 20:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 20:56 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 20:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 20:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 20:57 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/48078916.shtml)
-- 2026-06-29 20:50 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/245563883.shtml)
-- 2026-06-29 21:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/983020994814.shtml)
-- 2026-06-29 20:58 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/44092.shtml)
-- 2026-06-29 20:54 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/45896347.shtml)
-- 2026-06-29 20:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/531320531303.shtml)
-- 2026-06-29 20:56 - [极限挑战第一季](https://www.blog.minike.top/Article/details/699830176237.shtml)
-- 2026-06-29 21:10 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/765837.shtml)
-- 2026-06-29 20:44 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/59055294.shtml)
-- 2026-06-29 20:51 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/256571876.shtml)
-- 2026-06-29 21:03 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/269220940.shtml)
-- 2026-06-29 21:04 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/210323.shtml)
-- 2026-06-29 20:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/19821618.shtml)
-- 2026-06-29 21:08 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/62937167.shtml)
-- 2026-06-29 21:09 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/2164442185.shtml)
+- 2026-06-29 21:17 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/124499230611.shtml)
+- 2026-06-29 20:56 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/634894737.shtml)
+- 2026-06-29 21:06 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/06342638.shtml)
+- 2026-06-29 20:55 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/65833955843.shtml)
+- 2026-06-29 20:56 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/982559715022.shtml)
+- 2026-06-29 21:12 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/7512472756.shtml)
+- 2026-06-29 20:54 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/81763.shtml)
+- 2026-06-29 20:59 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/1483136067.shtml)
+- 2026-06-29 21:08 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/984181.shtml)
+- 2026-06-29 20:58 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/76775697448.shtml)
+- 2026-06-29 21:13 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/20515249848.shtml)
+- 2026-06-29 21:10 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/66607399.shtml)
+- 2026-06-29 21:16 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/88910794.shtml)
+- 2026-06-29 21:08 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/950940315.shtml)
+- 2026-06-29 20:58 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/43343.shtml)

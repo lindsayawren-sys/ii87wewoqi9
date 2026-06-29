@@ -1,61 +1,59 @@
-# 路威酩轩与顶尖职业运动员联合出资新基金，入股运动休闲服饰品牌
+# 意大利学者：欧中加强务实合作正逢其时
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-体育明星达克・普雷斯科特、泰瑞斯・哈利伯顿均为该基金合伙人，本次向 Rhoback 投资近 5000 万美元 内容速览 由路威酩轩（LVMH）及 200 余名职业运动员出资成立的 Champ 基金完成首笔投资，收购运动休闲品牌 Rhoback 少数股权。 一家获时尚巨头路威酩轩（LVMH，股价上涨 1.88%）与 200 多名职业运动员支持的全新基金宣布完成首笔投资，入股美国运
+原标题：全球媒体聚焦｜意大利学者：欧中加强务实合作正逢其时 英国伦敦政治经济学院“欧洲政治”网站15日发表意大利经济与财政部前首席经济学家洛伦佐·科多尼奥的深度分析文章。这篇题为《是时候建立更务实的欧中贸易关系了》的评论指出，过去几年间，俄乌冲突、全球贸易战等多重冲击持续震荡世界经济版图，而近期美以对伊朗的军事行动更引发新一轮真正意义上的全球性能源危机。 科多尼奥强调，尽管联合
 
 ## 正文
 
-体育明星达克・普雷斯科特、泰瑞斯・哈利伯顿均为该基金合伙人，本次向 Rhoback 投资近 5000 万美元 内容速览 由路威酩轩（LVMH）及 200 余名职业运动员出资成立的 Champ 基金完成首笔投资，收购运动休闲品牌 Rhoback 少数股权。
+原标题：全球媒体聚焦｜意大利学者：欧中加强务实合作正逢其时 英国伦敦政治经济学院“欧洲政治”网站15日发表意大利经济与财政部前首席经济学家洛伦佐·科多尼奥的深度分析文章。
 
-一家获时尚巨头路威酩轩（LVMH，股价上涨 1.88%）与 200 多名职业运动员支持的全新基金宣布完成首笔投资，入股美国运动休闲服饰品牌。
+这篇题为《是时候建立更务实的欧中贸易关系了》的评论指出，过去几年间，俄乌冲突、全球贸易战等多重冲击持续震荡世界经济版图，而近期美以对伊朗的军事行动更引发新一轮真正意义上的全球性能源危机。
 
-知情人士透露，这支名为 Champ（全称 Champion Athlete Managing Partner，冠军运动员管理合伙人）的基金联合其余数家投资方，合计向 Rhoback 投入近 5000 万美元。
+科多尼奥强调，尽管联合国、世贸组织等国际治理机构仍在发挥基础性作用，但其深陷系统性危机已是不争事实。
 
-该运动服饰品牌标志性元素是小狗 logo，主打速干 Polo 衫。
+在此背景下，国际社会亟需探索新型合作路径——在坚持多边主义主渠道的同时，也应接纳双边关系的突破性发展。
 
-Champ 基金于今年 4 月正式成立，目标募资 5 亿美元，用于投资热度较高的消费品牌。
+文章深入剖析了美国外交政策转向对欧洲的深远影响。
 
-众多美国知名体育明星均参与出资，包括篮球球星泰瑞斯・哈利伯顿、橄榄球明星达克・普雷斯科特与贾马尔・蔡斯、女子职业篮球联赛球员卡梅伦・布林克，以及棒球强打迈克・特劳特。
+作者认为，美国要求欧盟增强防务自主性的主张具有合理性，毕竟延续数十年的“美国安全保护伞”模式已不符合双方利益。
 
-与传统付费代言模式不同，运动员自行投入自有资金参与项目投资。
+但美国政府对传统盟友采取的对抗性姿态，不仅导致跨大西洋关系出现明显裂痕，更迫使欧盟在经贸领域接受包括单边关税在内的一系列不平等条款。
 
-出于自身收益考量，他们会利用自身知名度与海量社交粉丝，为基金投资的品牌进行宣传推广。
+与此形成鲜明对比的是， 中欧务实合作正迎来历史性窗口期。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 20:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 20:52 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 20:47 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 21:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 21:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 20:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 20:43 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 20:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 20:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 20:55 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 21:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 20:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 21:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 20:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 20:59 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 21:06 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 21:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 21:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 21:15 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 21:00 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 21:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 20:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 21:07 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 21:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 20:55 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/37902.shtml)
-- 2026-06-29 20:44 - [乔家的儿女](http://www.blog.minike.top/Article/details/2696180.shtml)
-- 2026-06-29 21:07 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/46007696.shtml)
-- 2026-06-29 20:49 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/14573325.shtml)
-- 2026-06-29 20:55 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/17901.shtml)
-- 2026-06-29 20:46 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/51403.shtml)
-- 2026-06-29 21:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/2443509.shtml)
-- 2026-06-29 21:06 - [温网](https://www.blog.kurohicncr.top/Article/details/67365200.shtml)
-- 2026-06-29 20:59 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/679519035.shtml)
-- 2026-06-29 20:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/76938188583.shtml)
-- 2026-06-29 21:06 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/74044.shtml)
-- 2026-06-29 20:52 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/108593.shtml)
-- 2026-06-29 20:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/627642.shtml)
-- 2026-06-29 21:11 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/9823379.shtml)
-- 2026-06-29 21:04 - [乔家的儿女](https://www.share.minike.top/Article/details/067321.shtml)
+- 2026-06-29 20:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/997883.shtml)
+- 2026-06-29 21:06 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/8429546662.shtml)
+- 2026-06-29 20:57 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/762409057300.shtml)
+- 2026-06-29 21:16 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/595077673042.shtml)
+- 2026-06-29 20:49 - [沙丘](https://www.share.kurohicncr.top/Article/details/611158123.shtml)
+- 2026-06-29 20:52 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/8887697.shtml)
+- 2026-06-29 21:02 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/464076308.shtml)
+- 2026-06-29 21:08 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/157079773192.shtml)
+- 2026-06-29 21:09 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/56482165400.shtml)
+- 2026-06-29 21:09 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/6956610495.shtml)
+- 2026-06-29 21:01 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/23574.shtml)
+- 2026-06-29 21:03 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/5188947975.shtml)
+- 2026-06-29 20:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/25059862057.shtml)
+- 2026-06-29 20:49 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/80375136.shtml)
+- 2026-06-29 21:10 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/324897407.shtml)

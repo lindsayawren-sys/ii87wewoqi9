@@ -1,56 +1,59 @@
-# 塔吉克斯坦记者代表团抵达新疆开展交流活动
+# 三峡南线船闸提前结束停航检修恢复通航
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 12:53 来源：中国新闻网 6月12日，塔吉克斯坦记者代表团一行9人抵达新疆乌鲁木齐市开展实地参访交流。本次代表团涵盖塔吉克斯坦“亚洲快讯”、“阿维斯塔”通讯社、CMT电视台等多家主流媒体，包含通讯社信息部主任、资深记者等骨干采编人员。代表团通过走访、体验等活动，切身感受新疆经济发展活力、深厚文化底蕴、民族团结风貌与社会稳定成果。 12日上午
+中新网宜昌4月17日电 (郭晓莹 吕彩红 徐向颖)据三峡集团流域枢纽运行管理中心和长江三峡通航管理局17日消息，三峡南线船闸当日20时结束停航检修恢复通航，较计划提前12个小时。至此，三峡-葛洲坝水利枢纽全面恢复正常通航秩序。三峡南线船闸2026年计划性停航检修于3月4日开工，计划工期45天，共完成了工控系统自主可控改造、金结机械设备检修、液压系统检修等6大类、41项检修内容。
 
 ## 正文
 
-发布时间：2026年06月14日 12:53 来源：中国新闻网 6月12日，塔吉克斯坦记者代表团一行9人抵达新疆乌鲁木齐市开展实地参访交流。
+中新网宜昌4月17日电 (郭晓莹 吕彩红 徐向颖)据三峡集团流域枢纽运行管理中心和长江三峡通航管理局17日消息，三峡南线船闸当日20时结束停航检修恢复通航，较计划提前12个小时。
 
-本次代表团涵盖塔吉克斯坦“亚洲快讯”、“阿维斯塔”通讯社、CMT电视台等多家主流媒体，包含通讯社信息部主任、资深记者等骨干采编人员。
+至此，三峡-葛洲坝水利枢纽全面恢复正常通航秩序。
 
-代表团通过走访、体验等活动，切身感受新疆经济发展活力、深厚文化底蕴、民族团结风貌与社会稳定成果。
+三峡南线船闸2026年计划性停航检修于3月4日开工，计划工期45天，共完成了工控系统自主可控改造、金结机械设备检修、液压系统检修等6大类、41项检修内容。
 
-12日上午，代表团走进新疆师范大学温泉校区，体验中华传统文化，与外教、留学生深入座谈交流。
+三峡集团流域枢纽运行管理中心相关负责人介绍，这是三峡船闸第9次实施计划性停航检修，与上次相比，本次检修新增了人字门顶升、人字门在线监测施工、多闸首斜井段检修等工作任务，18家单位、800余人参与检修工作，是三峡船闸历次停航检修中工期最长、任务最重、工序衔接协调难度最大的一次停航检修。
 
-随后，代表团先后走访新奇康药业、铁建重工、新疆软件园等企业，实地观摩新疆生物医药、高端装备制造、数字科创产业的发展成果，了解当地产业创新与转型升级态势。
+为提升检修效率、确保安全，三峡集团流域枢纽运行管理中心聚焦重点工序推进科研攻关与工艺创新，推广应用新型装备技术。
 
-据悉，此次代表团还将走进新疆维吾尔自治区成立70周年主题成就展等文化展区，以及吐鲁番新城西门村、交河故城等乡村与文旅点位，让记者们能从多角度读懂真实、立体的新疆。
+该中心研制并投用3套输水廊道斜井段快速检修工装，首次采用水下机器人探测巡检，并优化施工工艺，引入大型切割设备，使施工更为精简高效。
 
-(左丹丹) 责任编辑：【周驰】
+三峡船闸采用南北双线设计，“南下北上”双线运行。
+
+三峡集团流域枢纽运行管理中心按计划每两年实施一次计划性停航检修，南、北线船闸双线交替进行。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 21:09 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 21:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 20:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 20:58 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 20:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 20:56 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 20:48 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 21:01 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 21:08 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 21:01 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 20:58 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 21:05 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 21:05 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 21:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 21:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 21:17 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 21:15 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 21:04 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 21:01 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 21:05 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 21:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 21:13 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 21:08 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/328455039534.shtml)
-- 2026-06-29 20:58 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/6981311056.shtml)
-- 2026-06-29 20:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/875438298059.shtml)
-- 2026-06-29 21:01 - [小娘惹](https://www.share.kurohicncr.top/Article/details/063812.shtml)
-- 2026-06-29 20:57 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/176812816445.shtml)
-- 2026-06-29 20:59 - [锐评T1零封KC](http://www.share.minike.top/Article/details/096869467.shtml)
-- 2026-06-29 21:11 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/013225647504.shtml)
-- 2026-06-29 21:00 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/4005440626.shtml)
-- 2026-06-29 21:11 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/8750918928.shtml)
-- 2026-06-29 20:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/4266001.shtml)
-- 2026-06-29 20:58 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/335073726.shtml)
-- 2026-06-29 20:42 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/11855.shtml)
-- 2026-06-29 20:48 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/19058231399.shtml)
-- 2026-06-29 21:07 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/15318057.shtml)
-- 2026-06-29 20:48 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/6843609169.shtml)
+- 2026-06-29 20:54 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/625342368.shtml)
+- 2026-06-29 21:16 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/9135411.shtml)
+- 2026-06-29 20:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/783235685144.shtml)
+- 2026-06-29 21:14 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/998270244.shtml)
+- 2026-06-29 21:04 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/98448.shtml)
+- 2026-06-29 21:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/71566856.shtml)
+- 2026-06-29 21:08 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/156683580467.shtml)
+- 2026-06-29 21:11 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/865843.shtml)
+- 2026-06-29 21:12 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/348743783871.shtml)
+- 2026-06-29 20:55 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/9087462485.shtml)
+- 2026-06-29 21:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/56742559229.shtml)
+- 2026-06-29 21:09 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/9501380.shtml)
+- 2026-06-29 20:58 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/235490677.shtml)
+- 2026-06-29 21:07 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/903394789625.shtml)
+- 2026-06-29 21:07 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/444536.shtml)

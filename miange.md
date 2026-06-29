@@ -1,59 +1,56 @@
-# 长江有色：15日铝价小跌 今日整体交投氛围偏弱
+# 挪威国家石油公司预计一季度收益超4亿美元，油价上涨33%
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 CCMN国际市场：今日伦铝震荡走弱，LME三个月北京时间15：09报于3509美元/吨，较上一交易日结算价跌34美元/吨，跌幅0.96%。 国内期货：今日沪铝主力月2607合约高开后涨幅震荡收窄；开盘价报24165元/吨，盘中最高24365元/吨，最低24145元/吨，昨日结算24170元/吨，尾盘收至24170元/吨，收平；沪铝主力月2607合约全天成交量15
+挪威国家石油公司（EQNR）表示，由于能源市场波动加剧带来了更有利的交易环境，其营销、中游与加工部门的一季度收益很可能将高于此前约4亿美元的指引。该公司指出，季末原油、成品油和液体价格的波动加剧，部分原因是中东冲突。此外，美国1月份的寒潮导致天然气价格飙升，为其美国交易业务的业绩提供了支撑，为本季度增添了另一重利好。 能源市场的整体背景似乎有利，自伊朗相关冲突爆发以来，原油期货
 
 ## 正文
 
-长江有色金属网 CCMN国际市场：今日伦铝震荡走弱，LME三个月北京时间15：09报于3509美元/吨，较上一交易日结算价跌34美元/吨，跌幅0.96%。
+挪威国家石油公司（EQNR）表示，由于能源市场波动加剧带来了更有利的交易环境，其营销、中游与加工部门的一季度收益很可能将高于此前约4亿美元的指引。
 
-国内期货：今日沪铝主力月2607合约高开后涨幅震荡收窄；开盘价报24165元/吨，盘中最高24365元/吨，最低24145元/吨，昨日结算24170元/吨，尾盘收至24170元/吨，收平；沪铝主力月2607合约全天成交量151712手减少20061手，持仓量225295手减少8501手。
+该公司指出，季末原油、成品油和液体价格的波动加剧，部分原因是中东冲突。
 
-CCMN现货市场评述：今日长江现货成交价格24110-24150元/吨，跌10元，贴水120-贴水80，跌15元；广东现货24095-24145元/吨，跌20元，贴水135-贴水85，跌130元；上海地区24100-24140元/吨，跌10元，贴水130贴水90，跌15元。
+此外，美国1月份的寒潮导致天然气价格飙升，为其美国交易业务的业绩提供了支撑，为本季度增添了另一重利好。
 
-宏观层面，地缘局势的边际缓和为大宗商品市场注入了修复动力。
+能源市场的整体背景似乎有利，自伊朗相关冲突爆发以来，原油期货价格上涨了约33%，同时价格波动显著。
 
-随着美伊和平协议接近达成以及特朗普推动结束乌克兰冲突的信号释放，市场对能源供应中断及通胀攀升的担忧有所降温，带动美元指数走跌、全球股市上扬。
+这种环境可能有利于以交易为重心的商业模式。
 
-然而，中东紧张局势的缓解削弱了此前的避险溢价，令市场对海湾地区电解铝产能恢复产生乐观预期，压制铝价的涨幅。
+道达尔能源（TTE）的评论也反映了这一点，该公司指出其强劲的季度业绩部分归因于能源价格上涨，而壳牌（SHEL）和英国石油（BP）也报告了强劲的交易业绩。
 
-此外，美国货币政策路径仍存变数，当前美国经济面临通胀回落放缓与就业强劲的复杂局面。
+波动时期通常为大型综合能源公司创造机会，使其能够优化物流并在各市场间捕捉价值，而不仅仅依赖于单边价格走势。
 
-新任美联储主席沃什在即将召开的政策会议上如何平衡顽固通胀与高利率冲击，将是决定未来美元走势及金属定价的关键变量。
+另外，挪威国家石油公司表示，欧洲的地域价差使其能够通过优化区域天然气流动而获得额外收益，这与中东局势无关。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 21:07 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 21:03 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 20:57 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 20:53 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 20:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 20:49 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 20:55 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 21:10 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 21:05 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 21:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 20:54 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 21:11 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 21:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 20:48 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 21:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 21:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 21:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 21:02 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 21:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 20:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 20:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/63537.shtml)
-- 2026-06-29 21:06 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/83180.shtml)
-- 2026-06-29 21:02 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/234393849.shtml)
-- 2026-06-29 21:11 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/23766410679.shtml)
-- 2026-06-29 21:10 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/2784260.shtml)
-- 2026-06-29 20:44 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/422681728420.shtml)
-- 2026-06-29 20:46 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/454940901.shtml)
-- 2026-06-29 21:06 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/9490313204.shtml)
-- 2026-06-29 20:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/453252962.shtml)
-- 2026-06-29 20:53 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/1622207246.shtml)
-- 2026-06-29 20:51 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/53546195.shtml)
-- 2026-06-29 20:50 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/858716338.shtml)
-- 2026-06-29 21:07 - [TTG KSG](http://www.blog.minike.top/Article/details/9302159.shtml)
-- 2026-06-29 20:44 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/641384488.shtml)
-- 2026-06-29 20:44 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/5696101.shtml)
+- 2026-06-29 20:59 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/80961.shtml)
+- 2026-06-29 21:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/134426911555.shtml)
+- 2026-06-29 21:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/8637877.shtml)
+- 2026-06-29 21:15 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/6245472.shtml)
+- 2026-06-29 20:57 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/34186436137.shtml)
+- 2026-06-29 20:55 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/9168262727.shtml)
+- 2026-06-29 21:14 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/941353.shtml)
+- 2026-06-29 21:11 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/193769948.shtml)
+- 2026-06-29 21:13 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/06816606.shtml)
+- 2026-06-29 21:08 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/879514.shtml)
+- 2026-06-29 21:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/13673.shtml)
+- 2026-06-29 20:58 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/76753870042.shtml)
+- 2026-06-29 20:59 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/1486395221.shtml)
+- 2026-06-29 21:15 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/38371175106.shtml)
+- 2026-06-29 20:49 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/473211492259.shtml)

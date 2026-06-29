@@ -1,58 +1,58 @@
-# 两天内4名驻冲绳美军士兵涉嫌违法被逮捕
+# 网达软件业绩“变脸”触及*ST，股价下跌维权窗口开启
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网东京6月14日电 据日媒报道，继13日两名驻冲绳美军士兵因涉嫌酒驾被捕后，冲绳县警方14日又逮捕两名分别涉嫌故意伤人和私闯民宅的美军士兵。 据《冲绳时报》报道，14日凌晨，一名美军士兵在冲绳县那霸市一家餐饮店殴打一名男性店员，导致其头部受伤；另一名士兵14日上午无正当理由就闯入冲绳县冲绳市一栋公寓。两名美军士兵均被警方当场逮捕。 据日本共同社报道，日本冲绳县警方13日以涉
+一、年度业绩盈利变亏损 2026年4月16日晚间，网达软件（维权）的一则公告让市场哗然。该公司发布了《2025年年度业绩预告更正公告》，对1月底发布的业绩预告进行了大幅下修。 此次修正不仅导致公司扣非净利润由盈利转为亏损，更因触及“营业收入低于3亿元且净利润为负”的退市风险警示红线，公司股票可能在2025年年报披露后被实施退市风险警示（*ST）。 据公告公司修正后预计2025年
 
 ## 正文
 
-中新网东京6月14日电 据日媒报道，继13日两名驻冲绳美军士兵因涉嫌酒驾被捕后，冲绳县警方14日又逮捕两名分别涉嫌故意伤人和私闯民宅的美军士兵。
+一、年度业绩盈利变亏损 2026年4月16日晚间，网达软件（维权）的一则公告让市场哗然。
 
-据《冲绳时报》报道，14日凌晨，一名美军士兵在冲绳县那霸市一家餐饮店殴打一名男性店员，导致其头部受伤；另一名士兵14日上午无正当理由就闯入冲绳县冲绳市一栋公寓。
+该公司发布了《2025年年度业绩预告更正公告》，对1月底发布的业绩预告进行了大幅下修。
 
-两名美军士兵均被警方当场逮捕。
+此次修正不仅导致公司扣非净利润由盈利转为亏损，更因触及“营业收入低于3亿元且净利润为负”的退市风险警示红线，公司股票可能在2025年年报披露后被实施退市风险警示（*ST）。
 
-据日本共同社报道，日本冲绳县警方13日以涉嫌酒后驾驶为由，逮捕了两名驻冲绳美军士兵。
+据公告公司修正后预计2025年扣非净利润为亏损250万元至100万元（此前预计盈利360万-600万元）。
 
-当地警方当天凌晨在巡逻中发现两起涉嫌酒后驾驶的案件。
+上海沪紫律师事务所刘鹏律师表示网达软件业绩变脸的现象，是上市公司编制业绩预告工作的不准确和不透明问题，这意味着公司的财务管理不规范和内部控制不完善。
 
-经呼气酒精检测，两名美军士兵体内酒精含量均超法定标准，被当场逮捕。
+（刘鹏律师专栏） 二、受损投资者维权要求 公司称更正原因为一是会计师事务所判定其对某参股公司的长期股权投资需计提859万元减值；二是原本预计确认的6100万元国产信创业务收入，因“截至12月31日未取得最终验收依据”而被全部砍掉。
 
-但两人均否认相关指控。
+此次业绩修正再次凸显了在年报披露季，上市公司“业绩预告”与“审计结果”之间可能存在的巨大鸿沟。
 
-长期以来，驻日美军犯罪事件频发，其中不乏杀人、强奸、抢劫等恶性案件。
+针对该公司业绩“变脸”引发股价下跌的行为，索赔已经开启。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 21:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 20:46 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 21:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 21:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 21:03 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 20:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 20:48 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 20:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:03 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 21:03 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 21:05 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 21:00 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 20:54 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 21:08 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 20:58 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 21:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 21:00 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 20:51 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 21:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/0639056.shtml)
-- 2026-06-29 20:51 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/13897.shtml)
-- 2026-06-29 20:47 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/265088614.shtml)
-- 2026-06-29 20:47 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/18838457.shtml)
-- 2026-06-29 21:07 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/372035111.shtml)
-- 2026-06-29 21:07 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/33491294.shtml)
-- 2026-06-29 21:05 - [时光音乐会](http://www.blog.minike.top/Article/details/855039464.shtml)
-- 2026-06-29 20:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/515394993784.shtml)
-- 2026-06-29 20:56 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/376058432.shtml)
-- 2026-06-29 21:07 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/73981639604.shtml)
-- 2026-06-29 20:50 - [极限挑战第一季](http://www.share.minike.top/Article/details/72842821451.shtml)
-- 2026-06-29 21:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/54197581558.shtml)
-- 2026-06-29 20:46 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/64109139.shtml)
-- 2026-06-29 20:45 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/7073546408.shtml)
-- 2026-06-29 20:51 - [东方风云榜直播](http://www.share.minike.top/Article/details/73676369.shtml)
+- 2026-06-29 21:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/92933.shtml)
+- 2026-06-29 21:12 - [恋与深空致歉](https://www.share.minike.top/Article/details/390376.shtml)
+- 2026-06-29 21:17 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/82209509690.shtml)
+- 2026-06-29 21:16 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/718025000.shtml)
+- 2026-06-29 20:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/8819459153.shtml)
+- 2026-06-29 21:12 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/3757449580.shtml)
+- 2026-06-29 20:50 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/80882.shtml)
+- 2026-06-29 21:02 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/366538851251.shtml)
+- 2026-06-29 21:02 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/0805876.shtml)
+- 2026-06-29 21:00 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/25723051783.shtml)
+- 2026-06-29 21:07 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/5640151.shtml)
+- 2026-06-29 21:15 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/4577390.shtml)
+- 2026-06-29 21:01 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/20698488534.shtml)
+- 2026-06-29 21:08 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/25524989611.shtml)
+- 2026-06-29 21:10 - [斗破苍穹](http://www.share.minike.top/Article/details/42289357927.shtml)

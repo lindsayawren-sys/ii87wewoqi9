@@ -1,49 +1,61 @@
-# 特朗普：霍尔木兹海峡将于周五全面开放
+# 禾望电气精彩亮相长垣起重展
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-特朗普在与法国总统马克龙的双边会晤中表示，霍尔木兹海峡“已经部分开放”，并将于周五“完全开放”。 特朗普说：“他们正在搜寻之前发现的几处水雷”。责任编辑：李桐
+4月16日，第十一届中国.长垣国际起重装备博览交易会正式拉开帷幕。禾望电气携HV610系列起重专用变频器及最新推出的HD2000-Plus系列低压工程型变频器亮相DT02号展位，围绕起重行业的安全、稳定、效率等核心痛点，面向全球客户提供起重行业全场景变频驱动解决方案。起重行业在起升、运行、变幅、回转等典型工况中，面临安全防护要求高、运行稳定性不足、工况复杂多样等痛点，既影响作业
 
 ## 正文
 
-特朗普在与法国总统马克龙的双边会晤中表示，霍尔木兹海峡“已经部分开放”，并将于周五“完全开放”。
+4月16日，第十一届中国.长垣国际起重装备博览交易会正式拉开帷幕。
 
-特朗普说：“他们正在搜寻之前发现的几处水雷”。
+禾望电气携HV610系列起重专用变频器及最新推出的HD2000-Plus系列低压工程型变频器亮相DT02号展位，围绕起重行业的安全、稳定、效率等核心痛点，面向全球客户提供起重行业全场景变频驱动解决方案。
 
-责任编辑：李桐
+起重行业在起升、运行、变幅、回转等典型工况中，面临安全防护要求高、运行稳定性不足、工况复杂多样等痛点，既影响作业安全及生产效率，也对设备的可靠性和使用寿命提出了更高要求。
+
+禾望电气深耕工业传动领域，针对起重场景专项研发，形成了成熟完整的产品矩阵，产品已广泛覆盖冶金起重、矿井提升、有色冶炼、油气开发、水利水电、垃圾焚烧、港口码头等诸多场景。
+
+禾望HV610系列起重专用变频器，可广泛应用于机械加工、装备制造、工件转运、冶金车间、装配车间等提升类负载。
+
+产品具备溜钩保护、抱闸保护、松绳保护、限位保护、操作杆归零保护等功能，可有效提升作业安全性；产品内置防摇控制、随载随速等，全系列内置制动，在安全稳定的前提下兼顾效率。
+
+同时，该产品支持多电机切换，内部配置4套电机参数，通过指令切换，可实现对4种不同机构电机的驱动。
+
+支持起重宏参数预设，快速适配起升、平移等不同机构，提升设备通用性与投产效率。
 
 ## 相关推荐
 
-- 2026-06-29 20:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 20:48 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 20:42 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 21:06 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 20:44 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 21:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 20:49 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 20:48 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:45 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 20:44 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 20:59 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 20:57 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 21:04 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 21:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 20:59 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 20:49 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 20:50 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 20:55 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 20:58 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 20:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 20:53 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 21:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 20:52 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 21:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 21:11 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 20:56 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:12 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [我们的少年时代2](http://www.blog.minike.top/Article/details/4571554.shtml)
-- 2026-06-29 20:42 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/439465.shtml)
-- 2026-06-29 20:58 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/79103.shtml)
-- 2026-06-29 21:03 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/555538.shtml)
-- 2026-06-29 21:10 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/626521.shtml)
-- 2026-06-29 20:47 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/492508916805.shtml)
-- 2026-06-29 20:55 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/920647744.shtml)
-- 2026-06-29 20:47 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/8663414627.shtml)
-- 2026-06-29 20:59 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/932725.shtml)
-- 2026-06-29 20:56 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/49286142848.shtml)
-- 2026-06-29 20:49 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/861750.shtml)
-- 2026-06-29 21:04 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/498854.shtml)
-- 2026-06-29 21:01 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/683929354.shtml)
-- 2026-06-29 20:59 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/080326252.shtml)
-- 2026-06-29 20:54 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/30796.shtml)
+- 2026-06-29 20:52 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/13144104193.shtml)
+- 2026-06-29 21:15 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/576077.shtml)
+- 2026-06-29 21:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/844074119402.shtml)
+- 2026-06-29 20:55 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/99884247.shtml)
+- 2026-06-29 20:49 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/6411808.shtml)
+- 2026-06-29 20:51 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/8055599065.shtml)
+- 2026-06-29 20:59 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/5802848.shtml)
+- 2026-06-29 21:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/786566.shtml)
+- 2026-06-29 21:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/221250466653.shtml)
+- 2026-06-29 21:01 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/5322878.shtml)
+- 2026-06-29 21:03 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/415009423171.shtml)
+- 2026-06-29 20:57 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/45269225306.shtml)
+- 2026-06-29 21:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/508485.shtml)
+- 2026-06-29 20:48 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/11616852.shtml)
+- 2026-06-29 21:00 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/834692.shtml)

@@ -1,55 +1,61 @@
-# 沈阳宠物社交升温 点亮市民夏日休闲生活
+# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 22:34 来源：中国新闻网 连日来，随着沈阳市气温逐渐升高。户外遛宠、宠物结伴游玩等宠物社交活动热度持续走高，沈阳市粮仓文化创意产业园、中街等地逐步形成固定遛宠聚集地。宠物不再局限于家庭内部陪伴，转而成为陌生人线下交往的情感纽带，催生城市休闲新风尚。记者实地走访多位养宠市民、普通群众，并邀约心理专业医师深度剖析这一生活新潮流背后的大众情感诉求
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
 
 ## 正文
 
-发布时间：2026年06月14日 22:34 来源：中国新闻网 连日来，随着沈阳市气温逐渐升高。
+卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
 
-户外遛宠、宠物结伴游玩等宠物社交活动热度持续走高，沈阳市粮仓文化创意产业园、中街等地逐步形成固定遛宠聚集地。
+数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
 
-宠物不再局限于家庭内部陪伴，转而成为陌生人线下交往的情感纽带，催生城市休闲新风尚。
+供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
 
-记者实地走访多位养宠市民、普通群众，并邀约心理专业医师深度剖析这一生活新潮流背后的大众情感诉求与人际关系变化。
+3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
 
-(韩浩天 王涵 辽宁沈阳报道) 责任编辑：【曲克】
+数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
+
+从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
+
+产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
+
+从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 20:43 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 20:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 20:52 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 21:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 20:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 20:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 20:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 21:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:09 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 20:45 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 20:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 20:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 20:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 20:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 21:11 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 20:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 20:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 20:48 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 20:54 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 20:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 20:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 20:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 21:02 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 21:15 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 21:16 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 21:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 21:08 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 21:04 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 21:04 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [乔家的儿女](http://www.share.minike.top/Article/details/66015486002.shtml)
-- 2026-06-29 20:47 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/474903207.shtml)
-- 2026-06-29 21:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/32798.shtml)
-- 2026-06-29 20:52 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/31244845.shtml)
-- 2026-06-29 21:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/131132026616.shtml)
-- 2026-06-29 20:51 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/284713017043.shtml)
-- 2026-06-29 21:10 - [绘画区你赢了](http://www.blog.minike.top/Article/details/332288.shtml)
-- 2026-06-29 20:45 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/256115707614.shtml)
-- 2026-06-29 20:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6739471443.shtml)
-- 2026-06-29 20:52 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/95739017.shtml)
-- 2026-06-29 20:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/337119464533.shtml)
-- 2026-06-29 20:43 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/86712.shtml)
-- 2026-06-29 21:05 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/668697104.shtml)
-- 2026-06-29 20:42 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/3056239205.shtml)
-- 2026-06-29 20:49 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/185817220183.shtml)
+- 2026-06-29 21:00 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/94151170006.shtml)
+- 2026-06-29 20:57 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/15728.shtml)
+- 2026-06-29 21:16 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/750160149.shtml)
+- 2026-06-29 21:09 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/46245.shtml)
+- 2026-06-29 20:59 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/709872446.shtml)
+- 2026-06-29 21:09 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/4501851699.shtml)
+- 2026-06-29 21:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/25488989332.shtml)
+- 2026-06-29 20:57 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/469431.shtml)
+- 2026-06-29 21:14 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/1334225.shtml)
+- 2026-06-29 21:16 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/4370228.shtml)
+- 2026-06-29 20:52 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/700354942.shtml)
+- 2026-06-29 20:51 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/2207479856.shtml)
+- 2026-06-29 21:15 - [第一炉香](https://www.share.kurohicncr.top/Article/details/6348450.shtml)
+- 2026-06-29 21:00 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/42835691.shtml)
+- 2026-06-29 21:11 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/488586.shtml)

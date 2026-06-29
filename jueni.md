@@ -1,57 +1,46 @@
-# 西渝高铁康渝段首批500米长钢轨进场 年内铺轨具备条件
+# 壹石通拟每10股派发现金红利1元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网成都6月13日电(记者刘忠俊)6月13日，一列长钢轨运输专列平稳驶入西安至重庆高速铁路安康至重庆段(以下简称“西渝高铁康渝段”)望溪铺轨基地，首批500米长钢轨顺利入库存储。此次长钢轨的顺利进场，标志着西渝高铁康渝段正式进入长轨仓储储备阶段，为项目年内如期启动铺轨工程奠定坚实基础。 西渝高铁康渝段北起安康西站，途经陕西安康，重庆城口，四川达州、广安，重庆合川、北碚，终至重
+4月16日，壹石通（688733）发布公告，公司拟向全体股东每10股派发现金红利1元（含税），预计总派发金额为1972万元。2025年，壹石通实现收入6.30亿元，归母净利润-2212万元。
 
 ## 正文
 
-中新网成都6月13日电(记者刘忠俊)6月13日，一列长钢轨运输专列平稳驶入西安至重庆高速铁路安康至重庆段(以下简称“西渝高铁康渝段”)望溪铺轨基地，首批500米长钢轨顺利入库存储。
+4月16日，壹石通（688733）发布公告，公司拟向全体股东每10股派发现金红利1元（含税），预计总派发金额为1972万元。
 
-此次长钢轨的顺利进场，标志着西渝高铁康渝段正式进入长轨仓储储备阶段，为项目年内如期启动铺轨工程奠定坚实基础。
-
-西渝高铁康渝段北起安康西站，途经陕西安康，重庆城口，四川达州、广安，重庆合川、北碚，终至重庆西站，线路设计时速350公里，全线铺轨总里程1138公里。
-
-其中，中铁五局承建樊哙站至北碚南站约608公里铺轨工程，含正线铺轨584公里、站线铺轨24公里，配套施工20组道岔。
-
-望溪铺轨基地坐落于四川省达州市渠县望溪镇，是西渝高铁康渝段全线唯一铺轨基地，占地241亩，长轨最大存储量420公里，承担全线铺轨物资储备与施工调度核心职能。
-
-本次首批进场500米长钢轨共56根、总重1680吨，可满足14公里线路铺设需求。
-
-康渝段全线钢轨由茂陵焊轨基地统一焊接、检测、发运。
-
-为确保工程建设质量，基地引进母材自动检测、打磨机器人、探伤一体机等智能设备，升级钢轨加工工艺流程；同时严控施工工艺指标，将钢轨焊接接头平直度控制在0.2毫米以内，实现全流程智能化质检，保障钢轨焊接质量稳定达标。
+2025年，壹石通实现收入6.30亿元，归母净利润-2212万元。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 21:03 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 21:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 21:05 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 20:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 21:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 20:58 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 21:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 21:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 21:09 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 21:02 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:09 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 21:17 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 21:04 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 21:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 20:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 20:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 20:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 20:59 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 20:59 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 21:05 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 21:12 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/6402859727.shtml)
-- 2026-06-29 20:58 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/67859.shtml)
-- 2026-06-29 21:01 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/298113828409.shtml)
-- 2026-06-29 20:48 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/38703609.shtml)
-- 2026-06-29 21:03 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/604714719318.shtml)
-- 2026-06-29 20:45 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/556702098.shtml)
-- 2026-06-29 21:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/421584.shtml)
-- 2026-06-29 21:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/3268604.shtml)
-- 2026-06-29 21:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/954674870174.shtml)
-- 2026-06-29 21:02 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/87268.shtml)
-- 2026-06-29 21:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1998504.shtml)
-- 2026-06-29 21:11 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/85681.shtml)
-- 2026-06-29 21:11 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/652239.shtml)
-- 2026-06-29 21:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/593410.shtml)
-- 2026-06-29 20:42 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/064894025.shtml)
+- 2026-06-29 20:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/96017156.shtml)
+- 2026-06-29 20:59 - [乔家的儿女](http://www.blog.minike.top/Article/details/52962328664.shtml)
+- 2026-06-29 21:09 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/9632042.shtml)
+- 2026-06-29 20:48 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/21999562760.shtml)
+- 2026-06-29 21:06 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/71065077253.shtml)
+- 2026-06-29 21:13 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/8321221748.shtml)
+- 2026-06-29 21:17 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/34681236186.shtml)
+- 2026-06-29 20:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/11059981862.shtml)
+- 2026-06-29 21:13 - [周生如故](http://www.blog.minike.top/Article/details/88959972.shtml)
+- 2026-06-29 20:56 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/7135995294.shtml)
+- 2026-06-29 20:58 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/508574746568.shtml)
+- 2026-06-29 20:55 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/20381.shtml)
+- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/08513972.shtml)
+- 2026-06-29 20:57 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/246194869057.shtml)
+- 2026-06-29 20:52 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/452778446.shtml)

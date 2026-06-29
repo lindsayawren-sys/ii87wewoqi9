@@ -1,52 +1,56 @@
-# 亚洲股市高开高走 日韩股市强劲上涨 此前美国和伊朗达成协议
+# 国家统计局：新兴领域投资逐步成为投资增长新引擎
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。韩国KOSPI指数一度飙升5.2%。日经225指数上涨幅度高达3%。日本东证指数逾2%。责任编辑：王永生
+中新网4月16日电 国新办16日举行新闻发布会，介绍2026年一季度国民经济运行情况，并答记者问。会上，国家统计局副局长毛盛勇在介绍一季度固定资产投资表现时指出，新兴领域投资增势较好，产业升级稳步发展，科技创新引领作用增强，新质生产力发展成效持续显现，以低空经济为代表的新兴产业和以具身智能、6G等为代表的未来产业加快布局，逐步成为投资增长的新引擎。毛盛勇表示，“今年一季度固定资
 
 ## 正文
 
-亚洲股市开盘上涨，韩国股市飙升，此前美国总统唐纳德·特朗普表示，美国和伊朗已达成和平协议，这提振了市场对中东战争即将结束的希望。
+中新网4月16日电 国新办16日举行新闻发布会，介绍2026年一季度国民经济运行情况，并答记者问。
 
-韩国KOSPI指数一度飙升5.2%。
+会上，国家统计局副局长毛盛勇在介绍一季度固定资产投资表现时指出，新兴领域投资增势较好，产业升级稳步发展，科技创新引领作用增强，新质生产力发展成效持续显现，以低空经济为代表的新兴产业和以具身智能、6G等为代表的未来产业加快布局，逐步成为投资增长的新引擎。
 
-日经225指数上涨幅度高达3%。
+毛盛勇表示，“今年一季度固定资产投资实现了1.7%的增长，应该说表现还是不错的。
 
-日本东证指数逾2%。
+”毛盛勇称，今年以来，各地区各部门持续扩大内需，优化供给，深入挖掘释放有效投资的潜力，下达提前批、第一批“两重”建设项目清单和中央预算内投资计划，加力提效用好超长期特别国债、地方政府专项债券等资金，完善民营企业参与重大项目建设成效机制，多措并举促进投资由负转正，一季度同比增长1.7%，上年是下降3.8%，较好地发挥了投资对优化供给的关键作用。
 
-责任编辑：王永生
+主要有以下几个方面的特点： 一是重点领域投资较快增长。
+
+今年是“十五五”开局之年，各方面抢抓机遇，推动重大工程开工建设，加大新型基础设施建设力度，基础设施投资提速。
+
+一季度，基础设施投资同比增长8.9%，增速比2025年全年加快8.3个百分点。
+
+大项目开工建设加快，一季度，计划总投资亿元及以上项目投资同比增长4.5%。
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 21:03 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 21:02 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:06 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 20:42 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 20:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:10 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 21:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 21:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 21:03 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 20:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 21:05 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 20:56 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 21:01 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 20:51 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 21:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 20:57 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 21:07 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 20:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 20:57 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 21:05 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 21:17 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/22055.shtml)
-- 2026-06-29 21:09 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/28211.shtml)
-- 2026-06-29 21:04 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/86257724.shtml)
-- 2026-06-29 20:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/075845489.shtml)
-- 2026-06-29 20:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/18396.shtml)
-- 2026-06-29 21:05 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/3921435680.shtml)
-- 2026-06-29 20:43 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/94151036.shtml)
-- 2026-06-29 20:46 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/94565182559.shtml)
-- 2026-06-29 20:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/64588.shtml)
-- 2026-06-29 20:46 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/96255.shtml)
-- 2026-06-29 20:55 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/84775578167.shtml)
-- 2026-06-29 20:43 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/706645393.shtml)
-- 2026-06-29 21:06 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/522493.shtml)
-- 2026-06-29 20:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2746338229.shtml)
-- 2026-06-29 20:46 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/371371928.shtml)
+- 2026-06-29 21:06 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/706178993.shtml)
+- 2026-06-29 20:50 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/832989525.shtml)
+- 2026-06-29 20:51 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/77150.shtml)
+- 2026-06-29 20:55 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/7328820611.shtml)
+- 2026-06-29 21:12 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/5819281700.shtml)
+- 2026-06-29 20:58 - [温网](https://www.blog.minike.top/Article/details/80560.shtml)
+- 2026-06-29 21:15 - [我和我的家乡](https://www.blog.minike.top/Article/details/99342372.shtml)
+- 2026-06-29 21:11 - [我和我的家乡](https://www.blog.minike.top/Article/details/6733810085.shtml)
+- 2026-06-29 20:52 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.kurohicncr.top/Article/details/88031516460.shtml)
+- 2026-06-29 20:51 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/2755902.shtml)
+- 2026-06-29 20:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/32368224.shtml)
+- 2026-06-29 21:02 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/460056.shtml)
+- 2026-06-29 20:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/749866.shtml)
+- 2026-06-29 21:10 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/55206.shtml)
+- 2026-06-29 21:11 - [女心理师](https://www.share.minike.top/Article/details/680494.shtml)

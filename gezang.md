@@ -1,61 +1,60 @@
-# 黄金相关ETF规模“缩水”，年内已有超百只基金调降管理费率
+# 陆军某旅着力培养过硬兵棋骨干队伍
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。 在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。 业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。当
+陆军某旅着力培养过硬兵棋骨干队伍 “指尖博弈”练兵又练脑 本报讯 李芊逸报道：键盘声声，厮杀无形。暮春时节，陆军某旅组织一场电子兵棋强化训练，指挥员紧盯屏幕，密切关注瞬息万变的战场态势，沉着冷静地在方寸屏幕上“调兵遣将”。 “迅速对‘敌’前沿左翼障碍实施间瞄打击。”随着炮兵火力席刘参谋指令下达，操作手迅速找到相应棋子，选中预定打击目标区域。电子大屏很快显示，火箭弹精准命中目标，
 
 ## 正文
 
-金价持续大跌，黄金相关ETF规模“缩水”近370亿元 受多重因素影响，近日国际金价连续下挫，目前已经回吐年内全部涨幅。
+陆军某旅着力培养过硬兵棋骨干队伍 “指尖博弈”练兵又练脑 本报讯 李芊逸报道：键盘声声，厮杀无形。
 
-与此同时，黄金相关ETF持续“失血”，整体规模较一季度末缩水近370亿元。
+暮春时节，陆军某旅组织一场电子兵棋强化训练，指挥员紧盯屏幕，密切关注瞬息万变的战场态势，沉着冷静地在方寸屏幕上“调兵遣将”。
 
-在小红书、东方财富评论区，记者发现，不少网友已经开始跃跃欲试，讨论抄底黄金。
+“迅速对‘敌’前沿左翼障碍实施间瞄打击。
 
-业内人士表示，本轮黄金调整受多重因素共振驱动，短期仍处于高位震荡状态，而中长期支撑黄金的核心逻辑并未动摇。
+”随着炮兵火力席刘参谋指令下达，操作手迅速找到相应棋子，选中预定打击目标区域。
 
-当前需要保持谨慎，短期风险窗口尚未关闭，在“长期叙事未变”与“短期压制未消”的格局下，保持耐心、等待信号明朗，或是当前更理性的策略。
+电子大屏很快显示，火箭弹精准命中目标，“敌”前沿左翼障碍被精准摧毁。
 
-二季度以来债券型ETF规模增长超千亿元 公开数据显示，债券型ETF总规模已逼近8700亿元，较一季度末增长超千亿元，其中多只债券型ETF二季度以来规模增长超过或接近100亿元。
+据介绍，为充分发挥电子兵棋系统对培育打仗人才的“催化剂”作用，他们从各营连遴选训练基础扎实的干部和军士担任兵棋操作手，并选派机关参谋担任战术指挥员，集中组织兵棋骨干强化训练，着力培养一支综合素质过硬的兵棋骨干队伍。
 
-公募基金行业首笔利率互换交易落地 日前，华夏基金（香港）旗下华夏精选人民币投资级别收益基金顺利完成首笔人民币利率互换（IRS）交易。
+“我们将战术运用贯穿强化训练全过程，极大增强了训练内容的实战性、实用性、实效性。
 
-这是“互换通”机制推出以来，离岸公募基金行业成功落地的第一单利率互换交易。
+”该旅领导介绍，以往组织兵棋训练多以技术操作为主，不少官兵出现会操作却不懂战法的现象。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 20:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 20:59 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 21:03 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 20:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:54 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 21:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 21:11 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 21:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 20:52 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 20:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 21:08 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 20:42 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 20:54 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 21:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 20:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 20:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 21:15 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 21:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 20:56 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 20:57 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 20:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 20:48 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 21:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 20:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 21:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 20:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 20:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/34073960816.shtml)
-- 2026-06-29 21:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/682235.shtml)
-- 2026-06-29 20:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/256317885.shtml)
-- 2026-06-29 21:02 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/88894997.shtml)
-- 2026-06-29 21:07 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/257880.shtml)
-- 2026-06-29 20:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/2644410.shtml)
-- 2026-06-29 21:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/7549218.shtml)
-- 2026-06-29 20:49 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/04028.shtml)
-- 2026-06-29 20:49 - [极限挑战第一季](https://www.blog.minike.top/Article/details/431661.shtml)
-- 2026-06-29 20:54 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/199478765450.shtml)
-- 2026-06-29 20:59 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/487126.shtml)
-- 2026-06-29 20:59 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/9085306814.shtml)
-- 2026-06-29 21:05 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/8733504.shtml)
-- 2026-06-29 21:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/612774.shtml)
-- 2026-06-29 20:44 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/9932854.shtml)
+- 2026-06-29 21:13 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/437353736.shtml)
+- 2026-06-29 21:00 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/77598910842.shtml)
+- 2026-06-29 20:48 - [速度与激情9](https://www.share.minike.top/Article/details/377413.shtml)
+- 2026-06-29 21:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/118821.shtml)
+- 2026-06-29 21:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/2984287.shtml)
+- 2026-06-29 21:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/77461.shtml)
+- 2026-06-29 20:58 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/424869170771.shtml)
+- 2026-06-29 21:06 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/66532922.shtml)
+- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/837464569751.shtml)
+- 2026-06-29 21:11 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/6617263.shtml)
+- 2026-06-29 21:06 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/398798094.shtml)
+- 2026-06-29 20:50 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/418995581.shtml)
+- 2026-06-29 21:07 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/237536252335.shtml)
+- 2026-06-29 21:14 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/132932.shtml)
+- 2026-06-29 20:53 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/689852.shtml)

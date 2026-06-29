@@ -1,45 +1,56 @@
-# 渍涝风险气象预报：江西福建等5省区风险较高
+# 最高年化收益率4.81%！商业养老金试点三年成效斐然
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台6月13日18时发布渍涝风险气象预报： 受强降雨的影响，预计6月13日20时至14日20时，江西南部、福建西部、湖南南部、广东北部和东部、广西东部和中部等地部分地区发生渍涝的气象风险较高，其中，广东东南部部分地区发生渍涝的气象风险高，易形成城市内涝和农田渍害，需加强防范。
+来源：国际金融报 历经三年发展，商业养老金试点工作成绩斐然，开户数和管理规模均实现翻倍式增长。 4家试点险企已悉数披露商业养老金业务2025年年度报告。 据《国际金融报》记者统计，截至2025年末，人保养老、国寿养老、太平养老、国民养老累计开立商业养老金账户317.39万户，同比增长62.3%；合计管理规模突破1600亿元，同比增长53.7%。 分析人士指出，下一步，试点保险公
 
 ## 正文
 
-中国天气网讯 中央气象台6月13日18时发布渍涝风险气象预报： 受强降雨的影响，预计6月13日20时至14日20时，江西南部、福建西部、湖南南部、广东北部和东部、广西东部和中部等地部分地区发生渍涝的气象风险较高，其中，广东东南部部分地区发生渍涝的气象风险高，易形成城市内涝和农田渍害，需加强防范。
+来源：国际金融报 历经三年发展，商业养老金试点工作成绩斐然，开户数和管理规模均实现翻倍式增长。
+
+4家试点险企已悉数披露商业养老金业务2025年年度报告。
+
+据《国际金融报》记者统计，截至2025年末，人保养老、国寿养老、太平养老、国民养老累计开立商业养老金账户317.39万户，同比增长62.3%；合计管理规模突破1600亿元，同比增长53.7%。
+
+分析人士指出，下一步，试点保险公司应针对不同客户群体，开发更具个性化的商业养老金产品，如针对高收入人群的定制化产品、针对特定职业的专属产品等。
+
+同时，探索与养老产业、医疗健康产业等深度融合的产品创新，提供更全面的养老保障服务。
+
+存量规模超1600亿元 商业养老金是养老保险公司经营的新型商业养老保险业务，主要依托保险经营规则创新产品和服务，向客户提供养老账户管理、养老规划、资金管理、风险管理等服务，是第三支柱养老保险的组成部分。
+
+2023年1月1日起，商业养老金业务在北京市、上海市、江苏省、浙江省、福建省、山东省、河南省、广东省、四川省、陕西省等10个省（市）率先开展试点。
+
+参与试点的有4家养老保险公司，分别是人保养老、国寿养老、太平养老和国民养老。
 
 ## 相关推荐
 
-- 2026-06-29 20:55 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 20:54 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 20:56 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 20:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 20:48 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 20:45 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 21:03 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 20:56 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 21:00 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 21:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 21:07 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 20:54 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 21:02 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 20:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 21:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 21:01 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 21:04 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 20:57 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 21:07 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 21:02 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/366655820871.shtml)
-- 2026-06-29 21:10 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/26166022.shtml)
-- 2026-06-29 20:53 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/74493656421.shtml)
-- 2026-06-29 21:05 - [女心理师](http://www.share.minike.top/Article/details/567346211288.shtml)
-- 2026-06-29 20:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/255903562318.shtml)
-- 2026-06-29 21:00 - [TOP Prada](https://www.blog.minike.top/Article/details/46126998117.shtml)
-- 2026-06-29 20:47 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/2542236449.shtml)
-- 2026-06-29 21:00 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/619765115270.shtml)
-- 2026-06-29 21:05 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/692346233.shtml)
-- 2026-06-29 20:46 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/261461.shtml)
-- 2026-06-29 20:43 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/481362.shtml)
-- 2026-06-29 21:02 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/66178209.shtml)
-- 2026-06-29 20:50 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/9897755834.shtml)
-- 2026-06-29 21:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/254518562068.shtml)
-- 2026-06-29 21:07 - [AG 宫斗](https://www.share.minike.top/Article/details/55719426.shtml)
+- 2026-06-29 20:48 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/99816257394.shtml)
+- 2026-06-29 20:50 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/184547879.shtml)
+- 2026-06-29 21:03 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/005813.shtml)
+- 2026-06-29 21:07 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/259225.shtml)
+- 2026-06-29 20:54 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/80370.shtml)
+- 2026-06-29 21:13 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/01563204.shtml)
+- 2026-06-29 21:16 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/408363.shtml)
+- 2026-06-29 20:49 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/0013665891.shtml)
+- 2026-06-29 21:05 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/226158840.shtml)
+- 2026-06-29 21:12 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/483163536.shtml)
+- 2026-06-29 20:50 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/26922.shtml)
+- 2026-06-29 20:59 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/0176426.shtml)
+- 2026-06-29 20:55 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/3937149980.shtml)
+- 2026-06-29 20:55 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/765647.shtml)
+- 2026-06-29 21:07 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/19541775.shtml)

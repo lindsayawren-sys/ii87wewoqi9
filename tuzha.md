@@ -1,57 +1,49 @@
-# 中方：将同各成员国一道将上合组织打造成共同发展繁荣的可靠依托
+# 绿茶集团遭Partners Group AG减持6004.4万股 每股作价6.8港元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。 有记者提问：今天是上海合作组织成立25周年。中方如何评价上合组织发展成就？中方为组织发展作出哪些突出贡献？ 林剑：2001年6月15日，上海合作组织成立。经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。25年来，上合组织成员国始终秉持“上海精神”，
+香港联交所最新资料显示，4月13日，Partners Group AG减持绿茶集团（06831）6004.4万股，每股作价6.8港元，总金额约为4.08亿港元。减持后最新持股数目为4609.68万股，最新持股比例为6.84%。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京6月15日电 (记者 曾玥 李京泽)中国外交部发言人林剑15日主持例行记者会。
+香港联交所最新资料显示，4月13日，Partners Group AG减持绿茶集团（06831）6004.4万股，每股作价6.8港元，总金额约为4.08亿港元。
 
-有记者提问：今天是上海合作组织成立25周年。
+减持后最新持股数目为4609.68万股，最新持股比例为6.84%。
 
-中方如何评价上合组织发展成就？
-
-中方为组织发展作出哪些突出贡献？
-
-林剑：2001年6月15日，上海合作组织成立。
-
-经过25年发展，上合组织已成为世界上幅员最广、人口最多、发展潜力巨大的综合性区域合作组织。
-
-25年来，上合组织成员国始终秉持“上海精神”，坚持团结协作，不断深化政治、安全、经济、人文领域合作，打造和巩固本地区安全屏障、合作桥梁、友好纽带，成功探索出一条新型区域合作的道路，树立了新型国际关系典范。
-
-中国将上合组织视作周边外交优先方向。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 20:58 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 20:54 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 20:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:45 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 20:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 20:46 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 20:52 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 21:03 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 20:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 21:03 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:09 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 20:58 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 20:50 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 21:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 21:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 21:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 20:54 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 20:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 20:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 21:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 20:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 21:04 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 21:11 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/83605.shtml)
-- 2026-06-29 21:07 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/6900972.shtml)
-- 2026-06-29 20:46 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/850274939.shtml)
-- 2026-06-29 20:45 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/6191712.shtml)
-- 2026-06-29 20:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/35818291.shtml)
-- 2026-06-29 20:50 - [TTG KSG](https://www.share.minike.top/Article/details/78791244.shtml)
-- 2026-06-29 20:59 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/67705604664.shtml)
-- 2026-06-29 21:01 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/869030508.shtml)
-- 2026-06-29 21:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/71687.shtml)
-- 2026-06-29 20:51 - [青春环游记第三季](http://www.blog.minike.top/Article/details/10272459.shtml)
-- 2026-06-29 20:52 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/839523397961.shtml)
-- 2026-06-29 21:10 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/0913323.shtml)
-- 2026-06-29 20:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6337603.shtml)
-- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/97813.shtml)
-- 2026-06-29 20:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/7500590.shtml)
+- 2026-06-29 21:17 - [毒液2](https://www.blog.minike.top/Article/details/3846746.shtml)
+- 2026-06-29 21:16 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/5523458719.shtml)
+- 2026-06-29 21:03 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/133994329220.shtml)
+- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/684607421692.shtml)
+- 2026-06-29 21:12 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/873809644498.shtml)
+- 2026-06-29 21:07 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/63411823070.shtml)
+- 2026-06-29 21:01 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/06694521.shtml)
+- 2026-06-29 21:06 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/124649.shtml)
+- 2026-06-29 21:08 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5060385.shtml)
+- 2026-06-29 21:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/42380364.shtml)
+- 2026-06-29 20:57 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/87191118945.shtml)
+- 2026-06-29 20:59 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/4483155.shtml)
+- 2026-06-29 20:55 - [明星大侦探第四季](http://www.share.minike.top/Article/details/8522785.shtml)
+- 2026-06-29 20:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/7951090176.shtml)
+- 2026-06-29 21:04 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/2396556.shtml)

@@ -1,56 +1,59 @@
-# 快讯：恒指低开0.07% 科指微跌 芯片股活跃 石油股低迷
+# 道富银行：全球投资者将美元对冲比率提升至两年来最高水平
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-美股周一继续向好，美伊签署和平协议，令油价大幅回落，利好大市气氛。美股三大指数均录得升幅收市，当中科技股表现最为突出。美元走势回落，美国十年期债息维持于4.47厘水平。金价大幅反弹，油价则显著受压。 今日港股三大指数集体低开，恒指开盘跌0.07%，报24826.19点，恒科指微跌%，国企指数跌0.04%。盘面上，科网股跌多涨少，联想涨超1%，美团、哔哩哔哩跌超2%；AI应用股活
+随着美伊停火削弱此前支撑美元的避险需求，国际投资者正在加大对冲美元下跌的力度。 道富银行策略师Lee Ferridge表示，截至4月10日，全球投资者对美元的对冲比率升至63%，为2024年同期以来的最高水平。 彭博美元指数周四一度下跌0.2%，目前已接近2月27日 —— 即战争爆发前一天 —— 的水平。该指数势将连续第九个交易日下跌，创自2006年以来的最长连跌纪录。 美元作
 
 ## 正文
 
-美股周一继续向好，美伊签署和平协议，令油价大幅回落，利好大市气氛。
+随着美伊停火削弱此前支撑美元的避险需求，国际投资者正在加大对冲美元下跌的力度。
 
-美股三大指数均录得升幅收市，当中科技股表现最为突出。
+道富银行策略师Lee Ferridge表示，截至4月10日，全球投资者对美元的对冲比率升至63%，为2024年同期以来的最高水平。
 
-美元走势回落，美国十年期债息维持于4.47厘水平。
+彭博美元指数周四一度下跌0.2%，目前已接近2月27日 —— 即战争爆发前一天 —— 的水平。
 
-金价大幅反弹，油价则显著受压。
+该指数势将连续第九个交易日下跌，创自2006年以来的最长连跌纪录。
 
-今日港股三大指数集体低开，恒指开盘跌0.07%，报24826.19点，恒科指微跌%，国企指数跌0.04%。
+美元作为动荡时期传统的避险货币，在中东冲突期间成为主要受益者，3月创下自7月以来的最大单月涨幅。
 
-盘面上，科网股跌多涨少，联想涨超1%，美团、哔哩哔哩跌超2%；AI应用股活跃，Minimax涨超2%；芯片股高开，英诺赛科涨超2%；创新药概念股多数上涨，百济神州涨超1%；石油股低迷，中石油跌超1%。
+但随着停火谈判推进，对冲活动也随之加剧，该银行的数据显示，这表明投资者正重新转向战前盛行的看跌美元观点。
 
-责任编辑：郝欣煜
+Ferridge表示，“那些错过了2025年对冲美元机会的人不想再次错失良机。
+
+现在是开始建立中期美元空头头寸的好时机。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 21:05 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 20:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 20:56 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 21:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 20:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 21:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 21:10 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 20:42 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 20:43 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 20:44 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 20:49 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 21:05 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 21:04 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 20:52 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 20:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 21:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:07 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 21:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 20:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 21:09 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 21:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 21:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 20:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 20:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/394986891.shtml)
-- 2026-06-29 20:51 - [美人鱼](http://www.blog.minike.top/Article/details/161258.shtml)
-- 2026-06-29 21:01 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/72382181412.shtml)
-- 2026-06-29 20:49 - [沙丘](http://www.share.kurohicncr.top/Article/details/039361912.shtml)
-- 2026-06-29 21:01 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/77077.shtml)
-- 2026-06-29 21:07 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/14898.shtml)
-- 2026-06-29 21:09 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/97620.shtml)
-- 2026-06-29 20:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/88053.shtml)
-- 2026-06-29 21:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/2031770.shtml)
-- 2026-06-29 20:53 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/936131703.shtml)
-- 2026-06-29 20:53 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/9498227.shtml)
-- 2026-06-29 21:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/496141405.shtml)
-- 2026-06-29 20:42 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/35516340577.shtml)
-- 2026-06-29 21:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/8248111604.shtml)
-- 2026-06-29 21:04 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/85158.shtml)
+- 2026-06-29 21:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/120813230774.shtml)
+- 2026-06-29 20:53 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/90109642919.shtml)
+- 2026-06-29 20:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/6951957.shtml)
+- 2026-06-29 20:57 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/7227591.shtml)
+- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/833075644725.shtml)
+- 2026-06-29 21:02 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/208902692.shtml)
+- 2026-06-29 21:17 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/04211.shtml)
+- 2026-06-29 21:14 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/246503.shtml)
+- 2026-06-29 21:05 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/862351138.shtml)
+- 2026-06-29 20:50 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/67382427805.shtml)
+- 2026-06-29 20:52 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/32483932328.shtml)
+- 2026-06-29 20:50 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/78438899531.shtml)
+- 2026-06-29 21:09 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/63136882403.shtml)
+- 2026-06-29 21:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/534256133.shtml)
+- 2026-06-29 21:09 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/72068558.shtml)

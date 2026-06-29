@@ -1,50 +1,50 @@
-# 特朗普：与伊朗的协议现已完成
+# 中信银行：注册资本获批增至556.45亿元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普表示，与伊朗的协议现已完成，并补充说他在授权“免通行费开放”霍尔木兹海峡。 特朗普表示，他授权解除美国海军在霍尔木兹海峡的封锁。责任编辑：李桐
+4月17日金融一线消息，中信银行今日发布公告称，近日该行收到《国家金融监督管理总局关于中信银行变更注册资本的批复》（金复〔2026〕206号），国家金融监督管理总局同意该行注册资本变更为55645162264元人民币，应按照有关规定及时办理变更事宜。 中信银行指出，该行于2019年3月公开发行面值总额为人民币40，000，000，000元的A股可转换公司债券（以下简称可转债），
 
 ## 正文
 
-美国总统特朗普表示，与伊朗的协议现已完成，并补充说他在授权“免通行费开放”霍尔木兹海峡。
+4月17日金融一线消息，中信银行今日发布公告称，近日该行收到《国家金融监督管理总局关于中信银行变更注册资本的批复》（金复〔2026〕206号），国家金融监督管理总局同意该行注册资本变更为55645162264元人民币，应按照有关规定及时办理变更事宜。
 
-特朗普表示，他授权解除美国海军在霍尔木兹海峡的封锁。
+中信银行指出，该行于2019年3月公开发行面值总额为人民币40，000，000，000元的A股可转换公司债券（以下简称可转债），存续期限6年，已于2025年3月3日到期。
 
-责任编辑：李桐
+截至2025年3月3日，该行可转债累计转股股数为6710365691股，较2019年9月可转债开始转股前增加6710365691股。
+
+上述可转债转股导致该行股本变动，本行注册资本由人民币48934796573元增至人民币55645162264元。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 21:01 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 20:49 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 20:42 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 21:08 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 21:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 20:57 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 21:10 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 20:53 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 20:57 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 21:04 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 21:07 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 21:06 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 20:49 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:53 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:03 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 20:58 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 21:12 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 21:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 20:59 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 20:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:13 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:56 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/40887638.shtml)
-- 2026-06-29 20:42 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/119234228.shtml)
-- 2026-06-29 20:56 - [极限挑战第一季](http://www.blog.minike.top/Article/details/600859.shtml)
-- 2026-06-29 20:56 - [TOP Prada](https://www.share.minike.top/Article/details/01720.shtml)
-- 2026-06-29 20:47 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/45302679.shtml)
-- 2026-06-29 20:46 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/58813339415.shtml)
-- 2026-06-29 21:10 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/995550026507.shtml)
-- 2026-06-29 21:02 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/18408645.shtml)
-- 2026-06-29 21:03 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/265487359950.shtml)
-- 2026-06-29 20:55 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/976000125693.shtml)
-- 2026-06-29 21:02 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/1028705.shtml)
-- 2026-06-29 21:04 - [急先锋](https://www.blog.kurohicncr.top/Article/details/055108495150.shtml)
-- 2026-06-29 20:58 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/044736.shtml)
-- 2026-06-29 20:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3438343555.shtml)
-- 2026-06-29 21:05 - [女心理师](http://www.share.kurohicncr.top/Article/details/35549.shtml)
+- 2026-06-29 21:06 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/494497459529.shtml)
+- 2026-06-29 20:48 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/579329842668.shtml)
+- 2026-06-29 20:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/657682328.shtml)
+- 2026-06-29 20:59 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/2409728.shtml)
+- 2026-06-29 21:06 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/09232092092.shtml)
+- 2026-06-29 20:51 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/79277922239.shtml)
+- 2026-06-29 21:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/25274158.shtml)
+- 2026-06-29 21:16 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/35988878.shtml)
+- 2026-06-29 21:17 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/65905868626.shtml)
+- 2026-06-29 20:56 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/774224490924.shtml)
+- 2026-06-29 21:08 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/390856032953.shtml)
+- 2026-06-29 21:17 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/10411.shtml)
+- 2026-06-29 21:01 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/08918372.shtml)
+- 2026-06-29 21:04 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/921005271800.shtml)
+- 2026-06-29 21:07 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/515084.shtml)

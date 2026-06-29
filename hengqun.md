@@ -1,56 +1,59 @@
-# “没什么大用但好玩” 这家杂货铺专卖平价商品
+# 今年消费品以旧换新销售额突破5000亿元
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-商品多为“美丽废物” 主打“止手痒止嘴痒止心痒” 平价商品“挠痒点”这家杂货铺的另类生意经 “一堆普普通通、没什么大用的东西，可你就是忍不住想买。”这是年轻买家对 “止痒商店” 的评价。这家名为 “止痒商店” 的杂货铺，总能让年轻人心甘情愿地掏腰包。 如今，各大购物中心里遍布着各类连锁杂货铺，但“止痒商店” 偏偏不走寻常路。不同于那些越来越相似的货架、越来越雷同的文创、越来越千
+(新闻联播)：记者从商务部了解到，今年以来，以旧换新政策成效持续显现。商务大数据监测显示，截至4月12日，今年消费品以旧换新销售额达5029.4亿元，惠及6977.7万人次。 分品类看，汽车以旧换新超167万辆，带动新车销售额超2694.4亿元。其中，报废更新超47.2万辆，销售额超606.9亿元；置换更新超119.8万辆，销售额超2087.5亿元。家电以旧换新2702.3万台
 
 ## 正文
 
-商品多为“美丽废物” 主打“止手痒止嘴痒止心痒” 平价商品“挠痒点”这家杂货铺的另类生意经 “一堆普普通通、没什么大用的东西，可你就是忍不住想买。
+(新闻联播)：记者从商务部了解到，今年以来，以旧换新政策成效持续显现。
 
-”这是年轻买家对 “止痒商店” 的评价。
+商务大数据监测显示，截至4月12日，今年消费品以旧换新销售额达5029.4亿元，惠及6977.7万人次。
 
-这家名为 “止痒商店” 的杂货铺，总能让年轻人心甘情愿地掏腰包。
+分品类看，汽车以旧换新超167万辆，带动新车销售额超2694.4亿元。
 
-如今，各大购物中心里遍布着各类连锁杂货铺，但“止痒商店” 偏偏不走寻常路。
+其中，报废更新超47.2万辆，销售额超606.9亿元；置换更新超119.8万辆，销售额超2087.5亿元。
 
-不同于那些越来越相似的货架、越来越雷同的文创、越来越千篇一律的陈列，它拒绝复制，而是汇集起各式所谓能“止痒”的商品，营造出一种让人 “心痒” 的购物氛围，那些被称为 “互联网嘴替” 的小东西，总让人忍不住想带回家。
+家电以旧换新2702.3万台，销售额达1110.9亿元。
 
-“‘止痒商店’怎么止痒？
+数码和智能产品购新4108.4万件，销售额达1224.1亿元。
 
-”“究竟什么东西能止痒？
-
-” 带着这份好奇，我们走进了“止痒商店”。
+来源：央视网
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 21:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 21:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 21:03 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 20:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 21:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 20:55 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 21:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 21:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 20:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 21:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 21:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 20:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 21:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 21:14 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 21:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 21:09 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 21:07 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 20:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 20:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 20:48 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 21:02 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 21:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 21:14 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 20:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/5486375667.shtml)
-- 2026-06-29 20:47 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/3203548718.shtml)
-- 2026-06-29 21:08 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/813819044.shtml)
-- 2026-06-29 20:43 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/83661.shtml)
-- 2026-06-29 21:04 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/90399.shtml)
-- 2026-06-29 20:53 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/4202707432.shtml)
-- 2026-06-29 20:43 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/51082471.shtml)
-- 2026-06-29 21:09 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/91469.shtml)
-- 2026-06-29 20:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/47735477177.shtml)
-- 2026-06-29 20:49 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/1542775.shtml)
-- 2026-06-29 21:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/322749.shtml)
-- 2026-06-29 20:57 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/128714027887.shtml)
-- 2026-06-29 20:51 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/92271.shtml)
-- 2026-06-29 20:49 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/513121.shtml)
-- 2026-06-29 21:03 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/526644930.shtml)
+- 2026-06-29 21:02 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/43981935.shtml)
+- 2026-06-29 21:16 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/954561011372.shtml)
+- 2026-06-29 20:58 - [一见倾心](https://www.blog.minike.top/Article/details/2306260944.shtml)
+- 2026-06-29 20:49 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/8411651.shtml)
+- 2026-06-29 20:58 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/184538317.shtml)
+- 2026-06-29 21:03 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/23637369.shtml)
+- 2026-06-29 21:13 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/209200247.shtml)
+- 2026-06-29 21:11 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/9993679618.shtml)
+- 2026-06-29 21:11 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/025706293039.shtml)
+- 2026-06-29 21:14 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/7682472497.shtml)
+- 2026-06-29 21:01 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/9711737.shtml)
+- 2026-06-29 21:11 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/06720430.shtml)
+- 2026-06-29 20:55 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/20837630299.shtml)
+- 2026-06-29 20:57 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/94716507.shtml)
+- 2026-06-29 20:50 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/515385021672.shtml)

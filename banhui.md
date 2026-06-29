@@ -1,51 +1,59 @@
-# 开盘|国内期货主力合约涨跌不一，沪银涨超7%
+# 美股未经暴跌便直接冲高，历史性反弹刷新认知
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-2026年6月15日，早盘开盘，国内期货主力合约涨跌不一，沪银涨超7%，沪金、沪锡涨超3%，焦炭涨超2%，玻璃、沪锌涨近2%，纯碱、橡胶涨超1%。跌幅方面，SC原油跌超7%，燃料油跌近7%，液化石油气（LPG）跌超6%，低硫燃料油（LU）跌超5%，沥青、苯乙烯（EB）跌超2%，乙二醇（EG）跌近2%，聚丙烯跌超1%。 责任编辑：赵思远
+在短短三周时间内，美股市场完成了从“战争恐慌”到“历史新高”的戏剧性逆转。标普500指数自3月底一度跌超9%后，于4月15日首次收盘站上7000点整数关口，纳斯达克综合指数同步创下历史新高。这一轮反弹的独特之处在于：市场未经传统意义上的“崩盘式洗盘”，便直接完成了V型反转。 史上最快大逆转 此次反弹的速度在美股历史上极为罕见。数据显示，纳斯达克指数在3月30日跌入“超卖”区间后
 
 ## 正文
 
-2026年6月15日，早盘开盘，国内期货主力合约涨跌不一，沪银涨超7%，沪金、沪锡涨超3%，焦炭涨超2%，玻璃、沪锌涨近2%，纯碱、橡胶涨超1%。
+在短短三周时间内，美股市场完成了从“战争恐慌”到“历史新高”的戏剧性逆转。
 
-跌幅方面，SC原油跌超7%，燃料油跌近7%，液化石油气（LPG）跌超6%，低硫燃料油（LU）跌超5%，沥青、苯乙烯（EB）跌超2%，乙二醇（EG）跌近2%，聚丙烯跌超1%。
+标普500指数自3月底一度跌超9%后，于4月15日首次收盘站上7000点整数关口，纳斯达克综合指数同步创下历史新高。
 
-责任编辑：赵思远
+这一轮反弹的独特之处在于：市场未经传统意义上的“崩盘式洗盘”，便直接完成了V型反转。
+
+史上最快大逆转 此次反弹的速度在美股历史上极为罕见。
+
+数据显示，纳斯达克指数在3月30日跌入“超卖”区间后，于4月15日进入“超买”区间，期间仅经历11个连续上涨的交易日——这是自20世纪80年代有数据以来的最快逆转。
+
+自3月30日以来，纳指累计涨幅超过15%。
+
+标普500指数在过去10个交易日中上涨了9个交易日，累计涨幅近10%。
+
+德银报告指出，这一涨速甚至超过了去年“解放日”后的反弹速度，是自2020年4月新冠疫情后反弹以来最快的10日连涨。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 21:11 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 20:48 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 20:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 20:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 21:06 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 21:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 21:05 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 21:01 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 20:43 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 20:56 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:54 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 20:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 21:04 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 20:50 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 21:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 21:17 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 21:03 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 20:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 21:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 21:11 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 20:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 20:50 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 20:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 20:51 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 21:14 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 21:11 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/914425.shtml)
-- 2026-06-29 21:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/07927900968.shtml)
-- 2026-06-29 21:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/4676275.shtml)
-- 2026-06-29 21:10 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/8110750.shtml)
-- 2026-06-29 20:46 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/93289.shtml)
-- 2026-06-29 20:55 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/4808494064.shtml)
-- 2026-06-29 20:42 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/03648571.shtml)
-- 2026-06-29 21:08 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/32237387.shtml)
-- 2026-06-29 20:51 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/84168932569.shtml)
-- 2026-06-29 20:54 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/505093.shtml)
-- 2026-06-29 21:09 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/3660129.shtml)
-- 2026-06-29 20:43 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/027627289343.shtml)
-- 2026-06-29 20:50 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/79102921.shtml)
-- 2026-06-29 20:56 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/78264.shtml)
-- 2026-06-29 21:03 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/69504.shtml)
+- 2026-06-29 21:12 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/1715129638.shtml)
+- 2026-06-29 20:49 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/174667450.shtml)
+- 2026-06-29 21:07 - [扬名立万](http://www.share.kurohicncr.top/Article/details/285179601.shtml)
+- 2026-06-29 20:59 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/0395324.shtml)
+- 2026-06-29 20:57 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/41506408192.shtml)
+- 2026-06-29 21:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/06524932809.shtml)
+- 2026-06-29 21:14 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/556211052886.shtml)
+- 2026-06-29 21:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/56807.shtml)
+- 2026-06-29 21:14 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/35054586549.shtml)
+- 2026-06-29 21:13 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/72730.shtml)
+- 2026-06-29 21:10 - [时光音乐会](http://www.blog.minike.top/Article/details/439487.shtml)
+- 2026-06-29 21:15 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/09990164.shtml)
+- 2026-06-29 20:51 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/95654456.shtml)
+- 2026-06-29 20:50 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/680708491020.shtml)
+- 2026-06-29 20:56 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/994901037.shtml)

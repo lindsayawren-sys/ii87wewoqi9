@@ -1,58 +1,60 @@
-# 海外华媒侨领探访重庆荣昌：一座未来可期的繁荣昌盛之城
+# 长江有色：17日锌价四连涨 市场逢涨挺价意愿走低
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月15日电 (梁钦卿)“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动15日在重庆荣昌区举行推介座谈会，20余家海外主流华文媒体、10余位知名侨领参加活动。 荣昌是成渝地区双城经济圈的重要节点城市，自唐代置昌元县，明代定名“荣昌”，寓意繁荣昌盛。作为国家畜牧科技城，荣昌猪、荣昌卤鹅享誉西南；拥有荣昌陶、夏布、折扇三大国家级非遗，是一座产业兴旺
+今日沪期锌走势：今日沪期锌偏强上扬；沪锌2605主力合约开盘价23960元/吨，最高价24070元/吨，最低价23875元/吨，昨日结算价23915元/吨，今日收盘价24020元/吨，涨105元，涨幅0.44%。今日沪锌2605主力合约成交量67624手减少21462手，持仓量61572手减少5768手。伦锌北京时间15：06最新价报3437美元，涨16.5美元。 今日ccmn
 
 ## 正文
 
-中新网重庆6月15日电 (梁钦卿)“2026海外华媒侨领川渝行——聚焦成渝地区双城经济圈建设”联合参访活动15日在重庆荣昌区举行推介座谈会，20余家海外主流华文媒体、10余位知名侨领参加活动。
+今日沪期锌走势：今日沪期锌偏强上扬；沪锌2605主力合约开盘价23960元/吨，最高价24070元/吨，最低价23875元/吨，昨日结算价23915元/吨，今日收盘价24020元/吨，涨105元，涨幅0.44%。
 
-荣昌是成渝地区双城经济圈的重要节点城市，自唐代置昌元县，明代定名“荣昌”，寓意繁荣昌盛。
+今日沪锌2605主力合约成交量67624手减少21462手，持仓量61572手减少5768手。
 
-作为国家畜牧科技城，荣昌猪、荣昌卤鹅享誉西南；拥有荣昌陶、夏布、折扇三大国家级非遗，是一座产业兴旺、文脉绵长、宜居宜游的渝西门户城市。
+伦锌北京时间15：06最新价报3437美元，涨16.5美元。
 
-“荣昌的明天，必将是未来可期的繁荣昌盛之城。
+今日ccmn锌价统计：今日ccmn长江综合0#锌价报23840-23940元/吨，均价23890元，涨50元，1#锌价报23750-23850元/吨，均价23800元，涨50元；广东现货0#锌报23550-23850元/吨，均价23700元，涨50元，1#锌价23480-23780元/吨，均价23630元，涨50元。
 
-”中共重庆市荣昌区委书记万容介绍，当前，正推动荣昌从区域节点城市向成渝极核城市跨越，“五城共建”是核心支撑。
+今日现货锌市场报价0#锌在23830-23940元/吨之间，1#锌在23760-23850元/吨之间。
 
-畜牧科技城，以培育畜牧新质生产力为引领，构建畜牧全链条产业生态，打造标志性名片；现代制造城，围绕“33X”产业集群提质增效，筑牢实业基底；非遗文化城，让千年非遗成为城市鲜明标识，厚植文化根脉；智慧品质城，以数字更新与城市建设绘就现代化都市图景，提升都市颜值；一生友好城，构建全生命周期服务体系，传递城市温度，让荣昌成为人人向往的宜居之地。
+对比对比沪期锌2605合约0#锌贴水105-升水5元/吨，1#锌贴水175-贴水85元/吨。
 
-中国新闻社重庆分社社长胡钟艺表示，荣昌作为连接成渝两地的“桥头堡”城市，不仅拥有独特的区位优势，更在产业协同、科技创新、文旅融合、营商环境优化等方面展现出强劲活力和巨大潜力。
+ccmn锌市分析：今日国内现货锌价续涨。
 
-海外华文媒体长期扎根侨社、融通中外，是连接中国与世界的重要桥梁；各位侨领侨商，胸怀家国、联通四海，是推动中外经贸合作与人文交流的中坚力量。
+宏观层面，呈现“海外局势缓和，国内政策托底”的格局。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 21:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 20:50 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 21:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 20:48 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 20:59 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 21:07 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:57 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 21:11 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 21:11 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 20:56 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 21:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 20:53 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 21:01 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 21:16 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 20:48 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:49 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 20:57 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 21:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 20:57 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 21:03 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 21:08 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 21:07 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 20:55 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 20:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/160958767.shtml)
-- 2026-06-29 20:42 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/689374.shtml)
-- 2026-06-29 21:03 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/397661108.shtml)
-- 2026-06-29 20:52 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/38943309.shtml)
-- 2026-06-29 20:57 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/2018248472.shtml)
-- 2026-06-29 21:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/308429154.shtml)
-- 2026-06-29 20:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/35172.shtml)
-- 2026-06-29 21:03 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/875652583521.shtml)
-- 2026-06-29 21:05 - [恋与深空致歉](http://www.blog.minike.top/Article/details/3519438025.shtml)
-- 2026-06-29 20:51 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/3459758.shtml)
-- 2026-06-29 20:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/17800178.shtml)
-- 2026-06-29 21:02 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/673863.shtml)
-- 2026-06-29 21:07 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/6355564989.shtml)
-- 2026-06-29 21:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/99090192.shtml)
-- 2026-06-29 21:04 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/82561.shtml)
+- 2026-06-29 20:51 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/482413.shtml)
+- 2026-06-29 21:00 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/53251.shtml)
+- 2026-06-29 20:53 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/838903849057.shtml)
+- 2026-06-29 21:12 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/4144119.shtml)
+- 2026-06-29 20:49 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/915087.shtml)
+- 2026-06-29 21:03 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/34736030.shtml)
+- 2026-06-29 21:08 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/68732681.shtml)
+- 2026-06-29 20:49 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/11977919.shtml)
+- 2026-06-29 21:05 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/248724377119.shtml)
+- 2026-06-29 20:52 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/074742150.shtml)
+- 2026-06-29 20:51 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/83156.shtml)
+- 2026-06-29 21:06 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/63677.shtml)
+- 2026-06-29 20:55 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/816864979.shtml)
+- 2026-06-29 20:50 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/61799.shtml)
+- 2026-06-29 21:12 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/456853.shtml)

@@ -1,56 +1,61 @@
-# 巴西两架直升机相撞致6死 美国歌手奥利弗·特里遇难
+# 英派药业冲刺港股IPO：亏损扩大、管线断层、对赌压顶，商业化之路暗礁重重
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网6月15日电 据英国《卫报》报道，当地时间14日上午，巴西里约热内卢发生两架直升机空中相撞事故，造成6人遇难。 里约热内卢消防局表示，两架直升机在空中相撞后坠毁，机上无人生还。其中一架直升机坠毁在一家汽车经销店内，并致现场车辆起火，目前火势已被扑灭。 报道指出，遇难者中5人来自同一架直升机，其中包括美国歌手奥利弗·特里(Oliver Tree)、阿根廷网红Gaspi、一名
+核心产品刚上市，亏损却进一步扩大；研发管线高度集中，后续梯队“青黄不接”；叠加对赌协议压顶，英派药业的港股IPO之路并不平坦。 近日，南京英派药业股份有限公司（简称“英派药业”）再次向港交所递交主板上市申请，联席保荐人为高盛与中金公司。表面上看，公司已有一款核心产品实现商业化，似乎迈入了新阶段。然而，细究招股书，其财务与运营状况并不乐观，多个风险点正在积聚，给IPO进程增添了不
 
 ## 正文
 
-中新网6月15日电 据英国《卫报》报道，当地时间14日上午，巴西里约热内卢发生两架直升机空中相撞事故，造成6人遇难。
+核心产品刚上市，亏损却进一步扩大；研发管线高度集中，后续梯队“青黄不接”；叠加对赌协议压顶，英派药业的港股IPO之路并不平坦。
 
-里约热内卢消防局表示，两架直升机在空中相撞后坠毁，机上无人生还。
+近日，南京英派药业股份有限公司（简称“英派药业”）再次向港交所递交主板上市申请，联席保荐人为高盛与中金公司。
 
-其中一架直升机坠毁在一家汽车经销店内，并致现场车辆起火，目前火势已被扑灭。
+表面上看，公司已有一款核心产品实现商业化，似乎迈入了新阶段。
 
-报道指出，遇难者中5人来自同一架直升机，其中包括美国歌手奥利弗·特里(Oliver Tree)、阿根廷网红Gaspi、一名巴西音乐制作人和一名阿根廷导演。
+然而，细究招股书，其财务与运营状况并不乐观，多个风险点正在积聚，给IPO进程增添了不小的不确定性。
 
-报道称，奥利弗·特里当时正在南美洲巡演。
+一、商业化后亏损反扩大，现金流持续恶化 英派药业自成立以来始终未能实现盈利，且亏损规模在核心产品上市后反而进一步扩大。
 
-据报道，现年32岁的奥利弗·特里在流媒体平台Spotify上每月听众数超过1100万，热门歌曲播放量超过7亿次。
+招股书显示，2024年公司净亏损2.55亿元，2025年扩大至2.96亿元，同比增幅超过10%。
 
-目前，事故原因正在调查中。
+公司解释称，亏损主要来自研发投入、行政开支，以及因向投资者发行的附优先权普通股所产生的赎回负债利息。
+
+更令人担忧的是，公司预计2026年净亏损将进一步扩大，原因包括研发支出增加、赎回负债利息上升、股份支付及IPO相关费用等。
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 20:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 20:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 20:44 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 21:04 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 21:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:04 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 21:11 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 21:10 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 20:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 20:59 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 20:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 21:09 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 21:06 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 20:57 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 20:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 20:59 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 21:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 20:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 21:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 20:50 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 21:01 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 21:05 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 21:08 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 21:06 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/930497595539.shtml)
-- 2026-06-29 21:09 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/469031.shtml)
-- 2026-06-29 21:01 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/1226393.shtml)
-- 2026-06-29 21:11 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/05623001.shtml)
-- 2026-06-29 20:44 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/98891433.shtml)
-- 2026-06-29 20:45 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/49664447.shtml)
-- 2026-06-29 20:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/33279398326.shtml)
-- 2026-06-29 20:43 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/1243101.shtml)
-- 2026-06-29 21:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/9587392254.shtml)
-- 2026-06-29 20:48 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/372758609539.shtml)
-- 2026-06-29 20:57 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/034513449.shtml)
-- 2026-06-29 21:06 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/7467212.shtml)
-- 2026-06-29 21:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/2030359.shtml)
-- 2026-06-29 20:55 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/37945597743.shtml)
-- 2026-06-29 20:53 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/43628192706.shtml)
+- 2026-06-29 21:03 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/63094.shtml)
+- 2026-06-29 21:13 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/432839838928.shtml)
+- 2026-06-29 21:09 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/302740.shtml)
+- 2026-06-29 20:54 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/997082957959.shtml)
+- 2026-06-29 20:53 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/5083831679.shtml)
+- 2026-06-29 21:05 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/54040.shtml)
+- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/68891.shtml)
+- 2026-06-29 21:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/359276330.shtml)
+- 2026-06-29 21:06 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/235504895.shtml)
+- 2026-06-29 21:00 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/42883.shtml)
+- 2026-06-29 20:58 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/01420302.shtml)
+- 2026-06-29 21:06 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/29800.shtml)
+- 2026-06-29 21:04 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/28294.shtml)
+- 2026-06-29 20:55 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/358340356.shtml)
+- 2026-06-29 21:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/00972.shtml)

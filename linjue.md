@@ -1,60 +1,61 @@
-# 长江有色：国内弱现实及库存去化进程放缓压制 16日铜价或下跌
+# “杭州六小龙”第一股、“全球空间智能第一股”诞生！群核科技港交所“敲锣”
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铜价copper.ccmn.cn短评：美指下跌及花旗唱多铜价，隔夜伦铜三连涨0.61%；美伊达成协议大振铜矿股走强，但国内弱现实及库存去化进程放缓，今现铜或下跌。 【铜期货市场】美指下跌及花旗唱多铜价，隔夜伦铜连续三个交易日走强，尾盘偏强收阳，最新收盘报价13797美元/吨，收涨83美元，涨幅0.61%，成交量16642手减少2212手，持仓量262801手
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：每日经济新闻 记者：叶晓丹 4月17日，Manycore Tech Inc．（以下简称群核科技，股票代码为HK00068）正式于香港联合交易所主板挂牌上市，成为“全球空间智能第一股”，也是“杭州六小龙”中第一家成功登陆资本市场的公司。 上市首日，截至12点，群核科技涨幅为135.96%，股价为17.9
 
 ## 正文
 
-长江有色金属网 长江铜价copper.ccmn.cn短评：美指下跌及花旗唱多铜价，隔夜伦铜三连涨0.61%；美伊达成协议大振铜矿股走强，但国内弱现实及库存去化进程放缓，今现铜或下跌。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-【铜期货市场】美指下跌及花旗唱多铜价，隔夜伦铜连续三个交易日走强，尾盘偏强收阳，最新收盘报价13797美元/吨，收涨83美元，涨幅0.61%，成交量16642手减少2212手，持仓量262801手减少3509手；晚间沪铜高开后直线拉涨，但盘中走势存压及受铝价大跌拖累，尾盘最终以阴线结束夜盘交易；主力月2607合约最新收盘价报105210元/吨，跌150元，跌幅0.14%。
+来源：每日经济新闻 记者：叶晓丹 4月17日，Manycore Tech Inc．（以下简称群核科技，股票代码为HK00068）正式于香港联合交易所主板挂牌上市，成为“全球空间智能第一股”，也是“杭州六小龙”中第一家成功登陆资本市场的公司。
 
-伦敦金属交易所（LME）6月13日伦铜最新库存量报361600吨，较上个交易日减少2500吨，跌幅0.69%。
+上市首日，截至12点，群核科技涨幅为135.96%，股价为17.980港元/股，市值为305.68亿港元。
 
-长江铜业网讯：今日沪铜主力 2607合约早盘低开，09：00最新开盘价报 105040 元/吨，跌320 元。
+群核科技联合创始人兼董事长黄晓煌在上市致辞中表示：“AI正以前所未有的力量席卷全球，这赋予了我们更大的责任，推动AI从仅限于虚拟世界的生成与对话，走向物理世界的理解、行动与创造。
 
-宏观层面，美伊达成框架协议、霍尔木兹海峡将重开→油价显著下跌→能源通胀担忧缓解→美联储年内加息预期微调回落→美元下跌，对基本金属构成支撑。
+而空间智能，正是这一过程中的关键。
 
-盘面上全球矿业股走强印证情绪修复：Rio Tinto +1%、BHP +1.2%、Southern Copper及Freeport-McMoRan各+3.8%，加元矿商Hudbay Minerals +4.8%、Teck Resources +4%。
+” （群核科技联合创始人兼董事长黄晓煌致辞。
 
-花旗预计伦铜年底前至15，000美元/吨（较当前约+10%），中期（60%概率）2026年底看15，000、其后几年均值14，000美元——强化“矿紧→多头”机构共识。
+公司供图） 上市前夜，4月16日晚间，群核科技公布配售结果，群核科技香港公开发售获1591倍认购，国际发售获14.46倍认购。
 
-国内方面，5月70城房价一线环比涨、二三线下跌、同比降幅收窄，地产对铜消费拉动仍弱。
+4月17日，群核科技于港交所成功“敲锣”。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 20:59 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 20:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 21:08 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 21:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 20:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 21:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 20:59 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 20:43 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 21:05 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 21:10 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 20:59 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 20:56 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 21:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 21:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 21:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 21:12 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 20:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 21:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:13 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 20:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 20:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 21:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 21:04 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 21:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 20:51 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 21:02 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/422630231444.shtml)
-- 2026-06-29 20:56 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/30293019.shtml)
-- 2026-06-29 20:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/05568.shtml)
-- 2026-06-29 20:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/53475.shtml)
-- 2026-06-29 20:55 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/451888469.shtml)
-- 2026-06-29 21:00 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/323189942.shtml)
-- 2026-06-29 20:53 - [高质量发展看新疆](https://www.share.minike.top/Article/details/511485.shtml)
-- 2026-06-29 20:53 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/4938986854.shtml)
-- 2026-06-29 20:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/28499340735.shtml)
-- 2026-06-29 21:02 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/8140584636.shtml)
-- 2026-06-29 20:49 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/610574.shtml)
-- 2026-06-29 21:11 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/92724490.shtml)
-- 2026-06-29 20:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/82963489.shtml)
-- 2026-06-29 20:48 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/27516549615.shtml)
-- 2026-06-29 20:56 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/65849.shtml)
+- 2026-06-29 21:05 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/8863301.shtml)
+- 2026-06-29 20:53 - [我们的少年时代2](https://www.share.minike.top/Article/details/269695060.shtml)
+- 2026-06-29 21:08 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/37199464188.shtml)
+- 2026-06-29 21:04 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/550457.shtml)
+- 2026-06-29 21:16 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/90890605.shtml)
+- 2026-06-29 21:00 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/46385667.shtml)
+- 2026-06-29 21:12 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/017015996.shtml)
+- 2026-06-29 21:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/131738153043.shtml)
+- 2026-06-29 21:02 - [周生如故](https://www.share.minike.top/Article/details/948411653002.shtml)
+- 2026-06-29 21:08 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/5736284.shtml)
+- 2026-06-29 20:51 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/022530.shtml)
+- 2026-06-29 21:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/7908539.shtml)
+- 2026-06-29 20:50 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/362046.shtml)
+- 2026-06-29 20:58 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/3287399.shtml)
+- 2026-06-29 21:06 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/6747052.shtml)

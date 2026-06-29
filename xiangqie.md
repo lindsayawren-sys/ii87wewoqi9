@@ -1,57 +1,47 @@
-# 经济日报头版头条：房地产市场筑底回稳态势增强
+# 百事公司每股收益和营收均超出预期
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-来源：经济日报 一段时间以来，我国房地产市场处于调整周期。今年3月份至今，房地产市场筑底回稳态势增强，这既得益于各地因城施策调整优化相关政策，也源于宏观经济向好对需求形成利好。各地还将进一步挖掘市场潜力，努力稳定房地产市场。 多地市场热度提升 4月份，房地产市场总体上延续了一季度良好态势。住房和城乡建设部政策研究中心副主任浦湛介绍，二手房方面，一线城市继续保持量增价涨，4月份，
+百事公司（PEP）每股收益和营收均超出预期，此前乐事和多力多滋等品牌降价后，北美零食业务恢复了销量增长；该公司重申了全年业绩指引。责任编辑：张俊 SF065
 
 ## 正文
 
-来源：经济日报 一段时间以来，我国房地产市场处于调整周期。
+百事公司（PEP）每股收益和营收均超出预期，此前乐事和多力多滋等品牌降价后，北美零食业务恢复了销量增长；该公司重申了全年业绩指引。
 
-今年3月份至今，房地产市场筑底回稳态势增强，这既得益于各地因城施策调整优化相关政策，也源于宏观经济向好对需求形成利好。
-
-各地还将进一步挖掘市场潜力，努力稳定房地产市场。
-
-多地市场热度提升 4月份，房地产市场总体上延续了一季度良好态势。
-
-住房和城乡建设部政策研究中心副主任浦湛介绍，二手房方面，一线城市继续保持量增价涨，4月份，北京、上海二手住宅成交量分别约为1.8万套、2.5万套，同比增长约15%、25%；一线城市二手住宅价格环比继续保持上涨。
-
-据有关市场机构统计，成交量增长的同时，部分城市二手房存量挂牌套数持续下降，到4月底，北京、上海头部中介二手房存量挂牌套数较去年的高点分别下降约14%、23%，表明二手房市场供求关系持续修复，支撑价格稳定回升的力量进一步增强。
-
-新房方面，4月份，一线城市新建商品住宅价格环比继续保持上涨，70个大中城市中有21个城市新建商品住宅价格环比上涨或持平，数量较3月份有明显增加。
-
-供给端主动控增量，新开工面积收缩调整，反映库存的商品房待售面积连续2个月下降，4月份较2月份下降超过2000万平方米，供求关系进一步修复和改善。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 20:44 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 21:07 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 20:47 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 21:02 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 21:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 21:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 21:03 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 21:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 21:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 20:45 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 21:12 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 20:54 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 20:49 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 21:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 21:06 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 21:13 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 21:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 21:06 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 20:55 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 20:51 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 20:50 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 21:11 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/435357905689.shtml)
-- 2026-06-29 20:48 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/896557427.shtml)
-- 2026-06-29 20:50 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/4823160715.shtml)
-- 2026-06-29 20:57 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/7121343.shtml)
-- 2026-06-29 21:10 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/496341196376.shtml)
-- 2026-06-29 21:11 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/956555.shtml)
-- 2026-06-29 21:11 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/84856040.shtml)
-- 2026-06-29 20:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/30501325626.shtml)
-- 2026-06-29 21:02 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/427273.shtml)
-- 2026-06-29 20:43 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/47770.shtml)
-- 2026-06-29 21:06 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/39046.shtml)
-- 2026-06-29 21:08 - [东方风云榜直播](http://www.blog.minike.top/Article/details/2102340711.shtml)
-- 2026-06-29 20:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/80038066120.shtml)
-- 2026-06-29 20:52 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/952075303.shtml)
-- 2026-06-29 21:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/489085.shtml)
+- 2026-06-29 21:12 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/17176123.shtml)
+- 2026-06-29 21:13 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/362506003527.shtml)
+- 2026-06-29 20:48 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/52826610395.shtml)
+- 2026-06-29 21:08 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/8776730945.shtml)
+- 2026-06-29 21:12 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/8024282864.shtml)
+- 2026-06-29 20:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/7049034.shtml)
+- 2026-06-29 21:10 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/15585724.shtml)
+- 2026-06-29 21:12 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/4902668.shtml)
+- 2026-06-29 21:16 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/03067.shtml)
+- 2026-06-29 21:02 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/225657476983.shtml)
+- 2026-06-29 21:07 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/5780663.shtml)
+- 2026-06-29 21:15 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/821354.shtml)
+- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/6645333.shtml)
+- 2026-06-29 21:03 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/31152.shtml)
+- 2026-06-29 21:09 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/08050963103.shtml)

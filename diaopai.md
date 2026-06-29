@@ -1,47 +1,46 @@
-# 华宝基金红利风向标：高股息方向盘整，现金流策略表现较优
+# 特朗普再次抱怨意大利：‘我们不会再支持他们’
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-责任编辑：常福强
+美国总统特朗普在Truth Social发帖称，“意大利当初没有支持我们，我们也不会再支持他们！” 特朗普在帖文中附上英国《卫报》一篇文章链接，内容涉及意大利拒绝让运载武器、用于对伊朗战争的美国飞机使用一处空军基地。责任编辑：丁文武
 
 ## 正文
 
-责任编辑：常福强
+美国总统特朗普在Truth Social发帖称，“意大利当初没有支持我们，我们也不会再支持他们！
+
+” 特朗普在帖文中附上英国《卫报》一篇文章链接，内容涉及意大利拒绝让运载武器、用于对伊朗战争的美国飞机使用一处空军基地。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 20:53 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:04 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 21:09 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 20:51 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 21:09 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 21:03 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 21:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 20:45 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 21:10 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 21:08 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 20:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 21:10 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 21:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 21:12 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 21:08 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 21:10 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 20:54 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 20:52 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 21:16 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 20:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 20:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/5097707973.shtml)
-- 2026-06-29 20:54 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/1626634174.shtml)
-- 2026-06-29 20:57 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/350537862.shtml)
-- 2026-06-29 21:06 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/166224775022.shtml)
-- 2026-06-29 20:57 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/595254864296.shtml)
-- 2026-06-29 21:03 - [女心理师](https://www.share.kurohicncr.top/Article/details/789753949.shtml)
-- 2026-06-29 21:06 - [东方风云榜直播](https://www.blog.minike.top/Article/details/533291431.shtml)
-- 2026-06-29 20:57 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/9558193818.shtml)
-- 2026-06-29 20:49 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/30063698447.shtml)
-- 2026-06-29 20:45 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/41911.shtml)
-- 2026-06-29 20:45 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/1486247436.shtml)
-- 2026-06-29 20:44 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/177738386822.shtml)
-- 2026-06-29 20:59 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/30956.shtml)
-- 2026-06-29 20:58 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/452663.shtml)
-- 2026-06-29 20:44 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/687619.shtml)
+- 2026-06-29 21:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/79914066.shtml)
+- 2026-06-29 21:16 - [金牌调解](http://www.share.kurohicncr.top/Article/details/03438.shtml)
+- 2026-06-29 21:13 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/86089.shtml)
+- 2026-06-29 21:08 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/453817647.shtml)
+- 2026-06-29 20:53 - [毒液2](http://www.blog.kurohicncr.top/Article/details/73765125.shtml)
+- 2026-06-29 21:00 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/0056694627.shtml)
+- 2026-06-29 21:02 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/57253807332.shtml)
+- 2026-06-29 21:02 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/12820595154.shtml)
+- 2026-06-29 20:51 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/727657.shtml)
+- 2026-06-29 20:54 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/6497281082.shtml)
+- 2026-06-29 20:52 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/631673945436.shtml)
+- 2026-06-29 20:56 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/13699049.shtml)
+- 2026-06-29 20:56 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/50779.shtml)
+- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/3644281.shtml)
+- 2026-06-29 21:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/570015337.shtml)

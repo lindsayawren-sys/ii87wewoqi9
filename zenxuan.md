@@ -1,57 +1,60 @@
-# 联邦贸易委员会重拳整治汽车经销商“隐形收费”，乱象依旧屡禁不止
+# 一批中泰化学（002092）索赔案再获得法院立案，天宜上佳（688033）索赔案持续推进
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-购车消费者动辄被收取数千美元不透明杂费，汽车行业仍在变通规避监管 内容速览 美国联邦贸易委员会（FTC）即将对违规汽车经销商开展执法整治，打击线上虚假折扣宣传与隐形收费行为。 美国联邦贸易委员会此前向 200 余家汽车经销商下发警示通知，要求停止在线上发布带有虚假折扣、暗藏数千美元隐形杂费的车辆报价广告。 但并非所有经销商都落实了监管要求。 多家协助消费者和经销商议价的服务机构
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月16日，上海久诚律师事务所股票索赔律师许峰代理的部分中泰化学（维权）（002092）投资者索赔案再获得乌鲁木齐市中级人民法院立案，此前部分案件已首次开庭，目前正在等待法院的下一步安排，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2024年5月17日晚，中泰化学公告
 
 ## 正文
 
-购车消费者动辄被收取数千美元不透明杂费，汽车行业仍在变通规避监管 内容速览 美国联邦贸易委员会（FTC）即将对违规汽车经销商开展执法整治，打击线上虚假折扣宣传与隐形收费行为。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月16日，上海久诚律师事务所股票索赔律师许峰代理的部分中泰化学（维权）（002092）投资者索赔案再获得乌鲁木齐市中级人民法院立案，此前部分案件已首次开庭，目前正在等待法院的下一步安排，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-美国联邦贸易委员会此前向 200 余家汽车经销商下发警示通知，要求停止在线上发布带有虚假折扣、暗藏数千美元隐形杂费的车辆报价广告。
+（许峰律师专栏） 2024年5月17日晚，中泰化学公告公司及相关责任人收到新疆证监局《行政处罚决定书》，经查明，当事人存在以下违法事实： （一）中泰化学2022年年度报告中存在虚假记载。
 
-但并非所有经销商都落实了监管要求。
+（二）未及时披露控股股东及其关联方非经营性资金占用的关联交易，2021年年度报告、2022年年度报告中存在重大遗漏。
 
-多家协助消费者和经销商议价的服务机构反馈，行业内定价不透明的现象依旧普遍。
+（三）案涉公司债券及债务融资工具存续期披露的年度报告存在虚假记载、重大遗漏，相关债券募集说明书信息披露不准确。
 
-总部位于芝加哥的购车辅助平台 CoPilot 统计了去年 12 月至今年 4 月协助完成的 500 笔汽车交易，其中 59% 的订单包含线上标价未标注的可选择性杂费。
+许峰律师认为，在2021年4月10日到2024年3月21日之间买入中泰化学股票，并且在2024年3月21日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-CoPilot 联合创始人兼产品主管米凯拉・贝克表示：“消费者线上看到的标价，大多并不是最终能把车开回家的实际总价。
+（中泰化学维权入口） 除了一批中泰化学投资者索赔案再次获得法院立案，许峰律师提示，天宜上佳（688033，天宜新材（维权））投资者索赔案也还在持续推进。
 
-” 该调研主要针对二手车市场，但贝克称，即便在联邦贸易委员会下发警示后，同款套路在新车销售中也十分泛滥。
+许峰律师代理的天宜上佳投资者索赔案已获得上海金融法院立案，目前正在等待法院的下一步安排，同步也还在继续接受其他投资者的索赔委托。
 
-另一购车服务平台 CarEdge 分析了超一万家新车、二手车经销商的报价单，发现近四成商家线上标价与分项列明的实际成交价存在明显价差。
+2024年4月26日晚，天宜上佳公告收到北京证监局出具的《关于对北京天宜上佳高新材料股份有限公司、杨铠璘、章丽娟采取出具警示函措施的决定》，经查，天宜上佳公司于2024年3月8日知悉，北京市门头沟区监察委员会已对公司实际控制人、董事长吴佩芳实施留置。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 20:55 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 20:54 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 20:59 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 20:58 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 20:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 21:03 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 20:47 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 21:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 21:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 20:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 20:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 21:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 20:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 21:02 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 20:58 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 21:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 20:54 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 20:50 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 20:56 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 20:52 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 20:48 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 21:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 20:57 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/974788205757.shtml)
-- 2026-06-29 21:00 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/95400.shtml)
-- 2026-06-29 21:04 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/916549466.shtml)
-- 2026-06-29 21:09 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/75341117425.shtml)
-- 2026-06-29 21:02 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/07393903529.shtml)
-- 2026-06-29 21:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/80964389.shtml)
-- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/9819826109.shtml)
-- 2026-06-29 20:43 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/740298996979.shtml)
-- 2026-06-29 20:42 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/70850.shtml)
-- 2026-06-29 20:58 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/96844.shtml)
-- 2026-06-29 20:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/67574109635.shtml)
-- 2026-06-29 21:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/27112376.shtml)
-- 2026-06-29 21:08 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/4297553.shtml)
-- 2026-06-29 20:52 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/93365537754.shtml)
-- 2026-06-29 20:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/892182.shtml)
+- 2026-06-29 20:55 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/621550036.shtml)
+- 2026-06-29 20:52 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/34087.shtml)
+- 2026-06-29 20:57 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/5939197995.shtml)
+- 2026-06-29 20:56 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/69234.shtml)
+- 2026-06-29 21:01 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/883184553107.shtml)
+- 2026-06-29 20:56 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/7653881107.shtml)
+- 2026-06-29 21:04 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/452672458.shtml)
+- 2026-06-29 20:50 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/18930502.shtml)
+- 2026-06-29 21:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/031588837.shtml)
+- 2026-06-29 20:50 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/050541.shtml)
+- 2026-06-29 21:12 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/88213606.shtml)
+- 2026-06-29 20:57 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/30905.shtml)
+- 2026-06-29 21:08 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/13540.shtml)
+- 2026-06-29 21:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/626775865044.shtml)
+- 2026-06-29 21:07 - [TOP Prada](http://www.share.minike.top/Article/details/5662879189.shtml)

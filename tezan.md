@@ -1,44 +1,59 @@
-# 云迹于6月12日斥资403.49万港元回购1.32万股
+# 钧达股份早盘涨逾4% 公司第一季度盈利转正超预期
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-云迹（02670）发布公告，于2026年6月12日，该公司斥资403.49万港元回购1.32万股。责任编辑：卢昱君
+钧达股份（02865）早盘涨逾4%，截至发稿，股价上涨3.90%，现报33.02港元，成交额1.58亿港元。 近日，钧达股份发布2026年一季度业绩，东吴证券指出，公司26Q1业绩扭亏为盈，超预期，据测算公司26Q1电池销量约5GW，同降约30%/环降约30%；受益Q1行业电池环节供需改善+海外需求旺盛，公司出口占比高，测算整体单瓦微利。该行预计公司土耳其基地Q2出片，可直供美
 
 ## 正文
 
-云迹（02670）发布公告，于2026年6月12日，该公司斥资403.49万港元回购1.32万股。
+钧达股份（02865）早盘涨逾4%，截至发稿，股价上涨3.90%，现报33.02港元，成交额1.58亿港元。
+
+近日，钧达股份发布2026年一季度业绩，东吴证券指出，公司26Q1业绩扭亏为盈，超预期，据测算公司26Q1电池销量约5GW，同降约30%/环降约30%；受益Q1行业电池环节供需改善+海外需求旺盛，公司出口占比高，测算整体单瓦微利。
+
+该行预计公司土耳其基地Q2出片，可直供美国市场，预计今年可贡献利润。
+
+后续国内需求有望复苏、海外需求韧性强，预计Q2电池出货约7-8GW，随供需关系优化+美国市场出货，盈利有望不断改善。
+
+东吴证券续指，钧达股份积极布局商业航天+太空光伏，打造新增长点。
+
+公司参股星翼芯能、合作钙钛矿及CPI膜。
+
+以子公司捷泰航天为载体，加快推进CPI 膜及钙钛矿晶硅叠层结合产品的技术研发和中试线建设，推进国内外客户的技术交流、样品测试等工作；公司现金收购上海复遥星河航天科技60%股权，间接控股上海巡天千河；在手订单充裕，覆盖遥感、通讯、算力多类型卫星，同时可为太空光伏提供在轨验证资源。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 21:02 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 20:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 20:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 20:48 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 20:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 20:52 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 21:11 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 20:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 20:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 20:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 21:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 21:09 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 20:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 21:08 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 21:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 20:50 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 21:17 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 21:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 21:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 21:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 21:14 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/82330766.shtml)
-- 2026-06-29 20:46 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/987891347998.shtml)
-- 2026-06-29 20:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/13120128.shtml)
-- 2026-06-29 21:12 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/383239381211.shtml)
-- 2026-06-29 20:56 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/84422.shtml)
-- 2026-06-29 20:53 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/1053445455.shtml)
-- 2026-06-29 20:49 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/3620167856.shtml)
-- 2026-06-29 20:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/62837561002.shtml)
-- 2026-06-29 20:51 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/7851395.shtml)
-- 2026-06-29 20:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/393142.shtml)
-- 2026-06-29 21:03 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/042703175160.shtml)
-- 2026-06-29 21:03 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/950046.shtml)
-- 2026-06-29 21:07 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/105911769682.shtml)
-- 2026-06-29 20:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/66797203.shtml)
-- 2026-06-29 21:08 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/14724154.shtml)
+- 2026-06-29 20:52 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/71918.shtml)
+- 2026-06-29 20:58 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/29752.shtml)
+- 2026-06-29 20:52 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/22999579582.shtml)
+- 2026-06-29 21:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/193474275898.shtml)
+- 2026-06-29 20:56 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/594240058.shtml)
+- 2026-06-29 21:13 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/6099165177.shtml)
+- 2026-06-29 21:08 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/76774.shtml)
+- 2026-06-29 21:02 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/2923170900.shtml)
+- 2026-06-29 21:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/564469743930.shtml)
+- 2026-06-29 20:52 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/19906.shtml)
+- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/769295031113.shtml)
+- 2026-06-29 21:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/932736.shtml)
+- 2026-06-29 21:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/080616935.shtml)
+- 2026-06-29 20:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/260205387.shtml)
+- 2026-06-29 20:59 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/1996996882.shtml)

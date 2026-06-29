@@ -1,59 +1,58 @@
-# 重磅技术突破！半导体牛股1分钟直线涨停，超8万股民狂欢
+# 美国交通部长：空管岗位12小时内收到6000份申请
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨林健民 编辑丨李燕娜 6月15日午后，中核科技突然直线拉升，1分钟后涨停，股价报18.06元/股，最新市值69.2亿元。Wind数据显示，中核科技最新股东户数为 86165户。 与此同时，半导体硅片概念异动拉升，有研硅涨超19%，晶盛机电、神工股份、沪硅产业、民德电子等跟涨。 消息面上，据《科技日报》
+美国交通部长周四表示，联邦航空管理局在短短12小时内收到了约6000份空中交通管制员的职位申请，显示出政府招聘改革和吸引年轻人才的策略正在奏效。 这一申请热潮出现在联邦航空管理局面临严重人员短缺的背景下。目前，美国约有11000名现役管制员和4000名在培学员，但距离完全配齐目标仍缺约3500名 fully certified 管制员。许多现有管制员被迫加班，每周工作六天，工作
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国交通部长周四表示，联邦航空管理局在短短12小时内收到了约6000份空中交通管制员的职位申请，显示出政府招聘改革和吸引年轻人才的策略正在奏效。
 
-记者丨林健民 编辑丨李燕娜 6月15日午后，中核科技突然直线拉升，1分钟后涨停，股价报18.06元/股，最新市值69.2亿元。
+这一申请热潮出现在联邦航空管理局面临严重人员短缺的背景下。
 
-Wind数据显示，中核科技最新股东户数为 86165户。
+目前，美国约有11000名现役管制员和4000名在培学员，但距离完全配齐目标仍缺约3500名 fully certified 管制员。
 
-与此同时，半导体硅片概念异动拉升，有研硅涨超19%，晶盛机电、神工股份、沪硅产业、民德电子等跟涨。
+许多现有管制员被迫加班，每周工作六天，工作压力巨大。
 
-消息面上，据《科技日报》报道，6月15日，中核集团宣布，其首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达到国际先进水平。
+交通部长在宣布这一数据时表示，空中交通管制员是保障航空安全的关键岗位，政府对如此短时间内涌现的兴趣感到鼓舞。
 
-何为硅-28？
+他补充说，政府正致力于简化招聘流程，将入职处理时间从13个月缩短至约6个半月。
 
-硅-28是硅的稳定同位素，被誉为“世界上最纯净的硅”，是比钻石还纯净的晶体，是研制硅基量子芯片不可或缺的核心材料。
+值得注意的是，联邦航空管理局近期将招聘目光投向了一个新的群体——电子游戏玩家。
 
-而硅基量子芯片则是最有可能推动量子计算规模化应用的技术之一。
+交通部长此前曾表示，要接触到下一代空中交通管制员，需要做出调整。
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 20:43 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 20:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 21:01 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 20:56 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 20:53 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 20:47 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 20:50 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 21:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 20:45 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 21:08 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 21:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 20:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 20:55 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:58 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 20:48 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:07 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 20:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 21:16 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 21:10 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 20:49 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:10 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 21:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 20:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 20:55 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [周生如故](http://www.share.kurohicncr.top/Article/details/692696336578.shtml)
-- 2026-06-29 21:10 - [啊啊啊](https://www.share.minike.top/Article/details/73060.shtml)
-- 2026-06-29 21:11 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/394896323.shtml)
-- 2026-06-29 21:09 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/7981112.shtml)
-- 2026-06-29 20:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/8612535.shtml)
-- 2026-06-29 21:03 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/727607857886.shtml)
-- 2026-06-29 21:08 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/1970539761.shtml)
-- 2026-06-29 20:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/20361.shtml)
-- 2026-06-29 21:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/201199.shtml)
-- 2026-06-29 20:42 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/3778922364.shtml)
-- 2026-06-29 20:43 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/4135336.shtml)
-- 2026-06-29 20:52 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/94057069.shtml)
-- 2026-06-29 21:01 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/8856621.shtml)
-- 2026-06-29 20:57 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/858594.shtml)
-- 2026-06-29 20:47 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/1743117022.shtml)
+- 2026-06-29 20:56 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/58190.shtml)
+- 2026-06-29 21:17 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/67794127.shtml)
+- 2026-06-29 21:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/659020785.shtml)
+- 2026-06-29 20:48 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/58990.shtml)
+- 2026-06-29 21:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/339442.shtml)
+- 2026-06-29 20:51 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/750918379.shtml)
+- 2026-06-29 21:15 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/588944668927.shtml)
+- 2026-06-29 21:00 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/704303912.shtml)
+- 2026-06-29 20:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/79992.shtml)
+- 2026-06-29 21:15 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/18855542.shtml)
+- 2026-06-29 20:56 - [时光音乐会](http://www.blog.minike.top/Article/details/44676.shtml)
+- 2026-06-29 20:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/7677833646.shtml)
+- 2026-06-29 21:17 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/811786552358.shtml)
+- 2026-06-29 21:09 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/94855.shtml)
+- 2026-06-29 20:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/40514.shtml)

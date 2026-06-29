@@ -1,42 +1,60 @@
-# 今年1月至5月 国家铁路铁水联运量完成758万标箱
+# 伊朗冲突不确定性笼罩前景，乐购扩大业绩预期区间
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 09:08 来源：央视新闻 责任编辑：【王祎】
+冲突引发的通胀预计将压制消费者支出 根据市场研究机构 Worldpanel 数据，乐购目前在英国食品杂货行业占据最大市场份额。 英国零售商乐购表示，受伊朗冲突带来的不确定性加剧影响，公司发布的本财年业绩预期区间较原计划有所扩大，冲突引发的通胀预计将对消费者支出构成压力。 这家英国超市集团周四称，预计 2027 财年调整后营业利润为 30 亿至 33 亿英镑（约合 40.7 亿至
 
 ## 正文
 
-发布时间：2026年06月15日 09:08 来源：央视新闻 责任编辑：【王祎】
+冲突引发的通胀预计将压制消费者支出 根据市场研究机构 Worldpanel 数据，乐购目前在英国食品杂货行业占据最大市场份额。
+
+英国零售商乐购表示，受伊朗冲突带来的不确定性加剧影响，公司发布的本财年业绩预期区间较原计划有所扩大，冲突引发的通胀预计将对消费者支出构成压力。
+
+这家英国超市集团周四称，预计 2027 财年调整后营业利润为 30 亿至 33 亿英镑（约合 40.7 亿至 44.8 亿美元）。
+
+在截至 2 月 28 日的 53 周财年中，其调整后营业利润为 31.9 亿英镑。
+
+公司表示：“结果很大程度上将取决于冲突持续时间，尤其是对英国家庭及整体经济可能产生的影响。
+
+” 乐购还表示，计划在本财年额外实现 5 亿英镑的成本节约。
+
+Worldpanel 数据显示，乐购在英国食品杂货行业市场份额位居首位，几乎是紧随其后的英国第二大超市森宝利市场份额的两倍。
+
+但市场普遍预计，冲突推高的通胀将抬升企业成本，并影响消费者消费习惯。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 20:57 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 20:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 20:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 21:06 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 20:44 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 20:54 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 20:43 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 20:54 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 20:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 20:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 20:48 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 21:09 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 21:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 21:14 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 21:02 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 21:06 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 20:56 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 21:12 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 21:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 21:06 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 21:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 21:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 21:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/752354292631.shtml)
-- 2026-06-29 20:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/5859233.shtml)
-- 2026-06-29 21:09 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/7451485.shtml)
-- 2026-06-29 20:46 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/34295024.shtml)
-- 2026-06-29 21:04 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/75453.shtml)
-- 2026-06-29 21:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/578104116430.shtml)
-- 2026-06-29 21:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/01639720055.shtml)
-- 2026-06-29 20:43 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/62058237212.shtml)
-- 2026-06-29 20:56 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/95539.shtml)
-- 2026-06-29 21:10 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/036840.shtml)
-- 2026-06-29 20:57 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/18393.shtml)
-- 2026-06-29 21:05 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/77388.shtml)
-- 2026-06-29 20:48 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/5523315290.shtml)
-- 2026-06-29 20:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/3240850557.shtml)
-- 2026-06-29 20:55 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/81836.shtml)
+- 2026-06-29 21:08 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/0472809.shtml)
+- 2026-06-29 21:15 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/82039041.shtml)
+- 2026-06-29 20:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/06835812.shtml)
+- 2026-06-29 21:05 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/85844060104.shtml)
+- 2026-06-29 21:00 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/06847.shtml)
+- 2026-06-29 20:53 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/90098336897.shtml)
+- 2026-06-29 21:15 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/83019.shtml)
+- 2026-06-29 21:13 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/221138060632.shtml)
+- 2026-06-29 21:11 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/239637441.shtml)
+- 2026-06-29 21:10 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/43653698451.shtml)
+- 2026-06-29 21:12 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/944898.shtml)
+- 2026-06-29 21:03 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/553362.shtml)
+- 2026-06-29 21:06 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/3616435084.shtml)
+- 2026-06-29 20:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.kurohicncr.top/Article/details/31082.shtml)
+- 2026-06-29 20:50 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/48664197951.shtml)

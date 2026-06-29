@@ -1,59 +1,57 @@
-# （美加墨世界杯）五星巴西战平摩洛哥 圣保罗球迷仍充满信心
+# 广州对非洲进出口连续18个月保持增长
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社巴西圣保罗6月14日电 (记者 林春茵)当地时间6月13日晚间，部分巴西球迷聚集在巴西圣保罗足球博物馆，共同观战2026年美加墨世界杯巴西队首场比赛。 当天进行的世界杯C组首轮比赛中，五冠王巴西队最终与非洲劲旅摩洛哥队1比1战平，获得本届世界杯首个积分。对于渴望时隔24年再次捧起大力神杯的巴西球迷而言，美加墨世界杯之旅刚刚开始。 在最新一期国际足联排名榜上，曾5次夺冠的巴
+中新网广州4月17日电 (记者 许青青)广东省人民政府新闻办公室17日举行新闻发布会。会上，广州海关副关长黄斌介绍，一季度广东对非洲进出口849.8亿元，同比增长29.7%，其中广州对非进出口占全省四分之一。截至今年3月，广州对非洲进出口已连续18个月保持增长。 他介绍，一季度，广州建造出口的散货船近90%出口非洲，汽车发动机、摩托车配件也有约80%和约50%出口非洲，以上三类
 
 ## 正文
 
-中新社巴西圣保罗6月14日电 (记者 林春茵)当地时间6月13日晚间，部分巴西球迷聚集在巴西圣保罗足球博物馆，共同观战2026年美加墨世界杯巴西队首场比赛。
+中新网广州4月17日电 (记者 许青青)广东省人民政府新闻办公室17日举行新闻发布会。
 
-当天进行的世界杯C组首轮比赛中，五冠王巴西队最终与非洲劲旅摩洛哥队1比1战平，获得本届世界杯首个积分。
+会上，广州海关副关长黄斌介绍，一季度广东对非洲进出口849.8亿元，同比增长29.7%，其中广州对非进出口占全省四分之一。
 
-对于渴望时隔24年再次捧起大力神杯的巴西球迷而言，美加墨世界杯之旅刚刚开始。
+截至今年3月，广州对非洲进出口已连续18个月保持增长。
 
-在最新一期国际足联排名榜上，曾5次夺冠的巴西队位居第6位，摩洛哥队居于第7位。
+他介绍，一季度，广州建造出口的散货船近90%出口非洲，汽车发动机、摩托车配件也有约80%和约50%出口非洲，以上三类产品对非出口同比增速均超30%，有力支持了非洲工业化。
 
-摩洛哥队是2022年卡塔尔世界杯的超级黑马，该队淘汰葡萄牙队打入四强。
+同时，非洲人口红利和消费升级，为“广货”出海提供了广阔空间，一季度广州出口产品中超二分之一摩托车、超三分之一液晶电视机、超四分之一陶瓷产品都是对非洲出口，均实现两位数的同比增长。
 
-当晚，圣保罗足球博物馆彩旗飘飘，正在展出上百件球迷收藏的球服。
+进口方面，非洲消费品加速进入广州市场。
 
-室外投影屏前放置着足球造型的椅子，可供球迷躺着看球。
+一季度，广州自非进口食用水产品保持27.6%的同比增速，如纳米比亚的龙虾、坦桑尼亚的青蟹等优质水产品，为中国消费者提供了更丰富的美食选择。
 
-家住圣保罗帕卡恩布社区的阿尔梅达一家五口早早入场。
+广州依托空港、海港双枢纽，构建起高效便捷的对非贸易通道。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 21:08 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 21:01 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 20:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 20:54 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 21:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 21:08 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 20:58 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 20:54 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 21:10 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 21:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 21:07 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 21:04 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 21:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 21:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 21:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 21:12 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 21:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 20:55 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 21:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 20:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 20:48 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 21:13 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/871575134.shtml)
-- 2026-06-29 20:43 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/68295697583.shtml)
-- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/96527.shtml)
-- 2026-06-29 20:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/61695.shtml)
-- 2026-06-29 20:57 - [TOP Prada](https://www.share.minike.top/Article/details/60797696.shtml)
-- 2026-06-29 20:57 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/1641008.shtml)
-- 2026-06-29 21:00 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/754964269588.shtml)
-- 2026-06-29 21:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1857811901.shtml)
-- 2026-06-29 21:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/64534869015.shtml)
-- 2026-06-29 21:01 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/460601.shtml)
-- 2026-06-29 20:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/447559287130.shtml)
-- 2026-06-29 20:48 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/714040.shtml)
-- 2026-06-29 20:49 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/2623233465.shtml)
-- 2026-06-29 21:05 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/64893883.shtml)
-- 2026-06-29 20:51 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/778248608368.shtml)
+- 2026-06-29 21:08 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/7828671.shtml)
+- 2026-06-29 20:50 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/24868.shtml)
+- 2026-06-29 20:59 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/8033169.shtml)
+- 2026-06-29 20:54 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/73182.shtml)
+- 2026-06-29 20:58 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/3444052.shtml)
+- 2026-06-29 20:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/61570.shtml)
+- 2026-06-29 20:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/762417.shtml)
+- 2026-06-29 21:06 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/76803.shtml)
+- 2026-06-29 21:07 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/0677746.shtml)
+- 2026-06-29 21:07 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/471510074901.shtml)
+- 2026-06-29 21:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/7104207.shtml)
+- 2026-06-29 20:53 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/055532396833.shtml)
+- 2026-06-29 21:11 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/8406984.shtml)
+- 2026-06-29 20:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/46232.shtml)
+- 2026-06-29 21:03 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/378887581.shtml)

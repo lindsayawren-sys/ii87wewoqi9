@@ -1,56 +1,59 @@
-# 深夜，全线大涨！美联储，大消息！
+# 报告称中国在建核电机组装机容量连续19年保持全球第一
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美联储加息预期减弱。 当地时间6月15日，美股三大指数大幅高开，截至发稿，道指涨1.19%，纳指涨2.54%，标普500指数涨1.62%。 大型科技股普遍上涨，META涨超4%，亚马逊涨超3%，谷歌C涨超2%。 SpaceX盘初涨超8%。 芯片股集体大涨，费城半导体指数盘中一度涨超5%，再创历史新高。板块个
+中新社北京4月17日电 (记者 张素)17日在北京发布的一份报告显示，截至2025年底，中国在建核电机组35台，总装机容量4190万千瓦，在建机组装机容量连续19年保持全球第一。 《中国核能发展报告(2026)》蓝皮书由中国核能行业协会联合中核战略规划研究总院、中智科学技术评价研究中心共同主编。17日，报告在2026春季核能可持续发展论坛上公布。 报告显示，截至2025年底，中
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京4月17日电 (记者 张素)17日在北京发布的一份报告显示，截至2025年底，中国在建核电机组35台，总装机容量4190万千瓦，在建机组装机容量连续19年保持全球第一。
 
-美联储加息预期减弱。
+《中国核能发展报告(2026)》蓝皮书由中国核能行业协会联合中核战略规划研究总院、中智科学技术评价研究中心共同主编。
 
-当地时间6月15日，美股三大指数大幅高开，截至发稿，道指涨1.19%，纳指涨2.54%，标普500指数涨1.62%。
+17日，报告在2026春季核能可持续发展论坛上公布。
 
-大型科技股普遍上涨，META涨超4%，亚马逊涨超3%，谷歌C涨超2%。
+报告显示，截至2025年底，中国商运核电机组59台，总装机容量6252万千瓦。
 
-SpaceX盘初涨超8%。
+2025年全年核电设备平均利用小时数为7870小时，全年累计发电量4677亿千瓦时。
 
-芯片股集体大涨，费城半导体指数盘中一度涨超5%，再创历史新高。
+“综合协会及相关机构研究成果，预计到2040年我国核电装机规模将达2亿千瓦。
 
-板块个股中，英特格涨超9%，美光科技、超威半导体涨超8%，COHERENT涨超6%，高通、安森美半导体、微芯科技涨超5%，英特尔、迈威尔科技涨超4%。
+”中国核能行业协会轮值理事长杨长利在论坛上说。
 
-消息面上，美国和伊朗14日宣布达成停战谅解备忘录，正式签字仪式将于19日在瑞士日内瓦举行。
+报告显示，在核电装备制造方面，中国实现核电主设备100%国产化以及关键零部件技术自主可控。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 20:59 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 21:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 21:01 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 20:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 20:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 21:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 20:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 21:09 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 21:04 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 21:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 21:04 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 20:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 21:14 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 21:14 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 20:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 21:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 20:57 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 21:16 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 21:06 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 20:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 21:15 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/08348920.shtml)
-- 2026-06-29 21:08 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/9217739045.shtml)
-- 2026-06-29 20:53 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/4561260187.shtml)
-- 2026-06-29 20:42 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/871007192.shtml)
-- 2026-06-29 20:42 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/1488045.shtml)
-- 2026-06-29 20:56 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/765888228.shtml)
-- 2026-06-29 21:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/727854.shtml)
-- 2026-06-29 20:50 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/634193.shtml)
-- 2026-06-29 20:57 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/72896125006.shtml)
-- 2026-06-29 20:46 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/23974.shtml)
-- 2026-06-29 20:55 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/9751394.shtml)
-- 2026-06-29 21:04 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/79693371.shtml)
-- 2026-06-29 21:02 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/945271.shtml)
-- 2026-06-29 20:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/1127937591.shtml)
-- 2026-06-29 21:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/935811266540.shtml)
+- 2026-06-29 21:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/896090.shtml)
+- 2026-06-29 21:16 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/628710.shtml)
+- 2026-06-29 21:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/04453603.shtml)
+- 2026-06-29 21:13 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/31796.shtml)
+- 2026-06-29 21:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/3247260559.shtml)
+- 2026-06-29 21:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/68420879.shtml)
+- 2026-06-29 20:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/29159599.shtml)
+- 2026-06-29 20:56 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/707280.shtml)
+- 2026-06-29 21:00 - [起风了](https://www.blog.minike.top/Article/details/038027.shtml)
+- 2026-06-29 21:06 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/4521760738.shtml)
+- 2026-06-29 20:51 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/173886408.shtml)
+- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/5047559940.shtml)
+- 2026-06-29 21:00 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/369638304.shtml)
+- 2026-06-29 20:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/70678.shtml)
+- 2026-06-29 21:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/2649762.shtml)

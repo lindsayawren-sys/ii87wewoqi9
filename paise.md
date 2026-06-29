@@ -1,53 +1,61 @@
-# 万事昌国际附属斥资约1.514亿港元购入合共600万盈富基金单位
+# AI加持下，国产工业软件能否“换道超车”？
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-万事昌国际（00898）发布公告，于2026年6月15日，Ernesto（公司的间接非全资附属公司）于公开市场购入合共600万盈富基金单位 ，平均价格约每单位25.24港元，总代价约1.514亿港元（不包括交易成本）。 于收购事项日期前十二个月期间，集团于公开市场购入合共150万盈富基金单位 ，平均价格约每单位26.31港元，总代价约3950万港元（不包括交易成本）。 根据收购
+中新网北京4月17日电(记者 吴家驹)AI与计算机辅助设计(CAD)的深度融合，正重塑着工业设计模式与商业逻辑。 AI加持下，国产工业软件能否“换道超车”？近日，中工智库沙龙·AI共创 工业智能——生成式CAD模型首版次工业软件研讨会在北京举行，与会嘉宾围绕相关话题展开深入交流。 中国科学院院士、中国兵器工业集团首席科学家毛明表示，我们正不可抗拒地进入“数业社会”，装备演变为由
 
 ## 正文
 
-万事昌国际（00898）发布公告，于2026年6月15日，Ernesto（公司的间接非全资附属公司）于公开市场购入合共600万盈富基金单位 ，平均价格约每单位25.24港元，总代价约1.514亿港元（不包括交易成本）。
+中新网北京4月17日电(记者 吴家驹)AI与计算机辅助设计(CAD)的深度融合，正重塑着工业设计模式与商业逻辑。
 
-于收购事项日期前十二个月期间，集团于公开市场购入合共150万盈富基金单位 ，平均价格约每单位26.31港元，总代价约3950万港元（不包括交易成本）。
+AI加持下，国产工业软件能否“换道超车”？
 
-根据收购事项及先前收购事项，集团于公开市场购入合共750万盈富基金单位 ，平均价格约每单位25.45港元，总代价约1.909亿港元（不包括交易成本）。
+近日，中工智库沙龙·AI共创 工业智能——生成式CAD模型首版次工业软件研讨会在北京举行，与会嘉宾围绕相关话题展开深入交流。
 
-责任编辑：卢昱君
+中国科学院院士、中国兵器工业集团首席科学家毛明表示，我们正不可抗拒地进入“数业社会”，装备演变为由硬件、软件、数据三种形态构成的具身智能体。
+
+设计范式正从经验、标准、计算，迈向AI驱动的全新阶段。
+
+在毛明看来，AI赋能设计应抓住三点：一是以优化方法为核心，明确目标、变量与约束，让AI求解；二是面向硬件、软件、数据三种形态协同设计，尤其要重视数据价值与红利分配；三是发展自然交互的生成式设计，让AI理解意图并生成结构。
+
+毛明表示，要拥抱AI，解决产品设计、运维、质量等全链条问题，同时关注伦理与知识产权。
+
+要坚定支持国产AI+CAD创新，助力设计范式根本转变。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 21:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 21:01 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 21:10 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 20:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 21:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 21:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 21:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 20:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 20:57 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 20:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 20:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 21:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 21:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:09 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 21:07 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 20:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 20:59 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 21:09 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 21:12 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 21:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 21:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 20:48 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 21:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 21:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 20:55 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 21:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 21:06 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/6607700.shtml)
-- 2026-06-29 20:49 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/90542.shtml)
-- 2026-06-29 21:09 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/677976801250.shtml)
-- 2026-06-29 21:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/00348905816.shtml)
-- 2026-06-29 21:04 - [AG 宫斗](http://www.blog.minike.top/Article/details/8688908780.shtml)
-- 2026-06-29 20:50 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/10049.shtml)
-- 2026-06-29 20:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/32657.shtml)
-- 2026-06-29 20:52 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/83376.shtml)
-- 2026-06-29 21:04 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/466852941084.shtml)
-- 2026-06-29 21:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/75097273961.shtml)
-- 2026-06-29 20:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/5743418380.shtml)
-- 2026-06-29 20:59 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/5779288954.shtml)
-- 2026-06-29 21:07 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/88121.shtml)
-- 2026-06-29 21:01 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/67320704.shtml)
-- 2026-06-29 21:06 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/7643950.shtml)
+- 2026-06-29 21:12 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/2755615125.shtml)
+- 2026-06-29 20:54 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/59149.shtml)
+- 2026-06-29 20:55 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/40963980601.shtml)
+- 2026-06-29 21:09 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/3474798.shtml)
+- 2026-06-29 20:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/479094.shtml)
+- 2026-06-29 21:16 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/90102779907.shtml)
+- 2026-06-29 20:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/69874519590.shtml)
+- 2026-06-29 20:54 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/0155223372.shtml)
+- 2026-06-29 21:12 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/505568273991.shtml)
+- 2026-06-29 20:55 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/043951037.shtml)
+- 2026-06-29 21:14 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/81099010690.shtml)
+- 2026-06-29 21:02 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/7098766.shtml)
+- 2026-06-29 21:10 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/40386915194.shtml)
+- 2026-06-29 21:06 - [美人鱼](https://www.blog.minike.top/Article/details/5576440.shtml)
+- 2026-06-29 20:55 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/27696097516.shtml)

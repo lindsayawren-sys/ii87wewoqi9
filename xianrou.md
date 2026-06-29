@@ -1,59 +1,57 @@
-# 东西问｜张文涛：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
+# 人民日报：从优秀传统文化中汲取正确政绩观的丰厚滋养
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？ ——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。 孟子的“仁
+从优秀传统文化中汲取正确政绩观的丰厚滋养 “政绩”一词，古已有之，文脉悠长，《后汉书·虞延传》中就有“历位二府，十余年无异政绩”的记载。这一理念深植于中华优秀传统文化沃土，薪火赓续、历久弥新，积淀升华为中华政治文明中独具特质的精神标识与文化基因。习近平总书记指出：“中国优秀传统文化的丰富哲学思想、人文精神、教化思想、道德理念等，可以为人们认识和改造世界提供有益启迪，可以为治国理
 
 ## 正文
 
-中新社重庆6月13日电 题：孟子“仁义”与柏拉图“正义”，中西古典政治理想如何隔空共鸣？
+从优秀传统文化中汲取正确政绩观的丰厚滋养 “政绩”一词，古已有之，文脉悠长，《后汉书·虞延传》中就有“历位二府，十余年无异政绩”的记载。
 
-——专访重庆大学古典文明与政治哲学研究中心主任张文涛 中新社记者 钟旖 作为中西古典政治哲学的两座高峰，孟子的“仁政”思想与柏拉图的“美好城邦”构想，分别塑造了中西方早期政治文明的精神内核。
+这一理念深植于中华优秀传统文化沃土，薪火赓续、历久弥新，积淀升华为中华政治文明中独具特质的精神标识与文化基因。
 
-二者时空相隔，却在对理想政治秩序的追寻中呈现诸多相通之处，也因文明底色差异走出不同路径。
+习近平总书记指出：“中国优秀传统文化的丰富哲学思想、人文精神、教化思想、道德理念等，可以为人们认识和改造世界提供有益启迪，可以为治国理政提供有益启示”。
 
-孟子的“仁义之国”与柏拉图的“正义之邦”，是否殊途同归？
+我们要坚持古为今用、推陈出新，结合实际，不断从中华优秀传统文化中汲取正确政绩观的丰厚滋养。
 
-中西古典政治理想如何隔空共鸣？
+中华传统文化蕴含着“为政以德”“民心惟本”的治理智慧，留下了诸多烛照古今的政绩理念与执政箴言：《管子》倡导“不作无补之功，不为无益之事”的务实精神，力戒虚浮之风；贾谊提出“以富乐民为功，以贫苦民为罪”的价值标尺，将民生福祉置于评判中心；范仲淹抒发“先天下之忧而忧，后天下之乐而乐”的家国担当，彰显为官从政者的胸怀；司马光主张“为政之道，莫若至公”的为官准则，恪守用权之本；海瑞、于成龙等清官廉吏不慕虚名、赤诚勤俭的道德追求……中华优秀传统政治文化始终把百姓福祉、民生实效作为施政的首要之务。
 
-古典智慧对当下有何启示？
+这些跨越千年时空的为政智慧与品行操守，不是尘封于典籍的陈旧格言，而是鲜活的文化资源，为党员干部树立和践行正确政绩观提供了不竭的政德滋养，注入了厚重的文化底蕴。
 
-第二届世界古典学大会6月9日至10日在希腊雅典举行，受邀参加大会的重庆大学古典文明与政治哲学研究中心主任张文涛，近日就上述问题接受了中新社“东西问”专访。
+同时要清醒认识到，中华传统文化中的政绩理念虽有合理成分和积极一面，但受制于历史条件，不可避免地打上了时代烙印，存在历史局限。
 
-现将访谈实录摘要如下： 中新社记者：为何将孟子的“仁义之国”与柏拉图的“正义之邦”视作中西古典政治文明的典型理想？
+对待这样一份思想文化遗产，决不能照搬照抄、食古不化，必须坚持历史眼光，批判继承、古为今用，坚决剔除落后糟粕，汲取修身立德、勤政为民、求真务实等优秀养分，在扬弃中坚守正道，使其在转化中焕发新生。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 20:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 21:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 20:51 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 20:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 20:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 20:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 21:02 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 20:52 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 21:05 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 20:55 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 21:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 20:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 20:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 20:53 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 21:11 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 20:57 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 21:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 20:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 21:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 21:10 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 21:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/0201361.shtml)
-- 2026-06-29 20:51 - [爱很美味](http://www.share.minike.top/Article/details/82001662.shtml)
-- 2026-06-29 21:08 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/9887899122.shtml)
-- 2026-06-29 20:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/17460315557.shtml)
-- 2026-06-29 20:43 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/8210202.shtml)
-- 2026-06-29 20:52 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/274040136260.shtml)
-- 2026-06-29 21:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/55681.shtml)
-- 2026-06-29 20:59 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/3244503.shtml)
-- 2026-06-29 20:42 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/3375435.shtml)
-- 2026-06-29 20:43 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/9003595.shtml)
-- 2026-06-29 20:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/52115941.shtml)
-- 2026-06-29 20:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/574208642912.shtml)
-- 2026-06-29 21:11 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/4910419.shtml)
-- 2026-06-29 20:56 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/8137532559.shtml)
-- 2026-06-29 20:55 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/26765350.shtml)
+- 2026-06-29 21:07 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/77790123.shtml)
+- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/93492.shtml)
+- 2026-06-29 21:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/7188217.shtml)
+- 2026-06-29 20:51 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/93773232.shtml)
+- 2026-06-29 20:50 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/2698651633.shtml)
+- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/27700739699.shtml)
+- 2026-06-29 21:06 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/920209.shtml)
+- 2026-06-29 20:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/518488.shtml)
+- 2026-06-29 20:57 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/210682020528.shtml)
+- 2026-06-29 20:48 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/2482692803.shtml)
+- 2026-06-29 20:53 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/13603492765.shtml)
+- 2026-06-29 21:07 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/047015528830.shtml)
+- 2026-06-29 20:57 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/248222780875.shtml)
+- 2026-06-29 21:00 - [英法德葡存在什么隐患](http://www.blog.kurohicncr.top/Article/details/534599.shtml)
+- 2026-06-29 21:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/394177541.shtml)

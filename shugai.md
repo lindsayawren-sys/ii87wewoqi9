@@ -1,56 +1,60 @@
-# 华电金上拉哇水电站大坝二期面板浇筑完成
+# 新版《涉侨法律政策指南》时隔6年更新 回应侨界关切
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新网成都6月15日电 (李旺盛 李睿)15日，世界在建同类型最高面板堆石坝电站——华电金上拉哇水电站大坝二期面板浇筑任务圆满完成，大坝主体工程进入收尾冲刺阶段。 拉哇水电站位于四川省和西藏自治区交界的金沙江干流上，是国家“十五五”规划重点建设的金沙江上游水风光一体化基地重要组成部分，总装机容量200万千瓦，最大坝高242.5米。 在二期面板浇筑过程中，项目团队克服95米大高差
+中新社北京4月16日电 (记者 门睿)中国国务院侨务办公室和中国侨联联合编印的《涉侨法律政策指南(2026年版)》(下称《指南》)日前发布，其内容基本涵盖海外侨胞和归侨侨眷在中国境内工作、生活、学习、创业等所涉及的主要法律政策。受访专家在近日连线采访中向中新社记者表示，《指南》时隔6年更新，更贴近当前侨胞在中国发展和跨境往来的实际需要，回应了侨界关切。《指南》包括身份确认、出境
 
 ## 正文
 
-中新网成都6月15日电 (李旺盛 李睿)15日，世界在建同类型最高面板堆石坝电站——华电金上拉哇水电站大坝二期面板浇筑任务圆满完成，大坝主体工程进入收尾冲刺阶段。
+中新社北京4月16日电 (记者 门睿)中国国务院侨务办公室和中国侨联联合编印的《涉侨法律政策指南(2026年版)》(下称《指南》)日前发布，其内容基本涵盖海外侨胞和归侨侨眷在中国境内工作、生活、学习、创业等所涉及的主要法律政策。
 
-拉哇水电站位于四川省和西藏自治区交界的金沙江干流上，是国家“十五五”规划重点建设的金沙江上游水风光一体化基地重要组成部分，总装机容量200万千瓦，最大坝高242.5米。
+受访专家在近日连线采访中向中新社记者表示，《指南》时隔6年更新，更贴近当前侨胞在中国发展和跨境往来的实际需要，回应了侨界关切。
 
-在二期面板浇筑过程中，项目团队克服95米大高差、34.5度高陡坡、187米长面板及9级大风频发等挑战，以建设“无缝大坝”为目标，围绕超长溜槽运输、混凝土温控、配合比优化、振捣密实度控制等关键环节开展技术攻关。
+《指南》包括身份确认、出境入境、投资创业、生活居住、社会保险、接受教育、婚姻家庭、公益慈善、个人纳税等13个部分，较2020年发布的上版《指南》新增知识产权、外汇管理、海关管理、纠纷解决4个部分。
 
-项目首次集成应用低热低碱水泥、VF防裂剂与玄武岩纤维三元防裂体系，采用“罐车保温衣+卸料口暖棚+溜槽保温棉”防护工艺，高温时用土工布保湿、塑料膜锁水、流动水降温，低温时用棉被保温、喷涂养护剂防裂，有效将混凝土溜槽坍落度损失控制在10毫米-20毫米，内外温差小于20摄氏度，浇筑平整度误差小于2厘米，面板抗压强度、防渗、抗冻等各项指标均优于设计标准。
+北京理工大学法学院教授、中国华侨历史学会副会长刘国福表示，近年来侨界人士人数持续增多，结构发生深刻变化，其权益诉求日益多元。
 
-据悉，拉哇水电站正全力冲刺下闸蓄水目标，电站全容量投产后多年平均发电量约90亿千瓦时，发出的电将通过特高压直流工程运往华中地区，供应471万个家庭一年的用电量，每年可节约标煤约277万吨、减少二氧化碳排放741万吨，将推动华中地区能源转型，以及四川、西藏等地经济高质量发展。
+《指南》新增内容对于积极回应侨界人士需求、更全面地维护海外侨胞和归侨侨眷合法权益具有重要意义。
 
-(完)
+刘国福表示，《指南》中“离境退税”“企业税收政策”“投资纠纷解决”“知识产权”“生活居住”“外汇管理”等内容为侨界人士提供了丰富详细的生活、工作指南，侨胞在中国办事时可随时翻阅，查询解决方案。
+
+济南市侨联副主席、北京迈伟律师事务所创始合伙人董一鸣表示，《指南》既回应了侨胞回国投资创业、技术合作、资金安排、物品通关和权益维护等现实需求，也体现了涉侨权益保护向前端预防延伸的趋势，同时顺应了高水平对外开放背景下对规则明确、程序便利的需要。
+
+董一鸣在实际工作中发现，侨胞在身份确认和证件衔接、投资创业时的准入与合规、知识产权保护和成果转化等问题上常需要法律帮助。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 20:59 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 20:53 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 20:56 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 20:53 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 21:11 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 21:04 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 20:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 20:52 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 20:49 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 20:56 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 20:44 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 21:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 21:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 21:05 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 21:02 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:09 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 20:59 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 20:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:09 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 21:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 21:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 21:07 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:05 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 21:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 21:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 20:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [乔家的儿女](http://www.share.minike.top/Article/details/1377502413.shtml)
-- 2026-06-29 20:59 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/451337348.shtml)
-- 2026-06-29 20:49 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/33175529.shtml)
-- 2026-06-29 20:46 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/87148098.shtml)
-- 2026-06-29 21:04 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/8609030425.shtml)
-- 2026-06-29 21:08 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/467877285546.shtml)
-- 2026-06-29 20:50 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/592598.shtml)
-- 2026-06-29 20:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/1895677.shtml)
-- 2026-06-29 21:04 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/12077255741.shtml)
-- 2026-06-29 20:42 - [逃狱兄弟](https://www.share.minike.top/Article/details/811257558.shtml)
-- 2026-06-29 20:45 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/308779841247.shtml)
-- 2026-06-29 20:46 - [周生如故](https://www.share.minike.top/Article/details/10196.shtml)
-- 2026-06-29 21:00 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/5916319358.shtml)
-- 2026-06-29 20:44 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/5643279873.shtml)
-- 2026-06-29 21:09 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/956219.shtml)
+- 2026-06-29 21:09 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/271005148.shtml)
+- 2026-06-29 21:17 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/8915347.shtml)
+- 2026-06-29 21:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/359420.shtml)
+- 2026-06-29 21:00 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/396561.shtml)
+- 2026-06-29 21:12 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/47505814312.shtml)
+- 2026-06-29 20:59 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/3336223343.shtml)
+- 2026-06-29 20:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/4787487107.shtml)
+- 2026-06-29 21:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/1021593435.shtml)
+- 2026-06-29 21:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/30973899.shtml)
+- 2026-06-29 21:02 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/040006122453.shtml)
+- 2026-06-29 21:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/3077209.shtml)
+- 2026-06-29 21:10 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/419062857.shtml)
+- 2026-06-29 21:06 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/29060.shtml)
+- 2026-06-29 21:08 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/893216955826.shtml)
+- 2026-06-29 20:55 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/7260562.shtml)

@@ -1,56 +1,56 @@
-# 美官员：特朗普法国G7峰会上将与中东领导人会晤 并讨论乌克兰问题
+# 利用AI造谣“天津突发8.8级地震”者被处罚 （2026·04·16）
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-美国政府高级官员周六表示，美国总统特朗普将在下周于法国举行的七国集团（G7）峰会上与中东领导人会晤，并出席与乌克兰总统泽连斯基的会谈。 特朗普计划周一早些时候前往法国埃维昂出席G7峰会，他将与多位欧洲领导人举行会谈。自2025年初重返白宫以来，特朗普一直与多位欧洲领导人就贸易、关税、乌克兰及北约问题存在分歧。 特朗普将于周二与泽连斯基及G7领导人共同参加一场工作会谈。目前俄罗斯
+辟谣 四川泸州合江县“楼房倒塌、多人坠落”不实 详情：近日，有网民发布内容为“四川泸州合江县一处楼房建设过程中突然倒塌，多名工人坠落”的视频，引发关注。经查，网传信息不实。视频发布者何某某为博人眼球吸引流量，使用AI制作的视频并配文在网络发布，误导公众，扰乱网络空间秩序与公共秩序。目前，泸州警方已依法对何某某予以行政处罚。(来源：“四川举报辟谣”微信公众号、泸州网警) 科普 事
 
 ## 正文
 
-美国政府高级官员周六表示，美国总统特朗普将在下周于法国举行的七国集团（G7）峰会上与中东领导人会晤，并出席与乌克兰总统泽连斯基的会谈。
+辟谣 四川泸州合江县“楼房倒塌、多人坠落”不实 详情：近日，有网民发布内容为“四川泸州合江县一处楼房建设过程中突然倒塌，多名工人坠落”的视频，引发关注。
 
-特朗普计划周一早些时候前往法国埃维昂出席G7峰会，他将与多位欧洲领导人举行会谈。
+经查，网传信息不实。
 
-自2025年初重返白宫以来，特朗普一直与多位欧洲领导人就贸易、关税、乌克兰及北约问题存在分歧。
+视频发布者何某某为博人眼球吸引流量，使用AI制作的视频并配文在网络发布，误导公众，扰乱网络空间秩序与公共秩序。
 
-特朗普将于周二与泽连斯基及G7领导人共同参加一场工作会谈。
+目前，泸州警方已依法对何某某予以行政处罚。
 
-目前俄罗斯在乌克兰的推进势头已放缓，而乌克兰正寻求盟友提供更多军事资金支持。
+(来源：“四川举报辟谣”微信公众号、泸州网警) 科普 事关您的职场权益！
 
-一位不愿透露姓名的美国高级官员称，俄罗斯的攻势“基本已停止”。
+签订劳动合同，这些误区需警惕 详情：无论是职场新人，还是经验丰富的老手，签订劳动合同都是建立劳动关系、保障自身权益的关键一步。
 
-这位官员向记者简要介绍了特朗普此行的情况。
+那么，签订劳动合同时有哪些误区需要警惕呢？
 
-“我们希望冲突能尽快结束，”这位官员表示。
+误区一：签不签劳动合同都行？
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 21:05 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 21:09 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 21:05 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 21:03 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 21:00 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 20:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 20:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 20:52 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 20:57 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 21:09 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 21:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 20:48 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 21:07 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 21:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 21:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 21:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 20:57 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 20:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 21:10 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/726293964536.shtml)
-- 2026-06-29 20:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/416206162.shtml)
-- 2026-06-29 20:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/20827.shtml)
-- 2026-06-29 20:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/76048457.shtml)
-- 2026-06-29 20:44 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/8713572.shtml)
-- 2026-06-29 21:02 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/64657768.shtml)
-- 2026-06-29 20:56 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/044349.shtml)
-- 2026-06-29 20:44 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/372560709716.shtml)
-- 2026-06-29 21:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/31234113060.shtml)
-- 2026-06-29 20:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/0868292997.shtml)
-- 2026-06-29 21:10 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/4302841741.shtml)
-- 2026-06-29 20:57 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/46984869376.shtml)
-- 2026-06-29 21:01 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/00144920052.shtml)
-- 2026-06-29 20:47 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/5324679854.shtml)
-- 2026-06-29 21:08 - [Ella回应SHE何时合体](http://www.blog.minike.top/Article/details/01063.shtml)
+- 2026-06-29 21:17 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/5398994884.shtml)
+- 2026-06-29 21:01 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/5724242397.shtml)
+- 2026-06-29 20:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/13510.shtml)
+- 2026-06-29 21:17 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/41053905921.shtml)
+- 2026-06-29 20:52 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/71313242.shtml)
+- 2026-06-29 21:00 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/558687.shtml)
+- 2026-06-29 20:49 - [周生如故](https://www.blog.kurohicncr.top/Article/details/9502815200.shtml)
+- 2026-06-29 20:56 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/184822154211.shtml)
+- 2026-06-29 20:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/51500.shtml)
+- 2026-06-29 20:51 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/31488176064.shtml)
+- 2026-06-29 21:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/309000385.shtml)
+- 2026-06-29 21:16 - [85花告别古偶](http://www.blog.minike.top/Article/details/655018795.shtml)
+- 2026-06-29 21:09 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/56951.shtml)
+- 2026-06-29 21:13 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/7334531.shtml)
+- 2026-06-29 21:15 - [85花告别古偶](https://www.blog.minike.top/Article/details/092008298897.shtml)

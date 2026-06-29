@@ -1,58 +1,59 @@
-# 2026年欧洲国际防务展在巴黎开幕
+# 癌症筛查：不得不开的“盲盒”
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月15日电 (记者 李洋)2026年欧洲国际防务展当地时间15日在法国巴黎开幕。受当前地缘政治形势影响，该展会受到外界越来越多的关注。 据展会主办方介绍，作为防务领域最重要的专业展会之一，今年的展会共有来自68个国家的2600多家企业参展，预计前来观展的专业人士约有5万人。法国国防部在防务展上展示无人机、导弹、自行火炮等军事装备，有军事人员在现场讲解。多家中国企业参
+中国新闻周刊记者：周游 孙厚铭 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月1日，39岁的林灵被确诊为直肠癌。 近几年，家住浙江台州的林灵总是打嗝，觉得胃里有石头压着。几年前，她做了一次胃镜，检出了浅表性胃炎，她便认为都是胃部问题。今年3月复诊做胃镜时，医生建议也做一次肠镜。出乎意料的是，病理报告显示，其直肠靠近肛门处有肠腺上皮病变，是直肠癌。4月1日林灵收到
 
 ## 正文
 
-中新社巴黎6月15日电 (记者 李洋)2026年欧洲国际防务展当地时间15日在法国巴黎开幕。
+中国新闻周刊记者：周游 孙厚铭 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月1日，39岁的林灵被确诊为直肠癌。
 
-受当前地缘政治形势影响，该展会受到外界越来越多的关注。
+近几年，家住浙江台州的林灵总是打嗝，觉得胃里有石头压着。
 
-据展会主办方介绍，作为防务领域最重要的专业展会之一，今年的展会共有来自68个国家的2600多家企业参展，预计前来观展的专业人士约有5万人。
+几年前，她做了一次胃镜，检出了浅表性胃炎，她便认为都是胃部问题。
 
-法国国防部在防务展上展示无人机、导弹、自行火炮等军事装备，有军事人员在现场讲解。
+今年3月复诊做胃镜时，医生建议也做一次肠镜。
 
-多家中国企业参加展会，展示的装备包括反无人机系统、雷达装备及防护用具等。
+出乎意料的是，病理报告显示，其直肠靠近肛门处有肠腺上皮病变，是直肠癌。
 
-法国国防部长沃特兰当天参观展会，观摩现场演练环节。
+4月1日林灵收到的病理检测结果，显示为直肠癌。
 
-她通过社交媒体表示，在国际形势面临新挑战的背景下，该展会能够让众多国家的业界人士相聚交流，构建合作关系。
+图/受访者提供 “确诊后回想，此前确实已有症状了。
 
-她还同时肯定该展会在展示法国工业能力方面的重要作用。
+我偶尔便秘，大便黏腻粘马桶，大部分时间不成形。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 20:58 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 20:50 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 20:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 20:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 20:50 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 20:56 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 21:05 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 20:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 20:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 20:54 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 21:06 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 20:50 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 21:16 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 21:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 21:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 21:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 21:09 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 21:00 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 21:03 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 20:52 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 20:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 20:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 21:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/774911557.shtml)
-- 2026-06-29 20:59 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/02853981.shtml)
-- 2026-06-29 21:06 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/80136482444.shtml)
-- 2026-06-29 21:11 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/229150700701.shtml)
-- 2026-06-29 20:43 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/7671549467.shtml)
-- 2026-06-29 21:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/04345779.shtml)
-- 2026-06-29 20:59 - [斗破苍穹](https://www.blog.minike.top/Article/details/47161942275.shtml)
-- 2026-06-29 20:47 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/26366875608.shtml)
-- 2026-06-29 20:51 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/1919216105.shtml)
-- 2026-06-29 20:54 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/4811395.shtml)
-- 2026-06-29 20:44 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/362558490694.shtml)
-- 2026-06-29 20:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/3170763929.shtml)
-- 2026-06-29 21:06 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/29942.shtml)
-- 2026-06-29 21:06 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/486414485.shtml)
-- 2026-06-29 20:53 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/44372799.shtml)
+- 2026-06-29 20:51 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/41526798.shtml)
+- 2026-06-29 20:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/4539947168.shtml)
+- 2026-06-29 20:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/80287.shtml)
+- 2026-06-29 20:56 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/332906130.shtml)
+- 2026-06-29 21:09 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/16957078.shtml)
+- 2026-06-29 21:11 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/76830626992.shtml)
+- 2026-06-29 20:57 - [李思潼：不会介意大家夸我运气好](http://www.blog.kurohicncr.top/Article/details/342819794228.shtml)
+- 2026-06-29 21:15 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/029093.shtml)
+- 2026-06-29 20:54 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/42032095.shtml)
+- 2026-06-29 20:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/283229006751.shtml)
+- 2026-06-29 21:04 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/5707367902.shtml)
+- 2026-06-29 21:09 - [天道](http://www.share.minike.top/Article/details/42709.shtml)
+- 2026-06-29 21:05 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/033391476.shtml)
+- 2026-06-29 20:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/16713843747.shtml)
+- 2026-06-29 20:57 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/06408851622.shtml)

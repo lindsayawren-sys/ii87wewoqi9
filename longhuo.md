@@ -1,58 +1,60 @@
-# 阿维塔王辉谈辅助驾驶：各车企应集体加强用户培训机制
+# 创业慧康控股权落定：葛航退到台后，杭州更好拿下12.64%表决权，近30年老牌杭企易主 | 长三角资本局
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，阿维塔科技董事长王辉出席并演讲。 王辉表示，在存量竞争的环境中，即便坚持做技术、做价值，也难免被市场裹挟。破局的关键是什么？他认为，全球化是中国品牌打破发展瓶颈、走向下一个十年的最佳选择。 结合阿维塔的出海实践，他分享了三点观察。 第一，坚持原创，打造中国汽车品牌文化。 王辉
+文|新浪财经上海站 十里 创业近30年后，创业慧康还是走到了控股股东易主这一步。 4月10日，创业慧康公告称，公司控股股东变更为杭州更好智投管理咨询合伙企业（有限合伙），公司仍处于无实际控制人状态。根据公告，杭州更好直接持有公司6.23%股份，并通过表决权委托、一致行动安排等方式，合计控制12.64%股份对应的表决权。随着其提名的6名董事在董事会换届中全部当选，创业慧康控制权正
 
 ## 正文
 
-专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，阿维塔科技董事长王辉出席并演讲。
+文|新浪财经上海站 十里 创业近30年后，创业慧康还是走到了控股股东易主这一步。
 
-王辉表示，在存量竞争的环境中，即便坚持做技术、做价值，也难免被市场裹挟。
+4月10日，创业慧康公告称，公司控股股东变更为杭州更好智投管理咨询合伙企业（有限合伙），公司仍处于无实际控制人状态。
 
-破局的关键是什么？
+根据公告，杭州更好直接持有公司6.23%股份，并通过表决权委托、一致行动安排等方式，合计控制12.64%股份对应的表决权。
 
-他认为，全球化是中国品牌打破发展瓶颈、走向下一个十年的最佳选择。
+随着其提名的6名董事在董事会换届中全部当选，创业慧康控制权正式完成切换。
 
-结合阿维塔的出海实践，他分享了三点观察。
+对创业慧康来说，这不是一次突然发生的易主。
 
-第一，坚持原创，打造中国汽车品牌文化。
+公司前身为创业软件，1997年由葛航创办，2015年登陆创业板，2019年更名为创业慧康。
 
-王辉提到，前不久法拉利发布了首款量产纯电动车，其前主席评论说“这是一辆中国人都不会借鉴的车”，这反映了燃油车时代的刻板印象。
+很长一段时间里，葛航既是创始人，也是这家杭州老牌医疗信息化企业最鲜明的个人标签。
 
-进入智能电动汽车时代，中国品牌在设计领域已经取得了领先优势。
+如今控股股东变更，真正值得追问的，不只是杭州更好如何上位，而是葛航为何会一步步退到台后。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 21:07 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 20:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 21:01 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 20:59 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 20:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 20:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 21:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 20:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 21:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 20:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 21:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 21:08 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 21:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 20:49 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 21:10 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 20:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 21:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 20:57 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 21:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 20:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 20:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 20:57 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 21:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 21:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/9823520.shtml)
-- 2026-06-29 21:01 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/4640644817.shtml)
-- 2026-06-29 20:45 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/100024849.shtml)
-- 2026-06-29 20:54 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/271651385112.shtml)
-- 2026-06-29 21:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/57921.shtml)
-- 2026-06-29 20:46 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/362839333579.shtml)
-- 2026-06-29 20:53 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/453504562.shtml)
-- 2026-06-29 21:10 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/538807964.shtml)
-- 2026-06-29 20:57 - [TOP Prada](https://www.share.minike.top/Article/details/9313551.shtml)
-- 2026-06-29 20:54 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/872841.shtml)
-- 2026-06-29 21:06 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/35484979321.shtml)
-- 2026-06-29 21:00 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/588077.shtml)
-- 2026-06-29 21:06 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/911667816.shtml)
-- 2026-06-29 20:43 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/18099597374.shtml)
-- 2026-06-29 21:01 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/464222698.shtml)
+- 2026-06-29 21:04 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/624115388861.shtml)
+- 2026-06-29 20:54 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/21918561001.shtml)
+- 2026-06-29 20:50 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/6927654.shtml)
+- 2026-06-29 20:59 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/560693404.shtml)
+- 2026-06-29 21:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/618583454876.shtml)
+- 2026-06-29 20:57 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/6417698424.shtml)
+- 2026-06-29 21:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/49961583120.shtml)
+- 2026-06-29 20:55 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/703665503967.shtml)
+- 2026-06-29 21:15 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/2939194.shtml)
+- 2026-06-29 21:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/6456062.shtml)
+- 2026-06-29 21:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/699991.shtml)
+- 2026-06-29 21:09 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/201003418376.shtml)
+- 2026-06-29 21:01 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/18959.shtml)
+- 2026-06-29 21:03 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/96907792573.shtml)
+- 2026-06-29 20:56 - [恋与深空 巧合](http://www.share.minike.top/Article/details/70801750968.shtml)

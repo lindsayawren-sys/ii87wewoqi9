@@ -1,49 +1,59 @@
-# 塔斯尼姆通讯社：伊朗称美国承诺谈判期内不会实施任何新的制裁
+# 2026年一季度江苏重大项目自然资源要素保障率超78% 实景三维赋能高质量发展
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-据半官方媒体塔斯尼姆通讯社援引知情人士报道，伊朗方面表示，美国已承诺在为期60天的最终协议谈判期间，不会实施任何新的制裁。 报道称，根据谅解备忘录，一旦最终协议达成，美国有义务解除针对伊朗的所有制裁，包括一级和二级制裁以及联合国安理会相关制裁。责任编辑：陈钰嘉
+中新网南京4月16日电 (记者 徐珊珊)江苏省自然资源厅15日召开一季度例行新闻发布会，通报重大项目要素保障、实景三维江苏建设成果及世界地球日宣传活动情况。 2026年一季度，江苏持续深化自然资源要素保障护航行动。截至目前，2026年度550个省重大项目中，已完成自然资源要素保障434个，完成保障率78.9%；其中年内新开工的269个项目已完成保障199个，完成保障率74%。2
 
 ## 正文
 
-据半官方媒体塔斯尼姆通讯社援引知情人士报道，伊朗方面表示，美国已承诺在为期60天的最终协议谈判期间，不会实施任何新的制裁。
+中新网南京4月16日电 (记者 徐珊珊)江苏省自然资源厅15日召开一季度例行新闻发布会，通报重大项目要素保障、实景三维江苏建设成果及世界地球日宣传活动情况。
 
-报道称，根据谅解备忘录，一旦最终协议达成，美国有义务解除针对伊朗的所有制裁，包括一级和二级制裁以及联合国安理会相关制裁。
+2026年一季度，江苏持续深化自然资源要素保障护航行动。
 
-责任编辑：陈钰嘉
+截至目前，2026年度550个省重大项目中，已完成自然资源要素保障434个，完成保障率78.9%；其中年内新开工的269个项目已完成保障199个，完成保障率74%。
+
+200个省民间投资重点产业项目已完成保障187个，完成保障率93.5%。
+
+实景三维是数字江苏建设的时空底座，是支撑数字经济发展、赋能智慧城市建设的新型数字基础设施。
+
+目前，陆海统筹、全域覆盖、省市协同、应用广泛的实景三维江苏已初步建成，优于1:2000比例尺地形图省域覆盖率从61.5%跃升至100%，农村地区建筑物白模实现全覆盖。
+
+江苏在全国率先建成省市县一体化应用服务系统，为发改、交通、水利、应急等200余个部门提供精准数据支撑。
+
+无锡市新吴区打造“三维智慧土地超市”，以实景三维数据精准核算每块土地产业效益，破解低效用地难题。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 20:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 20:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 21:00 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 21:00 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 20:50 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 21:03 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 20:52 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 20:55 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 21:03 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 20:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 21:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 21:17 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 20:54 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 21:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 21:06 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 21:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 21:13 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 20:55 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 20:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 21:08 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 20:55 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 20:55 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 20:49 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/17449.shtml)
-- 2026-06-29 21:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/512993.shtml)
-- 2026-06-29 20:57 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9604217431.shtml)
-- 2026-06-29 21:04 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/7689409089.shtml)
-- 2026-06-29 20:59 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/61659539088.shtml)
-- 2026-06-29 21:05 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/84081125010.shtml)
-- 2026-06-29 21:05 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/3153482214.shtml)
-- 2026-06-29 21:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/0660946066.shtml)
-- 2026-06-29 20:58 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/5876961.shtml)
-- 2026-06-29 21:10 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/883588851.shtml)
-- 2026-06-29 20:46 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/598346.shtml)
-- 2026-06-29 21:02 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/58160.shtml)
-- 2026-06-29 20:56 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/016174805.shtml)
-- 2026-06-29 21:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/28306.shtml)
-- 2026-06-29 20:55 - [扬名立万](http://www.share.minike.top/Article/details/5264662519.shtml)
+- 2026-06-29 20:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/194830237796.shtml)
+- 2026-06-29 20:51 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/193959.shtml)
+- 2026-06-29 20:56 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/04964946.shtml)
+- 2026-06-29 21:01 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/893248209768.shtml)
+- 2026-06-29 20:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/459828762.shtml)
+- 2026-06-29 21:04 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/7639016.shtml)
+- 2026-06-29 20:56 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/601252766068.shtml)
+- 2026-06-29 21:03 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/13628933.shtml)
+- 2026-06-29 21:03 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/60578.shtml)
+- 2026-06-29 21:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/799972659838.shtml)
+- 2026-06-29 20:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/8186399.shtml)
+- 2026-06-29 21:07 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/2973221.shtml)
+- 2026-06-29 20:57 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/261332597.shtml)
+- 2026-06-29 21:08 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/592987.shtml)
+- 2026-06-29 20:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/98412677.shtml)

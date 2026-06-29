@@ -1,60 +1,57 @@
-# 两大北京市重点实验室通过认定，北京数据集团夯实“数算模用”创新底座
+# “锡品出海·智行天下”无锡电动车全球化合作对接会开启
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团
+4月16日，“锡品出海·智行天下”无锡电动车全球化合作对接会暨广交会专场推介会在第139届中国进出口商品交易会现场举办。活动借助广交会这一国际窗口，通过“商会+协会+产业+采购”的多元形式整合资源，进一步打响“中国电动车看锡山”的国际品牌。 中国机电商会会长刘春出席会议，哥伦比亚驻广州总领事馆总领事安雅，巴西联邦共和国驻广州总领事馆副总领事安瑞科，中国机电商会副会长白雪峰，锡山
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月16日，“锡品出海·智行天下”无锡电动车全球化合作对接会暨广交会专场推介会在第139届中国进出口商品交易会现场举办。
 
-来源：智能院 近日，北京市科学技术委员会、中关村科技园区管理委员会公布2026年北京市重点实验室拟认定名单。
+活动借助广交会这一国际窗口，通过“商会+协会+产业+采购”的多元形式整合资源，进一步打响“中国电动车看锡山”的国际品牌。
 
-由北京数据集团旗下京数公司支撑参与的“人工智能伦理与法治评测北京市重点实验室”与“智能原生数据系统北京市重点实验室”已通过认定公示。
+中国机电商会会长刘春出席会议，哥伦比亚驻广州总领事馆总领事安雅，巴西联邦共和国驻广州总领事馆副总领事安瑞科，中国机电商会副会长白雪峰，锡山区委书记、区长顾文浩致辞。
 
-两大实验室分别聚焦人工智能治理技术与智能数据基础设施，是北京数据集团深耕“数算模用”一体化布局的重要阶段性成果，为北京建设全球数字经济标杆城市提供支撑。
+江苏省商务厅二级巡视员朱宝荣、无锡市商务局副局长贡佳鸣、无锡市贸促会副会长龚智杰，以及重点国别驻广州使领馆代表和采购商代表参加活动，共谋产业发展，共商采购合作，共绘出海图景。
 
-聚焦AI治理：构建安全合规的评测基础设施 人工智能伦理与法治评测实验室由北京市经济和信息化局指导，中国政法大学牵头，联合京数公司、蚂蚁集团以及北京中关村学院共建，致力于打造智能体时代的系统性安全治理基础设施。
+顾文浩感谢大家长期以来对锡山区电动车产业发展的关心支持。
 
-实验室依托京数公司运营的全国首个人工智能数据沙盒，研发多模态评测智能体、可计算法律规则编译等核心技术，打通“规则—数据—评测—应用”全链条。
+他说，此次活动借助广交会世界级平台，全方位、多角度展示锡山两轮电动车的拳头产品、热销产品和最新产品，让全球客商零距离感知锡山智造的品质与魅力。
 
-京数公司从三个维度提供关键支撑： 一是依托北京数据先行区政策优势，提供海量合规数据用于伦理对齐训练；二是输出自主研发的可信数据空间与安全治理工具，实现数据从匿名化到开发利用的闭环支撑；三是开放金融反欺诈、医疗数据匿名化等真实场景，为模型合规压力测试提供工程化验证环境。
+期待以本次活动为纽带，促成更多合作、签下更多订单，推动锡山电动车产业从“产品出海”向“品牌出海”“生态出海”加速跨越，加快打造具有世界影响力的千亿级电动车产业地标。
 
-夯实数据底座：破解智能原生系统核心瓶颈 智能原生数据系统实验室由北京航空航天大学牵头，北京数据集团及北京航天情报与信息研究所共建，重点破解多模态数据治理难、高质量训练数据不足、智能数据库自主化水平低等瓶颈。
+白雪峰对嘉宾和企业家的到来表示欢迎。
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 20:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 21:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 21:06 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 21:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 20:56 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 20:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 20:58 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 20:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 20:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 20:42 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 21:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 20:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 21:10 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 20:52 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 20:55 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 20:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 20:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 20:55 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 21:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 20:50 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 20:55 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 21:11 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 20:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/673584.shtml)
-- 2026-06-29 20:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/5413942339.shtml)
-- 2026-06-29 21:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/70267.shtml)
-- 2026-06-29 21:07 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/115598.shtml)
-- 2026-06-29 20:55 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/9910225.shtml)
-- 2026-06-29 21:09 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/21957169913.shtml)
-- 2026-06-29 20:48 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/34254.shtml)
-- 2026-06-29 21:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4682310439.shtml)
-- 2026-06-29 21:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/438344.shtml)
-- 2026-06-29 21:01 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/64763.shtml)
-- 2026-06-29 21:04 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/8871586301.shtml)
-- 2026-06-29 21:04 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/66723114.shtml)
-- 2026-06-29 20:46 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/6018339.shtml)
-- 2026-06-29 21:11 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/702101984558.shtml)
-- 2026-06-29 21:03 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/09153066.shtml)
+- 2026-06-29 20:52 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/518319519.shtml)
+- 2026-06-29 21:09 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/432878084215.shtml)
+- 2026-06-29 21:06 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/24829223.shtml)
+- 2026-06-29 21:16 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/02637868888.shtml)
+- 2026-06-29 21:01 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/45551738586.shtml)
+- 2026-06-29 21:03 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/44548.shtml)
+- 2026-06-29 21:15 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/074148.shtml)
+- 2026-06-29 21:03 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/7561679.shtml)
+- 2026-06-29 20:57 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/12084.shtml)
+- 2026-06-29 20:52 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/92984990.shtml)
+- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/2596658419.shtml)
+- 2026-06-29 21:03 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/082250797477.shtml)
+- 2026-06-29 21:05 - [这一刀 会很帅](https://www.share.minike.top/Article/details/239890764599.shtml)
+- 2026-06-29 21:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/39763016.shtml)
+- 2026-06-29 21:00 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/8126972827.shtml)

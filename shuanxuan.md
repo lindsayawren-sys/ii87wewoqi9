@@ -1,59 +1,56 @@
-# 全国党建工作座谈会在京召开
+# 坦赞铁路采风绘画展将亮相赞比亚
 
-> 更新时间：2026-06-29 21:12:03 UTC+8
+> 更新时间：2026-06-29 21:18:02 UTC+8
 
 ## 摘要
 
-原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。 会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一
+中新社北京4月16日电 (记者 应妮)记者从16日在中国国家博物馆举行的发布会上获悉，由中国驻赞比亚大使馆、中国国家博物馆、赞比亚卢萨卡国家博物馆及中国土木工程集团有限公司联合主办的“同路朋友——坦赞铁路采风绘画展(赞比亚站)”，将于4月23日在赞比亚卢萨卡国家博物馆开幕。 20世纪六七十年代，数万名中国专家和技术人员远涉重洋，奔赴坦桑尼亚与赞比亚，与当地人民并肩奋斗，修建完成
 
 ## 正文
 
-原标题：全国党建工作座谈会在京召开 蔡奇出席并讲话 李希出席 新华社北京6月15日电 全国党建工作座谈会15日在京召开，中共中央政治局常委、中央书记处书记蔡奇出席会议并讲话，中共中央政治局常委、中央纪律检查委员会书记李希出席会议。
+中新社北京4月16日电 (记者 应妮)记者从16日在中国国家博物馆举行的发布会上获悉，由中国驻赞比亚大使馆、中国国家博物馆、赞比亚卢萨卡国家博物馆及中国土木工程集团有限公司联合主办的“同路朋友——坦赞铁路采风绘画展(赞比亚站)”，将于4月23日在赞比亚卢萨卡国家博物馆开幕。
 
-会议认为，党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想。
+20世纪六七十年代，数万名中国专家和技术人员远涉重洋，奔赴坦桑尼亚与赞比亚，与当地人民并肩奋斗，修建完成了被誉为“友谊之路”“自由之路”的坦赞铁路。
 
-习近平党建思想是习近平新时代中国特色社会主义思想的重要组成部分，为发展马克思主义建党学说作出重大原创性贡献，对强党强国具有重大现实意义和长远指导意义。
+从铁路工程的勘测设计到物资运输再到铁路施工，坦赞铁路建设者们克服环境与技术难题，谱写了一段患难相助的中非友谊故事。
 
-会议指出，习近平党建思想是加强新时代党的建设的根本遵循。
+当前，坦赞铁路激活项目作为新时代中非合作的标志性工程，续写着友谊新篇章，推动了共建“一带一路”高质量发展走深走实。
 
-这一思想鲜明提出坚持党的领导是中国特色社会主义最本质的特征，坚持党中央集中统一领导，坚持全面从严治党，坚持不忘初心、牢记使命，坚持以党的政治建设为统领，坚持用党的创新理论凝心铸魂，坚持锤炼坚强党性，坚持健全上下贯通、执行有力的组织体系，坚持建设堪当民族复兴重任的高素质干部队伍，坚持推进作风建设常态化长效化，坚持用严明的纪律管全党治全党，坚持一体推进不敢腐不能腐不想腐，坚持制度治党、依规治党，坚持落实管党治党政治责任，内涵丰富、体系严密。
+2025年11月，“同路朋友”展览在坦桑尼亚国家博物馆成功首展，收获当地民众的广泛赞誉与高度认可。
 
-这一思想源自于马克思主义科学理论，植根于中华优秀传统文化，孕育于新时代全面从严治党的伟大实践，具有坚实的实践基础和深厚的理论渊源。
+本次赞比亚站展览以“中非人文交流年”为契机，赓续中赞传统友好情谊。
 
-这一思想彰显了坚定的理想信念、高度的历史主动、鲜明的问题导向、强烈的使命担当、深厚的为民情怀、科学的思想方法，明体达用、体用贯通，具有鲜明的理论品格。
+作为该展策展人，中国国家博物馆书画院研究馆员谭斐介绍，展览汇集中赞两国艺术家的49幅作品，通过绘画、影像等丰富多元的艺术形式，全景式再现坦赞铁路建设的奋斗历程、沿线人文风貌及自然景观。
 
-这一思想贯通历史、现实和未来，将随着新时代党的建设实践发展而不断丰富和发展。
+展览同期将推出“青春有爱，未来有光”系列文化交流活动：邀请赞比亚青年担任导览与传播使者，提升国际传播的亲和力与实效性；走进当地校园，将文化惠民与公益捐助深度结合，以实际行动传递温暖；开展学术对话，推动文旅融合，助力中赞人文交流与务实合作走深走实。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 20:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 20:42 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 20:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 21:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 20:46 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 20:54 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 20:54 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 20:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 21:00 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 21:06 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 20:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 21:17 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 21:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 20:50 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 20:52 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 21:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 21:00 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 21:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:07 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 20:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:55 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/651461718893.shtml)
-- 2026-06-29 20:46 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/5730918.shtml)
-- 2026-06-29 20:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/22471156.shtml)
-- 2026-06-29 20:46 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/696764.shtml)
-- 2026-06-29 20:48 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/788158.shtml)
-- 2026-06-29 20:51 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/35804.shtml)
-- 2026-06-29 20:42 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/64182.shtml)
-- 2026-06-29 21:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/974019952.shtml)
-- 2026-06-29 21:09 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/203747.shtml)
-- 2026-06-29 20:51 - [《贺子珍》](http://www.blog.minike.top/Article/details/94799569.shtml)
-- 2026-06-29 20:42 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/04840.shtml)
-- 2026-06-29 21:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/5110391.shtml)
-- 2026-06-29 20:58 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/16948271.shtml)
-- 2026-06-29 20:59 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/0004704163.shtml)
-- 2026-06-29 21:10 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/784313941.shtml)
+- 2026-06-29 21:17 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/97433572236.shtml)
+- 2026-06-29 20:57 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/4017347331.shtml)
+- 2026-06-29 21:14 - [扬名立万](https://www.blog.minike.top/Article/details/8006579237.shtml)
+- 2026-06-29 20:51 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/415921844979.shtml)
+- 2026-06-29 20:48 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/63053817128.shtml)
+- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/74319853.shtml)
+- 2026-06-29 21:02 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/8343726.shtml)
+- 2026-06-29 21:15 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/4393521009.shtml)
+- 2026-06-29 21:13 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/851847681.shtml)
+- 2026-06-29 21:08 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/957866.shtml)
+- 2026-06-29 20:49 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/2650677.shtml)
+- 2026-06-29 21:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/92563.shtml)
+- 2026-06-29 21:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/11460380486.shtml)
+- 2026-06-29 20:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/460136.shtml)
+- 2026-06-29 20:54 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/6622623.shtml)
