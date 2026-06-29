@@ -1,56 +1,54 @@
-# “青海好物”亮相北京 晒16年“援青之果”
+# 海关总署出台20项具体措施支持粤港澳大湾区建设
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月19日电 (尹李梅)青海外贸优品展示推介暨援青之果发布系列活动18日在北京举行，以“援青结硕果 优品畅全球”为主题，展示多领域对口援青工作成果。 本次活动由青海省商务厅、青海省委统战部、青海省委组织部援青办联合主办，发布《青海好物(援青之果)》图册，集纳江苏携手海南藏族自治州打造高原冷水鱼产业，浙江与海西蒙古族藏族自治州合作将柴达木有机枸杞、高原驼奶等特色农畜产品
+中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地
 
 ## 正文
 
-中新网北京6月19日电 (尹李梅)青海外贸优品展示推介暨援青之果发布系列活动18日在北京举行，以“援青结硕果 优品畅全球”为主题，展示多领域对口援青工作成果。
+中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。
 
-本次活动由青海省商务厅、青海省委统战部、青海省委组织部援青办联合主办，发布《青海好物(援青之果)》图册，集纳江苏携手海南藏族自治州打造高原冷水鱼产业，浙江与海西蒙古族藏族自治州合作将柴达木有机枸杞、高原驼奶等特色农畜产品推向海内外市场等各省援青成果。
+张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地跨境通行；探索供港澳短保质期食品便利通关措施，推广出口农食产品“批次检验”改革，助力大湾区“菜篮子”安全稳定供给。
 
-活动现场，冰鲜三文鱼、风干牦牛肉、牦牛肉酱、枸杞原浆等产品同步亮相展区，吸引参会者驻足品尝。
+《若干措施》显示，支持扩大正面清单实施范围，便利科研用物资跨境流动；探索对用于生物医药研发的进口料件实施保税监管、简化提交单证；支持符合免税条件的进口集成电路、新型显示器件企业，参与“自行申报享惠”业务模式试点。
 
-2010年，中央第五次西藏工作座谈会作出对口援青战略部署。
+在推进监管制度创新方面，《若干措施》提出，扩大跨境电商出口“先查验、后装运”试点范围；探索开展口岸通关环节碳足迹全生命周期管理试点。
 
-16年来，全方位、多层次援助工作结出硕果。
+同时，《若干措施》提出，推动扩大“组合港(一港通)”航线，推进海铁、水水等多式联运业务模式试点，支持因地制宜设置航空前置货站；支持新皇岗口岸建设、沙头角口岸重建等重点项目，推动实施“一地两检”等便利通关措施。
 
-第六批援青干部人才总领队、青海省委组织部副部长高强介绍，截至目前，第六批援青干部人才累计统筹落实援青协作资金27.3亿元，落地特色农牧精深加工、生态文旅、村集体经济增收等项目680余个。
-
-青海省委统战部常务副部长王润宇表示，未来青海将发挥统战合力，持续深化对口协作，推动更多优质项目、高端人才、先进理念落地青海，着力讲好援青故事、民族团结故事。
+《若干措施》还提出，支持横琴“澳门单牌车北上”，推动海关查验结果共享互认试点；支持前海持续完善离岸现货大豆监管服务措施，发展全球集拼分拨、全球保税维修等业态；支持南沙发展大宗商品贸易，整合仓储资源打造全球供应链中心；推进河套“一区两园”协同发展。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 21:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 21:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 22:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 22:01 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 22:03 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 21:55 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 21:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 21:42 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 21:52 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 22:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 22:06 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 21:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:10 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 21:47 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 21:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 21:56 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 21:49 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 21:48 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/03632349609.shtml)
-- 2026-06-29 21:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/88608.shtml)
-- 2026-06-29 21:51 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/43410.shtml)
-- 2026-06-29 21:57 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/44572304079.shtml)
-- 2026-06-29 22:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/8848591849.shtml)
-- 2026-06-29 22:01 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/54298172966.shtml)
-- 2026-06-29 21:47 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/0086551.shtml)
-- 2026-06-29 21:44 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/610946188.shtml)
-- 2026-06-29 21:37 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/98388.shtml)
-- 2026-06-29 21:54 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/638909010652.shtml)
-- 2026-06-29 21:39 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/81763966994.shtml)
-- 2026-06-29 21:55 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/02063812.shtml)
-- 2026-06-29 21:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/6888930.shtml)
-- 2026-06-29 21:41 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/827600255.shtml)
-- 2026-06-29 21:54 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/199113832.shtml)
+- 2026-06-29 21:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/085401.shtml)
+- 2026-06-29 21:49 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/54803.shtml)
+- 2026-06-29 21:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/71505053605.shtml)
+- 2026-06-29 21:53 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/324954955.shtml)
+- 2026-06-29 21:47 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/073849143765.shtml)
+- 2026-06-29 22:07 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/4917531.shtml)
+- 2026-06-29 21:45 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/2116239.shtml)
+- 2026-06-29 22:07 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/72498646798.shtml)
+- 2026-06-29 21:53 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/3884372.shtml)
+- 2026-06-29 21:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/36623.shtml)
+- 2026-06-29 21:56 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/0947892.shtml)
+- 2026-06-29 22:09 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/50598614.shtml)
+- 2026-06-29 22:01 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/1413291.shtml)
+- 2026-06-29 21:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/78187532982.shtml)
+- 2026-06-29 21:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/6304756.shtml)

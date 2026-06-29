@@ -1,58 +1,50 @@
-# 华文作家戴小华携力作北京分享两岸故事
+# 小米雷军回应纽北纪录被保时捷反超：祝贺保时捷破纪录，车企之间你追我赶才是更健康的态度
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。 2017年，《忽如归》即已在中国大陆文学界引起关注。 戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。她说，因三地都有亲人，对“家”的理解更为深刻。“家不是地域的概念，它属于精神范畴。”她认为，中华文化
+IT之家5月21日消息，据新浪科技报道，在小米人车家全生态新品发布会后，小米集团董事长、CEO雷军与媒体对话。5 月上旬，小米SU7Ultra在纽北保持的纽北量产电动车纪录被保时捷搭载Manthey套件的Taycan Turbo GT反超。雷军被问及此事表示，祝贺保时捷破纪录，车企之间你追我赶，才是更健康的态度，一步步向保时捷学习，争取未来再次超过保时捷。据IT之家报道，在今晚
 
 ## 正文
 
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。
+IT之家5月21日消息，据新浪科技报道，在小米人车家全生态新品发布会后，小米集团董事长、CEO雷军与媒体对话。
 
-2017年，《忽如归》即已在中国大陆文学界引起关注。
+5 月上旬，小米SU7Ultra在纽北保持的纽北量产电动车纪录被保时捷搭载Manthey套件的Taycan Turbo GT反超。
 
-戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。
+雷军被问及此事表示，祝贺保时捷破纪录，车企之间你追我赶，才是更健康的态度，一步步向保时捷学习，争取未来再次超过保时捷。
 
-她说，因三地都有亲人，对“家”的理解更为深刻。
-
-“家不是地域的概念，它属于精神范畴。
-
-”她认为，中华文化是可以连结全球华人的精神纽带。
-
-戴小华回忆，童年时期，母亲常与同样从大陆迁台的邻里相聚，众人凭借手中发黄的旧照片遥寄对大陆亲人的思念。
-
-1999年母亲在台去世后，戴小华经多方努力，将她安葬于河北沧州。
+据IT之家报道，在今晚的发布会上，雷军宣布，小米YU7GT以7分22秒755的成绩刷新纽北SUV圈速纪录14s，成为纽北史上最速SUV。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 21:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 22:02 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 22:02 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 21:56 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 21:50 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 21:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 22:04 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 21:44 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 21:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 21:58 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 21:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 21:52 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 21:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:04 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:07 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 22:08 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 22:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 22:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 21:51 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 22:08 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 22:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/5530685.shtml)
-- 2026-06-29 22:02 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/172991245.shtml)
-- 2026-06-29 21:47 - [85花告别古偶](https://www.blog.minike.top/Article/details/203309.shtml)
-- 2026-06-29 21:39 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/4365063931.shtml)
-- 2026-06-29 21:41 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/44792779.shtml)
-- 2026-06-29 22:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/66108907680.shtml)
-- 2026-06-29 21:37 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/0683435.shtml)
-- 2026-06-29 21:47 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/779656377.shtml)
-- 2026-06-29 22:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/929512.shtml)
-- 2026-06-29 21:42 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/1662996951.shtml)
-- 2026-06-29 21:45 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/131529363462.shtml)
-- 2026-06-29 22:00 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/873668.shtml)
-- 2026-06-29 21:46 - [85花告别古偶](http://www.blog.minike.top/Article/details/290723.shtml)
-- 2026-06-29 22:05 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/776236813463.shtml)
-- 2026-06-29 21:59 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/70621.shtml)
+- 2026-06-29 21:45 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/4710298410.shtml)
+- 2026-06-29 21:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/191967870.shtml)
+- 2026-06-29 22:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/068919.shtml)
+- 2026-06-29 21:58 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/82000786011.shtml)
+- 2026-06-29 22:02 - [沙丘](http://www.share.minike.top/Article/details/39543199.shtml)
+- 2026-06-29 21:53 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/96948171.shtml)
+- 2026-06-29 22:03 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/70559703.shtml)
+- 2026-06-29 21:53 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/8754877.shtml)
+- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/6400006969.shtml)
+- 2026-06-29 21:51 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/596458.shtml)
+- 2026-06-29 22:09 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/6024345.shtml)
+- 2026-06-29 21:59 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/6840473.shtml)
+- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/11091751.shtml)
+- 2026-06-29 21:56 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/142776028103.shtml)
+- 2026-06-29 21:45 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/43622904.shtml)

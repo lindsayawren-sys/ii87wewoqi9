@@ -1,58 +1,49 @@
-# 武昌古城观光巴士开通 线路串联武汉千年文脉
+# 美银证券：招商证券目标价上调至16.60港元 升至“买入”评级
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网武汉6月18日电 (况昕昀 余哲)“武昌古城观光巴士”18日正式启动试运营，首批10台19座新能源车辆以“武昌红”与“炫彩波普”国潮手绘风格亮相。观光巴士从户部巷出发，经红巷、粮道街、黄鹤楼至起义门后返回，串联武汉八大精华景点，贯通古城千年文脉，打造“全景视角”下的城市文化微旅行。 武昌古城的历史，可追溯至1800年前。三国时期，东吴孙权在蛇山修筑夏口古城(今武昌区)，并
+美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，
 
 ## 正文
 
-中新网武汉6月18日电 (况昕昀 余哲)“武昌古城观光巴士”18日正式启动试运营，首批10台19座新能源车辆以“武昌红”与“炫彩波普”国潮手绘风格亮相。
+美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。
 
-观光巴士从户部巷出发，经红巷、粮道街、黄鹤楼至起义门后返回，串联武汉八大精华景点，贯通古城千年文脉，打造“全景视角”下的城市文化微旅行。
+该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，而自第一季末以来“国家队”的资金流出放缓亦应有助股价上行。
 
-武昌古城的历史，可追溯至1800年前。
-
-三国时期，东吴孙权在蛇山修筑夏口古城(今武昌区)，并在城西黄鹄矶上修建了一座军事瞭望楼，即黄鹤楼的前身。
-
-此后千年，武昌从三国军事堡垒演变为唐宋“东南巨镇”、明清“湖广会城”。
-
-1911年，辛亥革命武昌起义在此打响推翻封建帝制“第一枪”。
-
-当日首发的观光巴士融入“黄鹤归来”“首义之门”“昙华林深”等武昌元素，并点缀“武畅儿”“小昙昙”“金斗娃”等古城IP形象。
-
-车内配备智能感应语音讲解系统，将这段绵延千年的历史“装”进车厢。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 21:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 21:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 22:02 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 21:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 21:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 21:43 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 21:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 21:42 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 21:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 22:05 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 21:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 22:10 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 21:57 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 21:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 22:08 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 21:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 21:58 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 22:06 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 21:50 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 21:45 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 21:51 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/540676.shtml)
-- 2026-06-29 21:56 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/42838940.shtml)
-- 2026-06-29 21:39 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/94379658944.shtml)
-- 2026-06-29 22:03 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/8860443.shtml)
-- 2026-06-29 21:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/8394142042.shtml)
-- 2026-06-29 21:51 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/270846733.shtml)
-- 2026-06-29 21:43 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/6420964.shtml)
-- 2026-06-29 21:48 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/1594654.shtml)
-- 2026-06-29 21:40 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/485978694.shtml)
-- 2026-06-29 21:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/832277.shtml)
-- 2026-06-29 21:44 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/3480828598.shtml)
-- 2026-06-29 22:00 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/82017859060.shtml)
-- 2026-06-29 21:53 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/4816694.shtml)
-- 2026-06-29 21:36 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/60831.shtml)
-- 2026-06-29 21:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/354212.shtml)
+- 2026-06-29 21:42 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/29058963.shtml)
+- 2026-06-29 21:47 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/70667.shtml)
+- 2026-06-29 21:53 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/586640.shtml)
+- 2026-06-29 21:52 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/379418311.shtml)
+- 2026-06-29 21:42 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/7047511902.shtml)
+- 2026-06-29 21:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/36678.shtml)
+- 2026-06-29 21:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/00268286.shtml)
+- 2026-06-29 22:07 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/3732283163.shtml)
+- 2026-06-29 21:54 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/2243674059.shtml)
+- 2026-06-29 22:02 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/69271858297.shtml)
+- 2026-06-29 21:51 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/1936665335.shtml)
+- 2026-06-29 21:46 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/71688355920.shtml)
+- 2026-06-29 22:04 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/676276020.shtml)
+- 2026-06-29 21:51 - [逃狱兄弟](https://www.share.minike.top/Article/details/61501788748.shtml)
+- 2026-06-29 21:57 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/0290250220.shtml)

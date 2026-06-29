@@ -1,46 +1,56 @@
-# 拾光纪·从“嘀嗒、嘀嗒”声中，听懂坚持党中央集中统一领导
+# 湖南石门洪灾中的温暖瞬间：六岁孩童搬运物资，村民自发驰援“孤岛”
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 20:34 来源：人民日报客户端 责任编辑：【李太源】
+中新网常德5月21日电 (张雪盈 杨华峰 李盈)5月21日，在湖南常德石门县壶瓶山镇一处救灾物资存放点，63岁的王圣美和几名老人、孩子早早守在现场。直升机螺旋桨卷起的气流还未停歇，他们便主动上前，一趟趟帮忙搬运方便面、矿泉水等物资。 “有个6岁的小朋友在这里搬了一个多小时，他的爷爷奶奶拦都拦不住。”王圣美说，他们受了那么大的灾，大家都希望能尽一点微薄之力。 连日来，石门县遭遇今
 
 ## 正文
 
-发布时间：2026年06月20日 20:34 来源：人民日报客户端 责任编辑：【李太源】
+中新网常德5月21日电 (张雪盈 杨华峰 李盈)5月21日，在湖南常德石门县壶瓶山镇一处救灾物资存放点，63岁的王圣美和几名老人、孩子早早守在现场。
+
+直升机螺旋桨卷起的气流还未停歇，他们便主动上前，一趟趟帮忙搬运方便面、矿泉水等物资。
+
+“有个6岁的小朋友在这里搬了一个多小时，他的爷爷奶奶拦都拦不住。
+
+”王圣美说，他们受了那么大的灾，大家都希望能尽一点微薄之力。
+
+连日来，石门县遭遇今年第一轮强降雨过程，全县23个乡镇区场不同程度受灾。
+
+截至21日8时，此次强降雨灾害已造成6人死亡、10人失联。
+
+中新网现场走访发现，尽管纵贯石门全境的渫水水位已明显回落，暴雨留下的创伤依旧触目惊心。
+
+在受灾严重的石门县壶瓶山镇、南北镇，树木杂物被冲进河岸边居民屋内，多处道路桥梁被冲毁，部分村庄成为与外界隔绝的深山“孤岛”。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 21:56 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 21:36 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 22:05 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:00 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 21:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 21:56 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 21:47 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 21:40 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 21:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 21:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 21:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 21:41 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:48 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 21:51 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 21:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:01 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:02 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 22:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 21:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 21:51 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 21:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/6657707085.shtml)
-- 2026-06-29 21:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/82745698364.shtml)
-- 2026-06-29 22:02 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/697040093.shtml)
-- 2026-06-29 22:04 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/50063619075.shtml)
-- 2026-06-29 21:43 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/7982915.shtml)
-- 2026-06-29 21:46 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/2886774245.shtml)
-- 2026-06-29 22:03 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/148198995.shtml)
-- 2026-06-29 22:00 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/341134905.shtml)
-- 2026-06-29 21:36 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/278407084077.shtml)
-- 2026-06-29 21:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/06957457.shtml)
-- 2026-06-29 21:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/8938160474.shtml)
-- 2026-06-29 21:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/289717193.shtml)
-- 2026-06-29 21:50 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/5767402.shtml)
-- 2026-06-29 22:05 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/80933889.shtml)
-- 2026-06-29 21:44 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/92571.shtml)
+- 2026-06-29 21:47 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/42688912235.shtml)
+- 2026-06-29 21:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/358579710.shtml)
+- 2026-06-29 22:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/807134.shtml)
+- 2026-06-29 21:45 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/7804050000.shtml)
+- 2026-06-29 21:50 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/519712.shtml)
+- 2026-06-29 21:47 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/36748087833.shtml)
+- 2026-06-29 21:52 - [一生一世](http://www.blog.minike.top/Article/details/27349186.shtml)
+- 2026-06-29 21:54 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/98936.shtml)
+- 2026-06-29 22:01 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/447382.shtml)
+- 2026-06-29 21:56 - [恋与深空致歉](http://www.share.minike.top/Article/details/267464.shtml)
+- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/411667838517.shtml)
+- 2026-06-29 21:57 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/264506389327.shtml)
+- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/8682347194.shtml)
+- 2026-06-29 22:05 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/09535.shtml)
+- 2026-06-29 21:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/84339.shtml)

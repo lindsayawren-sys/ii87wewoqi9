@@ -1,56 +1,55 @@
-# 印尼官方辟谣镍矿配额放宽！7月开放申报窗口，全年矿产管控保持高压
+# Anthropic将向SpaceX支付近450亿美元以获取算力
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-（来源：长江镍业网） 6 月 18 日讯 印尼能源与矿产资源部（ESDM）对外明确表态，当前并未正式出台、批准任何放宽镍矿增产配额的相关新政，此前市场流传的 “镍矿配额上调” 消息缺乏官方依据，全球镍供给宽松预期快速降温。 矿产煤炭总司相关负责人表示，所有矿企若想调整开采规模、修订《工作计划与预算方案》（RKAB），需等待固定申报周期开启，2026 年配额修订申报窗口期统一划定
+据一份证券披露文件，Anthropic PBC已同意在未来三年内向埃隆·马斯克的SpaceX支付近450亿美元，用于获取计算资源，这是为支持其Claude人工智能AI软件而扩大协议的一部分。 SpaceX周三在其首次公开招股（IPO）相关文件中披露，AI开发者Anthropic预计将每月向马斯克的SpaceX支付12.5亿美元，直至2029年5月。文件还指出，任何一方均可提前9
 
 ## 正文
 
-（来源：长江镍业网） 6 月 18 日讯 印尼能源与矿产资源部（ESDM）对外明确表态，当前并未正式出台、批准任何放宽镍矿增产配额的相关新政，此前市场流传的 “镍矿配额上调” 消息缺乏官方依据，全球镍供给宽松预期快速降温。
+据一份证券披露文件，Anthropic PBC已同意在未来三年内向埃隆·马斯克的SpaceX支付近450亿美元，用于获取计算资源，这是为支持其Claude人工智能AI软件而扩大协议的一部分。
 
-矿产煤炭总司相关负责人表示，所有矿企若想调整开采规模、修订《工作计划与预算方案》（RKAB），需等待固定申报周期开启，2026 年配额修订申报窗口期统一划定为 7 月 1 日至 7 月 31 日。
+SpaceX周三在其首次公开招股（IPO）相关文件中披露，AI开发者Anthropic预计将每月向马斯克的SpaceX支付12.5亿美元，直至2029年5月。
 
-矿产经营发展司司长切赛普・穆罕默德・亚辛在 6 月 17 日关键矿产行业座谈会后接受采访，进一步明确市场核心关切：现阶段部门未收到上调全国镍矿开采配额的上级正式指示，不存在提前放开增产通道的情况。
+文件还指出，任何一方均可提前90天通知对方终止协议。
 
-一、申报规则清晰：7 月统一提交修订申请，并非仅针对镍矿单一品种 本次 RKAB 方案修订属于全矿种统一调整机制，煤炭、镍、铝土、钴等全部矿产企业均需遵守同一申报周期，并非市场传言中单独放宽镍矿开采限制。
+Anthropic本月早些时候表示，签署了一份协议，以从SpaceX位于孟菲斯的大型数据中心Colossus 1获取超过300兆瓦的计算能力，但并未透露具体条款。
 
-按照印尼现行矿产管理条例，每年仅 7 月开放一次配额修改申报通道，全年其余时间无补充申报渠道。
+据Anthropic联合创始人暨首席计算官Tom Brown的帖子，之后双方扩大合作关系，纳入SpaceX第二个数据中心的算力。
 
-企业想要增加开采量，必须在 7 月整月窗口期内提交完整修订材料，由矿产煤炭总司统一审核评估，审核结果不会即时落地，增量配额能否获批、获批规模均存在极大不确定性。
+除了提到Brown的帖子，Anthropic不予评论。
 
-同时政策明确，配额审批将优先匹配本土下游冶炼产能，单纯外销型矿山企业增产申请审核门槛更高，从制度层面限制镍矿无序放量。
-
-二、2026 年整体管控基调不变，镍、煤炭为重点收紧品类 今年印尼核心矿产调控思路以收缩供给、稳住资源价格为主，其中镍矿与煤炭是管控力度最强的两大品类。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:44 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 22:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 21:44 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 21:51 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 21:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 21:49 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 22:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 22:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 21:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 21:58 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 21:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 21:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 22:05 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 22:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 21:42 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 21:52 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 21:54 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 22:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 21:58 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/528645339875.shtml)
-- 2026-06-29 21:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/291575.shtml)
-- 2026-06-29 21:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/475827066255.shtml)
-- 2026-06-29 22:05 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/65647.shtml)
-- 2026-06-29 21:56 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/20359087.shtml)
-- 2026-06-29 21:59 - [恋与深空 巧合](http://www.share.minike.top/Article/details/3014667124.shtml)
-- 2026-06-29 21:39 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/626928756353.shtml)
-- 2026-06-29 21:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/34809661.shtml)
-- 2026-06-29 21:41 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/75528.shtml)
-- 2026-06-29 21:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/5349296.shtml)
-- 2026-06-29 22:05 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/549754927966.shtml)
-- 2026-06-29 21:48 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/4145821494.shtml)
-- 2026-06-29 22:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/734397376377.shtml)
-- 2026-06-29 21:52 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/9126744.shtml)
-- 2026-06-29 21:55 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/1967304472.shtml)
+- 2026-06-29 21:42 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/3022160.shtml)
+- 2026-06-29 21:42 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/720659314053.shtml)
+- 2026-06-29 21:51 - [起风了](http://www.share.kurohicncr.top/Article/details/894329.shtml)
+- 2026-06-29 22:02 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/01860.shtml)
+- 2026-06-29 21:44 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/2077385627.shtml)
+- 2026-06-29 22:08 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/73258815.shtml)
+- 2026-06-29 21:57 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/38234.shtml)
+- 2026-06-29 22:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/4261054.shtml)
+- 2026-06-29 21:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/36274516014.shtml)
+- 2026-06-29 21:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/51917155.shtml)
+- 2026-06-29 21:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/73418702.shtml)
+- 2026-06-29 21:45 - [金刚川](https://www.blog.minike.top/Article/details/2419146715.shtml)
+- 2026-06-29 21:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/33554121.shtml)
+- 2026-06-29 21:55 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/81346.shtml)
+- 2026-06-29 22:03 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/3887405.shtml)

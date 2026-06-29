@@ -1,50 +1,49 @@
-# 亲爱的老爸，我有些话想对您说…
+# 万联证券被罚61万元：违反反洗钱管理规定
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 09:31 来源：中国新闻网 爸：提笔时，训练场的风正拂过我的肩章。我在此摔打磨砺，以青春之躯守护一方山河；您于烟火里躬身半生，凭沉默肩膀撑起阖家温软。千言万语久藏心底，纸短情长，道不尽半生养育深恩。惟愿您眉目常舒，腰背硬朗，历经风霜体魄不衰，岁岁年年平安顺遂。(作者：张钧尧、刘颢涵、李泽鑫、陈郝宇、欧阳皓鹏、孟令照） 责任编辑：【魏聪聪】
+5月21日金融一线消息，中国人民银行广东省分行行政处罚决定信息公示表显示，万联证券股份有限公司因违反反洗钱管理有关规定，被给予警告，并处罚款61万元。 责任编辑：王馨茹
 
 ## 正文
 
-发布时间：2026年06月21日 09:31 来源：中国新闻网 爸：提笔时，训练场的风正拂过我的肩章。
+5月21日金融一线消息，中国人民银行广东省分行行政处罚决定信息公示表显示，万联证券股份有限公司因违反反洗钱管理有关规定，被给予警告，并处罚款61万元。
 
-我在此摔打磨砺，以青春之躯守护一方山河；您于烟火里躬身半生，凭沉默肩膀撑起阖家温软。
-
-千言万语久藏心底，纸短情长，道不尽半生养育深恩。
-
-惟愿您眉目常舒，腰背硬朗，历经风霜体魄不衰，岁岁年年平安顺遂。
-
-(作者：张钧尧、刘颢涵、李泽鑫、陈郝宇、欧阳皓鹏、孟令照） 责任编辑：【魏聪聪】
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 21:55 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 21:41 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 22:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 21:46 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 21:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 21:53 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 21:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 22:02 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 21:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 21:47 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:01 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 21:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:59 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 21:56 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 21:45 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 21:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 21:56 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 21:59 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 22:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 21:58 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/819034.shtml)
-- 2026-06-29 22:04 - [女心理师](https://www.blog.kurohicncr.top/Article/details/49657.shtml)
-- 2026-06-29 21:44 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/2819558.shtml)
-- 2026-06-29 22:03 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/78071.shtml)
-- 2026-06-29 21:40 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/312447471655.shtml)
-- 2026-06-29 21:36 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/76134077168.shtml)
-- 2026-06-29 21:50 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/2181747.shtml)
-- 2026-06-29 22:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/398156958.shtml)
-- 2026-06-29 21:51 - [一生一世](http://www.share.kurohicncr.top/Article/details/051924529469.shtml)
-- 2026-06-29 21:42 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/30945379.shtml)
-- 2026-06-29 21:47 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/754303.shtml)
-- 2026-06-29 22:05 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/97434951.shtml)
-- 2026-06-29 21:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/42387429645.shtml)
-- 2026-06-29 21:42 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/12438171669.shtml)
-- 2026-06-29 21:48 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/7444569553.shtml)
+- 2026-06-29 22:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/85146566623.shtml)
+- 2026-06-29 22:10 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/739294.shtml)
+- 2026-06-29 21:42 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/5437494.shtml)
+- 2026-06-29 22:10 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/92925503.shtml)
+- 2026-06-29 22:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/4045630349.shtml)
+- 2026-06-29 21:49 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/2124656.shtml)
+- 2026-06-29 22:02 - [起风了](https://www.share.kurohicncr.top/Article/details/5975385070.shtml)
+- 2026-06-29 22:03 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/671462.shtml)
+- 2026-06-29 21:46 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/725677.shtml)
+- 2026-06-29 21:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/1736035.shtml)
+- 2026-06-29 21:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/71343894452.shtml)
+- 2026-06-29 22:03 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/708532.shtml)
+- 2026-06-29 22:06 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/04170589001.shtml)
+- 2026-06-29 22:07 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/604175.shtml)
+- 2026-06-29 22:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/830608867.shtml)

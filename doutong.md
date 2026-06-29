@@ -1,58 +1,58 @@
-# 兆易创新解禁股人均盈利达1928万！本周A股解禁市值达549亿 多只科技牛股迎考验
+# 我国学龄儿童超重肥胖率达19% 你给孩子吃对了吗？
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-【相关阅读】7只半导体个股股东减持套现逾67亿，多路资金集体兑现 来源：中国基金报 数据显示，本周（6月22日至26日）A股将有49家公司有限售股份解禁，合计解禁数量27.63亿股，以最新收盘价计算（下同），总解禁市值达549.08亿元。 其中，有15家公司解禁市值超10亿元，合计解禁市值约485.93亿元。珠城科技、新恒汇解禁市值均超过50亿元，位居前列。 四家公司解禁占比超
+今天(20日)是第37个中国学生营养日。数据显示，我国6至17岁的学龄儿童超重肥胖率高达19%，如果得不到有效遏制，到2030年我国儿童超重肥胖率可能达到31.8%。营养过剩与微量营养素缺乏的“隐性饥饿”并存成为当前学龄儿童健康的突出痛点。 我国学龄儿童营养过剩与“隐性饥饿”并存 监测数据显示，我国6~17岁学龄儿童膳食摄入呈现主食超标、荤食过量、微量营养素缺乏等主要问题。在膳
 
 ## 正文
 
-【相关阅读】7只半导体个股股东减持套现逾67亿，多路资金集体兑现 来源：中国基金报 数据显示，本周（6月22日至26日）A股将有49家公司有限售股份解禁，合计解禁数量27.63亿股，以最新收盘价计算（下同），总解禁市值达549.08亿元。
+今天(20日)是第37个中国学生营养日。
 
-其中，有15家公司解禁市值超10亿元，合计解禁市值约485.93亿元。
+数据显示，我国6至17岁的学龄儿童超重肥胖率高达19%，如果得不到有效遏制，到2030年我国儿童超重肥胖率可能达到31.8%。
 
-珠城科技、新恒汇解禁市值均超过50亿元，位居前列。
+营养过剩与微量营养素缺乏的“隐性饥饿”并存成为当前学龄儿童健康的突出痛点。
 
-四家公司解禁占比超50% 从解禁比例来看，本周共有16家公司解禁数量占总股本比例超10%。
+我国学龄儿童营养过剩与“隐性饥饿”并存 监测数据显示，我国6~17岁学龄儿童膳食摄入呈现主食超标、荤食过量、微量营养素缺乏等主要问题。
 
-其中，珠城科技、广信科技、威士顿、开创电气四家公司解禁占比均超过50%，解禁后流通盘将大幅扩容。
+在膳食结构层面，儿童主食、畜禽肉摄入普遍超标，超过70%的儿童存在肉类过量摄入的情况，蔬菜、水果、奶及大豆制品摄入缺口明显，多数儿童奶类日均摄入量远低于300克的推荐标准，膳食纤维、优质植物蛋白摄入普遍不足。
 
-珠城科技（证券代码：301280）本周解禁规模最大，6月26日将有1.31亿限售股解禁，占总股本比例达68.24%，解禁市值为66.41亿元，解禁股份类型为首发原股东限售股份。
+除此之外，我国学龄儿童整体营养素养偏低，仅10.9%的学龄儿童具备合格营养素养，挑食偏食、三餐不规律、不吃早餐、零食替代正餐、久坐少动，进一步加剧了营养失衡问题。
 
-珠城科技是一家专注于电子连接器的研发、生产及销售，并具备电子连接器精密模具的设计、制造和组装能力的高新技术企业，产品主要应用于消费类家电，同时以汽车、新能源、工业、通讯领域作为重要发展方向。
+国家食品安全风险评估中心研究员 徐娇：慢性病现在低龄化出现比较多，一个是学生的血压开始升高了，还有痛风症状也都增加了，包括一些心脑血管疾病，也在儿童青少年中间出现一些发展的情况。
 
-2022年上市以来，公司业绩保持稳健增长，净利润从2022年的1.1亿元增至2025年的2.09亿元。
+主要原因还是跟生活方式有关系，一方面是膳食结构的不合理，另外一方面是运动量不够多，所以就从平衡的角度，我们认为是造成儿童这种慢性病比较多发的一个主要的原因。
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 21:43 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 21:48 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 21:43 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 21:40 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 22:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 21:50 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 21:52 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 21:37 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 22:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 21:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 22:07 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 21:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 21:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 22:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 21:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 21:54 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 22:03 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 22:04 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 22:00 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 22:08 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/05751394.shtml)
-- 2026-06-29 22:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/24043083975.shtml)
-- 2026-06-29 21:48 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/192628.shtml)
-- 2026-06-29 21:56 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/93953.shtml)
-- 2026-06-29 22:05 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/383616467724.shtml)
-- 2026-06-29 21:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/9733452.shtml)
-- 2026-06-29 21:49 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/3530026.shtml)
-- 2026-06-29 21:36 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/26513.shtml)
-- 2026-06-29 21:41 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/54114457351.shtml)
-- 2026-06-29 21:50 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/520239233.shtml)
-- 2026-06-29 22:03 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/022170301.shtml)
-- 2026-06-29 21:53 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/186941330744.shtml)
-- 2026-06-29 21:58 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/02410063.shtml)
-- 2026-06-29 21:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/261396560341.shtml)
-- 2026-06-29 21:50 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/483682098934.shtml)
+- 2026-06-29 21:49 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/976113232.shtml)
+- 2026-06-29 21:42 - [送你一朵小红花](https://www.blog.minike.top/Article/details/98456.shtml)
+- 2026-06-29 21:54 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/78640834401.shtml)
+- 2026-06-29 22:07 - [世界杯](http://www.share.minike.top/Article/details/16060839084.shtml)
+- 2026-06-29 21:54 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/43584.shtml)
+- 2026-06-29 22:03 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/569971.shtml)
+- 2026-06-29 22:00 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/0639102403.shtml)
+- 2026-06-29 21:56 - [急先锋](http://www.share.minike.top/Article/details/01157.shtml)
+- 2026-06-29 21:55 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/4540360137.shtml)
+- 2026-06-29 21:56 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/191216096.shtml)
+- 2026-06-29 21:46 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/1389381.shtml)
+- 2026-06-29 21:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/0354542522.shtml)
+- 2026-06-29 21:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/9289258.shtml)
+- 2026-06-29 21:56 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/6558798980.shtml)
+- 2026-06-29 22:06 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/706441141186.shtml)

@@ -1,59 +1,60 @@
-# 2026端午游园会在悉尼举行
+# 688165，重大资产重组！
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网悉尼6月20日电 (记者 薄雯雯)2026端午游园会19日在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。 本次活动由悉尼科技大学中国学生学者联谊会和悉尼大学中国学生学者联谊会联合举办。活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。 中国驻悉尼总领馆负责教育事务的参赞衔领事林晓青
+埃夫特（688165）拟约10.74亿元收购上海盛普流体设备股份有限公司（简称“盛普股份”）100%股份，此次交易构成重大资产重组。5月21日晚，埃夫特发布重组草案，宣布拟通过发行股份及支付现金的方式向至骞实业、刘燕、嘉兴蔓月、上海郗舜、李强、李天智、洋浦昆宁、新余鸿土、上海捌芯、王晨共10名交易对方购买其持有的盛普股份95.97%股份，交易价格为10.33亿元，并拟通过支付现
 
 ## 正文
 
-中新网悉尼6月20日电 (记者 薄雯雯)2026端午游园会19日在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。
+埃夫特（688165）拟约10.74亿元收购上海盛普流体设备股份有限公司（简称“盛普股份”）100%股份，此次交易构成重大资产重组。
 
-本次活动由悉尼科技大学中国学生学者联谊会和悉尼大学中国学生学者联谊会联合举办。
+5月21日晚，埃夫特发布重组草案，宣布拟通过发行股份及支付现金的方式向至骞实业、刘燕、嘉兴蔓月、上海郗舜、李强、李天智、洋浦昆宁、新余鸿土、上海捌芯、王晨共10名交易对方购买其持有的盛普股份95.97%股份，交易价格为10.33亿元，并拟通过支付现金的方式向上海翌耀、共青城凯翌购买其持有的盛普股份4.03%股份，交易价格约为4120.35万元，后者以前者为实施前提条件。
 
-活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。
+盛普股份成立于2007年6月22日，专注于精密流体控制设备及其核心零部件的研发、生产和销售，其主要产品精密流体控制设备通过运动算法与结构设计，实现对粘性流体（主要为胶粘剂）的精密输送、精准计量和精准涂覆，应用于光伏组件、动力电池以及汽车及零部件等下游行业生产制造的胶接工艺环节，服务于客户胶接工艺的智能化升级，是下游客户打造智能工厂的关键核心设备之一，助力企业制造智能化、精准化。
 
-中国驻悉尼总领馆负责教育事务的参赞衔领事林晓青在致辞中表示，端午节是中华民族传统节日之一。
+2024年、2025年，盛普股份营收分别为3.51亿元、3.38亿元，归属母公司所有者的净利润分别为6754.82万元、5254.65万元。
 
-两千多年来，人们通过赛龙舟、包粽子、挂艾草、佩香囊等丰富多彩的民俗活动，传承中华文化，寄托家国情怀。
+截至2025年末，盛普股份资产总计约9.81亿元。
 
-希望同学们通过此次活动共庆佳节、共叙友谊、共话未来。
+2022年6月29日，深交所受理上海盛普首次公开发行股票并在创业板上市的申请文件。
 
-“端午节是海外游子寄托乡愁、凝聚同胞情谊的重要传统节日。
+2023年1月20日，上海盛普通过创业板上市委审议，但在2024年9月撤回了IPO申请。
 
-”悉尼科技大学中国学联主席买超向记者表示，本届游园会以“游园寻古韵，佳节寄乡情”为主题，精心设置了一系列趣味十足的民俗互动环节，希望以青春力量搭建中外文化交流桥梁，让更多海外友人增进对中华文化的了解和认识。
+根据《业绩补偿协议》，业绩承诺方承诺在业绩承诺期（本次交易实施完毕后连续三个会计年度）的实际实现的净利润分别不低于8000万元、9000万元、10000万元（三年平均净利润不低于9000万元）。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 22:02 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 21:47 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 21:47 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 21:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 21:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 22:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 21:43 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 21:57 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 21:58 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 22:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 21:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 21:56 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:09 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 22:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 21:51 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 22:05 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 21:48 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 21:57 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 22:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 22:01 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 21:50 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 21:49 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 21:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:02 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 21:45 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/50980.shtml)
-- 2026-06-29 21:59 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/4950964.shtml)
-- 2026-06-29 21:59 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/42530014381.shtml)
-- 2026-06-29 21:42 - [毒液2](http://www.share.kurohicncr.top/Article/details/893506075927.shtml)
-- 2026-06-29 21:53 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/7199119.shtml)
-- 2026-06-29 21:42 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/866766.shtml)
-- 2026-06-29 21:36 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/953134260616.shtml)
-- 2026-06-29 22:05 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/24538555.shtml)
-- 2026-06-29 22:03 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/24044585693.shtml)
-- 2026-06-29 21:36 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/562249291.shtml)
-- 2026-06-29 21:54 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/55961887.shtml)
-- 2026-06-29 21:39 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/69827.shtml)
-- 2026-06-29 21:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/348538485.shtml)
-- 2026-06-29 21:46 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/13245971.shtml)
-- 2026-06-29 21:47 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/570692097.shtml)
+- 2026-06-29 21:58 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/928499255034.shtml)
+- 2026-06-29 21:59 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/20938.shtml)
+- 2026-06-29 21:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/34281473260.shtml)
+- 2026-06-29 21:50 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/629347166.shtml)
+- 2026-06-29 22:05 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/4846381431.shtml)
+- 2026-06-29 22:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/9220897241.shtml)
+- 2026-06-29 22:11 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/816607888.shtml)
+- 2026-06-29 21:43 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/56372.shtml)
+- 2026-06-29 22:02 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/69277867173.shtml)
+- 2026-06-29 21:45 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/483645.shtml)
+- 2026-06-29 22:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/3309513809.shtml)
+- 2026-06-29 22:09 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/551670.shtml)
+- 2026-06-29 21:56 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/703560700.shtml)
+- 2026-06-29 22:03 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/0538453653.shtml)
+- 2026-06-29 21:53 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/17262.shtml)

@@ -1,56 +1,61 @@
-# 电影《给阿嬷的情书》香港上映 潮汕乡情引发香江共鸣
+# 江西深化与大湾区跨境电商产业合作 助力企业出海发展
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新社香港6月18日电 (记者 赵静怡)电影《给阿嬷的情书》18日登陆香港院线。这部以潮汕方言讲述华侨华人“过番”往事、内地票房突破17亿元人民币的影片，吸引了众多香港市民走进影院，在大银幕前感受跨越山海的浓浓温情。 《给阿嬷的情书》此前便已在香港掀起热潮，不少香港市民专程“北上”深圳、广州等地观影，并在社交媒体平台晒出票根，称“数次落泪，完全走不出来”。在日前结束的香港潮州节
+中新网深圳5月20日电 (记者 吴鹏泉)2026江西跨境电子商务发展交流会暨“跨境电商+产业带”对接交流和综合保税区推介会20日下午在广东深圳举行。本次活动旨在深化江西与粤港澳大湾区跨境电商产业合作，助力江西产业带企业出海发展。 上述活动通过江西跨境电商产业园、综合保税区及外贸企业宣介，深圳跨境电商平台机遇分享，企业供采对接等方式，为采购商品、洽谈合作搭建了对接平台。 江西省商
 
 ## 正文
 
-中新社香港6月18日电 (记者 赵静怡)电影《给阿嬷的情书》18日登陆香港院线。
+中新网深圳5月20日电 (记者 吴鹏泉)2026江西跨境电子商务发展交流会暨“跨境电商+产业带”对接交流和综合保税区推介会20日下午在广东深圳举行。
 
-这部以潮汕方言讲述华侨华人“过番”往事、内地票房突破17亿元人民币的影片，吸引了众多香港市民走进影院，在大银幕前感受跨越山海的浓浓温情。
+本次活动旨在深化江西与粤港澳大湾区跨境电商产业合作，助力江西产业带企业出海发展。
 
-《给阿嬷的情书》此前便已在香港掀起热潮，不少香港市民专程“北上”深圳、广州等地观影，并在社交媒体平台晒出票根，称“数次落泪，完全走不出来”。
+上述活动通过江西跨境电商产业园、综合保税区及外贸企业宣介，深圳跨境电商平台机遇分享，企业供采对接等方式，为采购商品、洽谈合作搭建了对接平台。
 
-在日前结束的香港潮州节活动现场，主办方专设了电影打卡位、同款小吃、侨批展览，让市民提前沉浸式感受电影《给阿嬷的情书》。
+江西省商务厅党组成员、副厅长陈长生表示，当前跨境电商蓬勃发展，江西与粤港澳大湾区开展跨境电商合作正逢其时。
 
-据香港购票平台18日数据显示，全港近50家影院已排片超240场。
+他说，江西工业门类齐全，特色产品多样，开放平台功能完善，物流通关流畅。
 
-多家电影院傍晚时段的黄金场次早在预售阶段就已显示座位全部售出。
+江西借助大湾区领先的平台矩阵、先进的数字技术，跨境电商发展必将实现“1+1>2”的双赢。
 
-尽管香港首映日未选在周末时段，但观影市民热情不减。
+活动现场人气爆满，洽谈环节积极投入，达成一批合作意向。
 
-位于尖沙咀的一家影院当日人头攒动。
+江西欧亚非车业有限公司主要生产两轮电动车、新能源电池等产品。
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 21:58 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 21:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 21:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 21:37 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:46 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:51 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 21:37 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 21:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 22:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:06 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 22:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 22:07 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 22:09 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 21:57 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 21:46 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 22:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 22:00 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 21:56 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 22:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 21:50 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 21:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 21:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 21:47 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/651144.shtml)
-- 2026-06-29 22:05 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/01692398.shtml)
-- 2026-06-29 21:45 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/977785401166.shtml)
-- 2026-06-29 21:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/3119767958.shtml)
-- 2026-06-29 22:05 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/489855208844.shtml)
-- 2026-06-29 21:44 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/0655594206.shtml)
-- 2026-06-29 21:55 - [小娘惹](https://www.blog.minike.top/Article/details/41530494.shtml)
-- 2026-06-29 21:50 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/707170142622.shtml)
-- 2026-06-29 21:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/2466511031.shtml)
-- 2026-06-29 21:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/817461.shtml)
-- 2026-06-29 21:56 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/784281147006.shtml)
-- 2026-06-29 21:39 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/25433721.shtml)
-- 2026-06-29 21:40 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/8568347679.shtml)
-- 2026-06-29 21:51 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/20883463.shtml)
-- 2026-06-29 21:54 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/92565.shtml)
+- 2026-06-29 21:44 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/8502409.shtml)
+- 2026-06-29 21:50 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/6137755.shtml)
+- 2026-06-29 21:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/954446792.shtml)
+- 2026-06-29 21:49 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/9898458.shtml)
+- 2026-06-29 21:53 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/19151128.shtml)
+- 2026-06-29 22:11 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/774388186.shtml)
+- 2026-06-29 21:47 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/2822534.shtml)
+- 2026-06-29 22:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/79015338.shtml)
+- 2026-06-29 22:02 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/09819043.shtml)
+- 2026-06-29 21:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/29331.shtml)
+- 2026-06-29 21:44 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/07103.shtml)
+- 2026-06-29 21:53 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/98471616.shtml)
+- 2026-06-29 22:06 - [恋与深空致歉](http://www.blog.minike.top/Article/details/756907214555.shtml)
+- 2026-06-29 22:03 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/3813324.shtml)
+- 2026-06-29 21:56 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/71399.shtml)

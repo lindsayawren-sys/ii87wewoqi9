@@ -1,51 +1,61 @@
-# 小足球链接大世界 安徽定远智造逐浪海外市场
+# StepStone宣布季度派息0.28美元 同步加派特别股息0.55美元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 16:28 来源：中国新闻网 随着2026年美加墨世界杯火热开赛，全球体育用品市场的热度也随之攀升。定远县球类产业园内一派繁忙，各家生产企业开足马力赶制出口订单，全力抢抓世界杯带来的体育用品产销旺季。 借力国际顶级赛事流量风口，定远县依托完备球类产业链筑牢外贸底盘，以智能制造提质增效、以产业扩容拓宽赛道，在抢抓全球体育消费机遇的同时，持续补齐品
+全球私募市场投资公司StepStone Group于5月21日宣布，其董事会已批准派发每股0.28美元的季度现金股息，交易代码为STEP。本次股息将于6月30日支付，股权登记日为6月15日。 值得注意的是，StepStone同日还宣布加派每股0.55美元的特别现金股息，同样于6月30日支付。两项股息合计每股0.83美元，较上年同期的每股股息总额增长约23%。 StepStone
 
 ## 正文
 
-发布时间：2026年06月20日 16:28 来源：中国新闻网 随着2026年美加墨世界杯火热开赛，全球体育用品市场的热度也随之攀升。
+全球私募市场投资公司StepStone Group于5月21日宣布，其董事会已批准派发每股0.28美元的季度现金股息，交易代码为STEP。
 
-定远县球类产业园内一派繁忙，各家生产企业开足马力赶制出口订单，全力抢抓世界杯带来的体育用品产销旺季。
+本次股息将于6月30日支付，股权登记日为6月15日。
 
-借力国际顶级赛事流量风口，定远县依托完备球类产业链筑牢外贸底盘，以智能制造提质增效、以产业扩容拓宽赛道，在抢抓全球体育消费机遇的同时，持续补齐品牌短板、丰富产品矩阵，推动本土球类产业从产品代工出口，向品牌化、多元化、高端化转型升级，让定远智造逐浪海外市场，为世界“传球”。
+值得注意的是，StepStone同日还宣布加派每股0.55美元的特别现金股息，同样于6月30日支付。
 
-(刘鸿鹤 安徽滁州报道) 责任编辑：【罗攀】
+两项股息合计每股0.83美元，较上年同期的每股股息总额增长约23%。
+
+StepStone此前于5月20日发布了截至2026年3月31日的第四财季及全年财报。
+
+财报显示，公司第四财季费用相关收益达1.053亿美元，同比增长12%；费用相关收益率为40%；经调整净利润为6900万美元，合每股0.57美元。
+
+资产规模方面，公司管理资产同比增长23%至2333亿美元，计费管理资产增长19%至1440亿美元，未部署的计费资本达401亿美元，同比增长63%。
+
+StepStone是一家专注于私募股权、房地产、私募债及基础设施等另类资产领域的全球投资公司，致力于为客户提供定制化投资解决方案及咨询和数据服务。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 21:38 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 21:53 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 21:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 21:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:47 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 21:51 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 21:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 21:57 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 22:04 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 21:43 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 21:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 21:52 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 21:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 22:01 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 21:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 21:53 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 22:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 21:48 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 22:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 22:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 21:46 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 21:58 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 22:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 21:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 22:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 22:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/16992410.shtml)
-- 2026-06-29 21:47 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/1659461.shtml)
-- 2026-06-29 22:04 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/84306452129.shtml)
-- 2026-06-29 21:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/826367.shtml)
-- 2026-06-29 21:54 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/92526988760.shtml)
-- 2026-06-29 21:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/828077.shtml)
-- 2026-06-29 21:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/32874.shtml)
-- 2026-06-29 21:45 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/5786839.shtml)
-- 2026-06-29 21:59 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/3406184880.shtml)
-- 2026-06-29 22:05 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/3064369.shtml)
-- 2026-06-29 21:48 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/32188.shtml)
-- 2026-06-29 22:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/357025871525.shtml)
-- 2026-06-29 21:43 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/9647141.shtml)
-- 2026-06-29 21:58 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/1602132193.shtml)
-- 2026-06-29 21:37 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/837965.shtml)
+- 2026-06-29 22:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/68360138.shtml)
+- 2026-06-29 22:00 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/0000876872.shtml)
+- 2026-06-29 21:48 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/56881497680.shtml)
+- 2026-06-29 22:04 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/786097.shtml)
+- 2026-06-29 21:59 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/777403777479.shtml)
+- 2026-06-29 21:45 - [《贺子珍》](https://www.share.minike.top/Article/details/0555459.shtml)
+- 2026-06-29 21:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/4221304868.shtml)
+- 2026-06-29 21:47 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/631163.shtml)
+- 2026-06-29 22:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/7536443.shtml)
+- 2026-06-29 21:54 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/388031967866.shtml)
+- 2026-06-29 22:02 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/66020.shtml)
+- 2026-06-29 22:03 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/225829.shtml)
+- 2026-06-29 21:55 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/2674536647.shtml)
+- 2026-06-29 21:48 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/00021.shtml)
+- 2026-06-29 22:03 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/269093539.shtml)

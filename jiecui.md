@@ -1,60 +1,58 @@
-# 欧洲债市：英国国债因政局不确定性下跌 长端领跌
+# 今年618：中国电商的一道坎，过不去就得接着卷
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-英国国债下挫，较长期限品种领跌；全球债券遭抛售之际，新的政局不确定性进一步加剧压力。 英国10年期和30年期国债收益率均上涨8个基点，分别至4.84%和5.54%，为一周来最高水平 欧洲债券走势类似，意大利30年期国债收益率上涨8个基点，至4.54%，德国30年期国债收益率上涨7个基点，至3.54%。 交易员正在应对英国可能出现领导权之争的前景，以及美国与伊朗有关持久和平协议进
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：倪叔的思考暗时间 今年618终于不比去年提前了，各大平台还是5月中旬开始预热，流量价格还是在一路向上走。这些看似都没变，但今年618一定会比往年更有看头。 最近，有几个电商的商家都跟倪叔说，他们观察到，现在的消费者已经完全分化成了两种。 要么，就是极端冲动消费，被流量大潮推过来，心动就买，买了就退，退
 
 ## 正文
 
-英国国债下挫，较长期限品种领跌；全球债券遭抛售之际，新的政局不确定性进一步加剧压力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-英国10年期和30年期国债收益率均上涨8个基点，分别至4.84%和5.54%，为一周来最高水平 欧洲债券走势类似，意大利30年期国债收益率上涨8个基点，至4.54%，德国30年期国债收益率上涨7个基点，至3.54%。
+来源：倪叔的思考暗时间 今年618终于不比去年提前了，各大平台还是5月中旬开始预热，流量价格还是在一路向上走。
 
-交易员正在应对英国可能出现领导权之争的前景，以及美国与伊朗有关持久和平协议进行的谈判被推迟。
+这些看似都没变，但今年618一定会比往年更有看头。
 
-互换市场显示，交易员预计欧洲央行今年将加息38个基点，英国央行将加息35个基点；交易员预计美联储到9月加息25个基点的可能性为100%。
+最近，有几个电商的商家都跟倪叔说，他们观察到，现在的消费者已经完全分化成了两种。
 
-市场： 德国10年期国债收益率上涨5个基点，报2.98%。
+要么，就是极端冲动消费，被流量大潮推过来，心动就买，买了就退，退款率极高。
 
-德国国债期货下跌69个点，报126.07%。
+两年前倪叔就说过，再这么下去，电商一定会成为不赚钱的“二流行业”。
 
-意大利10年期国债收益率上涨6个基点，报3.69%。
+两年后的今天你再看，纯靠流量吸引来用户的仍然是这样，现在还退得更多了，退得更快了。
 
-意大利与德国国债利差扩大1个基点，报71个基点。
+最近媒体报道，有个知名女装品牌的创始人说：在某些平台时装类的退货率甚至超过了90%。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 21:54 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 21:46 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 21:44 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 21:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 21:43 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 21:39 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 21:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 21:46 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 21:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 22:01 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 21:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 21:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 22:00 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 22:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 22:01 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 22:10 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 22:05 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 22:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 22:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 21:58 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 22:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:42 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 21:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 22:01 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 22:06 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [啊啊啊](http://www.blog.minike.top/Article/details/81562999.shtml)
-- 2026-06-29 22:05 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/993814.shtml)
-- 2026-06-29 21:51 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/7091600420.shtml)
-- 2026-06-29 21:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/119829.shtml)
-- 2026-06-29 22:02 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/585831.shtml)
-- 2026-06-29 21:54 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/403720087.shtml)
-- 2026-06-29 21:37 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/7303277.shtml)
-- 2026-06-29 22:04 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/71399115779.shtml)
-- 2026-06-29 21:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/480053895601.shtml)
-- 2026-06-29 22:02 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/329360.shtml)
-- 2026-06-29 21:36 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/96366919.shtml)
-- 2026-06-29 22:04 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/42270012.shtml)
-- 2026-06-29 22:02 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/24267453823.shtml)
-- 2026-06-29 21:59 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/287351965.shtml)
-- 2026-06-29 21:40 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/9627222514.shtml)
+- 2026-06-29 21:54 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/57050.shtml)
+- 2026-06-29 22:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/18479.shtml)
+- 2026-06-29 22:06 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/58977.shtml)
+- 2026-06-29 21:51 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/49736740464.shtml)
+- 2026-06-29 21:54 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/98218612.shtml)
+- 2026-06-29 22:09 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/36613689764.shtml)
+- 2026-06-29 22:00 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/788784.shtml)
+- 2026-06-29 21:46 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/67859917686.shtml)
+- 2026-06-29 21:50 - [田曦薇没招了](http://www.share.minike.top/Article/details/98522401.shtml)
+- 2026-06-29 22:08 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/7204751717.shtml)
+- 2026-06-29 21:56 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5948091251.shtml)
+- 2026-06-29 22:10 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/92497316.shtml)
+- 2026-06-29 21:49 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/884214.shtml)
+- 2026-06-29 22:07 - [恋与深空回应争议](http://www.share.minike.top/Article/details/55868.shtml)
+- 2026-06-29 22:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/2878365.shtml)

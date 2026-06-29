@@ -1,59 +1,58 @@
-# 南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？
+# 上海交大云南研究院与多方共建“科技小院” AI助力临沧特色产业
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网南京6月19日电 题：南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？ 作者 王晓燕 朱晓颖 因在意大利国际青少年杯赛(SIGISMONDI Cup)决赛中点球绝杀夺冠、以空翻动作庆祝胜利，江苏南京的12岁“空翻少年”孟新艺火了。如何客观看待国际赛场荣誉？未来足球青训要如何发展得更稳更好？近日南京市多位业界人士就此话题进行探讨。 流量是把双刃剑 在意大利夺冠之后，
+中新网临沧5月21日电 (郭安菲)21日，上海交通大学云南研究院与多方共建的“云南科技小院”在临沧市永德县正式揭牌。该小院将为当地月季、蓝莓、坚果、小粒咖啡等特色产业引入智能灌溉、雾化消杀等设备，以及AI病虫害预警系统，助力产业提质增效。 永德县是典型的山区农业县，坚果、甘蔗、咖啡、诃子、花卉等特色产业是当地乡村振兴的重要支柱。近年来，该县紧扣云南省“3815”战略部署，构建“
 
 ## 正文
 
-中新网南京6月19日电 题：南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？
+中新网临沧5月21日电 (郭安菲)21日，上海交通大学云南研究院与多方共建的“云南科技小院”在临沧市永德县正式揭牌。
 
-作者 王晓燕 朱晓颖 因在意大利国际青少年杯赛(SIGISMONDI Cup)决赛中点球绝杀夺冠、以空翻动作庆祝胜利，江苏南京的12岁“空翻少年”孟新艺火了。
+该小院将为当地月季、蓝莓、坚果、小粒咖啡等特色产业引入智能灌溉、雾化消杀等设备，以及AI病虫害预警系统，助力产业提质增效。
 
-如何客观看待国际赛场荣誉？
+永德县是典型的山区农业县，坚果、甘蔗、咖啡、诃子、花卉等特色产业是当地乡村振兴的重要支柱。
 
-未来足球青训要如何发展得更稳更好？
+近年来，该县紧扣云南省“3815”战略部署，构建“6+1”现代特色产业体系，但在科技支撑、专业人才、品牌建设等方面仍存在短板，亟需科技、人才与金融协同赋能。
 
-近日南京市多位业界人士就此话题进行探讨。
+据了解，农药残留超标一直是制约国内花卉深加工产品出口的主要障碍。
 
-流量是把双刃剑 在意大利夺冠之后，国际荣誉给孟新艺及其母校带来了流量。
+降低农药残留是玫瑰精油、纯露等深加工产品进入国际高端市场的关键门槛。
 
-从国外返回南京后，孟新艺不断被路人认出并要求合影。
+当前，永德县正着力打造“低农药、低化肥、低能耗”的环保型玫瑰种植模式。
 
-一夜之间，孟新艺父亲孟庆华“涨粉”14万，收到1000多条信息，接到许多贺喜和商业合作的电话、电邮。
+与传统方式相比，“三低”模式不仅降低了生产成本、提高了农民收入，也提升了玫瑰深加工产品的安全性与出口竞争力。
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 21:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 21:55 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 21:55 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 21:56 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 22:02 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 21:52 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 21:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:58 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 21:46 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 21:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 21:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 21:48 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 21:54 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 22:08 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 21:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 21:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:43 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 21:51 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 22:08 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 22:05 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 22:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 21:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 21:58 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/349006050.shtml)
-- 2026-06-29 21:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/21419756.shtml)
-- 2026-06-29 21:59 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/458906.shtml)
-- 2026-06-29 21:48 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/932732427.shtml)
-- 2026-06-29 21:51 - [沙丘](https://www.share.kurohicncr.top/Article/details/680063220.shtml)
-- 2026-06-29 22:02 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/00852.shtml)
-- 2026-06-29 21:40 - [爱很美味](http://www.blog.minike.top/Article/details/906019083.shtml)
-- 2026-06-29 21:51 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/07577926.shtml)
-- 2026-06-29 21:56 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/961264389.shtml)
-- 2026-06-29 21:47 - [流金岁月](https://www.share.kurohicncr.top/Article/details/93388.shtml)
-- 2026-06-29 21:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/231620153148.shtml)
-- 2026-06-29 21:49 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/75333.shtml)
-- 2026-06-29 21:54 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/90213.shtml)
-- 2026-06-29 21:40 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/022854391.shtml)
-- 2026-06-29 21:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/697402925710.shtml)
+- 2026-06-29 21:48 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/8329989964.shtml)
+- 2026-06-29 21:58 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/3693319400.shtml)
+- 2026-06-29 22:06 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/57630.shtml)
+- 2026-06-29 21:49 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/348892.shtml)
+- 2026-06-29 21:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/055410.shtml)
+- 2026-06-29 21:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/9960129925.shtml)
+- 2026-06-29 21:50 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/7158372954.shtml)
+- 2026-06-29 22:10 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/14914257674.shtml)
+- 2026-06-29 22:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/40741920.shtml)
+- 2026-06-29 21:56 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/21818733.shtml)
+- 2026-06-29 21:42 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/20185551.shtml)
+- 2026-06-29 21:58 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/38764175.shtml)
+- 2026-06-29 22:02 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/62750114792.shtml)
+- 2026-06-29 21:51 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/774469385171.shtml)
+- 2026-06-29 21:55 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/389724980554.shtml)

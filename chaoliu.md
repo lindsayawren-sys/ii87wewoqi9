@@ -1,50 +1,56 @@
-# 香港端午前夕迎“龙舟水” 天文台一天两发“黑雨”警告
+# 巴林工业大臣：英国-海湾贸易协议是“里程碑式成就”
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 13:13 来源：中国新闻网 6月18日，香港遭大范围暴雨侵袭，香港天文台当日共计发布两次“黑雨”警告。这是香港自1998年3月有记录以来，首次同日两度发出“黑雨”警告。首次“黑雨”警告于12时55分发出，历时约2小时。傍晚18时35分，香港天文台再次发布“黑雨”警告。(中新社记者 综合报道 制作 徐妙巧） 责任编辑：【孙静波】
+核心要点 巴林工业大臣对 CNBC 表示，英国与海湾国家达成的贸易协议是一项里程碑式成就。 阿卜杜拉・本・阿德尔・法赫罗称，该协议对英国和海湾国家而言是双赢。 这份自贸协定也将为英国带来巨大利好，使其能面向中东庞大而富裕的消费市场，开启大规模零关税贸易。 巴林工业与商业大臣阿卜杜拉・本・阿德尔・法赫罗周三表示，当天公布的这份自由贸易协定，对英国与海湾合作委员会（GCC）来说是双
 
 ## 正文
 
-发布时间：2026年06月19日 13:13 来源：中国新闻网 6月18日，香港遭大范围暴雨侵袭，香港天文台当日共计发布两次“黑雨”警告。
+核心要点 巴林工业大臣对 CNBC 表示，英国与海湾国家达成的贸易协议是一项里程碑式成就。
 
-这是香港自1998年3月有记录以来，首次同日两度发出“黑雨”警告。
+阿卜杜拉・本・阿德尔・法赫罗称，该协议对英国和海湾国家而言是双赢。
 
-首次“黑雨”警告于12时55分发出，历时约2小时。
+这份自贸协定也将为英国带来巨大利好，使其能面向中东庞大而富裕的消费市场，开启大规模零关税贸易。
 
-傍晚18时35分，香港天文台再次发布“黑雨”警告。
+巴林工业与商业大臣阿卜杜拉・本・阿德尔・法赫罗周三表示，当天公布的这份自由贸易协定，对英国与海湾合作委员会（GCC）来说是双赢，且 “意义重大”。
 
-(中新社记者 综合报道 制作 徐妙巧） 责任编辑：【孙静波】
+“这份自贸协定体量巨大，各国间双边贸易规模庞大，相互投资规模也非常可观。
+
+” 他在接受 CNBC 记者丹・墨菲采访时说，并预计协议将推动上述领域合作进一步增长。
+
+“我们真心认为这是一项里程碑式成就；对海合会和英国而言都至关重要。
+
+” 他补充道。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 21:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:04 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 21:37 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 21:40 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 21:55 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 22:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 21:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 21:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 21:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 21:59 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 21:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 21:56 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:10 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 21:58 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 21:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 22:08 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 22:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 21:55 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/78230.shtml)
-- 2026-06-29 21:55 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/8175494869.shtml)
-- 2026-06-29 21:42 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/32433.shtml)
-- 2026-06-29 21:48 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/6520945018.shtml)
-- 2026-06-29 21:47 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/907570770.shtml)
-- 2026-06-29 21:39 - [绘画区你赢了](https://www.share.minike.top/Article/details/3966816.shtml)
-- 2026-06-29 21:51 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/044581275469.shtml)
-- 2026-06-29 21:48 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/207359.shtml)
-- 2026-06-29 21:43 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/847321087080.shtml)
-- 2026-06-29 22:01 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/568006317.shtml)
-- 2026-06-29 22:01 - [爱很美味](http://www.share.minike.top/Article/details/456603070.shtml)
-- 2026-06-29 21:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/17301626356.shtml)
-- 2026-06-29 21:43 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/027171729425.shtml)
-- 2026-06-29 21:50 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/1439566.shtml)
-- 2026-06-29 21:55 - [青春环游记第三季](https://www.blog.minike.top/Article/details/9171537879.shtml)
+- 2026-06-29 21:42 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/05528516.shtml)
+- 2026-06-29 22:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/936389.shtml)
+- 2026-06-29 22:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/241698.shtml)
+- 2026-06-29 21:57 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/46023682572.shtml)
+- 2026-06-29 22:08 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/563955815.shtml)
+- 2026-06-29 21:51 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/838714978124.shtml)
+- 2026-06-29 22:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/605913566.shtml)
+- 2026-06-29 22:08 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/312089.shtml)
+- 2026-06-29 22:08 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/391539064.shtml)
+- 2026-06-29 21:54 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/509639828766.shtml)
+- 2026-06-29 21:47 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/033919719705.shtml)
+- 2026-06-29 22:07 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/07250086.shtml)
+- 2026-06-29 21:57 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/80878.shtml)
+- 2026-06-29 21:56 - [扫黑风暴](https://www.blog.minike.top/Article/details/72750533.shtml)
+- 2026-06-29 22:03 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/97765372749.shtml)

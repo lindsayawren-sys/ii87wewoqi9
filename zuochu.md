@@ -1,56 +1,57 @@
-# 广西龙胜：苗族姑娘节盛装巡游孝亲传礼
+# CBA季后赛半决赛：深圳队拿下“生死战”
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点
+中新社深圳5月21日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛21日晚在深圳举行。深圳马可波罗队(简称“深圳队”)坐镇主场以91:80战胜浙江浙商证券队(简称“浙江队”)。 CBA季后赛半决赛采取五场三胜制。此前，两队已进行两回合交锋，浙江队均主场获胜，以大比分2:0迎来赛点。此役，两队移师深圳，展开激烈争夺。 比赛开始，深圳队火力全开，
 
 ## 正文
 
-虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+中新社深圳5月21日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛21日晚在深圳举行。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+深圳马可波罗队(简称“深圳队”)坐镇主场以91:80战胜浙江浙商证券队(简称“浙江队”)。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+CBA季后赛半决赛采取五场三胜制。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+此前，两队已进行两回合交锋，浙江队均主场获胜，以大比分2:0迎来赛点。
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+此役，两队移师深圳，展开激烈争夺。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+比赛开始，深圳队火力全开，贺希宁突破上篮得分，容子峰连续命中两记三分，巴吉跳投得分，开局以15:5领先。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+随后，浙江队布朗内突外投，胡金秋跳投得分，将比分追近。
 
-孔子为什么说“温故而知新”？
+末段，深圳队王浩然命中三分，阿立兹跳投得分，将领先优势扩大。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 21:44 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 21:41 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 21:59 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 21:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 21:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 21:42 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 21:53 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 21:43 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 22:04 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 21:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 22:08 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 21:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:47 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 21:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 21:52 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 21:45 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 21:56 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 22:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 21:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 21:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/34699661325.shtml)
-- 2026-06-29 21:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/407772986.shtml)
-- 2026-06-29 21:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/22248.shtml)
-- 2026-06-29 22:03 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/32323650.shtml)
-- 2026-06-29 21:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/37234331543.shtml)
-- 2026-06-29 21:48 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/188734613771.shtml)
-- 2026-06-29 21:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/3379678941.shtml)
-- 2026-06-29 21:41 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/70690.shtml)
-- 2026-06-29 21:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/775250326.shtml)
-- 2026-06-29 21:40 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/70622787106.shtml)
-- 2026-06-29 22:03 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/893489026.shtml)
-- 2026-06-29 21:54 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/457056789.shtml)
-- 2026-06-29 21:56 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/092771673060.shtml)
-- 2026-06-29 21:40 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/669302683.shtml)
-- 2026-06-29 21:58 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/61009683.shtml)
+- 2026-06-29 22:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/55131756.shtml)
+- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/27669.shtml)
+- 2026-06-29 21:50 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/443175761.shtml)
+- 2026-06-29 21:57 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/6181064108.shtml)
+- 2026-06-29 21:44 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/38248.shtml)
+- 2026-06-29 21:54 - [田曦薇没招了](http://www.share.minike.top/Article/details/38425.shtml)
+- 2026-06-29 21:46 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/00472496.shtml)
+- 2026-06-29 21:43 - [第一炉香](https://www.share.minike.top/Article/details/79669.shtml)
+- 2026-06-29 22:09 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/89661861.shtml)
+- 2026-06-29 21:50 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/18043.shtml)
+- 2026-06-29 21:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/769049366.shtml)
+- 2026-06-29 21:43 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/93538388764.shtml)
+- 2026-06-29 21:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/050541.shtml)
+- 2026-06-29 22:10 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/950363044135.shtml)
+- 2026-06-29 21:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/3192581185.shtml)

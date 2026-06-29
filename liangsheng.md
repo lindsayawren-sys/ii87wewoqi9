@@ -1,51 +1,55 @@
-# 端午假期云南大部有雨 多地地质灾害风险高
+# 武警贵州总队全力投入洪灾清淤清障工作
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月20日电 (记者 韩帅南)云南省自然资源厅、云南省气象局19日联合发布地质灾害气象风险Ⅱ级提示性预警，预计未来24小时，昭通市西南部、曲靖市北部和东部等多地地质灾害气象风险等级为Ⅱ级(风险高)。该预警称，预计未来24小时，昭通市西南部、曲靖市北部和东部、红河州西南部、德宏州西部和东南部、保山市南部、怒江州北部、昆明市北部地质灾害气象风险等级为Ⅱ级，可能出现滑坡、泥
+中新网贵阳5月20日电(潘志龙 何文博)连日来，贵州省黔东南苗族侗族自治州麻江县、黔南布依族苗族自治州贵定县遭遇持续性强降雨天气引发局部洪涝灾害。5月20日，随着洪水逐渐退去，武警贵州总队官兵全力投入灾区清淤工作，帮助当地民众尽快恢复生产生活秩序。 在黔南州贵定县昌明镇，武警贵州总队黔南支队官兵深入淤泥覆盖较为严重的昌明实验小学，采取分片划区、网格清理的方式，使用高压水枪、铁锹
 
 ## 正文
 
-中新网昆明6月20日电 (记者 韩帅南)云南省自然资源厅、云南省气象局19日联合发布地质灾害气象风险Ⅱ级提示性预警，预计未来24小时，昭通市西南部、曲靖市北部和东部等多地地质灾害气象风险等级为Ⅱ级(风险高)。
+中新网贵阳5月20日电(潘志龙 何文博)连日来，贵州省黔东南苗族侗族自治州麻江县、黔南布依族苗族自治州贵定县遭遇持续性强降雨天气引发局部洪涝灾害。
 
-该预警称，预计未来24小时，昭通市西南部、曲靖市北部和东部、红河州西南部、德宏州西部和东南部、保山市南部、怒江州北部、昆明市北部地质灾害气象风险等级为Ⅱ级，可能出现滑坡、泥石流和崩塌等地质灾害，请注意防御。
+5月20日，随着洪水逐渐退去，武警贵州总队官兵全力投入灾区清淤工作，帮助当地民众尽快恢复生产生活秩序。
 
-云南省气象台预计，未来三天云南大部有雨中东部、南部和西部边缘局地雨势强劲并伴有雷电、局地短时强降水冰雹和雷暴大风等强对流天气。
+在黔南州贵定县昌明镇，武警贵州总队黔南支队官兵深入淤泥覆盖较为严重的昌明实验小学，采取分片划区、网格清理的方式，使用高压水枪、铁锹、扫把等工具，迅速开展清淤清障工作，针对洪涝灾害后，病原微生物大量繁殖，卫生员同步展开防疫工作，助力驻地学校尽快复学。
+
+在麻江县坝芒乡乐坪村，救援工作持续推进。
+
+武警贵州总队黔东南支队官兵手持铁锹、铁镐等工具，对村内主干道、入户小路及房前屋后堆积的淤泥、垃圾、杂物等进行彻底清扫处理，同时疏通堵塞沟渠，清理路面障碍，争分夺秒恢复村庄道路通行和民众正常生产生活秩序。
+
+目前，清淤工作仍在紧张有序进行中。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 22:03 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 21:51 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 21:47 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 22:01 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 21:38 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 21:46 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 21:36 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 22:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 21:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 21:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 21:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 22:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 22:10 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 21:59 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 21:46 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 22:00 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 22:04 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 21:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 21:44 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 22:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 21:45 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 21:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 22:07 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/76657664455.shtml)
-- 2026-06-29 21:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/2209465565.shtml)
-- 2026-06-29 21:54 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/627335789115.shtml)
-- 2026-06-29 21:44 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/85367585.shtml)
-- 2026-06-29 21:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/17673912.shtml)
-- 2026-06-29 22:00 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/4960082470.shtml)
-- 2026-06-29 22:03 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/57018.shtml)
-- 2026-06-29 21:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/854611844.shtml)
-- 2026-06-29 22:05 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/75472480.shtml)
-- 2026-06-29 21:39 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/12639928262.shtml)
-- 2026-06-29 21:51 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/00754054445.shtml)
-- 2026-06-29 21:44 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/770952969.shtml)
-- 2026-06-29 21:39 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/8145747616.shtml)
-- 2026-06-29 21:51 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/0902854.shtml)
-- 2026-06-29 22:00 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/61472388306.shtml)
+- 2026-06-29 22:11 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/2226836.shtml)
+- 2026-06-29 22:02 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/064982600447.shtml)
+- 2026-06-29 22:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/73195379580.shtml)
+- 2026-06-29 22:04 - [送你一朵小红花](http://www.blog.minike.top/Article/details/5371850077.shtml)
+- 2026-06-29 21:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/50304221204.shtml)
+- 2026-06-29 21:42 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/08523.shtml)
+- 2026-06-29 21:53 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/59477697770.shtml)
+- 2026-06-29 22:08 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/184584026.shtml)
+- 2026-06-29 21:59 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/39018035225.shtml)
+- 2026-06-29 21:55 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/1724078.shtml)
+- 2026-06-29 22:06 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/90267.shtml)
+- 2026-06-29 21:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/7510357238.shtml)
+- 2026-06-29 21:50 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/3719252.shtml)
+- 2026-06-29 22:09 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/2550736.shtml)
+- 2026-06-29 21:49 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/98362.shtml)

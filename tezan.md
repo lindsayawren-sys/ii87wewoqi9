@@ -1,50 +1,55 @@
-# 交通运输部：7省份地区连续降雨，公路交通存在高风险
+# 伊朗媒体：伊朗“正在回应”美方谈判文本
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。 交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月21日电据伊朗学生通讯社21日报道，伊朗“正在回应美方发来的谈判文本”，目前在讨论该文本的“总体框架、部分细节以及作为保障的信任建立措施”。 报道说，美方谈判文本在一定程度上“缩小了分歧”，但进一步缩小分歧“需要美方摒弃战争倾向”。 报道说，巴基斯坦陆军参谋长穆尼尔将到访伊朗，旨在推动伊朗与
 
 ## 正文
 
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控工作，严格落实灾害风险隐患排查和公路巡查要求，提高力量预置的精准性和针对性，细化主动防御管控措施，切实保障连续降雨期间人民群众公路出行安全。
+新华社德黑兰5月21日电据伊朗学生通讯社21日报道，伊朗“正在回应美方发来的谈判文本”，目前在讨论该文本的“总体框架、部分细节以及作为保障的信任建立措施”。
 
-交通运输部提醒，近期，上述地区出现连续降雨，公路沿线灾害风险较高，如您有上述地区出行计划，请提前关注天气及路况信息，合理规划路线，尽量避让灾害易发路段。
+报道说，美方谈判文本在一定程度上“缩小了分歧”，但进一步缩小分歧“需要美方摒弃战争倾向”。
 
-驾车出行时，请谨慎驾驶、观察路况，注意公路沿线情报板、告警阻拦设施等提示信息。
+报道说，巴基斯坦陆军参谋长穆尼尔将到访伊朗，旨在推动伊朗与美国缩小分歧，促成双方达成正式谅解备忘录。
 
-如遇灾害突发事件，第一时间及时停靠安全区域并拨打救援电话，等待专业处置。
+另据伊朗光明通讯社21日早些时候报道，伊朗外交部发言人巴加埃表示，伊方“正在评估”美方通过巴基斯坦转交的最新谈判意见。
+
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 21:44 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 21:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 21:39 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 21:45 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 21:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 21:49 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 21:54 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 21:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 22:05 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 21:58 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 21:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 21:46 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 21:57 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 21:54 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 22:00 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 21:56 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 22:10 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 21:53 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 22:04 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 21:54 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 21:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 21:57 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/2350529390.shtml)
-- 2026-06-29 21:57 - [明星大侦探第一季](http://www.share.minike.top/Article/details/142703985.shtml)
-- 2026-06-29 22:04 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/120550488.shtml)
-- 2026-06-29 21:42 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/81677.shtml)
-- 2026-06-29 21:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/401981.shtml)
-- 2026-06-29 22:01 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/285136385773.shtml)
-- 2026-06-29 21:58 - [美人鱼](http://www.share.kurohicncr.top/Article/details/41166.shtml)
-- 2026-06-29 22:01 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/9480793939.shtml)
-- 2026-06-29 22:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/78750724060.shtml)
-- 2026-06-29 21:42 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/4369781.shtml)
-- 2026-06-29 21:59 - [周生如故](https://www.share.kurohicncr.top/Article/details/51525.shtml)
-- 2026-06-29 21:40 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/80619109786.shtml)
-- 2026-06-29 21:42 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/404933.shtml)
-- 2026-06-29 21:42 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/80118739.shtml)
-- 2026-06-29 21:39 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/39800996599.shtml)
+- 2026-06-29 22:01 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/4843226240.shtml)
+- 2026-06-29 21:50 - [女心理师](http://www.share.minike.top/Article/details/70863642821.shtml)
+- 2026-06-29 22:03 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/200758498.shtml)
+- 2026-06-29 22:01 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/84704.shtml)
+- 2026-06-29 22:04 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/592099.shtml)
+- 2026-06-29 22:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/05500190725.shtml)
+- 2026-06-29 22:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/1189231.shtml)
+- 2026-06-29 21:58 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/21723490.shtml)
+- 2026-06-29 22:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/31281812957.shtml)
+- 2026-06-29 21:46 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/77059918220.shtml)
+- 2026-06-29 21:51 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/18899155.shtml)
+- 2026-06-29 22:09 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/591090.shtml)
+- 2026-06-29 21:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/15673086701.shtml)
+- 2026-06-29 22:05 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/804108.shtml)
+- 2026-06-29 22:07 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/719688.shtml)

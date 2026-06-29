@@ -1,56 +1,57 @@
-# 全国民族体育小勇士自然探索赛从化站在广州开赛
+# 司法部：企业不能简单以“有码、无码”为由拒绝或拖延行政检查
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网广州6月20日电 (张璐 江楚君)6月20日，全国民族体育小勇士自然探索赛从化站(简称“赛事”)在广州市从化区江埔街高峰村启幕。 据悉，赛事以“文化自信为魂，强健体魄为基”为核心理念，践行“民族小勇士，勇闯山河路”的赛事精神，依托高峰村得天独厚的原生态山野资源，将传统民族体育项目与户外自然探索深度融合。 赛场精心打造丛林穿越、障碍挑战、山野定向探索等多元闯关项目，并融入特
+中新网5月21日电 国新办21日举行新闻发布会，介绍规范涉企行政执法专项行动有关情况。司法部行政执法协调监督局局长刘波介绍，配合好行政执法检查是企业的法定义务，企业对检查有异议可以反映，但不能简单以“有码、无码”为由，拒绝或拖延依法开展的行政检查，必须要确保严格执法、监管到位。刘波表示，推行“扫码入企”、规范涉企行政检查，是党中央切实维护企业合法权益、减轻企业和基层负担的一个务
 
 ## 正文
 
-中新网广州6月20日电 (张璐 江楚君)6月20日，全国民族体育小勇士自然探索赛从化站(简称“赛事”)在广州市从化区江埔街高峰村启幕。
+中新网5月21日电 国新办21日举行新闻发布会，介绍规范涉企行政执法专项行动有关情况。
 
-据悉，赛事以“文化自信为魂，强健体魄为基”为核心理念，践行“民族小勇士，勇闯山河路”的赛事精神，依托高峰村得天独厚的原生态山野资源，将传统民族体育项目与户外自然探索深度融合。
+司法部行政执法协调监督局局长刘波介绍，配合好行政执法检查是企业的法定义务，企业对检查有异议可以反映，但不能简单以“有码、无码”为由，拒绝或拖延依法开展的行政检查，必须要确保严格执法、监管到位。
 
-赛场精心打造丛林穿越、障碍挑战、山野定向探索等多元闯关项目，并融入特色民族体育玩法，让青少年在沉浸式山野挑战中，全方位锻炼速度、力量、耐力、协调、柔韧、灵敏六大身体素质，在闯关实践中近距离感受中华少数民族体育文化的独特魅力，真正实现以运动强体魄、以文化润童心、以磨砺育品格。
+刘波表示，推行“扫码入企”、规范涉企行政检查，是党中央切实维护企业合法权益、减轻企业和基层负担的一个务实举措，也是一项长效机制。
 
-据介绍，为精准适配不同年龄段青少年的身心特点与运动能力，赛事科学划分四大参赛组别，针对各年龄段定制差异化赛道里程与闯关难度，兼顾趣味性与挑战性，适配全年龄段青少年参赛需求。
+全国已经有26个省份在全省范围内推行“扫码入企”，同时其他省份也在部分地市开展了这项工作，可以说打下了坚实的实践基础。
 
-其中，3岁至5岁为萌芽组，设置3.5公里赛道与20个趣味障碍，主打亲子协作、趣味体验；6岁至8岁为新锐组，配备4.0公里赛道、24个趣味障碍，兼顾基础运动锻炼与轻度闯关挑战；9岁至11岁菁英组与12岁至14岁巅峰组，均设置5.0公里专业赛道与26个进阶趣味障碍，分别侧重体能素养提升与高强度自我突破。
+司法部认真落实党中央、国务院决策部署，在总结各地这些好经验好做法的基础上，聚焦实践中存在的问题，印发了《关于全面推行“扫码入企”工作 进一步规范涉企行政检查的通知》，对“扫码入企”的基本要素和基本环节进行了规范。
 
-低龄儿童可在家长全程陪同下协作参赛，大龄青少年可独立闯关、挑战自我，满足不同群体的参赛需求。
+比如，《通知》针对各地赋码方式不统一的问题，明确要求加快整合赋码渠道，形成统一的执法码，避免因为各地做法不一致而影响全国统一大市场建设。
 
-据了解，除核心闯关竞技项目外，赛场还配套设置民俗体验、自然科普、趣味互动等特色体验区域。
+再比如，为了避免执行上过于机械“一刀切”，影响执法工作，《通知》明确要求，紧急情况需要当场实施检查的，例如在食品药品、安全生产等与人民群众生命健康安全密切相关的这些领域，需要立即检查的，或者出现了突发事件、接到了投诉举报，需要立即处置的，直接实施检查。
 
-参赛家庭在竞技比拼之余，可沉浸式感受乡村风土人情，学习自然科普知识、感悟民族文化底蕴，实现运动竞技、自然研学、休闲度假一站式体验，让这场赛事不仅是一场山野竞技，更是一场陪伴成长、浸润文化的温馨山野之旅。
+刘波指出，广大行政执法人员是市场秩序的维护者，依法实施检查是营商环境的重要保证。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 21:40 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 21:38 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 21:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 21:38 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 21:42 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 21:55 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 22:02 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 21:37 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 21:45 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 21:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 21:56 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 22:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 21:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 22:04 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 22:10 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 22:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 21:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 22:00 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:36 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/967478122884.shtml)
-- 2026-06-29 21:56 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/1996234853.shtml)
-- 2026-06-29 22:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/235549839548.shtml)
-- 2026-06-29 22:02 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/197433.shtml)
-- 2026-06-29 21:37 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/10708912856.shtml)
-- 2026-06-29 21:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/34430.shtml)
-- 2026-06-29 21:52 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/11518.shtml)
-- 2026-06-29 21:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/0437333.shtml)
-- 2026-06-29 21:41 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/737142159601.shtml)
-- 2026-06-29 21:50 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/29469794112.shtml)
-- 2026-06-29 21:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/99152.shtml)
-- 2026-06-29 21:47 - [急先锋](http://www.blog.kurohicncr.top/Article/details/824680.shtml)
-- 2026-06-29 22:00 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/05831563.shtml)
-- 2026-06-29 21:50 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/89793517.shtml)
-- 2026-06-29 21:58 - [毒液2](http://www.share.kurohicncr.top/Article/details/174700.shtml)
+- 2026-06-29 21:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/6973681.shtml)
+- 2026-06-29 21:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/295916656.shtml)
+- 2026-06-29 22:08 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/7649219.shtml)
+- 2026-06-29 22:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/376090.shtml)
+- 2026-06-29 22:03 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/816029682.shtml)
+- 2026-06-29 21:49 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/15324017.shtml)
+- 2026-06-29 21:54 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/25645.shtml)
+- 2026-06-29 21:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/356945547.shtml)
+- 2026-06-29 21:43 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/5504948176.shtml)
+- 2026-06-29 21:53 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/8317846.shtml)
+- 2026-06-29 22:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/46681627678.shtml)
+- 2026-06-29 21:46 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/552851389559.shtml)
+- 2026-06-29 21:45 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/97356412.shtml)
+- 2026-06-29 21:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/773663.shtml)
+- 2026-06-29 22:04 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/01791540.shtml)

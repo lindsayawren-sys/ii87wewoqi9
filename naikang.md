@@ -1,58 +1,60 @@
-# 东盟驻华使节冀深化对华水果贸易 共享中国市场机遇
+# ETF放量突破上市高点！买点信号显现？澜起科技涨超10%，华宝基金科创人工智能ETF盘中拉升2.2%续创新高
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月19日电(黄艳梅 俞靖)“广西与越南应加快铁路、公路、海运及物流互通合作，加快智慧口岸建设，进一步畅通越南及东盟各国产品对华流通渠道，提升通关效率，推动跨境电商发展，让各方共享中国超大规模市场发展机遇，助力区域共同繁荣发展。”越南驻华大使范清平18日在广西南宁表示。 由广西壮族自治区人民政府主办的2026年“共享大市场·出口中国”——“东盟水果汇聚广西”活动当日在
+接着奏乐接着舞！今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！ 值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！ 成份股方面，星环科技-U
 
 ## 正文
 
-中新网南宁6月19日电(黄艳梅 俞靖)“广西与越南应加快铁路、公路、海运及物流互通合作，加快智慧口岸建设，进一步畅通越南及东盟各国产品对华流通渠道，提升通关效率，推动跨境电商发展，让各方共享中国超大规模市场发展机遇，助力区域共同繁荣发展。
+接着奏乐接着舞！
 
-”越南驻华大使范清平18日在广西南宁表示。
+今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！
 
-由广西壮族自治区人民政府主办的2026年“共享大市场·出口中国”——“东盟水果汇聚广西”活动当日在南宁举行。
+值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！
 
-此次活动主题为“让东盟水果畅销中国”，中国和东盟企业代表现场签约了一批东盟水果采购销售项目。
+成份股方面，星环科技-U领涨超13%，澜起科技涨逾10%，道通科技、奥比中光-W、金山办公、乐鑫科技等个股跟涨。
 
-东帝汶驻华大使罗瑞表示，长期以来，东帝汶同广西保持密切联系，在矿业、旅游业、水果业等领域合作推进顺利、成果丰硕。
+在AI热潮推动下，半导体方向正在经历一轮罕见的大行情，即便经历大幅上涨，著名经济学家洪灝认为，存储半导体未来两年的产能或已全部卖完，半导体的盈利至少未来两年无法证伪，半导体行情还没有走完。
 
-希望以本次活动为契机，双方进一步加强经贸、文化等领域对接交流，建立互信互利关系，携手深挖新增长点，拓展更多务实合作成果，推动双方经贸关系再上新台阶。
+而国泰海通证券认为，AI Agent将开启下一轮产业链通胀周期。
 
-活动中，多个东盟国家驻华使节通过视频推介本国特色水果，表达合作意愿。
+Agent落地，使Token消耗量实现指数级跃升，供需矛盾将进一步加剧，预计引发AI全产业链新一轮资源争夺与价格上行。
 
-“我们的长远愿景是，推动缅甸牛油果和榴莲从‘东盟出产、广西集散、中国畅销’迈向‘东盟出产、广西加工、全球畅销’。
+业绩层面，权重股寒武纪一季度营收28.85亿元，同比大增159.56%，归母净利润10.13亿元，同比飙升185.04%，双双创下历史最优纪录。
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 21:45 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 21:49 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 21:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 21:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 21:48 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 21:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 21:58 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 22:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 22:02 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 21:50 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 21:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 21:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 21:52 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 22:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 22:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 21:59 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 21:55 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 22:08 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 22:02 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 21:59 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 22:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 22:11 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 22:11 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 21:48 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/46763610.shtml)
-- 2026-06-29 21:52 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/1771776324.shtml)
-- 2026-06-29 21:52 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/377659.shtml)
-- 2026-06-29 21:42 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/766871.shtml)
-- 2026-06-29 22:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/2195333.shtml)
-- 2026-06-29 21:46 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/42388500.shtml)
-- 2026-06-29 21:50 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/973227.shtml)
-- 2026-06-29 21:39 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/180759884.shtml)
-- 2026-06-29 21:54 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/58517276.shtml)
-- 2026-06-29 22:05 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/221476164231.shtml)
-- 2026-06-29 21:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/442943167098.shtml)
-- 2026-06-29 21:51 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/89434896010.shtml)
-- 2026-06-29 21:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/270112753721.shtml)
-- 2026-06-29 22:03 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2875186.shtml)
-- 2026-06-29 21:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/281850.shtml)
+- 2026-06-29 22:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/1724074.shtml)
+- 2026-06-29 21:50 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/84446826743.shtml)
+- 2026-06-29 22:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/1220807.shtml)
+- 2026-06-29 21:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/6320082.shtml)
+- 2026-06-29 22:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/59878.shtml)
+- 2026-06-29 22:07 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/54970980290.shtml)
+- 2026-06-29 21:55 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/479003245182.shtml)
+- 2026-06-29 21:57 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/43810459507.shtml)
+- 2026-06-29 22:06 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/4209655810.shtml)
+- 2026-06-29 21:51 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/747910.shtml)
+- 2026-06-29 21:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/5955734477.shtml)
+- 2026-06-29 21:55 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8465693029.shtml)
+- 2026-06-29 22:01 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/588025264.shtml)
+- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/6836194643.shtml)
+- 2026-06-29 22:10 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/5672731595.shtml)

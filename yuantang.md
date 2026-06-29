@@ -1,60 +1,61 @@
-# 中国驻哈萨克斯坦大使馆举办端午节侨界招待会
+# 育碧预警全年利润亏损，股价暴跌17%
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一
+专题：聚焦美股2026年第一季度财报 核心要点 主营《刺客信条》系列的法国游戏厂商育碧发布年度盈利预警，预计本年度将再度陷入亏损，其股价周四大跌 17%。 数据显示，育碧 2026 财年营业亏损达13 亿欧元（折合 15 亿美元），全年净预订收入 15 亿欧元，同比下滑 17.4%。 育碧预估，新财年全年净预订收入将出现高个位数百分比跌幅，营业利润率将维持个位数亏损状态。 该股
 
 ## 正文
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+专题：聚焦美股2026年第一季度财报 核心要点 主营《刺客信条》系列的法国游戏厂商育碧发布年度盈利预警，预计本年度将再度陷入亏损，其股价周四大跌 17%。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+数据显示，育碧 2026 财年营业亏损达13 亿欧元（折合 15 亿美元），全年净预订收入 15 亿欧元，同比下滑 17.4%。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+育碧预估，新财年全年净预订收入将出现高个位数百分比跌幅，营业利润率将维持个位数亏损状态。
 
-孔子为什么说“温故而知新”？
+该股最新跌幅达 17.17%，年内累计跌幅已近 38%。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+自疫情过后，受重磅游戏延期发售、经营陷入困境等因素影响，育碧股价连年走低。
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+此前公司宣布大规模重组计划后，其股价在 1 月一度大跌 34%。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+育碧联合创始人兼首席执行官伊夫・吉勒莫在周三声明中表示：新财年受新游阵容偏弱、叠加重组开支影响，公司自由现金流或将跌至阶段性低谷。
 
-中国沙漠治理经验，如何与世界共享？
+他表示：这场为期两年的战略转型需要做出诸多艰难抉择，短期财务表现难免承压，但他坚信一系列调整举措，能帮助育碧在长期实现稳定的自由现金流回报。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 21:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 21:52 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 22:03 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 21:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 21:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 22:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 21:42 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 21:54 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 21:59 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 21:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 21:55 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 22:02 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 21:42 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 22:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 21:55 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 21:43 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:51 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 22:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 21:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 22:04 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 21:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 22:04 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 21:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 22:07 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 22:10 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 21:45 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:00 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 21:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [我和我的家乡](https://www.share.minike.top/Article/details/33818.shtml)
-- 2026-06-29 21:54 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/90320202.shtml)
-- 2026-06-29 22:03 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/790284420.shtml)
-- 2026-06-29 22:05 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/7724872.shtml)
-- 2026-06-29 21:56 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/36882920637.shtml)
-- 2026-06-29 22:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/30986442.shtml)
-- 2026-06-29 22:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/561831291.shtml)
-- 2026-06-29 21:58 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/110641214796.shtml)
-- 2026-06-29 21:44 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/86922552.shtml)
-- 2026-06-29 22:03 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/05641522647.shtml)
-- 2026-06-29 21:59 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/232587418126.shtml)
-- 2026-06-29 21:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/2764531.shtml)
-- 2026-06-29 21:49 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/5463265626.shtml)
-- 2026-06-29 21:48 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/2351972.shtml)
-- 2026-06-29 21:40 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/87162.shtml)
+- 2026-06-29 21:59 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/770232.shtml)
+- 2026-06-29 22:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/5489810.shtml)
+- 2026-06-29 22:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/2112359.shtml)
+- 2026-06-29 21:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/464638596.shtml)
+- 2026-06-29 22:03 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/0809217167.shtml)
+- 2026-06-29 22:02 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/06255.shtml)
+- 2026-06-29 22:06 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/8431877165.shtml)
+- 2026-06-29 21:52 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/151564.shtml)
+- 2026-06-29 22:11 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/259700759308.shtml)
+- 2026-06-29 21:58 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/064792.shtml)
+- 2026-06-29 22:02 - [高质量发展看新疆](http://www.share.minike.top/Article/details/28947455.shtml)
+- 2026-06-29 21:46 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/954757411803.shtml)
+- 2026-06-29 21:53 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/37804765915.shtml)
+- 2026-06-29 21:45 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/8675627640.shtml)
+- 2026-06-29 21:56 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/760174.shtml)

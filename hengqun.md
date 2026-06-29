@@ -1,58 +1,60 @@
-# “中国西南地区青铜文明特展”亮相山东烟台
+# 信用卡市场冰与火：大行“瘦身”关停分中心，地方农商行纷纷借省级农信品牌突围
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网烟台6月18日电 (记者 王娇妮)“吉金万里——中国西南地区青铜文明特展”18日在山东烟台市博物馆启幕，这是当地临展史上参与文博单位数量最多的一次展览。 此次展览从中国西南地区宏观视角出发，以先秦至秦汉时期的青铜器为代表，展出四川、云南、贵州、广西4省9家文博单位馆藏的150件(套)展品，其中共展出18件(套)三星堆文物展品，45件(套)金沙文物展品。 该展览分为“序厅”
+蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。 在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。据不完全统计，仅2025年全年就有近65
 
 ## 正文
 
-中新网烟台6月18日电 (记者 王娇妮)“吉金万里——中国西南地区青铜文明特展”18日在山东烟台市博物馆启幕，这是当地临展史上参与文博单位数量最多的一次展览。
+蓝鲸新闻5月21日讯（记者 金磊）从全国范围来看，信用卡市场已进入存量调整期。
 
-此次展览从中国西南地区宏观视角出发，以先秦至秦汉时期的青铜器为代表，展出四川、云南、贵州、广西4省9家文博单位馆藏的150件(套)展品，其中共展出18件(套)三星堆文物展品，45件(套)金沙文物展品。
+根据央行最新发布《2026年第一季度支付体系运行总体情况》显示，截至一季度末，全国共开立银行卡102.61亿张。
 
-该展览分为“序厅”“川渝地区”“云南地区”“黔桂地区”和“多元融汇”五个部分。
+其中，信用卡和借贷合一卡6.87亿张，较去年末减少900万张左右。
 
-在“川渝地区”单元，三星堆铜人头像、铜眼形器与金沙铜人形器、金人面像同台展出；“云南地区”展出的驯马场面铜贮贝器是滇文化最具代表性的器物之一，带有鲜明的地方特色。
+在存量时代，为控制运营成本，过去几年多家银行陆陆续续关停了不少地区性的信用卡中心。
 
-开展首日，展厅内观众络绎不绝，人们在一件件展品前驻足凝望。
+据不完全统计，仅2025年全年就有近65家信用卡分中心获准终止营业，仅2025年一年退出的数量，已超过2020—2024年五年总和。
 
-“这些青铜器造型天马行空，感觉古人脑洞太大了。
+国内国有大行、股份制银行的信用卡业务，彻底告别了过去跑马圈地、盲目发卡的粗放扩张模式。
 
-”专程赶来观展的“00后”李小帆说。
+不过如今有个现象是，今年以来有不少地方农信旗下的农商行信用卡业务陆续获批。
 
-烟台市博物馆展陈部主任刁鹏表示，观众对历史文化兴趣的持续高涨，正为“博物馆热”提供源源不断的动力。
+5月7日，国家金融监督管理总局佛山监管分局批复信息显示，佛山农商银行获批使用广东农信“悦农”统一信用卡品牌开办信用卡发卡业务；4月10日，广东阳山农村商业银行获批使用“悦农”品牌开办信用卡发卡业务；2月24日，广东翁源农村商业银行获批使用“悦农”品牌开办信用卡发卡业务。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 21:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 21:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 21:55 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 21:36 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 21:42 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 21:44 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 22:05 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 22:01 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 21:42 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 22:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 21:51 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:47 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 22:06 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 21:51 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 22:00 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 22:00 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 21:54 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 22:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 21:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 22:06 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 21:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/740682387.shtml)
-- 2026-06-29 21:48 - [美人鱼](http://www.share.minike.top/Article/details/44805527074.shtml)
-- 2026-06-29 22:01 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/43278.shtml)
-- 2026-06-29 21:41 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/5913768995.shtml)
-- 2026-06-29 21:56 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/4680170048.shtml)
-- 2026-06-29 22:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/39724242065.shtml)
-- 2026-06-29 21:42 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/90633.shtml)
-- 2026-06-29 21:45 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/158701.shtml)
-- 2026-06-29 21:56 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/9835101.shtml)
-- 2026-06-29 21:57 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/837086.shtml)
-- 2026-06-29 21:53 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/529871348.shtml)
-- 2026-06-29 21:54 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/046515659.shtml)
-- 2026-06-29 21:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/8481309.shtml)
-- 2026-06-29 21:46 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/0237218.shtml)
-- 2026-06-29 21:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/5717590060.shtml)
+- 2026-06-29 21:57 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/12892385861.shtml)
+- 2026-06-29 21:47 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/88450695477.shtml)
+- 2026-06-29 22:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/3827581041.shtml)
+- 2026-06-29 22:07 - [斛珠夫人](http://www.blog.minike.top/Article/details/384996333.shtml)
+- 2026-06-29 21:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/89946024.shtml)
+- 2026-06-29 21:50 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/16089166.shtml)
+- 2026-06-29 22:10 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/5527887.shtml)
+- 2026-06-29 21:46 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/3094928923.shtml)
+- 2026-06-29 21:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/332572703424.shtml)
+- 2026-06-29 22:02 - [一生一世](http://www.share.minike.top/Article/details/0056309360.shtml)
+- 2026-06-29 21:48 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/96972913709.shtml)
+- 2026-06-29 21:45 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/48905523613.shtml)
+- 2026-06-29 22:05 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/798643369.shtml)
+- 2026-06-29 22:01 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/905073.shtml)
+- 2026-06-29 21:59 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/98695044.shtml)

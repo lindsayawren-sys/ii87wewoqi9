@@ -1,49 +1,59 @@
-# 广西武警官兵带你近距离感受工兵锹的威力
+# Pimco首席投资官：若通胀预期继续上升 美联储将不得不采取行动
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 18:43 来源：中国新闻网 近日，武警广西总队桂林支队严格依据实战化要求，组织官兵开展工兵锹格斗术训练。通过基础技法、攻防对抗、战术应用等多维度训练，全面提升官兵近战歼敌、应急处突的实战能力。(欧惠兰 杜艳强 张辰飞 制作 徐妙巧） 责任编辑：【李季】
+品浩（Pimco）的首席投资官Daniel Ivascyn表示，在全球债券收益率飙升可能引发更广泛的金融市场动荡之际，如果通胀预期进一步上升，美联储和其他主要央行将不得不采取行动。 在美国2月底袭击伊朗后，油价急剧上涨，美国国债市场的通胀预期指标，即盈亏平衡通胀率，近期升至逾三年来最高水平。这一走势引发全球债券市场大幅抛售，推动美国30年期国债收益率本周升至2007年以来最高水
 
 ## 正文
 
-发布时间：2026年06月18日 18:43 来源：中国新闻网 近日，武警广西总队桂林支队严格依据实战化要求，组织官兵开展工兵锹格斗术训练。
+品浩（Pimco）的首席投资官Daniel Ivascyn表示，在全球债券收益率飙升可能引发更广泛的金融市场动荡之际，如果通胀预期进一步上升，美联储和其他主要央行将不得不采取行动。
 
-通过基础技法、攻防对抗、战术应用等多维度训练，全面提升官兵近战歼敌、应急处突的实战能力。
+在美国2月底袭击伊朗后，油价急剧上涨，美国国债市场的通胀预期指标，即盈亏平衡通胀率，近期升至逾三年来最高水平。
 
-(欧惠兰 杜艳强 张辰飞 制作 徐妙巧） 责任编辑：【李季】
+这一走势引发全球债券市场大幅抛售，推动美国30年期国债收益率本周升至2007年以来最高水平。
+
+如果长期通胀预期“变得更加显著失去锚定，那么即便经济有些疲软，你也会看到政策收紧，” Ivascyn在一次采访中表示。
+
+“这就是市场的痛苦交易”，因为利率将会上升，并加大股市和信贷市场的压力。
+
+政策收紧的前景为即将上任的美联储主席凯文·沃什营造了一个具有挑战性的环境。
+
+在美国总统唐纳德·特朗普一直推动降低利率的背景下，沃什将于本月接掌美联储。
+
+虽然美联储今年迄今一直维持利率不变，但决策官员们对货币政策前景的分歧日益加大。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 22:05 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 21:56 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 21:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 22:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 21:58 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 22:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:03 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 22:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 21:53 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 21:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 22:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 22:07 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 21:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 22:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 21:47 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 22:08 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 22:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 21:42 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 22:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 21:56 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:44 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 22:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/20936304.shtml)
-- 2026-06-29 21:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/9828211830.shtml)
-- 2026-06-29 21:56 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/4569308.shtml)
-- 2026-06-29 21:52 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2001284.shtml)
-- 2026-06-29 22:05 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/410025.shtml)
-- 2026-06-29 21:38 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/0897690694.shtml)
-- 2026-06-29 21:51 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/8940796150.shtml)
-- 2026-06-29 21:55 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/554206587295.shtml)
-- 2026-06-29 21:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/869114050227.shtml)
-- 2026-06-29 21:49 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/85680297991.shtml)
-- 2026-06-29 21:58 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/0977820065.shtml)
-- 2026-06-29 22:05 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/14798662.shtml)
-- 2026-06-29 21:40 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/818274171.shtml)
-- 2026-06-29 21:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/3228997.shtml)
-- 2026-06-29 21:37 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/22078713.shtml)
+- 2026-06-29 21:44 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/75494.shtml)
+- 2026-06-29 22:03 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/1715135.shtml)
+- 2026-06-29 21:57 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/239306167.shtml)
+- 2026-06-29 21:46 - [田曦薇没招了](https://www.share.minike.top/Article/details/555883577061.shtml)
+- 2026-06-29 21:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5014548.shtml)
+- 2026-06-29 21:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/51077016.shtml)
+- 2026-06-29 21:54 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/642268.shtml)
+- 2026-06-29 21:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/884103940.shtml)
+- 2026-06-29 21:50 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/37100393.shtml)
+- 2026-06-29 22:03 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/616239665191.shtml)
+- 2026-06-29 22:05 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/322996.shtml)
+- 2026-06-29 21:49 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/0609481.shtml)
+- 2026-06-29 21:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/132742.shtml)
+- 2026-06-29 21:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/67514661.shtml)
+- 2026-06-29 21:54 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/60011073.shtml)

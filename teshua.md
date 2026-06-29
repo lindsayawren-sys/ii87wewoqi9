@@ -1,61 +1,56 @@
-# 麦田追梦人李巧云的育种之路：从盼“白面馍”到培育健康麦
+# 伍德麦肯兹：若伊朗冲突持续 油价恐将升至200美元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-央广网新乡6月18日消息(记者 夏莎 张羲轮)眼下，河南8500多万亩冬小麦已全部收获完毕。位于河南省新乡市平原示范区祝楼乡的河南农业大学国家小麦工程技术研究中心试验基地里，麦茬铺满连片地块。地头房屋内，一袋袋、一箱箱麦穗整齐码放，等待脱粒。“这里有种质资源圃，有抗病抗逆鉴定圃，有不同世代育种田，也有良种繁种田。”55岁的河南农业大学研究员李巧云行走在田间道路上，为记者介绍分工
+伍德麦肯兹（Wood Mackenzie）表示，在霍尔木兹海峡长期停摆的最坏情景下，布伦特原油面临飙升至每桶200美元的风险。该机构指出，目前波斯湾地区已有超过1100万桶/日的原油和凝析油供应处于中断状态。 该公司分享了三种油价情景预测： 迅速达成和平协议解决伊朗冲突 若近期达成和平协议且海峡在6月前重新开放，随着市场重现供应过剩的局面，即期布伦特原油价格年底前将回落至每桶8
 
 ## 正文
 
-央广网新乡6月18日消息(记者 夏莎 张羲轮)眼下，河南8500多万亩冬小麦已全部收获完毕。
+伍德麦肯兹（Wood Mackenzie）表示，在霍尔木兹海峡长期停摆的最坏情景下，布伦特原油面临飙升至每桶200美元的风险。
 
-位于河南省新乡市平原示范区祝楼乡的河南农业大学国家小麦工程技术研究中心试验基地里，麦茬铺满连片地块。
+该机构指出，目前波斯湾地区已有超过1100万桶/日的原油和凝析油供应处于中断状态。
 
-地头房屋内，一袋袋、一箱箱麦穗整齐码放，等待脱粒。
+该公司分享了三种油价情景预测： 迅速达成和平协议解决伊朗冲突 若近期达成和平协议且海峡在6月前重新开放，随着市场重现供应过剩的局面，即期布伦特原油价格年底前将回落至每桶80美元，并在2027年跌至65美元。
 
-“这里有种质资源圃，有抗病抗逆鉴定圃，有不同世代育种田，也有良种繁种田。
+全球经济增长将从2025年的3%放缓至今年的2.3%，经济衰退仅限于中东地区。
 
-”55岁的河南农业大学研究员李巧云行走在田间道路上，为记者介绍分工明确的试验田。
+到2026年晚些时候，各经济体将基本重回正轨。
 
-“每年4月小麦抽穗，一直到7月底种子全部脱粒入库，差不多4个月的时间，我和学生基本扎根田里。
+夏季达成和解 停火协议得以维持，但谈判将持续至夏末，海峡直至9月基本保持关闭状态。
 
-” 深耕小麦抗病遗传育种18年，李巧云从零开始、攻克黑胚病等行业难题，手握9项发明专利，培育9个小麦品种。
+供应短缺将持续到第三季度，导致2026年下半年全球经济出现轻度衰退，并造成与战前相比“轻微但永久性的经济创伤”。
 
-从儿时盼一口“白面馍”，到如今钻研健康功能麦，她在田间走出了一条“吃饱、吃好、吃健康” 的育种追梦路。
+长期中断 霍尔木兹海峡的封闭状态将持续到2026年底，反复出现的紧张局势导致超过1100万桶/日的原油和凝析油产能关闭。
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 21:53 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 21:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 22:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 21:43 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:03 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 21:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 21:44 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 21:39 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 21:52 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 21:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 22:02 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 22:06 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 21:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 21:57 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 22:02 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 21:47 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 21:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 22:11 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 22:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 21:46 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 21:42 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 21:42 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 21:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/10281381664.shtml)
-- 2026-06-29 22:01 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/6756717034.shtml)
-- 2026-06-29 21:55 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/9527254324.shtml)
-- 2026-06-29 21:39 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/82026.shtml)
-- 2026-06-29 22:00 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/787922.shtml)
-- 2026-06-29 21:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/77233.shtml)
-- 2026-06-29 21:43 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/814206.shtml)
-- 2026-06-29 21:43 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/09016468316.shtml)
-- 2026-06-29 22:05 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/23709.shtml)
-- 2026-06-29 21:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/716896938339.shtml)
-- 2026-06-29 21:48 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/220288817806.shtml)
-- 2026-06-29 21:36 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/214255015836.shtml)
-- 2026-06-29 21:58 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/2111460.shtml)
-- 2026-06-29 22:00 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/19470030.shtml)
-- 2026-06-29 21:48 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/191819938337.shtml)
+- 2026-06-29 21:51 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/10971417277.shtml)
+- 2026-06-29 22:02 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/775580623894.shtml)
+- 2026-06-29 21:52 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/861841.shtml)
+- 2026-06-29 21:58 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/35069.shtml)
+- 2026-06-29 22:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/568635.shtml)
+- 2026-06-29 22:00 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/3594278643.shtml)
+- 2026-06-29 22:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/341057196245.shtml)
+- 2026-06-29 21:50 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/233104.shtml)
+- 2026-06-29 21:57 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/470076.shtml)
+- 2026-06-29 21:48 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/7967900308.shtml)
+- 2026-06-29 22:00 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/880061.shtml)
+- 2026-06-29 21:46 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/35037251.shtml)
+- 2026-06-29 22:03 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/707830519526.shtml)
+- 2026-06-29 21:59 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/857448606953.shtml)
+- 2026-06-29 21:50 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/156962.shtml)

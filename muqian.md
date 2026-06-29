@@ -1,61 +1,51 @@
-# 共享单车运维员权益保障如何落实？
+# 蔡冠深：“双港联动”共促东盟、“一带一路” 市场
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-工作时间长、工作任务重、受伤风险高，还可能面临罚款等问题 共享单车运维员权益保障如何落实？ 阅读提示 随着骑行共享单车成为越来越多市民出行的代步选择，共享单车运维员扮演着城市有序运转的重要一环。记者调查发现，从业者每天装卸单车累计重量近万斤，体力劳动量大，作业受伤风险较高。专家表示，他们的劳动权益应得到更全面的保护，这需通过法律制度、集体协商和企业责任多方合力，予以切实保障。6
+发布时间：2026年05月21日 19:03 来源：中国新闻网 5月21日，琼港企业家合作大会暨粤港澳大湾区企业家联盟海南行活动在海口举行。全国政协常委、香港中华总商会会长、粤港澳大湾区企业家联盟主席蔡冠深作主旨演讲时表示，香港与海南同为自贸港，这正是 “双港联动” 的核心理念 —— 海南自贸港的 “零关税、低税率、简税制” 与香港的自由港制度形成政策叠加效应。企业可在海南享受
 
 ## 正文
 
-工作时间长、工作任务重、受伤风险高，还可能面临罚款等问题 共享单车运维员权益保障如何落实？
+发布时间：2026年05月21日 19:03 来源：中国新闻网 5月21日，琼港企业家合作大会暨粤港澳大湾区企业家联盟海南行活动在海口举行。
 
-阅读提示 随着骑行共享单车成为越来越多市民出行的代步选择，共享单车运维员扮演着城市有序运转的重要一环。
+全国政协常委、香港中华总商会会长、粤港澳大湾区企业家联盟主席蔡冠深作主旨演讲时表示，香港与海南同为自贸港，这正是 “双港联动” 的核心理念 —— 海南自贸港的 “零关税、低税率、简税制” 与香港的自由港制度形成政策叠加效应。
 
-记者调查发现，从业者每天装卸单车累计重量近万斤，体力劳动量大，作业受伤风险较高。
+企业可在海南享受零关税进口原材料，同时通过香港进行国际融资和品牌推广，再将产品销往东盟市场，实现 “海南生产 + 香港服务 + 国际市场” 联动合作模式。
 
-专家表示，他们的劳动权益应得到更全面的保护，这需通过法律制度、集体协商和企业责任多方合力，予以切实保障。
+此外，琼港企业还可合作开发跨境电商、智慧物流、金融科技等应用场景，提升与东盟和 “一带一路” 的贸易水平。
 
-6月7日上午7时许，北京昌平。
-
-在一处高客流量的地铁站旁，几名共享单车运维员正在有条不紊地工作，找车、搬车、清理车筐内的杂物。
-
-接下来的一段时间里，不同颜色和款式的共享单车或是被整齐摆放，或是被装上电动三轮车运往其他点位。
-
-来自东北的祁师傅，入行已有两年多，操着一口地道的家乡话，脸庞黝黑，时而帮同为工友的老乡装车，时而划拉手机查看工作群内的消息。
+(记者 林士杰) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 21:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 21:37 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 21:47 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 22:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 21:39 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 21:58 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 21:53 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:38 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 21:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 21:42 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 21:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 21:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 21:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 22:02 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 22:07 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 21:44 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 21:59 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 21:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 22:00 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 21:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 21:56 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 22:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 21:46 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 22:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 21:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/08899868782.shtml)
-- 2026-06-29 21:36 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4777496.shtml)
-- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/438036464004.shtml)
-- 2026-06-29 22:05 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/52162307.shtml)
-- 2026-06-29 22:00 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/42919534.shtml)
-- 2026-06-29 21:50 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/85707.shtml)
-- 2026-06-29 21:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/460188138.shtml)
-- 2026-06-29 22:04 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/8021372679.shtml)
-- 2026-06-29 21:52 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/443180073.shtml)
-- 2026-06-29 21:44 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/108630493062.shtml)
-- 2026-06-29 22:04 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/192495330881.shtml)
-- 2026-06-29 21:46 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/35202856.shtml)
-- 2026-06-29 21:42 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/9528075953.shtml)
-- 2026-06-29 21:37 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/153712.shtml)
-- 2026-06-29 21:36 - [急先锋](https://www.share.kurohicncr.top/Article/details/9043148397.shtml)
+- 2026-06-29 21:55 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/064712228143.shtml)
+- 2026-06-29 22:03 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/50759.shtml)
+- 2026-06-29 21:45 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/39524332.shtml)
+- 2026-06-29 22:09 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/35561.shtml)
+- 2026-06-29 22:11 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/501487993.shtml)
+- 2026-06-29 22:06 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/455712.shtml)
+- 2026-06-29 22:02 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/572091256958.shtml)
+- 2026-06-29 22:07 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/73463656.shtml)
+- 2026-06-29 21:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/084713.shtml)
+- 2026-06-29 21:51 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/902756.shtml)
+- 2026-06-29 22:06 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/095470.shtml)
+- 2026-06-29 22:00 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/655362.shtml)
+- 2026-06-29 22:02 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/08409481.shtml)
+- 2026-06-29 22:00 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/875979.shtml)
+- 2026-06-29 22:03 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/778500041336.shtml)

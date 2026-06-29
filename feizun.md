@@ -1,60 +1,58 @@
-# 专家解析雨后河水变浑
+# 5月21日收盘：美股收高道指收复5万点关口 油价与美债收益率齐跌
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月20日电 (记者 陈杭)降雨过后，一些河道的河水变浑浊了。对此，北京市水科学技术研究院专家表示，降雨后河湖出现杂物、水体短暂浑浊属于自然冲刷形成的正常现象，在持续活水补给与人工清理作业配合下，一般1-3天内可恢复至降雨前水平，有时也可能需要更长时间。 北京市水科学技术研究院城市水生态环境研究所所长、正高级工程师李垒表示，雨后，一些河道水质突然变差，又浑又黑，还散发
+北京时间5月21日凌晨，美股周三收高，道指重新站上5万点关口。对中东冲突可能很快得到解决的乐观情绪升温，油价和美国国债收益率双双下滑，美股随之上涨。交易员也在等待英伟达第一季度财报的发布。美联储会议纪要显示多位官员要求放弃“宽松偏向”。 道指涨645.47点，涨幅为1.31%，报50009.35点；纳指涨399.65点，涨幅为1.54%，报26270.36点；标普500指数涨7
 
 ## 正文
 
-中新网北京6月20日电 (记者 陈杭)降雨过后，一些河道的河水变浑浊了。
+北京时间5月21日凌晨，美股周三收高，道指重新站上5万点关口。
 
-对此，北京市水科学技术研究院专家表示，降雨后河湖出现杂物、水体短暂浑浊属于自然冲刷形成的正常现象，在持续活水补给与人工清理作业配合下，一般1-3天内可恢复至降雨前水平，有时也可能需要更长时间。
+对中东冲突可能很快得到解决的乐观情绪升温，油价和美国国债收益率双双下滑，美股随之上涨。
 
-北京市水科学技术研究院城市水生态环境研究所所长、正高级工程师李垒表示，雨后，一些河道水质突然变差，又浑又黑，还散发一股腥臭味，这其实不是偶然，而是一场暴雨引发的“连锁反应”——说白了，就是把平时积攒在城市各个角落的“脏东西”，一股脑儿全冲进了河里。
+交易员也在等待英伟达第一季度财报的发布。
 
-“雨水像强力清洁剂，把地面的脏污全冲走了。
+美联储会议纪要显示多位官员要求放弃“宽松偏向”。
 
-”李垒表示，平时路面、屋顶、草坪上堆积的尘土、油渍、宠物粪便、落叶，还有绿化用的肥料，都被雨水冲刷下来，顺着水流涌进河道。
+道指涨645.47点，涨幅为1.31%，报50009.35点；纳指涨399.65点，涨幅为1.54%，报26270.36点；标普500指数涨79.31点，涨幅为1.08%，报7432.92点。
 
-有研究显示，一场大雨带来的污染物，能占到河水中氨氮、总磷等“超标元凶”的三分之一左右。
+美股周三尾盘，西得克萨斯中质原油期货下跌6%，交易价格约为每桶97美元。
 
-水里一下子混进大量泥沙和有机物，河水自然变得浑浊不堪，透明度直线下降。
+布伦特原油回落6%，至每桶104美元附近。
 
-而且雨水管道里沉积的淤泥，也会被这波水流裹挟着冲进河道，加剧污染。
+此前，根据记者团报道，美国总统特朗普告诉记者，其政府与伊朗的谈判已进入“最后阶段”。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 21:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 21:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 22:01 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 21:52 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 21:55 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 21:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 21:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 21:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 21:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 21:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:46 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 22:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 21:54 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:01 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 21:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 21:46 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:09 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 21:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 22:09 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 21:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 22:05 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 21:56 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 21:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/374196318780.shtml)
-- 2026-06-29 21:45 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/9266644699.shtml)
-- 2026-06-29 22:05 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/1552091.shtml)
-- 2026-06-29 21:58 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/283665.shtml)
-- 2026-06-29 21:54 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/73799071.shtml)
-- 2026-06-29 21:40 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/380622904636.shtml)
-- 2026-06-29 21:44 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/87887203113.shtml)
-- 2026-06-29 21:46 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/427067.shtml)
-- 2026-06-29 21:41 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/9861154981.shtml)
-- 2026-06-29 22:03 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/821957.shtml)
-- 2026-06-29 21:46 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/777849868.shtml)
-- 2026-06-29 22:02 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/84974.shtml)
-- 2026-06-29 22:04 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/982071976681.shtml)
-- 2026-06-29 21:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/08173.shtml)
-- 2026-06-29 22:03 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/1754497355.shtml)
+- 2026-06-29 22:02 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/77900.shtml)
+- 2026-06-29 21:57 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/97679.shtml)
+- 2026-06-29 22:06 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/6098031879.shtml)
+- 2026-06-29 22:11 - [新官上任三把火](https://www.share.minike.top/Article/details/90131.shtml)
+- 2026-06-29 21:44 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/939772.shtml)
+- 2026-06-29 22:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/668334.shtml)
+- 2026-06-29 21:53 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/3467944.shtml)
+- 2026-06-29 21:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/518657844423.shtml)
+- 2026-06-29 21:57 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/249349693.shtml)
+- 2026-06-29 21:53 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/61587915.shtml)
+- 2026-06-29 21:56 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/4911730.shtml)
+- 2026-06-29 22:04 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/7166194.shtml)
+- 2026-06-29 21:51 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/0491361029.shtml)
+- 2026-06-29 21:53 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/12611007820.shtml)
+- 2026-06-29 22:00 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/03354.shtml)

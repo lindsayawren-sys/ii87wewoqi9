@@ -1,58 +1,60 @@
-# 开行超2万列、货值破6500亿 重庆中欧班列亮出十年“成绩单”
+# 埃隆·马斯克旗下的X平台在澳大利亚儿童保护合规诉讼中败诉
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。 特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国
+澳大利亚一家法院维持了监管机构对埃隆·马斯克旗下社交媒体公司X Corp的罚款决定。此前，该公司承认因未提供有关其在线儿童保护措施的信息而违反法律，这场持续近三年的纠纷就此告终。 此前，常遭马斯克网络攻击的网络安全监管机构曾于2023年10月对公司处以罚款，称其对关于反儿童剥削流程的标准信息请求回应不力。该公司于周四承认过错，从而解决了这一纠纷。 电子安全专员的律师特兰（Chr
 
 ## 正文
 
-发布时间：2026年06月22日 07:30 来源：中国新闻网 近日，中欧班列统一品牌10周年主题采访活动走进重庆。
+澳大利亚一家法院维持了监管机构对埃隆·马斯克旗下社交媒体公司X Corp的罚款决定。
 
-据悉，从2011年全国首趟“渝新欧”班列驶出，到统一品牌十年来累计开行超2万列、运输货值超6500亿元，一份份亮眼的“成绩单”勾勒出重庆中欧班列这十年的跨越式发展。
+此前，该公司承认因未提供有关其在线儿童保护措施的信息而违反法律，这场持续近三年的纠纷就此告终。
 
-特别是近5年来，作为全国首个跨省域班列品牌的中欧班列(成渝)，累计开行超过2.8万列，开行量居全国前列。
+此前，常遭马斯克网络攻击的网络安全监管机构曾于2023年10月对公司处以罚款，称其对关于反儿童剥削流程的标准信息请求回应不力。
 
-十年来，重庆中欧班列开行频次由最初的日均0.8列，增长到如今的日均7.5列。
+该公司于周四承认过错，从而解决了这一纠纷。
 
-重庆中欧班列的稳定运行，助推重庆智能网联新能源汽车、新一代电子信息制造业、先进材料三大万亿级主导产业集群的发展。
+电子安全专员的律师特兰（Christopher Tran）在联邦法院听证会上表示：“被告承认其违反了该法案。
 
-得益于此，重庆中欧班列本地货源占比不断提升。
+”他所指的正是澳大利亚《网络安全法》。
 
-(记者 肖江川） 责任编辑：【陈海峰】
+“违规行为持续了约38天。
+
+” 此次和解结束了一场法律纠纷。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 21:52 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 21:45 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 21:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 21:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 21:54 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 22:01 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 21:53 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 21:53 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 21:51 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 21:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 22:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 22:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 21:44 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:51 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 22:04 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:56 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 21:57 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 21:47 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 22:08 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 21:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 21:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 21:47 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 21:49 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 21:48 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 22:08 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 21:49 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 22:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/6568389.shtml)
-- 2026-06-29 21:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/356339550184.shtml)
-- 2026-06-29 21:58 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/666569.shtml)
-- 2026-06-29 21:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/9164457485.shtml)
-- 2026-06-29 21:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/089327287574.shtml)
-- 2026-06-29 21:48 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/36930427.shtml)
-- 2026-06-29 21:55 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/5882549.shtml)
-- 2026-06-29 21:39 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/4027751.shtml)
-- 2026-06-29 21:42 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/9054828917.shtml)
-- 2026-06-29 21:52 - [速度与激情9](http://www.share.minike.top/Article/details/478102.shtml)
-- 2026-06-29 21:51 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/715898.shtml)
-- 2026-06-29 21:45 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/643477.shtml)
-- 2026-06-29 22:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/109426741082.shtml)
-- 2026-06-29 21:39 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/7088639338.shtml)
-- 2026-06-29 22:00 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/47714367.shtml)
+- 2026-06-29 22:11 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/7850018.shtml)
+- 2026-06-29 21:42 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/027483683036.shtml)
+- 2026-06-29 21:58 - [毒液2](http://www.share.kurohicncr.top/Article/details/856017347773.shtml)
+- 2026-06-29 22:04 - [扫黑风暴](http://www.share.minike.top/Article/details/79225.shtml)
+- 2026-06-29 21:47 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/54407524537.shtml)
+- 2026-06-29 21:49 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/0080577500.shtml)
+- 2026-06-29 21:47 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/1050584644.shtml)
+- 2026-06-29 21:43 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/05590090463.shtml)
+- 2026-06-29 22:11 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/64566.shtml)
+- 2026-06-29 21:52 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/76165.shtml)
+- 2026-06-29 21:56 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/7885903.shtml)
+- 2026-06-29 21:53 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/251587.shtml)
+- 2026-06-29 21:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/10354.shtml)
+- 2026-06-29 22:00 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/510531821.shtml)
+- 2026-06-29 21:48 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/0341376167.shtml)

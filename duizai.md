@@ -1,53 +1,61 @@
-# 苏宁易购618：智能家电增长40%，县域增长59%
+# 一场招商推介会背后的出海逻辑：宁德有货，侨商有路
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月19日上午消息，苏宁易购618消费数据显示，5月15日至6月18日，AI智能家电销售同比增长40%，核心城市门店客流环比提升约5成。在下沉市场，苏宁易购零售云门店销售环比提升59%，县域家电消费升级趋势明显。同时，世界杯观赛需求和高考后换机需求也带动大屏电视、手机数码装备迎来销售小高峰。 “618期间，苏宁易购联合行业主流家电3C品牌，升级推出‘AI普惠升舱计划
+中新网宁德5月21日电 (吴允杰)世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县举行，200余名福州十邑乡亲代表叙乡情、话商机、促发展。 作为中国新能源电池之都，宁德是全球锂电新能源创新策源地与产业制高点，2025年宁德锂电新能源产业产值突破3000亿元，动力电池、储能电池市占率连续多年居全球第一。但在今日的推介中，宁德端出的“硬菜”远不止“一块电池”。 宁德市
 
 ## 正文
 
-新浪科技讯 6月19日上午消息，苏宁易购618消费数据显示，5月15日至6月18日，AI智能家电销售同比增长40%，核心城市门店客流环比提升约5成。
+中新网宁德5月21日电 (吴允杰)世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县举行，200余名福州十邑乡亲代表叙乡情、话商机、促发展。
 
-在下沉市场，苏宁易购零售云门店销售环比提升59%，县域家电消费升级趋势明显。
+作为中国新能源电池之都，宁德是全球锂电新能源创新策源地与产业制高点，2025年宁德锂电新能源产业产值突破3000亿元，动力电池、储能电池市占率连续多年居全球第一。
 
-同时，世界杯观赛需求和高考后换机需求也带动大屏电视、手机数码装备迎来销售小高峰。
+但在今日的推介中，宁德端出的“硬菜”远不止“一块电池”。
 
-“618期间，苏宁易购联合行业主流家电3C品牌，升级推出‘AI普惠升舱计划’，以行业标杆价格和全链路服务，为消费者打造全年最佳入手窗口期”。
+宁德市工信局总工程师、市现代产业指挥部产业招商二组组长雷彪华说，面向全球侨商、海外投资，宁德将在新能源、新材料、大健康、海洋经济、数字经济、现代服务六大赛道，精准匹配海外资源、技术、渠道与市场，商机实在、优势突出。
 
-苏宁易购门店负责人表示，从基础功能满足到生活方式升级，消费者对于家电的主动智能、场景体验需求等提出更高期待，同时高考经济、世界杯经济等也为618消费注入新动能。
+据介绍，在新能源产业方面，宁德市将重点聚焦锂电池六大主材配套、智能装备、新型储能、电动航空、智能驾驶、车网互动、电池回收、海外储能电站与换电网络等领域开展合作；大健康产业方面，宁德市重点合作方向为中医药出海、功能性食品、健康装备、智慧医疗、国际康养旅居等领域；海洋经济产业方面，宁德市重点合作方向为现代渔业、海洋生物、海工装备、跨境冷链、滨海国际旅游等产业…… 一个个商机抛出的背后，是宁德市产业从“一座工厂”到“一片森林”的转变，而这片“森林”里，正源源不断地生长出走向全球的“宁德好物”。
 
-责任编辑：石秀珍 SF183
+以大黄鱼产业为例，“中国大黄鱼之都”宁德市是全国规模最大的大黄鱼育种中心、养殖基地、产销中心。
+
+2025年，该市出口大黄鱼1.95万吨，产值9.28亿元，远销泰国、韩国、越南、菲律宾、日本、美国等国家。
+
+在大健康领域，作为中国重要的茶叶产区，宁德市茶叶出口已覆盖23个国家和地区，正从原料出口向高附加值品牌茶升级；“中国食用菌之都”古田县银耳产量占全国90%以上，2025年食用菌企业出口额达7.24亿元；“中国长寿之乡”柘荣县盛产太子参等30多种中药材，正推动特色传统中药、大健康产品拓展共建“一带一路”国家市场…… 这些“宁德造”，正在加速走向全球。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 21:54 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 21:37 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 21:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 21:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 22:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 22:02 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 21:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:41 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 21:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 21:48 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 22:08 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 21:44 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 21:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 22:08 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 21:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 21:52 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 21:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 21:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 22:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 21:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:11 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 22:04 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 21:48 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 21:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 21:49 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [金刚川](http://www.share.minike.top/Article/details/289576.shtml)
-- 2026-06-29 21:49 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/41125162213.shtml)
-- 2026-06-29 21:59 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/42420.shtml)
-- 2026-06-29 21:38 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/930023.shtml)
-- 2026-06-29 21:38 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/40369232.shtml)
-- 2026-06-29 21:52 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/3889191629.shtml)
-- 2026-06-29 21:59 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5692031.shtml)
-- 2026-06-29 21:42 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/30637996205.shtml)
-- 2026-06-29 22:05 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/27280332982.shtml)
-- 2026-06-29 21:37 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/956986762235.shtml)
-- 2026-06-29 21:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/909522406.shtml)
-- 2026-06-29 21:59 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/0620898.shtml)
-- 2026-06-29 21:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/5059947312.shtml)
-- 2026-06-29 22:04 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/082288663526.shtml)
-- 2026-06-29 21:49 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/00535129.shtml)
+- 2026-06-29 22:02 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/7336046.shtml)
+- 2026-06-29 21:47 - [金刚川](https://www.share.kurohicncr.top/Article/details/5508260.shtml)
+- 2026-06-29 21:52 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/531224957101.shtml)
+- 2026-06-29 21:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/5471144418.shtml)
+- 2026-06-29 21:59 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/09663718.shtml)
+- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/068833386708.shtml)
+- 2026-06-29 22:08 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/0068038.shtml)
+- 2026-06-29 21:58 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/928774795924.shtml)
+- 2026-06-29 21:55 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/8171940642.shtml)
+- 2026-06-29 22:08 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/7255626.shtml)
+- 2026-06-29 21:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/1816076.shtml)
+- 2026-06-29 22:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/34121906837.shtml)
+- 2026-06-29 21:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/12137.shtml)
+- 2026-06-29 21:47 - [乔家的儿女](http://www.share.minike.top/Article/details/791608645.shtml)
+- 2026-06-29 22:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/098420469.shtml)

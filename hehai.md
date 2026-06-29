@@ -1,57 +1,57 @@
-# 知情人士：Momenta拟在香港IPO筹资10亿美元
+# 周一欧美假期临近 日元交易员警惕干预风险
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-知情人士称，自动驾驶公司Momenta正准备在中国香港上市，其估值已达到约90亿美元。 上述知情人士称，获General Motors支持的Momenta料将通过此次首次公开募股筹集约10亿美元。 该公司对此不予置评。该公司还获得了丰田（Toyota）和上汽集团（SAIC Motor）的支持。 Momenta将自身定位为自动驾驶汽车“大脑“的建造者，并向汽车制造商销售驾驶辅助解
+日元交易员对周一可能出现的干预风险保持警惕，届时伦敦和纽约等地适逢假期，导致市场流动性下降。 投资者将密切关注东京时段之后的交易情况，届时参与者较少可能会加剧汇率波动。日元兑美元汇率目前徘徊在159附近，接近4月30日以来的最低水平。 交易员对节假日的担心不无道理。4月30日正值日本黄金周期间，日本政府进入外汇市场，在5月6日结束前，可能购买了高达10万亿日元（630亿美元）。
 
 ## 正文
 
-知情人士称，自动驾驶公司Momenta正准备在中国香港上市，其估值已达到约90亿美元。
+日元交易员对周一可能出现的干预风险保持警惕，届时伦敦和纽约等地适逢假期，导致市场流动性下降。
 
-上述知情人士称，获General Motors支持的Momenta料将通过此次首次公开募股筹集约10亿美元。
+投资者将密切关注东京时段之后的交易情况，届时参与者较少可能会加剧汇率波动。
 
-该公司对此不予置评。
+日元兑美元汇率目前徘徊在159附近，接近4月30日以来的最低水平。
 
-该公司还获得了丰田（Toyota）和上汽集团（SAIC Motor）的支持。
+交易员对节假日的担心不无道理。
 
-Momenta将自身定位为自动驾驶汽车“大脑“的建造者，并向汽车制造商销售驾驶辅助解决方案。
+4月30日正值日本黄金周期间，日本政府进入外汇市场，在5月6日结束前，可能购买了高达10万亿日元（630亿美元）。
 
-在无人驾驶出租车方面，该公司已与网约车巨头Uber和梅赛德斯-奔驰集团（Mercedes-Benz Group）建立合作关系，合作地点分别位于慕尼黑和阿布扎比。
+“日元再次全面走弱，”TJM Europe外汇销售和交易董事总经理Neil Jones表示，“日本财务省完全可能考虑在周一东京市场结束前抛售美元兑日元。
 
-在东南亚，该公司已与该地区最大的网约车和外卖公司之一Grab合作，以拓展其业务。
+” 过去三个月里，由于中东战争导致油价上涨，加剧了通胀担忧，日元在G10货币中表现落后。
 
-根据中国证监会（China Securities Regulatory Commission）6月10日发出并于周四公布的一份公告，Momenta计划在香港发售不超过4375万股股票。
+此外，在日本首相高市早苗要求增加预算之后，市场对其支出计划的担忧进一步加剧了日元的压力。
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 21:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 22:00 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 21:57 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 21:50 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 21:44 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 22:04 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 21:53 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 22:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 22:00 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 21:40 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 21:43 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:08 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 22:06 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 21:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 21:57 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 21:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 22:09 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 22:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 21:42 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 22:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 22:04 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/05689.shtml)
-- 2026-06-29 21:47 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/125791836.shtml)
-- 2026-06-29 21:57 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/718794180609.shtml)
-- 2026-06-29 21:48 - [沙丘](http://www.blog.kurohicncr.top/Article/details/1810104173.shtml)
-- 2026-06-29 21:59 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/12684.shtml)
-- 2026-06-29 21:50 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/8338608710.shtml)
-- 2026-06-29 21:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7493843404.shtml)
-- 2026-06-29 21:42 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/653692367.shtml)
-- 2026-06-29 22:00 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/632325057.shtml)
-- 2026-06-29 21:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/3980029505.shtml)
-- 2026-06-29 22:00 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/74553.shtml)
-- 2026-06-29 21:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/6826529768.shtml)
-- 2026-06-29 21:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/644726276065.shtml)
-- 2026-06-29 21:45 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/193571469.shtml)
-- 2026-06-29 21:41 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/78646482129.shtml)
+- 2026-06-29 22:09 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/977153.shtml)
+- 2026-06-29 21:59 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/35765091558.shtml)
+- 2026-06-29 22:09 - [炽夏](https://www.blog.kurohicncr.top/Article/details/63401.shtml)
+- 2026-06-29 22:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/66381192.shtml)
+- 2026-06-29 21:58 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/13129.shtml)
+- 2026-06-29 21:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/380693862.shtml)
+- 2026-06-29 22:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/824100.shtml)
+- 2026-06-29 22:03 - [温网](http://www.blog.minike.top/Article/details/138991863513.shtml)
+- 2026-06-29 21:52 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/7123015.shtml)
+- 2026-06-29 22:07 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4758614.shtml)
+- 2026-06-29 21:58 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/540329.shtml)
+- 2026-06-29 22:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/321817667.shtml)
+- 2026-06-29 22:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/832138127520.shtml)
+- 2026-06-29 21:58 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/70876.shtml)
+- 2026-06-29 22:05 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/36943308.shtml)

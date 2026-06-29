@@ -1,51 +1,57 @@
-# 国务院任免国家工作人员
+# SA分析师评级调整：谷歌获上调，塔吉特遭降级，以星与Nebius迎来新评级
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据人社部网站消息，国务院任免国家工作人员。 蔡奇兼任国家行政学院院长。 陈希不再担任国家行政学院院长职务；免去王志勇的国家中医药管理局副局长职务。
+Seeking Alpha平台上的独立分析师于5月21日发布了一系列评级调整，覆盖Alphabet、塔吉特、以星综合航运及Nebius Group等四只重点股票。 谷歌获上调至看涨，AI优势被看好 Alphabet获得分析师Steven Fiorillo的评级上调至看涨。Fiorillo认为，谷歌在人工智能全栈的统治地位以及云业务的加速增长，使其成为AI投资者可获取的最大的纯投
 
 ## 正文
 
-中新网6月18日电 据人社部网站消息，国务院任免国家工作人员。
+Seeking Alpha平台上的独立分析师于5月21日发布了一系列评级调整，覆盖Alphabet、塔吉特、以星综合航运及Nebius Group等四只重点股票。
 
-蔡奇兼任国家行政学院院长。
+谷歌获上调至看涨，AI优势被看好 Alphabet获得分析师Steven Fiorillo的评级上调至看涨。
 
-陈希不再担任国家行政学院院长职务；免去王志勇的国家中医药管理局副局长职务。
+Fiorillo认为，谷歌在人工智能全栈的统治地位以及云业务的加速增长，使其成为AI投资者可获取的最大的纯投资标的。
+
+他指出，谷歌在搜索业务的韧性、AI货币化能力以及云计算领域的持续突破，为公司提供了坚实的多重增长引擎。
+
+尽管近期有机构投资者小幅减持，且公司董事亦进行了一定的内部抛售，但华尔街整体仍给予该股买入的共识评级，平均目标价约为365.23美元。
+
+不过，Rosenblatt在5月21日同步维持了对谷歌的中性评级，目标价保持在393美元不变，显示出部分机构对当前估值仍持谨慎态度。
+
+塔吉特：财报亮眼难挡降级，估值引发担忧 尽管塔吉特于5月20日交出了一份超出预期的一季度财报，但Freedom Capital将其评级从强力买入直接下调至持有。
+
+SA分析师也指出，塔吉特在股价经历一轮强劲反弹后，估值吸引力下降，叠加宏观经济不确定性增加，是此次降级的主要原因。
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 21:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 21:41 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 21:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 21:53 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 21:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 21:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 21:58 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 21:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 21:56 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 21:52 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 21:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 22:04 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 21:57 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 21:59 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 22:03 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 22:11 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 22:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 22:02 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:59 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 21:48 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:08 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 22:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 22:08 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 22:10 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/308506269.shtml)
-- 2026-06-29 22:05 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/222878300.shtml)
-- 2026-06-29 21:37 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/5501038.shtml)
-- 2026-06-29 22:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/522531968.shtml)
-- 2026-06-29 22:05 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/67803.shtml)
-- 2026-06-29 21:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/544045.shtml)
-- 2026-06-29 21:46 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/1875591.shtml)
-- 2026-06-29 21:53 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2375928.shtml)
-- 2026-06-29 21:47 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/16891.shtml)
-- 2026-06-29 22:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/83945093.shtml)
-- 2026-06-29 22:02 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/68982.shtml)
-- 2026-06-29 21:54 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/2372113426.shtml)
-- 2026-06-29 21:40 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/880025045729.shtml)
-- 2026-06-29 21:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/1151293.shtml)
-- 2026-06-29 21:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/020921132.shtml)
+- 2026-06-29 22:08 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/187127.shtml)
+- 2026-06-29 21:43 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/565695.shtml)
+- 2026-06-29 21:58 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/52083.shtml)
+- 2026-06-29 21:42 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8315109.shtml)
+- 2026-06-29 22:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/918486.shtml)
+- 2026-06-29 22:00 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/16257752.shtml)
+- 2026-06-29 21:47 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/84101.shtml)
+- 2026-06-29 22:00 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/19997452.shtml)
+- 2026-06-29 21:56 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/86230.shtml)
+- 2026-06-29 21:48 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/1707978.shtml)
+- 2026-06-29 21:44 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/794788.shtml)
+- 2026-06-29 21:51 - [请回答王牌2019](http://www.share.minike.top/Article/details/08614606365.shtml)
+- 2026-06-29 22:00 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/530352770.shtml)
+- 2026-06-29 21:43 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/46814013695.shtml)
+- 2026-06-29 21:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/167416486283.shtml)

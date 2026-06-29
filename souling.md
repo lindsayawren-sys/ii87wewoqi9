@@ -1,58 +1,57 @@
-# 企业员工收受好处费不算个事儿？
+# YieldMax RBLX期权收入策略ETF宣布每周派息0.2336美元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-企业员工收受好处费不算个事儿？ ——来自最高检第六评议组在新疆生产建设兵团首站听庭评议现场的报道 “又不是公务人员，收点好处费能有多大事？”谈及受贿行贿，不少人存在误区。事实上，企业员工等非国家工作人员若利用职务之便收受好处费等，同样触犯法律。6月3日，新疆生产建设兵团车排子垦区(胡杨河市)检察院办理的一起非国家工作人员受贿案开庭审理，最高人民检察院第六评议组全程旁听庭审。这是
+YieldMax RBLX期权收入策略ETF于5月21日宣布进行每周股息分配，每股派息金额为0.2336美元，交易代码为RBLY。此次派息较前一周的0.1612美元大幅增长44.91%，除息日及登记日均为5月21日，支付日为5月22日。 该基金于2025年7月28日在NYSE Arca交易所上市，是一只主动管理型ETF，目前管理资产规模约为1300万至1400万美元，总费用率为
 
 ## 正文
 
-企业员工收受好处费不算个事儿？
+YieldMax RBLX期权收入策略ETF于5月21日宣布进行每周股息分配，每股派息金额为0.2336美元，交易代码为RBLY。
 
-——来自最高检第六评议组在新疆生产建设兵团首站听庭评议现场的报道 “又不是公务人员，收点好处费能有多大事？
+此次派息较前一周的0.1612美元大幅增长44.91%，除息日及登记日均为5月21日，支付日为5月22日。
 
-”谈及受贿行贿，不少人存在误区。
+该基金于2025年7月28日在NYSE Arca交易所上市，是一只主动管理型ETF，目前管理资产规模约为1300万至1400万美元，总费用率为0.99%。
 
-事实上，企业员工等非国家工作人员若利用职务之便收受好处费等，同样触犯法律。
+其核心策略为合成备兑认购期权策略，主要通过卖出Roblox Corp股票的看涨期权价差来获取期权费收入，同时持有美国短期国债作为期权交易的抵押品并产生额外利息。
 
-6月3日，新疆生产建设兵团车排子垦区(胡杨河市)检察院办理的一起非国家工作人员受贿案开庭审理，最高人民检察院第六评议组全程旁听庭审。
+该基金不直接投资于RBLX股票，其投资目标是为投资者提供持续的每周收入，次要目标是与RBLX股价变动保持一定程度的参与。
 
-这是第六评议组今年开展出庭评议工作的首站。
+根据YieldMax官网披露的数据，RBLY的年化分配率为87.23%，30天SEC收益率为3.08%。
 
-胡杨河市有关部门负责同志和当地企业代表等受邀观摩。
+值得注意的是，此次派息中约33.31%来自本金返还。
 
-该案中，被告人文某某在某新能源公司任职期间，利用负责技术评标、项目对接等职务便利，先后多次收受他人财物共计82万元。
+过往派息中有相当比例可能来自本金返还，这会随时间推移降低基金的资产净值和交易价格，投资者需注意相关风险。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 21:40 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 21:45 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 21:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 21:37 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 21:38 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 21:58 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 21:37 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 21:56 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 21:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 22:05 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 21:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 22:04 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 21:59 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 21:46 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 21:56 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 21:43 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 21:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 21:48 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 22:04 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 22:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 22:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 22:01 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/8979036959.shtml)
-- 2026-06-29 21:39 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/6687565.shtml)
-- 2026-06-29 21:51 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/33976276.shtml)
-- 2026-06-29 21:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/40710.shtml)
-- 2026-06-29 21:49 - [TOP Prada](http://www.blog.minike.top/Article/details/3501572.shtml)
-- 2026-06-29 22:02 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/63967.shtml)
-- 2026-06-29 21:47 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/6384035.shtml)
-- 2026-06-29 21:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/35730454.shtml)
-- 2026-06-29 22:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/31994005.shtml)
-- 2026-06-29 21:47 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/9872325427.shtml)
-- 2026-06-29 21:48 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/5908178138.shtml)
-- 2026-06-29 21:47 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/86051227503.shtml)
-- 2026-06-29 21:49 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/450232997.shtml)
-- 2026-06-29 21:52 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/8676687607.shtml)
-- 2026-06-29 21:48 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/363979827.shtml)
+- 2026-06-29 21:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/9390590639.shtml)
+- 2026-06-29 21:59 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/634105531523.shtml)
+- 2026-06-29 21:56 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/75817527.shtml)
+- 2026-06-29 21:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/5962265.shtml)
+- 2026-06-29 22:12 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/12524.shtml)
+- 2026-06-29 21:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/0773016.shtml)
+- 2026-06-29 21:45 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/942776057090.shtml)
+- 2026-06-29 21:44 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/2936433.shtml)
+- 2026-06-29 22:10 - [毒液2](http://www.blog.kurohicncr.top/Article/details/4874885982.shtml)
+- 2026-06-29 22:06 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/679971.shtml)
+- 2026-06-29 22:11 - [乔家的儿女](https://www.share.minike.top/Article/details/7226703346.shtml)
+- 2026-06-29 21:56 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/305822951.shtml)
+- 2026-06-29 21:59 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/463587.shtml)
+- 2026-06-29 21:59 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/031799811.shtml)
+- 2026-06-29 22:10 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/170364.shtml)

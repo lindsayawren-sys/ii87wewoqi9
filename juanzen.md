@@ -1,56 +1,60 @@
-# “人权与全球治理”主题边会在日内瓦举行
+# 雪佛龙董事长将出席Bernstein战略决策会议并参与炉边问答
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网日内瓦6月20日电 在联合国人权理事会第62届会议期间，“人权与全球治理”主题边会近日在日内瓦举行。 边会由中国联合国协会和中国常驻日内瓦代表团共同举办，中国常驻日内瓦代表团公参慕建峰、中国前驻利比里亚大使任义生、中华女子学院副院长李莹、上海国际问题研究院研究员李忻、香港中西区议员杨哲安、联合国人权理事会前民主公平国际秩序问题独立专家阿尔弗雷德·德扎亚斯、普遍权利组织执行
+雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。会议将于美国东部时间上午11时开始。 投资者可通过雪佛龙官网投资者关系页面观看直播。直播结束后，网站将提供回放。Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。 雪佛龙近期公
 
 ## 正文
 
-中新网日内瓦6月20日电 在联合国人权理事会第62届会议期间，“人权与全球治理”主题边会近日在日内瓦举行。
+雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。
 
-边会由中国联合国协会和中国常驻日内瓦代表团共同举办，中国常驻日内瓦代表团公参慕建峰、中国前驻利比里亚大使任义生、中华女子学院副院长李莹、上海国际问题研究院研究员李忻、香港中西区议员杨哲安、联合国人权理事会前民主公平国际秩序问题独立专家阿尔弗雷德·德扎亚斯、普遍权利组织执行主任马克·利蒙作主旨发言。
+会议将于美国东部时间上午11时开始。
 
-来自各国常驻日内瓦代表团、联合国人权事务高级专员办公室(人权高专办)、民间社会组织的代表约50人与会。
+投资者可通过雪佛龙官网投资者关系页面观看直播。
 
-与会嘉宾表示，当前地缘冲突此起彼伏，全球发展失衡，技术伦理危机日益凸显，全球人权保障机制正经历严峻考验。
+直播结束后，网站将提供回放。
 
-国际社会应团结合作，共同促进和保障人权，坚持走符合本国国情和人民需求的人权发展道路，反对将自身模式强加于人，反对将人权政治化、工具化。
+Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。
 
-与会嘉宾表示，近日中国发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，再次表明中国积极践行“以发展促人权”理念，落实国家人权行动计划，参与全球人权合作，推动构建更加公正合理包容的全球人权治理体系。
+雪佛龙近期公布的2026年第一季度财报显示，调整后每股收益为1.41美元，远超市场预期的0.92美元，营收达486亿美元，同比增长2.1%。
 
-中国以发展保障妇女权益，支持妇女积极参与全球治理。
+尽管受下游业务疲软和外汇不利因素拖累，报告净利润降至22.1亿美元，但美国上游产量同比增长24%，连续第三个季度保持在每日200万桶油当量以上，主要受益于赫斯公司资产的整合及二叠纪盆地的持续增长。
 
-中国致力于将现代化建设成果更多更公平惠及各族人民，在推广国家通用语言文字的同时尊重和保护不同民族语言文字的差异性。
+雪佛龙重申2026年全年100亿至200亿美元的股票回购目标，并已连续39年提高股息。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 22:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 21:55 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 21:53 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 21:56 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 21:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 21:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 21:47 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 21:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 21:43 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 22:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 21:51 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 22:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:43 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 21:56 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 21:46 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 21:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 21:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:10 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 21:47 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 21:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/09031929822.shtml)
-- 2026-06-29 21:59 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/786597.shtml)
-- 2026-06-29 21:50 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/457014195081.shtml)
-- 2026-06-29 22:01 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/473175.shtml)
-- 2026-06-29 21:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/8303399.shtml)
-- 2026-06-29 21:57 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/831458471.shtml)
-- 2026-06-29 21:38 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/97441.shtml)
-- 2026-06-29 21:52 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/82052570.shtml)
-- 2026-06-29 21:39 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/468150.shtml)
-- 2026-06-29 21:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/34251726.shtml)
-- 2026-06-29 21:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/6875364.shtml)
-- 2026-06-29 22:02 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/410861.shtml)
-- 2026-06-29 21:55 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/48620.shtml)
-- 2026-06-29 21:53 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/51414244760.shtml)
-- 2026-06-29 22:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/6133699.shtml)
+- 2026-06-29 22:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/9802795153.shtml)
+- 2026-06-29 22:10 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/80862471.shtml)
+- 2026-06-29 21:59 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/03167.shtml)
+- 2026-06-29 22:03 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/19509726108.shtml)
+- 2026-06-29 22:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/426544.shtml)
+- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/71541.shtml)
+- 2026-06-29 21:54 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/073002.shtml)
+- 2026-06-29 21:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/4156213.shtml)
+- 2026-06-29 22:11 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/3155452.shtml)
+- 2026-06-29 21:51 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/984587916181.shtml)
+- 2026-06-29 21:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/58208.shtml)
+- 2026-06-29 21:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/60047957498.shtml)
+- 2026-06-29 21:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/03802093.shtml)
+- 2026-06-29 21:51 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/97084.shtml)
+- 2026-06-29 22:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/35892316.shtml)

@@ -1,61 +1,58 @@
-# 埃森哲下调营收预期引发市场对AI业务前景担忧，股价大跌 18%
+# Nakamoto宣布1比40反向拆股，5月22日生效以维持纳斯达克上市资格
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。 埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。公司 5 月财季营收 187 亿美元，同比增长 6
+比特币持仓公司Nakamoto Inc．周三宣布，经董事会批准，将对其普通股进行1比40的反向股票分割，旨在将股价推回纳斯达克要求的1美元最低买入价以上，以维持上市资格。该拆股将于2026年5月22日生效。 拆股细节：流通股从6.96亿股缩减至1740万股 根据公司向美国证券交易委员会提交的文件，此次反向拆股已在此前于2026年5月8日召开的股东特别大会上获得批准。股东当时授权
 
 ## 正文
 
-科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。
+比特币持仓公司Nakamoto Inc．周三宣布，经董事会批准，将对其普通股进行1比40的反向股票分割，旨在将股价推回纳斯达克要求的1美元最低买入价以上，以维持上市资格。
 
-这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。
+该拆股将于2026年5月22日生效。
 
-埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。
+拆股细节：流通股从6.96亿股缩减至1740万股 根据公司向美国证券交易委员会提交的文件，此次反向拆股已在此前于2026年5月8日召开的股东特别大会上获得批准。
 
-公司 5 月财季营收 187 亿美元，同比增长 6%，相较于 2 月财季 8% 的增速小幅放缓。
+股东当时授权董事会在1比20至1比50的区间内确定最终比例，董事会随后将比例锁定为1比40。
 
-首席执行官朱莉・斯威特表示，中东局势冲突导致业务开展放缓、销售额不及预期，且这一低迷态势将延续至当前财季。
+公司公告显示，反向拆股将于美国东部时间2026年5月22日凌晨12：01正式生效。
 
-埃森哲同时下调了投资者对其 8 月结束的完整财年业绩预期，预计固定汇率下全年营收最高仅增长 4%，此前公司给出的预期为 5%。
+届时，每40股Nakamoto现有普通股将自动合并为1股新股。
 
-周四收盘时，埃森哲总市值约 790 亿美元，较前一日缩水约 170 亿美元。
+以此计算，公司流通股总数将从约6.961亿股缩减至约1740万股。
 
-责任编辑：江学思
+普通股的授权股份总数及每股面值将保持不变。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 21:37 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 21:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 22:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 21:41 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 21:50 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 21:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 21:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 22:01 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 21:55 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:45 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 21:41 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 21:43 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 21:54 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 21:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 21:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 22:06 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 22:08 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 21:47 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 22:04 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 22:07 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 21:55 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 21:48 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 21:45 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 21:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 22:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 22:04 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [温网](https://www.share.minike.top/Article/details/497695569.shtml)
-- 2026-06-29 21:37 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/12424197998.shtml)
-- 2026-06-29 22:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/73271221.shtml)
-- 2026-06-29 21:39 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/925212741056.shtml)
-- 2026-06-29 21:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/80936.shtml)
-- 2026-06-29 21:48 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/382455059345.shtml)
-- 2026-06-29 22:04 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/31920.shtml)
-- 2026-06-29 21:43 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/248248.shtml)
-- 2026-06-29 21:51 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/74399557.shtml)
-- 2026-06-29 21:47 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/315698593.shtml)
-- 2026-06-29 21:47 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/250166584.shtml)
-- 2026-06-29 21:39 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/66424.shtml)
-- 2026-06-29 21:43 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/19109969.shtml)
-- 2026-06-29 21:55 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/437163.shtml)
-- 2026-06-29 21:50 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/924631752.shtml)
+- 2026-06-29 21:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/469109782.shtml)
+- 2026-06-29 21:48 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/62885914678.shtml)
+- 2026-06-29 21:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/89636975.shtml)
+- 2026-06-29 22:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/247192.shtml)
+- 2026-06-29 21:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/0667030958.shtml)
+- 2026-06-29 21:56 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/871490851.shtml)
+- 2026-06-29 21:56 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/85607155.shtml)
+- 2026-06-29 22:06 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/5076066.shtml)
+- 2026-06-29 21:50 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/4532847222.shtml)
+- 2026-06-29 22:06 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/489294204501.shtml)
+- 2026-06-29 21:42 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/38494.shtml)
+- 2026-06-29 22:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/07123.shtml)
+- 2026-06-29 22:05 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/9538792117.shtml)
+- 2026-06-29 21:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/416800693722.shtml)
+- 2026-06-29 21:47 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/92200.shtml)

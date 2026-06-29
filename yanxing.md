@@ -1,60 +1,50 @@
-# 西藏日喀则载歌载舞迎端午 同心共绘和美乡村
+# 朝中社：美国军售活动愈演愈烈 是亚太地区军事紧张根源
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两
+中新网5月22日电 朝中社21日发表评论文章说，美国对朝鲜半岛和东北亚地区的武器出售活动愈演愈烈，逐渐成为不可忽视的地区安保挑战。 文章称，美国国务院日前批准向韩国出售总价值超过40亿美元的直升机及零部件，并声称此次军售将会帮助韩国提高军事力量。朝鲜外务省发言人就此表示，美国向韩国、日本等亚太国家和地区大量出售武器，是引发亚太地区军事紧张的根源，预示着地区形势的不稳定前景。 文
 
 ## 正文
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+中新网5月22日电 朝中社21日发表评论文章说，美国对朝鲜半岛和东北亚地区的武器出售活动愈演愈烈，逐渐成为不可忽视的地区安保挑战。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+文章称，美国国务院日前批准向韩国出售总价值超过40亿美元的直升机及零部件，并声称此次军售将会帮助韩国提高军事力量。
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+朝鲜外务省发言人就此表示，美国向韩国、日本等亚太国家和地区大量出售武器，是引发亚太地区军事紧张的根源，预示着地区形势的不稳定前景。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
-
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
-
-孔子为什么说“温故而知新”？
-
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
-
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+文章强调，朝鲜的防卫力量将以不断的更新升级和坚决的临战态势强力管控种种安保威胁，捍卫国家主权安全和地区和平，为保障全球战略稳定作出积极贡献。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 21:44 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 21:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 21:52 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 21:53 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 21:40 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 21:51 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 21:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 21:41 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 22:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 21:37 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 21:37 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 21:50 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 22:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 22:04 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 21:51 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 22:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 21:57 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 22:10 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 22:03 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 22:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:51 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 21:42 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/518343887.shtml)
-- 2026-06-29 21:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/814586.shtml)
-- 2026-06-29 21:48 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/15960.shtml)
-- 2026-06-29 21:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/50551971708.shtml)
-- 2026-06-29 21:48 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/4648385059.shtml)
-- 2026-06-29 21:58 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/250268574.shtml)
-- 2026-06-29 21:40 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/7754117.shtml)
-- 2026-06-29 22:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/533658.shtml)
-- 2026-06-29 21:45 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/13901347.shtml)
-- 2026-06-29 22:03 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/1354448.shtml)
-- 2026-06-29 21:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/2385794615.shtml)
-- 2026-06-29 21:59 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/24711718775.shtml)
-- 2026-06-29 21:52 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/36421431.shtml)
-- 2026-06-29 21:48 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/74508484.shtml)
-- 2026-06-29 21:42 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/79848.shtml)
+- 2026-06-29 21:56 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/21243604532.shtml)
+- 2026-06-29 21:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2468294.shtml)
+- 2026-06-29 22:07 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/456073317457.shtml)
+- 2026-06-29 22:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/9234780.shtml)
+- 2026-06-29 22:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/1286657892.shtml)
+- 2026-06-29 21:57 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/6868129.shtml)
+- 2026-06-29 22:05 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/59983.shtml)
+- 2026-06-29 21:46 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/12508.shtml)
+- 2026-06-29 22:01 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/547357971.shtml)
+- 2026-06-29 21:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/330379024.shtml)
+- 2026-06-29 21:56 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/318185652.shtml)
+- 2026-06-29 21:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/25294.shtml)
+- 2026-06-29 21:52 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/885792552126.shtml)
+- 2026-06-29 21:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/127210182042.shtml)
+- 2026-06-29 22:05 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/89412451.shtml)

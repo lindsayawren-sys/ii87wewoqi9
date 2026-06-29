@@ -1,60 +1,61 @@
-# 塔塔苹果零部件工厂遭印度卫生部门调查
+# 万亿限售股解禁压境，港股慌不慌？
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-媒体援引三名官员及一份文件报道，印度某邦卫生部门正调查苹果代工厂塔塔旗下iPhone零部件工厂排出的液体对农户造成的影响；多名农户称农田受污染物污染，自身出现皮肤不适症状。 此次卫生调查，令这场环保纠纷迎来新进展，也成为印度打造苹果iPhone核心制造基地进程中的典型考验。位于南部泰米尔纳德邦霍苏尔市的塔塔电子厂区，已于5月25日收到邦污染控制委员会发出的警示函，该工厂被指污染
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。并且，全年有6个月的月度解禁规模超过1000亿港元，其中5月至9月压力较大，仅9月单月解禁市值预计即高达5300亿港元，约占全年总量的三分之一。 作者：老盈盈 封图：图虫创意 2025年，香港交易所共迎来119家企
 
 ## 正文
 
-媒体援引三名官员及一份文件报道，印度某邦卫生部门正调查苹果代工厂塔塔旗下iPhone零部件工厂排出的液体对农户造成的影响；多名农户称农田受污染物污染，自身出现皮肤不适症状。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次卫生调查，令这场环保纠纷迎来新进展，也成为印度打造苹果iPhone核心制造基地进程中的典型考验。
+市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。
 
-位于南部泰米尔纳德邦霍苏尔市的塔塔电子厂区，已于5月25日收到邦污染控制委员会发出的警示函，该工厂被指污染周边农田地下水。
+并且，全年有6个月的月度解禁规模超过1000亿港元，其中5月至9月压力较大，仅9月单月解禁市值预计即高达5300亿港元，约占全年总量的三分之一。
 
-塔塔本周发布声明表示，污染监管机构在完成厂区最新水样检测后，确认水样“未检出污染物”，并已终止相关核查工作。
+作者：老盈盈 封图：图虫创意 2025年，香港交易所共迎来119家企业挂牌上市，合计募集资金额达2869亿港元，登顶全球新股筹资额第一的宝座。
 
-邦污染控制委员会与当地政府尚未就此事作出回应。
+进入2026年，这股势头得以延续：2026年一季度共有40家公司上市，总集资额达1104亿港元，是2025年第一季度的近六倍。
 
-苹果同样未对此事置评，未回应路透社问询。
+但新股市场繁荣也会带来一个问题——潜在的解禁压力。
 
-塔塔方面也多次拒绝媒体采访请求。
+2025年港股大量上市的科技、生物医药等企业的基石投资者和Pre-IPO（上市前）股东，其6至12个月的锁定期在2026年陆续到期。
 
-责任编辑：刘明亮
+记者从采访中了解到，市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 21:55 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 21:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 21:42 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 21:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 21:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 21:40 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 21:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 21:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 21:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 21:58 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 21:59 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 21:37 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 21:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 22:05 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 22:07 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 21:51 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 21:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 22:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 21:47 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 21:48 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 22:09 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 22:06 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 22:05 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 21:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 22:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 21:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:53 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/135126637439.shtml)
-- 2026-06-29 21:57 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/459392178117.shtml)
-- 2026-06-29 21:56 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/899916439.shtml)
-- 2026-06-29 21:59 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/2686337854.shtml)
-- 2026-06-29 21:53 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/824417382087.shtml)
-- 2026-06-29 21:43 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/13611252321.shtml)
-- 2026-06-29 21:59 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/736087.shtml)
-- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/152779489885.shtml)
-- 2026-06-29 21:39 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/59314.shtml)
-- 2026-06-29 21:46 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/17798352.shtml)
-- 2026-06-29 21:41 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/27236.shtml)
-- 2026-06-29 21:51 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/1597844568.shtml)
-- 2026-06-29 21:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/58719436154.shtml)
-- 2026-06-29 22:04 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/70191412596.shtml)
-- 2026-06-29 21:54 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/812330559.shtml)
+- 2026-06-29 21:47 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/898826748.shtml)
+- 2026-06-29 21:48 - [金刚川](http://www.share.minike.top/Article/details/29419348638.shtml)
+- 2026-06-29 22:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/66469650761.shtml)
+- 2026-06-29 21:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/874810.shtml)
+- 2026-06-29 22:04 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/6920697755.shtml)
+- 2026-06-29 21:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/65288710.shtml)
+- 2026-06-29 22:00 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/713031592.shtml)
+- 2026-06-29 21:59 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/341223.shtml)
+- 2026-06-29 21:45 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/36430377.shtml)
+- 2026-06-29 21:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/596191.shtml)
+- 2026-06-29 22:00 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/45517166.shtml)
+- 2026-06-29 22:09 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/65851976.shtml)
+- 2026-06-29 22:10 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/12688309.shtml)
+- 2026-06-29 22:07 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/293413890977.shtml)
+- 2026-06-29 21:42 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/46787165.shtml)

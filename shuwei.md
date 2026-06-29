@@ -1,59 +1,57 @@
-# 如何破解陪诊师紧俏难题
+# 国家数据局：培育壮大创新型数据企业
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-“经过这段时间的培训，我掌握了规范的陪诊流程和应急处置方法，心里更有底了。结业后，我愿意主动承担更多陪诊任务，把学到的知识用到实际工作中。”北京四季青敬老院办公室主任金昊对中青报·中青网记者说。 5月26日，“启明星人才培养计划”京津冀公益陪诊首期培训在北京市海淀区四季青敬老院开班，预计8月结束。该计划向京津冀三地养老机构一线人员定向捐赠2000个免费名额，其中北京地区800个
+中新经纬5月20日电 据国家数据局网站20日消息，5月19日上午，国家发展改革委党组成员、国家数据局局长刘烈宏主持召开数据领域民营企业座谈会，与奥凯信息、职教桥、致景科技、数说故事、腾云天下、睿帆科技、趣链科技、每日互动、无问芯穹、携程等10家民营企业代表深入交流，了解企业近期发展情况，围绕“十五五”时期推动数字经济高质量发展、强化数据赋能人工智能创新发展等方面听取意见建议。国
 
 ## 正文
 
-“经过这段时间的培训，我掌握了规范的陪诊流程和应急处置方法，心里更有底了。
+中新经纬5月20日电 据国家数据局网站20日消息，5月19日上午，国家发展改革委党组成员、国家数据局局长刘烈宏主持召开数据领域民营企业座谈会，与奥凯信息、职教桥、致景科技、数说故事、腾云天下、睿帆科技、趣链科技、每日互动、无问芯穹、携程等10家民营企业代表深入交流，了解企业近期发展情况，围绕“十五五”时期推动数字经济高质量发展、强化数据赋能人工智能创新发展等方面听取意见建议。
 
-结业后，我愿意主动承担更多陪诊任务，把学到的知识用到实际工作中。
+国家数据局党组成员、副局长夏冰出席会议。
 
-”北京四季青敬老院办公室主任金昊对中青报·中青网记者说。
+大家一致认为，2026年是“十五五”开局之年，也是数字中国建设纵深推进、人工智能赋能千行百业加速落地的重要一年。
 
-5月26日，“启明星人才培养计划”京津冀公益陪诊首期培训在北京市海淀区四季青敬老院开班，预计8月结束。
+随着数据要素市场化配置改革持续深化，公共数据开发利用、企业数据价值释放、国家数据基础设施和高质量数据集建设等重点工作加快推进，为数据领域民营企业创新发展打开了新空间、提供了新机遇。
 
-该计划向京津冀三地养老机构一线人员定向捐赠2000个免费名额，其中北京地区800个，将分4批开展培训，每批200人。
+刘烈宏认真听取企业家发言，并围绕企业关心的重点事项做出回应。
 
-中国社会福利与养老服务协会执行会长徐建中告诉中青报·中青网记者，首期学员来自东城区、西城区、海淀区，这3个区的老年人口占北京全市的1/4，“这次培训是一个重量级的开场。
+他表示，对大家提出的意见建议，国家数据局将认真研究吸收，进一步发挥统筹协调和政策牵引作用，重点做好如下四个方面工作。
 
-” 这场培训的背后，是一份历时数月、覆盖4000余份样本的行业报告，一项凝聚多方共识的团体标准，以及一个正在从混沌中寻找秩序的行业。
+一是培育壮大创新型数据企业，支持民营企业提升核心技术、产品服务和场景落地能力。
 
-中国社会福利与养老服务协会(以下简称“中福协”)发布的《陪诊服务发展研究报告(2025)》(以下简称“报告”)显示：88.54%的社区老年人存在家人无法及时陪同就医的情况；在养老机构，这一比例更高达98.30%。
+二是统筹好发展和安全，依靠技术创新、基础设施建设和制度机制完善，筑牢安全屏障、打通流通堵点。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 21:52 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 21:54 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 21:55 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 21:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 21:47 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 21:59 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 21:48 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 21:47 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 22:02 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 21:53 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 22:03 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 21:59 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 21:58 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 22:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 21:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 21:49 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:44 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 22:03 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 21:55 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 22:07 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/91241.shtml)
-- 2026-06-29 21:59 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/24947799.shtml)
-- 2026-06-29 21:52 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/741985379160.shtml)
-- 2026-06-29 21:46 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/706107430253.shtml)
-- 2026-06-29 21:59 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2126494.shtml)
-- 2026-06-29 21:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/7456896620.shtml)
-- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/9981725.shtml)
-- 2026-06-29 21:46 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/256069957.shtml)
-- 2026-06-29 21:51 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0875067.shtml)
-- 2026-06-29 21:56 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/38839.shtml)
-- 2026-06-29 21:49 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/410361.shtml)
-- 2026-06-29 21:41 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/617462982071.shtml)
-- 2026-06-29 21:59 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/0213197.shtml)
-- 2026-06-29 21:43 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/922738630.shtml)
-- 2026-06-29 21:57 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/590334409560.shtml)
+- 2026-06-29 22:08 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/2928915959.shtml)
+- 2026-06-29 21:45 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/687204.shtml)
+- 2026-06-29 21:53 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/8314680081.shtml)
+- 2026-06-29 22:00 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/37756.shtml)
+- 2026-06-29 21:57 - [记者乘坐无人驾驶汽车去采访](http://www.blog.kurohicncr.top/Article/details/84722936.shtml)
+- 2026-06-29 21:53 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/366056837.shtml)
+- 2026-06-29 22:00 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/4854504174.shtml)
+- 2026-06-29 21:51 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/6591891.shtml)
+- 2026-06-29 21:51 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/3090375900.shtml)
+- 2026-06-29 22:01 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/606570421.shtml)
+- 2026-06-29 22:05 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/182955555013.shtml)
+- 2026-06-29 21:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/4722196293.shtml)
+- 2026-06-29 21:54 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/840971652523.shtml)
+- 2026-06-29 21:51 - [青春环游记第三季](https://www.share.minike.top/Article/details/39220.shtml)
+- 2026-06-29 21:52 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/79610148028.shtml)

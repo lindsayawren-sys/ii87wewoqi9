@@ -1,47 +1,58 @@
-# 这份孝心令人动容！85岁外婆在路边等车 外孙女跪地为她支撑
+# PTC的Codebeamer平台助力马自达推进软件定义汽车开发
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 15:57 来源：中国新闻网 这份孝心令人动容！85岁外婆在路边等车 外孙女跪地为她支撑 责任编辑：【李光伟】
+工业软件提供商PTC宣布，马自达汽车公司已选择其Codebeamer应用生命周期管理解决方案，用于软件定义汽车的开发。马自达将借助Codebeamer对需求管理、测试及验证流程进行标准化，实现整车开发过程中的端到端可追溯性。 随着汽车日益由软件驱动，马自达KURUMA开发部门首席主任工程师足立友彦表示，产品开发团队在一个互联且规范的开发环境中协作变得至关重要。Codebeame
 
 ## 正文
 
-发布时间：2026年06月21日 15:57 来源：中国新闻网 这份孝心令人动容！
+工业软件提供商PTC宣布，马自达汽车公司已选择其Codebeamer应用生命周期管理解决方案，用于软件定义汽车的开发。
 
-85岁外婆在路边等车 外孙女跪地为她支撑 责任编辑：【李光伟】
+马自达将借助Codebeamer对需求管理、测试及验证流程进行标准化，实现整车开发过程中的端到端可追溯性。
+
+随着汽车日益由软件驱动，马自达KURUMA开发部门首席主任工程师足立友彦表示，产品开发团队在一个互联且规范的开发环境中协作变得至关重要。
+
+Codebeamer帮助他们强化了需求的可追溯性与透明度，有效促进了各团队之间的协同配合。
+
+该方案与马自达现有的基于模型的开发系统保持连通，并通过统一的产品数据基础取代原有分散的遗留工具体系，支持符合汽车行业标准的合规要求。
+
+此次合作正值PTC近期财务表现强劲之际。
+
+公司此前发布的2026财年第二季度财报显示，营收达7.74亿美元，同比增长22%，超出市场预期的7.12亿美元；调整后每股收益为2.69美元，远超分析师预期的2.10美元。
+
+PTC首席营收官Robert Dahdah表示，Codebeamer正帮助马自达整合分散的文档资料、支持需求管理与协作，助力其向软件定义汽车开发模式转型。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 21:54 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 21:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 21:50 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 21:39 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 21:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 21:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 21:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 21:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 21:53 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 21:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 22:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 22:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 22:07 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 21:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 21:47 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 21:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 22:11 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 21:56 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 21:50 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 21:55 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 22:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:40 - [85花告别古偶](http://www.share.minike.top/Article/details/45186977.shtml)
-- 2026-06-29 22:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/705541696147.shtml)
-- 2026-06-29 21:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/887529344152.shtml)
-- 2026-06-29 21:58 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/735487.shtml)
-- 2026-06-29 21:52 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/785331.shtml)
-- 2026-06-29 21:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/208417.shtml)
-- 2026-06-29 21:40 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/60320245889.shtml)
-- 2026-06-29 21:51 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/821246834.shtml)
-- 2026-06-29 21:41 - [温网](http://www.share.kurohicncr.top/Article/details/57297430263.shtml)
-- 2026-06-29 21:43 - [第一炉香](http://www.share.kurohicncr.top/Article/details/3757008.shtml)
-- 2026-06-29 21:43 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/463583795162.shtml)
-- 2026-06-29 21:50 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/2989434.shtml)
-- 2026-06-29 22:01 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/2529700700.shtml)
-- 2026-06-29 21:52 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/3029539489.shtml)
-- 2026-06-29 21:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/46216429.shtml)
+- 2026-06-29 22:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/3989798448.shtml)
+- 2026-06-29 22:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/7405055.shtml)
+- 2026-06-29 22:11 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/2440672738.shtml)
+- 2026-06-29 21:50 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/365600555264.shtml)
+- 2026-06-29 21:45 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/83061109.shtml)
+- 2026-06-29 21:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/6724999363.shtml)
+- 2026-06-29 21:42 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/605391216.shtml)
+- 2026-06-29 21:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/314770.shtml)
+- 2026-06-29 21:55 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/124657218.shtml)
+- 2026-06-29 21:52 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/144625.shtml)
+- 2026-06-29 22:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/92873576975.shtml)
+- 2026-06-29 22:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/88412.shtml)
+- 2026-06-29 21:49 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/36535077387.shtml)
+- 2026-06-29 21:50 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/18944.shtml)
+- 2026-06-29 22:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/164158480.shtml)

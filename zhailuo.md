@@ -1,57 +1,50 @@
-# 降糖减重只吃药就够吗？关口前移堵在哪里？内分泌科专家解析
+# 伊朗议长称敌人正寻求新一轮战争
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (记者 李纯)在本月上旬举行的美国糖尿病学会(ADA)科学年会上，一项口服小分子(非肽类)GLP-1药物的研发成果对外公布，为防控糖尿病、控制体重提供了新的选项，再次引发国际社会对相关话题的关注。 目前的糖尿病发病有何趋势？防控糖尿病关口前移堵在哪里？降糖减重只靠吃药就够了吗？对于这些话题，参加本次会议的浙江省人民医院内分泌科主任武晓泓近日接受了中新社记
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月20日电据伊朗媒体报道，伊朗伊斯兰议会议长卡利巴夫20日称，伊朗武装力量已充分利用停火机会重建自身能力。“敌人明里暗里的活动表明他们正在寻求新一轮战争”。（完）责任编辑：宋雅芳
 
 ## 正文
 
-中新网北京6月18日电 (记者 李纯)在本月上旬举行的美国糖尿病学会(ADA)科学年会上，一项口服小分子(非肽类)GLP-1药物的研发成果对外公布，为防控糖尿病、控制体重提供了新的选项，再次引发国际社会对相关话题的关注。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前的糖尿病发病有何趋势？
+新华社德黑兰5月20日电据伊朗媒体报道，伊朗伊斯兰议会议长卡利巴夫20日称，伊朗武装力量已充分利用停火机会重建自身能力。
 
-防控糖尿病关口前移堵在哪里？
+“敌人明里暗里的活动表明他们正在寻求新一轮战争”。
 
-降糖减重只靠吃药就够了吗？
-
-对于这些话题，参加本次会议的浙江省人民医院内分泌科主任武晓泓近日接受了中新社记者专访。
-
-他表示，当前业内讨论更多的话题是，在用药成功减重之后，如何保持治疗效果、防止体重反弹。
-
-能量过剩驱动的糖尿病居多 “我们刚工作的时候，糖尿病患者从体型上看，体重正常或者偏瘦的临床表型居多。
-
-”从医三十年，武晓泓指出，今天在门诊看到的糖尿病患者中，超重、肥胖人群的占比正在逐渐上升。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 21:58 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 21:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 21:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 21:42 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 22:01 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 21:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 21:43 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 21:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 21:36 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 21:58 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 21:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 21:59 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 22:11 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 22:00 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 22:07 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 22:02 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 22:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:00 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:44 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 22:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 21:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 21:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.minike.top/Article/details/0024640778.shtml)
-- 2026-06-29 21:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/0074258.shtml)
-- 2026-06-29 22:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/497837638397.shtml)
-- 2026-06-29 21:59 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/18147713956.shtml)
-- 2026-06-29 22:03 - [扬名立万](http://www.share.kurohicncr.top/Article/details/73639077.shtml)
-- 2026-06-29 21:59 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/545324998.shtml)
-- 2026-06-29 21:45 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/9271140090.shtml)
-- 2026-06-29 21:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/15736214140.shtml)
-- 2026-06-29 21:49 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/6748991523.shtml)
-- 2026-06-29 21:37 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/93205752.shtml)
-- 2026-06-29 21:46 - [女心理师](https://www.share.kurohicncr.top/Article/details/5269372.shtml)
-- 2026-06-29 21:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/4929041214.shtml)
-- 2026-06-29 21:59 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/39839268278.shtml)
-- 2026-06-29 21:47 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/0922857487.shtml)
-- 2026-06-29 21:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/334316768.shtml)
+- 2026-06-29 22:08 - [沙丘](http://www.share.kurohicncr.top/Article/details/9101915779.shtml)
+- 2026-06-29 22:04 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8586898.shtml)
+- 2026-06-29 21:51 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/032942962139.shtml)
+- 2026-06-29 21:53 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/756392297707.shtml)
+- 2026-06-29 21:51 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/5676885.shtml)
+- 2026-06-29 22:02 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/459628017946.shtml)
+- 2026-06-29 22:08 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/219373742.shtml)
+- 2026-06-29 21:50 - [明星大侦探第一季](http://www.share.minike.top/Article/details/10332.shtml)
+- 2026-06-29 21:43 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/597093052831.shtml)
+- 2026-06-29 22:06 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/3332705817.shtml)
+- 2026-06-29 21:49 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/016789943890.shtml)
+- 2026-06-29 22:11 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/99713.shtml)
+- 2026-06-29 21:59 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/77092504.shtml)
+- 2026-06-29 21:50 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/5690385381.shtml)
+- 2026-06-29 22:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/26859888374.shtml)

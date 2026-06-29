@@ -1,56 +1,56 @@
-# 浙江嘉兴开通至匈牙利布达佩斯国际货运航线
+# 中信建投期货：5月21日能化早报
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网嘉兴6月20日电(傅飞扬 朱哲熙)6月20日，一架满载服装、面料等跨境电商包裹的全货机从浙江嘉兴南湖机场起飞，经中转后飞往匈牙利布达佩斯，标志着“嘉兴—布达佩斯”国际货运航线正式开通运行。这是继“嘉兴—达卡”航线后，当地开通的第二条国际货运航线，也是嘉兴空港开通的首条欧洲方向航线。 新航线的开通，进一步完善了嘉兴航空口岸国际物流布局，为区域外贸转型升级、高水平对外开放注入
+橡胶：日内波动放大，预计下方空间有限 周三，国产全乳胶17500/吨，环比上日下跌150元/吨；泰国20号混合胶17130元/吨，环比上日下跌90元/吨。 原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收67.8泰铢/公斤，环比上日持平；云南胶水报收16.6元/公斤，环比上日持平；海南胶水报收16.7元/公斤，环比上日持平。 截至2026年5月17日，中国天然橡胶
 
 ## 正文
 
-中新网嘉兴6月20日电(傅飞扬 朱哲熙)6月20日，一架满载服装、面料等跨境电商包裹的全货机从浙江嘉兴南湖机场起飞，经中转后飞往匈牙利布达佩斯，标志着“嘉兴—布达佩斯”国际货运航线正式开通运行。
+橡胶：日内波动放大，预计下方空间有限 周三，国产全乳胶17500/吨，环比上日下跌150元/吨；泰国20号混合胶17130元/吨，环比上日下跌90元/吨。
 
-这是继“嘉兴—达卡”航线后，当地开通的第二条国际货运航线，也是嘉兴空港开通的首条欧洲方向航线。
+原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收67.8泰铢/公斤，环比上日持平；云南胶水报收16.6元/公斤，环比上日持平；海南胶水报收16.7元/公斤，环比上日持平。
 
-新航线的开通，进一步完善了嘉兴航空口岸国际物流布局，为区域外贸转型升级、高水平对外开放注入新动能。
+截至2026年5月17日，中国天然橡胶社会库存131.6万吨，环比下降1.1万吨，降幅0.8%。
 
-嘉兴空港口岸发展有限公司总经理何耀琦表示，新航线打通了嘉兴及浙北地区通往中东欧市场的直达物流链路，有效解决了以往外贸货物出口中东欧中转环节多、运输周期长、物流成本高的痛点，为本土企业开拓欧洲市场提供新的物流选择，是嘉兴机场完善国际货运网络、助力区域对外开放的重要突破。
+中国深色胶社会总库存为90.6万吨，降幅1%。
 
-为保障此次布达佩斯国际货运航线顺利首航并保持常态化稳定运行，嘉兴海关靠前服务，针对中东欧航线跨境运输特点和出口货物特性，量身定制专属监管保障方案，全面推广智能审图、机器狗巡场等数字化监管手段；开启“绿色通道”，推行全天候预约通关、预约查验等服务，持续压缩货物通关时长，降低企业物流、仓储成本。
+其中青岛现货库存降0.5%；云南降2.4%；越南10降13%；NR库存小计降3.4%。
 
-“新航线精准匹配嘉兴高端制造、跨境电商、纺织产业的出口需求，助力本地优质产品直达欧洲市场。
+中国浅色胶社会总库存为41万吨，环比降0.4%。
 
-我们围绕新航线开通的通关痛点、企业难点，打通数据壁垒，助力企业快速通关。
+其中老全乳胶环比降1%，3L环比降6%，RU库存小计增加2.7%。
 
-”嘉兴海关监管六科科长宋健说。
+观点：近期产区的天气条件或相对正常，预计割季将按照季节性顺利推进。
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 21:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 21:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 21:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 21:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 21:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 21:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 21:50 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 21:53 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 21:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 22:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 22:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 21:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 22:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 21:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 21:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 21:45 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 21:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 22:08 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/20538.shtml)
-- 2026-06-29 21:48 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/6262313192.shtml)
-- 2026-06-29 21:42 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/414114571.shtml)
-- 2026-06-29 21:39 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/521433.shtml)
-- 2026-06-29 21:42 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0480055044.shtml)
-- 2026-06-29 21:39 - [起风了](https://www.blog.kurohicncr.top/Article/details/0131330.shtml)
-- 2026-06-29 21:36 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/81688.shtml)
-- 2026-06-29 21:56 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/344699172530.shtml)
-- 2026-06-29 22:02 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/46808715.shtml)
-- 2026-06-29 21:52 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/195961538776.shtml)
-- 2026-06-29 22:05 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/947343856119.shtml)
-- 2026-06-29 21:47 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/297736766.shtml)
-- 2026-06-29 21:39 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/22315388.shtml)
-- 2026-06-29 21:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/36553.shtml)
-- 2026-06-29 21:44 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1818258.shtml)
+- 2026-06-29 21:48 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/5088048617.shtml)
+- 2026-06-29 21:58 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/0896459.shtml)
+- 2026-06-29 21:46 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/62974.shtml)
+- 2026-06-29 21:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/27256.shtml)
+- 2026-06-29 21:50 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/59848500890.shtml)
+- 2026-06-29 21:46 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/4355084524.shtml)
+- 2026-06-29 22:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/2042361.shtml)
+- 2026-06-29 22:03 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/8872629.shtml)
+- 2026-06-29 22:01 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/29339.shtml)
+- 2026-06-29 22:06 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/0273898426.shtml)
+- 2026-06-29 21:42 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/735859566.shtml)
+- 2026-06-29 21:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/2400264308.shtml)
+- 2026-06-29 21:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0973720.shtml)
+- 2026-06-29 21:52 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/483976.shtml)
+- 2026-06-29 22:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/79128.shtml)

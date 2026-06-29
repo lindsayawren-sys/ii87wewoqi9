@@ -1,57 +1,57 @@
-# Anthropic首席执行官呼吁G7领导人避免在人工智能上走向分裂
+# 2026上海国际碳中和博览会将展示可控核聚变等前沿技术
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-据知情人士称，Anthropic首席执行官达里奥·阿莫迪在七国集团峰会上告诉各国领导人，他们在推进前沿人工智能模型落地时，必须抵制出现阵营分裂的诱惑。 消息人士称，阿莫迪是在周三发表上述言论的，而且他的这一观点得到了竞争对手OpenAI首席执行官萨姆·奥特曼的支持。 阿莫迪告诉与会各国领导人，他理解各国为防止人工智能落入不法分子之手所做的努力，但各国应该团结起来。而奥特曼则强调
+中新网上海5月20日电 (杨海燕)5月20日，记者从上海市政府新闻办举行的新闻通气会上获悉，2026上海国际碳中和技术、产品与成果博览会(以下简称“上海国际碳中和博览会”)将于6月10日—12日在上海新国际博览中心举办。本届上海国际碳中和博览会聚焦“零碳变革，要素赋能”，由主题展览、系列活动、贸易对接三大板块构成，展会规模4万平方米，汇聚近300家企业。据悉，本届博览会将系统呈
 
 ## 正文
 
-据知情人士称，Anthropic首席执行官达里奥·阿莫迪在七国集团峰会上告诉各国领导人，他们在推进前沿人工智能模型落地时，必须抵制出现阵营分裂的诱惑。
+中新网上海5月20日电 (杨海燕)5月20日，记者从上海市政府新闻办举行的新闻通气会上获悉，2026上海国际碳中和技术、产品与成果博览会(以下简称“上海国际碳中和博览会”)将于6月10日—12日在上海新国际博览中心举办。
 
-消息人士称，阿莫迪是在周三发表上述言论的，而且他的这一观点得到了竞争对手OpenAI首席执行官萨姆·奥特曼的支持。
+本届上海国际碳中和博览会聚焦“零碳变革，要素赋能”，由主题展览、系列活动、贸易对接三大板块构成，展会规模4万平方米，汇聚近300家企业。
 
-阿莫迪告诉与会各国领导人，他理解各国为防止人工智能落入不法分子之手所做的努力，但各国应该团结起来。
+据悉，本届博览会将系统呈现中国在可控核聚变、数字孪生赋能降碳等颠覆性技术领域的突破，同步发布零碳园区建设地方标准、绿色供应链认证规范等制度创新成果，为全球低碳转型提供可借鉴的实践范式。
 
-而奥特曼则强调，应该向所有与会国家提供网络防御工具。
+目前，上海临港新片区零碳湾已入选首批国家级零碳园区，相关建设经验将在展会期间向全国推广。
 
-此前，美国政府上周下令要求Anthropic暂停外国公民使用其旗舰人工智能模型。
+上海市发展和改革委员会副主任朱明林介绍，作为中国首个省级碳中和主题展会，其不仅是对国内绿色低碳发展最新成果的集中检阅，更是中国向全球传递气候治理“中国方案”的重要载体。
 
-作为回应，该公司决定撤销所有用户的访问权限以确保合规。
+主题展览覆盖能源转型、低碳交通、节能增效、循环经济、低碳服务、实践探索六大板块。
 
-该公司称美国政府此举系误会。
+此外，特别展示绿色燃料、节能设备、生物质材料等一系列具有前瞻性和创新性的产品与技术。
 
-法国总统马克龙在七国集团峰会上表示，这场争端“明确了美国及其盟友的利害关系”，并警告称，如果美国“可以随时关闭该功能”，将会损害目前在人工智能竞赛中领先的美国公司。
+展会期间，将举办开幕式和四大主题活动。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 21:50 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 21:42 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 21:52 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 21:36 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 21:50 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 21:54 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 21:58 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 21:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 21:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 21:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 21:46 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 22:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 21:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 21:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 21:54 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 22:11 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 22:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 21:55 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 22:00 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 21:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/10332827727.shtml)
-- 2026-06-29 21:37 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/70557.shtml)
-- 2026-06-29 21:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/44845.shtml)
-- 2026-06-29 21:53 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/46249791895.shtml)
-- 2026-06-29 21:44 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/736884900375.shtml)
-- 2026-06-29 22:05 - [时光音乐会](https://www.share.minike.top/Article/details/56496.shtml)
-- 2026-06-29 21:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/18357067.shtml)
-- 2026-06-29 21:51 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/42879721.shtml)
-- 2026-06-29 21:57 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/957458552889.shtml)
-- 2026-06-29 21:53 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/46147.shtml)
-- 2026-06-29 21:38 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/68105866.shtml)
-- 2026-06-29 21:42 - [这一刀 会很帅](http://www.share.minike.top/Article/details/479503369994.shtml)
-- 2026-06-29 21:49 - [《贺子珍》](http://www.share.minike.top/Article/details/15942321.shtml)
-- 2026-06-29 22:01 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/98863200.shtml)
-- 2026-06-29 21:50 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/649136327005.shtml)
+- 2026-06-29 21:50 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/1909915872.shtml)
+- 2026-06-29 21:59 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/66752432.shtml)
+- 2026-06-29 22:05 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/16233649.shtml)
+- 2026-06-29 21:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/32857849.shtml)
+- 2026-06-29 21:45 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/16374855.shtml)
+- 2026-06-29 21:52 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/05193125.shtml)
+- 2026-06-29 22:06 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/524275359.shtml)
+- 2026-06-29 21:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/82247457172.shtml)
+- 2026-06-29 21:47 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/488679401214.shtml)
+- 2026-06-29 21:58 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/068634886.shtml)
+- 2026-06-29 21:58 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/193676.shtml)
+- 2026-06-29 21:51 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/77872.shtml)
+- 2026-06-29 21:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/23924.shtml)
+- 2026-06-29 21:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/23593.shtml)
+- 2026-06-29 21:55 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/9334559.shtml)

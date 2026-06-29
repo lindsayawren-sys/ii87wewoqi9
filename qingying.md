@@ -1,57 +1,57 @@
-# 福光股份：6月9日接受机构调研，深圳东方昊石私募证券基金管理有限公司、上海隆象私募基金管理有限公司等多家机构参与
+# 金融灰产“两大门派”，乔装潜入淘宝
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-证券之星消息，2026年6月18日福光股份(688010)发布公告称公司于2026年6月9日接受机构调研，深圳东方昊石私募证券基金管理有限公司毛小康、上海隆象私募基金管理有限公司贺艳锦、黄石市国鑫创业投资基金管理有限公司罗志军、福州天襄资本有限公司林炎、和信证券投资咨询股份有限公司刘博凝、财通证券股份有限公司唐佳詹小瑁、新华基金管理股份有限公司董晨阳参与。具体内容如下：问：公司
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：柒财经 近期，淘宝平台出现一批神秘商家，声称可以帮助借款人“拯救综合评分不足”，服务范围包罗各大主流借款平台，业务操作支持全新开通额度和继续提额。 据柒财经观察，提供此类服务的店铺不在少数，标价20元左右。这到底是一门什么生意？背后的卖家是果真拥有通天本领，还是只是在收智商税？ 01 个人卖家“便民劳
 
 ## 正文
 
-证券之星消息，2026年6月18日福光股份(688010)发布公告称公司于2026年6月9日接受机构调研，深圳东方昊石私募证券基金管理有限公司毛小康、上海隆象私募基金管理有限公司贺艳锦、黄石市国鑫创业投资基金管理有限公司罗志军、福州天襄资本有限公司林炎、和信证券投资咨询股份有限公司刘博凝、财通证券股份有限公司唐佳詹小瑁、新华基金管理股份有限公司董晨阳参与。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-具体内容如下：问：公司内销和外销的比例是多少？
+来源：柒财经 近期，淘宝平台出现一批神秘商家，声称可以帮助借款人“拯救综合评分不足”，服务范围包罗各大主流借款平台，业务操作支持全新开通额度和继续提额。
 
-答：2025年，公司境内营业收入4.32亿元，占营业总收入64%，境外营业收入2.44亿元，占营业总收入36%。
+据柒财经观察，提供此类服务的店铺不在少数，标价20元左右。
 
-问：公司核心技术是什么？
+这到底是一门什么生意？
 
-核心技术团队是怎么组建的？
+背后的卖家是果真拥有通天本领，还是只是在收智商税？
 
-答：序号技术名称1 大口径透射式天文观测镜头的设计与制造技术2 复杂变焦光学系统设计技术3 多光谱共口径镜头的研制生产技术4 小型化定变焦非球面镜头的设计及自动化生产技术5 精密及超精密光学加工技术公司核心技术如上表所示，技术先进性及应用情况详见公司披露的定期报告。
+01 个人卖家“便民劳务活动” 淘宝平台售卖此类店铺，都以个人名义开设，名称中大多包含“科技工作室”、“科技中心”、“网络技术服务”等字样。
 
-公司源于1958年成立的国营八四六一厂，在近半个世纪的发展历程中积累了深厚的光学技术沉淀和丰富的人才资源。
+如此设置，是为了将服务包装成“便民劳务活动”、“零星小额交易活动”，因为按照电子商务相关法律法规，“个人利用自己的技能从事依法务虚取得许可的便民劳务活动和零星小额交易活动”，可以“不需要办理市场主体登记”。
 
-2004年公司成立后在原有的基础上发展壮大，通过产学研培养人才，并加大人才引进力度，逐步建立起一支具备精湛的光学设计和加工能力的技术创新团队。
+这类服务的商品标题大同小异，基本都是市面上常见网贷品牌的简单罗列，很难看出其中的门道，部分商家会在商品图片中打上“拯救综合评分不足”等字样，但比较隐晦。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 21:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 21:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:02 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 21:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 21:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 22:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 21:40 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 21:56 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 22:01 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 21:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 21:46 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 22:06 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 22:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 22:07 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 22:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 22:06 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 21:48 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 22:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 21:49 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 21:46 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 22:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/20061.shtml)
-- 2026-06-29 21:55 - [恋与深空致歉](http://www.share.minike.top/Article/details/98273.shtml)
-- 2026-06-29 21:48 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/386780569.shtml)
-- 2026-06-29 22:00 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/1654530.shtml)
-- 2026-06-29 21:40 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/99894.shtml)
-- 2026-06-29 21:58 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/820461288.shtml)
-- 2026-06-29 21:37 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/385206030052.shtml)
-- 2026-06-29 22:03 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/830298.shtml)
-- 2026-06-29 21:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/63073293374.shtml)
-- 2026-06-29 21:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/025698.shtml)
-- 2026-06-29 21:45 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/40654.shtml)
-- 2026-06-29 22:05 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/4046778.shtml)
-- 2026-06-29 21:58 - [爱很美味](https://www.share.minike.top/Article/details/78105.shtml)
-- 2026-06-29 21:54 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/86394118026.shtml)
-- 2026-06-29 21:44 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/34501727.shtml)
+- 2026-06-29 21:44 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/406915671.shtml)
+- 2026-06-29 22:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/113304523.shtml)
+- 2026-06-29 22:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/527196774.shtml)
+- 2026-06-29 21:58 - [金刚川](https://www.share.minike.top/Article/details/465362.shtml)
+- 2026-06-29 21:58 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/121809488082.shtml)
+- 2026-06-29 22:06 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/189130240.shtml)
+- 2026-06-29 22:02 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/518769.shtml)
+- 2026-06-29 21:51 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/64670.shtml)
+- 2026-06-29 22:05 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/78242383111.shtml)
+- 2026-06-29 22:00 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/659214.shtml)
+- 2026-06-29 21:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/360765312.shtml)
+- 2026-06-29 22:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/344570300584.shtml)
+- 2026-06-29 22:04 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/408249159974.shtml)
+- 2026-06-29 21:48 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/6109200.shtml)
+- 2026-06-29 21:54 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/63028003.shtml)

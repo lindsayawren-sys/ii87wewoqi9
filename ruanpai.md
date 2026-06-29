@@ -1,49 +1,56 @@
-# 加快下达“两新”项目资金 持续释放政策效能
+# IBM获得美国政府资金支持 将投入20亿美元用于量子计算芯片项目
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。 今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。此外，今
+为强化美国在量子领域的领导地位，特朗普政府同意向IBM提供10亿美元资金，用于建设一家量子计算芯片制造工厂。 IBM周四在声明中表示，公司还将向一家名为Anderon的量子芯片生产公司投资10亿美元。 IBM股价周四盘中最高上涨10%。其他获得资助的公司股价也大幅走高。开发量子计算专用芯片的半导体企业GlobalFoundries一度上涨14%；D-Wave Quantum上涨
 
 ## 正文
 
-央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。
+为强化美国在量子领域的领导地位，特朗普政府同意向IBM提供10亿美元资金，用于建设一家量子计算芯片制造工厂。
 
-今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。
+IBM周四在声明中表示，公司还将向一家名为Anderon的量子芯片生产公司投资10亿美元。
 
-目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。
+IBM股价周四盘中最高上涨10%。
 
-此外，今年1—5月，国家已下达今年前两批消费品以旧换新资金1250亿元，已累计带动相关商品销售额超过8200亿元，惠及超过1.1亿人次。
+其他获得资助的公司股价也大幅走高。
+
+开发量子计算专用芯片的半导体企业GlobalFoundries一度上涨14%；D-Wave Quantum上涨29%，Rigetti Computing上涨28%，Infleqtion最高飙升44%。
+
+各国政府正纷纷为量子计算提供融资。
+
+这项尚处早期阶段的技术被研究人员认为有望在药物研发、计算加密标准等多个领域带来全新能力。
+
+尽管目前量子计算机主要仍用于科研，但潜在能力如果得到发挥，可能威胁国家安全，例如破解保护银行和政府数据的系统。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 21:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 22:04 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 21:40 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 21:42 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 22:03 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 21:42 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 21:42 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 21:40 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 21:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 21:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 22:11 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 21:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 22:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 22:05 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 21:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 21:49 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 21:43 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 21:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 22:06 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/5721830156.shtml)
-- 2026-06-29 21:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/21096.shtml)
-- 2026-06-29 21:37 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/59208455.shtml)
-- 2026-06-29 21:55 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/820527.shtml)
-- 2026-06-29 21:44 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/841503584167.shtml)
-- 2026-06-29 21:59 - [我们的少年时代2](http://www.blog.minike.top/Article/details/47505374.shtml)
-- 2026-06-29 21:44 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/0519929091.shtml)
-- 2026-06-29 21:36 - [速度与激情9](http://www.share.minike.top/Article/details/50050.shtml)
-- 2026-06-29 22:02 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/4606991119.shtml)
-- 2026-06-29 22:01 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/0674126466.shtml)
-- 2026-06-29 21:59 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/55860553.shtml)
-- 2026-06-29 21:57 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/7792240046.shtml)
-- 2026-06-29 21:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/414639790.shtml)
-- 2026-06-29 21:53 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/1687202.shtml)
-- 2026-06-29 21:58 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/26200347.shtml)
+- 2026-06-29 22:08 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/703937538.shtml)
+- 2026-06-29 21:43 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/744171.shtml)
+- 2026-06-29 21:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/49179980.shtml)
+- 2026-06-29 22:10 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/381976261.shtml)
+- 2026-06-29 22:11 - [周生如故](https://www.blog.kurohicncr.top/Article/details/107038635404.shtml)
+- 2026-06-29 21:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/92705434.shtml)
+- 2026-06-29 21:46 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/539185300593.shtml)
+- 2026-06-29 21:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/7768962.shtml)
+- 2026-06-29 21:49 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/6311496.shtml)
+- 2026-06-29 21:56 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/382244793.shtml)
+- 2026-06-29 22:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/082936648341.shtml)
+- 2026-06-29 21:46 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/950895228668.shtml)
+- 2026-06-29 22:02 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/24429.shtml)
+- 2026-06-29 21:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/487910.shtml)
+- 2026-06-29 21:46 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/6864177.shtml)

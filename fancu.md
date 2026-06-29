@@ -1,57 +1,61 @@
-# 《给阿嬷的情书》马来西亚公映 华社掀包场观影热潮
+# 英伟达将在新加坡设立具身AI研究实验室
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新社吉隆坡6月18日电 (刘育英 贾天文)电影《给阿嬷的情书》6月18日正式登陆马来西亚院线。公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。 电影公映当日，马来西亚中国企业家联合会在吉隆坡城中城(KLCC)TGV影院举办专场观影活动，逾百名会员参与。 马来西亚中国企业家联合会总会长李中平
+英伟达计划在新加坡设立一个AI研究实验室，这是该美国芯片制造商为推动增长而更广泛地进军自动化和机器人技术的一部分。 新加坡数字发展和资讯部长约瑟芬·张（Josephine Teo）周三表示，这个新实验室将专注于具身AI，即AI与为自动化制造和机器人提供动力的实体系统的融合。 新加坡政府在一份声明中表示，该英伟达实验室还将致力于提高AI模型的训练效率，并降低其硬件基础设施的运营成
 
 ## 正文
 
-中新社吉隆坡6月18日电 (刘育英 贾天文)电影《给阿嬷的情书》6月18日正式登陆马来西亚院线。
+英伟达计划在新加坡设立一个AI研究实验室，这是该美国芯片制造商为推动增长而更广泛地进军自动化和机器人技术的一部分。
 
-公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。
+新加坡数字发展和资讯部长约瑟芬·张（Josephine Teo）周三表示，这个新实验室将专注于具身AI，即AI与为自动化制造和机器人提供动力的实体系统的融合。
 
-电影公映当日，马来西亚中国企业家联合会在吉隆坡城中城(KLCC)TGV影院举办专场观影活动，逾百名会员参与。
+新加坡政府在一份声明中表示，该英伟达实验室还将致力于提高AI模型的训练效率，并降低其硬件基础设施的运营成本。
 
-马来西亚中国企业家联合会总会长李中平表示，影片通过家书、亲情与乡愁，再现早年华人漂洋过海南下谋生、白手起家的岁月。
+目前，英伟达在上海和台北的研究人员专注于这些领域。
 
-“影片中的家书承载着海外华人坚韧不拔、重情重义的精神，与今天在马来西亚奋斗发展的华商心境高度契合，引发共鸣。
+英伟达首席执行官黄仁勋（Jensen Huang）将AI与物理世界的互动视为该技术的下一个前沿，并押注于此来解决从制造业到医疗健康等行业的瓶颈。
 
-”李中平说。
+业内人士表示，这类应用的算力消耗可能比与聊天机器人发短信高出数万倍。
 
-本地宗乡会馆率先掀起超前包场热潮。
+与此同时，在提升此类应用背后AI模型的能力方面，实验室面临着数据短缺和其他技术障碍。
 
-马来西亚潮州公会联合会(马潮联会)牵头发起全国联动观影，全马20多个属会同步开设专场，数千名潮籍乡亲参与，多数场次安排在6月17日，较全国公映提前一日。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 21:49 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 21:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 22:05 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 21:43 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 21:46 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 21:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 22:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 21:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 21:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 21:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:47 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 22:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 21:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 21:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 21:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 22:10 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 22:10 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 21:54 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 21:55 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 22:04 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 21:56 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 22:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [沙丘](https://www.share.kurohicncr.top/Article/details/3920511318.shtml)
-- 2026-06-29 21:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/0269486.shtml)
-- 2026-06-29 21:53 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/566523.shtml)
-- 2026-06-29 21:55 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/722683.shtml)
-- 2026-06-29 21:47 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/70016861628.shtml)
-- 2026-06-29 21:45 - [天道](https://www.share.minike.top/Article/details/08746014402.shtml)
-- 2026-06-29 22:05 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/8308339495.shtml)
-- 2026-06-29 21:41 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/832172.shtml)
-- 2026-06-29 21:38 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/9767006508.shtml)
-- 2026-06-29 21:48 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/8017731385.shtml)
-- 2026-06-29 21:49 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/30618920100.shtml)
-- 2026-06-29 21:44 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/55747715538.shtml)
-- 2026-06-29 21:38 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/525456167.shtml)
-- 2026-06-29 21:41 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/015991.shtml)
-- 2026-06-29 21:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/3526451.shtml)
+- 2026-06-29 22:08 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/84568.shtml)
+- 2026-06-29 21:46 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/37869264.shtml)
+- 2026-06-29 21:59 - [青春环游记第三季](http://www.blog.minike.top/Article/details/039983068320.shtml)
+- 2026-06-29 21:50 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/419950297.shtml)
+- 2026-06-29 21:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/327459523.shtml)
+- 2026-06-29 21:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/942927784898.shtml)
+- 2026-06-29 21:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/378937.shtml)
+- 2026-06-29 21:54 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/2793730812.shtml)
+- 2026-06-29 21:48 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/9228327.shtml)
+- 2026-06-29 21:55 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/0994044.shtml)
+- 2026-06-29 21:55 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/756237968136.shtml)
+- 2026-06-29 21:55 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/76621.shtml)
+- 2026-06-29 21:58 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/7265288779.shtml)
+- 2026-06-29 22:10 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/486248.shtml)
+- 2026-06-29 22:02 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/3917781.shtml)

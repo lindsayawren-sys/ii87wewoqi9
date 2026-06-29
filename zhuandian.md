@@ -1,47 +1,59 @@
-# 贵州省人民检察院检察委员会专职委员石瑛接受纪律审查和监察调查
+# 方正富邦基金高管换防：崔建波卸任副总专心做投资，汤戈升任副总经理
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-贵州省人民检察院检察委员会专职委员石瑛涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+近日，方正富邦基金发布高级管理人员变更公告，副总经理崔建波因临近退休，卸任管理职务，专注从事投资工作。同时，公司聘任汤戈为副总经理，任职日期为2026年5月14日。 17年老将崔建波“退居二线”：卸任副总专注投资，年化回报7.51%跑赢沪深300 公开资料显示，崔建波拥有学士学位，是一位有着超过17年投资管理经验的资深老将。他曾任天津市中融投资咨询有限公司研究员、申银万国证券天
 
 ## 正文
 
-贵州省人民检察院检察委员会专职委员石瑛涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+近日，方正富邦基金发布高级管理人员变更公告，副总经理崔建波因临近退休，卸任管理职务，专注从事投资工作。
+
+同时，公司聘任汤戈为副总经理，任职日期为2026年5月14日。
+
+17年老将崔建波“退居二线”：卸任副总专注投资，年化回报7.51%跑赢沪深300 公开资料显示，崔建波拥有学士学位，是一位有着超过17年投资管理经验的资深老将。
+
+他曾任天津市中融投资咨询有限公司研究员、申银万国证券天津佟楼营业部投资经纪顾问部经理、海融资讯系统有限公司研究员、和讯信息科技有限公司证券研究员、北方国际信托股份有限公司证券投资部信托高级投资经理。
+
+之后，崔建波加入新华基金管理股份有限公司，历任权益投资部总监、副总经理兼投资总监兼基金经理。
+
+2021年12月，他加入方正富邦基金，出任公司副总裁、首席投资官、投资决策委员会副主任，并兼任权益投资部行政负责人和基金经理。
+
+截至2026年5月20日，崔建波的投资经理年限达17.25年，历任管理基金26只，在管基金6只，在管总规模9.53亿元。
+
+其过往管理偏股产品的总回报达222.45%，年化回报7.51%，跑赢了同期沪深300指数表现。
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 21:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 21:43 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 22:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 21:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 21:53 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 21:55 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 21:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 21:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 21:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 21:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 22:01 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 22:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 21:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 21:52 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 22:07 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 21:53 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 22:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 22:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 22:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 21:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 21:54 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 21:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 21:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 22:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 21:42 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 21:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 22:04 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/196630622069.shtml)
-- 2026-06-29 22:05 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/0683154561.shtml)
-- 2026-06-29 22:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/465896017184.shtml)
-- 2026-06-29 21:51 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/61040099959.shtml)
-- 2026-06-29 22:03 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/763592.shtml)
-- 2026-06-29 21:36 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/6445972.shtml)
-- 2026-06-29 21:39 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/385326062.shtml)
-- 2026-06-29 21:50 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/6055946.shtml)
-- 2026-06-29 21:57 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/77906.shtml)
-- 2026-06-29 22:01 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5216775.shtml)
-- 2026-06-29 21:50 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/395131.shtml)
-- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/173516.shtml)
-- 2026-06-29 22:05 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/2029960654.shtml)
-- 2026-06-29 22:02 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/85135527.shtml)
-- 2026-06-29 21:58 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/615224.shtml)
+- 2026-06-29 21:42 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/20280.shtml)
+- 2026-06-29 22:10 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/459584019.shtml)
+- 2026-06-29 21:47 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/94827.shtml)
+- 2026-06-29 21:42 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/737771923.shtml)
+- 2026-06-29 21:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/45610.shtml)
+- 2026-06-29 22:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/132600135.shtml)
+- 2026-06-29 22:06 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/456160.shtml)
+- 2026-06-29 22:06 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/511096348.shtml)
+- 2026-06-29 21:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/89601379609.shtml)
+- 2026-06-29 21:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/4278499.shtml)
+- 2026-06-29 21:59 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/46412171625.shtml)
+- 2026-06-29 22:03 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/55460.shtml)
+- 2026-06-29 22:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/9006751.shtml)
+- 2026-06-29 22:00 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/91498887364.shtml)
+- 2026-06-29 21:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/3450691.shtml)

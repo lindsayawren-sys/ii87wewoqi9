@@ -1,59 +1,60 @@
-# 辽宁大连-乌兰巴托航线复航
+# SpaceX正式提交IPO文件，Rocket Lab等航天股应声下跌
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网大连6月20日电 (记者 杨毅)辽宁大连往返乌兰巴托国际客运航线20日正式复航。 当日0时35分，蒙古匈奴航空MR891次航班，搭载着143名出入境旅客和机组人员，成功降落在大连周水子国际机场；1时35分，大连-乌兰巴托航班启航，116名旅客乘坐航班飞往蒙古国。 据介绍，该航线每周执飞一班，由蒙古匈奴航空执飞。为确保航班复航顺畅、快速、安全，大连周水子出入境边防检查站提前
+当地时间5月20日，太空探索公司SpaceX正式向美国证券交易委员会提交S-1上市申请文件，计划在纳斯达克上市，股票代码为SPCX。受此消息影响，商业航天竞争对手Rocket Lab股价在盘后交易中下跌约6%。 招股书披露，SpaceX此次IPO目标估值高达1.75万亿美元，计划募资约750亿美元，有望成为全球历史上规模最大的首次公开募股。承销商阵容豪华，高盛担任主承销商，摩根
 
 ## 正文
 
-中新网大连6月20日电 (记者 杨毅)辽宁大连往返乌兰巴托国际客运航线20日正式复航。
+当地时间5月20日，太空探索公司SpaceX正式向美国证券交易委员会提交S-1上市申请文件，计划在纳斯达克上市，股票代码为SPCX。
 
-当日0时35分，蒙古匈奴航空MR891次航班，搭载着143名出入境旅客和机组人员，成功降落在大连周水子国际机场；1时35分，大连-乌兰巴托航班启航，116名旅客乘坐航班飞往蒙古国。
+受此消息影响，商业航天竞争对手Rocket Lab股价在盘后交易中下跌约6%。
 
-据介绍，该航线每周执飞一班，由蒙古匈奴航空执飞。
+招股书披露，SpaceX此次IPO目标估值高达1.75万亿美元，计划募资约750亿美元，有望成为全球历史上规模最大的首次公开募股。
 
-为确保航班复航顺畅、快速、安全，大连周水子出入境边防检查站提前谋划，从勤务组织、设备维护、服务保障等方面进行全面部署，提前开足查验通道，缩短旅客候检时间。
+承销商阵容豪华，高盛担任主承销商，摩根士丹利、美国银行、花旗集团和摩根大通等投行均参与其中。
 
-复航当日恰逢中国传统端午节假期，在入境通关现场，移民管理警察为入境旅客送上粽子挂件，让远道而来的旅客在踏进国门的第一时间便感受到中华传统文化的温度与中国人民的热情。
+根据披露的时间表，SpaceX计划于6月8日启动全球路演，6月11日定价，预计6月12日正式在纳斯达克开始交易。
 
-据了解，端午节期间，大连周水子国际机场口岸预计出入境旅客1.1万余人次，日均客流同比上涨14.3%。
+本次IPO还大幅提高了散户投资者的分配比例，零售投资者最多可获得新股配售的30%。
 
-(完)
+财务数据显示，SpaceX 2025年全年营收约187亿美元，但净亏损达49亿美元，主要源于对AI基础设施的巨额投入。
+
+招股书同时披露，创始人埃隆·马斯克在IPO后将持有约85.1%的投票权，牢牢掌控公司决策权。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 21:38 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 21:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 21:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 21:46 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 21:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 21:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:53 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 21:48 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 21:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 21:59 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 21:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 21:39 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 21:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 21:57 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 21:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:02 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 22:09 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 22:05 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 21:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 22:01 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 22:10 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 21:46 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 21:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 22:00 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 22:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 21:53 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 21:49 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/12048832205.shtml)
-- 2026-06-29 21:44 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/36830057.shtml)
-- 2026-06-29 21:56 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/67591409472.shtml)
-- 2026-06-29 22:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/601126149.shtml)
-- 2026-06-29 22:01 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/162212.shtml)
-- 2026-06-29 22:04 - [王楚钦开门红](http://www.share.minike.top/Article/details/75206852.shtml)
-- 2026-06-29 21:39 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/30832401.shtml)
-- 2026-06-29 22:05 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/52154023.shtml)
-- 2026-06-29 21:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/886702097.shtml)
-- 2026-06-29 21:45 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/720182585081.shtml)
-- 2026-06-29 22:02 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/90636.shtml)
-- 2026-06-29 21:50 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/38913102390.shtml)
-- 2026-06-29 21:38 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/324641627168.shtml)
-- 2026-06-29 21:51 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/16630580745.shtml)
-- 2026-06-29 22:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/0955333475.shtml)
+- 2026-06-29 21:53 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/735375.shtml)
+- 2026-06-29 21:48 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/12995.shtml)
+- 2026-06-29 21:44 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/0482954929.shtml)
+- 2026-06-29 22:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/25715306629.shtml)
+- 2026-06-29 21:45 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/35711893514.shtml)
+- 2026-06-29 21:42 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/048772455.shtml)
+- 2026-06-29 21:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/962094.shtml)
+- 2026-06-29 21:42 - [起风了](http://www.share.kurohicncr.top/Article/details/737910.shtml)
+- 2026-06-29 22:07 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/09832993303.shtml)
+- 2026-06-29 21:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/48551662580.shtml)
+- 2026-06-29 21:46 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/119911.shtml)
+- 2026-06-29 22:05 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/559218.shtml)
+- 2026-06-29 22:10 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/562573433991.shtml)
+- 2026-06-29 21:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/741274741508.shtml)
+- 2026-06-29 21:42 - [一生一世](https://www.blog.minike.top/Article/details/55730116041.shtml)

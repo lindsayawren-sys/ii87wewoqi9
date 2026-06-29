@@ -1,46 +1,56 @@
-# 云英谷科技：稳定价格行动及稳定价格期结束
+# “75后”王芳将掌舵嘉兴银行，从副行长到拟任董事长仅用三年
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-云英谷科技（03310）发布公告，中国国际金融香港证券有限公司（作为稳定价格经办人）或代其行事的任何人士于稳定价格期内采取的稳定价格行动如下： （1）国际发售中超额分配合共792.88万股H股，相当于全球发售项下初次可供认购的发售股份总数的约15.0%（于超额配股权获行使前）；及（2）保荐人兼整体协调人（为其本身及代表国际包销商）于2026年6月18日（星期四）就合共792.8
+蓝鲸新闻5月21日讯（记者 金磊）据嘉兴银行官微，嘉兴市委常委、常务副市长颜海荣一行日前到嘉兴银行调研指导。其中，王芳以嘉兴银行党委书记、拟任董事长身份，沈旭东以该行党委副书记、拟任行长身份参加调研座谈会。这也意味着该行新的领导班子正式确立。 在此之前，嘉兴银行原党委书记、董事长林斌于去年7月被免去党委书记职务，随后辞去董事长职务。 据了解，王芳为嘉兴银行内部提拔，近几年在嘉兴
 
 ## 正文
 
-云英谷科技（03310）发布公告，中国国际金融香港证券有限公司（作为稳定价格经办人）或代其行事的任何人士于稳定价格期内采取的稳定价格行动如下： （1）国际发售中超额分配合共792.88万股H股，相当于全球发售项下初次可供认购的发售股份总数的约15.0%（于超额配股权获行使前）；及（2）保荐人兼整体协调人（为其本身及代表国际包销商）于2026年6月18日（星期四）就合共792.88万股H股（相当于全球发售项下初始可供认购的发售股份总数的约15.0%（于超额配股权获行使前）按每股H股20.81港元的价格（即全球发售项下每股H股的发售价，不包括1%经纪佣金、0.0027%证监会交易征费、0.00565%联交所交易费及0.00015%会财局交易征费）悉数行使超额配股权，以促进向已同意延迟交付彼等根据全球发售认购的相关H股的承配人交付部分H股。
+蓝鲸新闻5月21日讯（记者 金磊）据嘉兴银行官微，嘉兴市委常委、常务副市长颜海荣一行日前到嘉兴银行调研指导。
 
-于稳定价格期间，稳定价格经办人并无为稳定价格而在市场上买卖任何H股。
+其中，王芳以嘉兴银行党委书记、拟任董事长身份，沈旭东以该行党委副书记、拟任行长身份参加调研座谈会。
 
-责任编辑：卢昱君
+这也意味着该行新的领导班子正式确立。
+
+在此之前，嘉兴银行原党委书记、董事长林斌于去年7月被免去党委书记职务，随后辞去董事长职务。
+
+据了解，王芳为嘉兴银行内部提拔，近几年在嘉兴银行从副行长一路升至拟任董事长。
+
+履历显示，王芳出生于1975年3月，浙江海宁人，硕士，高级经济师，具备金融监管与地方政府双重任职背景。
+
+她曾任职央行海宁市支行、嘉兴银监分局，后历任海宁经济开发区管委会副主任、海宁市商务局局长、海盐县委常委组织部长等职。
+
+2023年9月，王芳来到嘉兴银行任党委副书记，同年11月起任副行长。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 21:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 21:38 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 21:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 22:03 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 21:36 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 21:41 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 21:44 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 21:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 21:52 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:11 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 21:56 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 22:10 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 21:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 21:43 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 21:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:59 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 21:44 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/953663.shtml)
-- 2026-06-29 21:53 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/255328.shtml)
-- 2026-06-29 21:55 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/48158256.shtml)
-- 2026-06-29 21:45 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/1443385194.shtml)
-- 2026-06-29 21:56 - [沙丘](http://www.blog.minike.top/Article/details/11490850.shtml)
-- 2026-06-29 22:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/7245097269.shtml)
-- 2026-06-29 21:48 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/3554752.shtml)
-- 2026-06-29 21:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/9640082.shtml)
-- 2026-06-29 22:01 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/43216033335.shtml)
-- 2026-06-29 21:38 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/220573583.shtml)
-- 2026-06-29 21:53 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/79802.shtml)
-- 2026-06-29 21:56 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/627149947315.shtml)
-- 2026-06-29 22:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/1260026577.shtml)
-- 2026-06-29 22:00 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/5193653567.shtml)
-- 2026-06-29 22:03 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/504927.shtml)
+- 2026-06-29 21:59 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/64605.shtml)
+- 2026-06-29 21:44 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/992570443.shtml)
+- 2026-06-29 21:42 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/0101472.shtml)
+- 2026-06-29 22:05 - [起风了](https://www.share.kurohicncr.top/Article/details/85340.shtml)
+- 2026-06-29 21:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/56568545.shtml)
+- 2026-06-29 22:00 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/274878.shtml)
+- 2026-06-29 21:43 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/428870334844.shtml)
+- 2026-06-29 21:46 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/35904025857.shtml)
+- 2026-06-29 21:47 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/2191063977.shtml)
+- 2026-06-29 21:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/0955509436.shtml)
+- 2026-06-29 22:03 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/3123949923.shtml)
+- 2026-06-29 21:44 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/64614528512.shtml)
+- 2026-06-29 22:03 - [啊啊啊](https://www.blog.minike.top/Article/details/4385991503.shtml)
+- 2026-06-29 22:10 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/6963394.shtml)
+- 2026-06-29 22:01 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/63647537.shtml)

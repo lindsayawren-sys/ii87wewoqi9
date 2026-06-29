@@ -1,61 +1,52 @@
-# 广东潮州：龙舟竞渡凝聚乡情
+# 广电运通（002152）：中标广东省农村信用社联合社采购项目，中标金额为1812.50万元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+同壁财经讯，企查查数据显示，根据《广东省农村信用社联合社盈昃云A区软件产品框架协议项目中标结果公告》，广电运通集团股份有限公司于2026年5月20日公告中标广东省农村信用社联合社采购项目，中标金额为1812.50万元。相关上市公司：广电运通(002152.SZ)同壁财经小贴士：广电运通(002152.SZ)2024年营业收入为108.66亿元，营业收入增长率为20.16%，归属
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+同壁财经讯，企查查数据显示，根据《广东省农村信用社联合社盈昃云A区软件产品框架协议项目中标结果公告》，广电运通集团股份有限公司于2026年5月20日公告中标广东省农村信用社联合社采购项目，中标金额为1812.50万元。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+相关上市公司：广电运通(002152.SZ)同壁财经小贴士：广电运通(002152.SZ)2024年营业收入为108.66亿元，营业收入增长率为20.16%，归属母公司净利润为9.20亿元，归属母公司净利润增长率为-5.84%，净资产收益率为7.49%。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+2025年上半年公司营业收入为52.75亿元，营业收入增长率为12.07%，归属母公司净利润为4.66亿元，归属母公司净利润增长率为-6.49%。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
-
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
-
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
-
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
-
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+目前公司属于信息技术行业，主要产品类型为行业专用软件、智能商用设备，2024年报主营构成为智能设备:41.03%;服务收入:40.06%;软件开发及服务:18.91%。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 21:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 21:41 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 21:52 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 21:56 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 21:47 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 21:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 21:38 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 21:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 21:46 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 21:54 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 21:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 21:42 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 21:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 21:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 21:54 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 21:57 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 22:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 22:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 21:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 22:08 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 22:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 21:50 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 21:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 22:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 22:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 21:48 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/49039.shtml)
-- 2026-06-29 21:53 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/738155384639.shtml)
-- 2026-06-29 21:39 - [东方风云榜](http://www.share.minike.top/Article/details/95784067.shtml)
-- 2026-06-29 22:01 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/02074.shtml)
-- 2026-06-29 22:03 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/2327366.shtml)
-- 2026-06-29 21:55 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/80822718.shtml)
-- 2026-06-29 21:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/50338.shtml)
-- 2026-06-29 21:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/97905036.shtml)
-- 2026-06-29 21:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0682046365.shtml)
-- 2026-06-29 21:49 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/312686012733.shtml)
-- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/6316017.shtml)
-- 2026-06-29 21:46 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/17344.shtml)
-- 2026-06-29 21:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/4557958335.shtml)
-- 2026-06-29 21:59 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/571898315203.shtml)
-- 2026-06-29 21:59 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/75233998411.shtml)
+- 2026-06-29 22:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/86125381.shtml)
+- 2026-06-29 22:04 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/1883978.shtml)
+- 2026-06-29 21:46 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/233058657.shtml)
+- 2026-06-29 21:48 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/03276366713.shtml)
+- 2026-06-29 22:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/3340813.shtml)
+- 2026-06-29 21:43 - [绘画区你赢了](http://www.share.minike.top/Article/details/6374938.shtml)
+- 2026-06-29 21:54 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/91114.shtml)
+- 2026-06-29 21:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/63024.shtml)
+- 2026-06-29 21:50 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/760807641568.shtml)
+- 2026-06-29 21:54 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/366069.shtml)
+- 2026-06-29 21:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/950702949691.shtml)
+- 2026-06-29 22:00 - [一见倾心](http://www.blog.minike.top/Article/details/88982591362.shtml)
+- 2026-06-29 21:56 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/94546617.shtml)
+- 2026-06-29 21:52 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/14627.shtml)
+- 2026-06-29 22:05 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/56222167.shtml)

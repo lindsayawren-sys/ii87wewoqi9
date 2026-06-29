@@ -1,56 +1,57 @@
-# 云南西双版纳“十五五”目标：建成面向南亚东南亚开放前沿
+# 施罗德将三只基金管理职能转移至路博迈 后续更聚焦境内参股基金管理
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月18日电 (记者 缪超)云南省“开局起步‘十五五’”主题系列新闻发布会·西双版纳专场18日在昆明召开。中共西双版纳州委副书记、州人民政府州长刀文表示，要把西双版纳从中国边疆的末梢，变成面向南亚东南亚开放的前沿。 位于中国西南边陲的云南省西双版纳傣族自治州，与缅甸、老挝接壤，毗邻南亚东南亚，是云南省唯一拥有“公水空铁”国家级口岸的州市。“十四五”时期，西双版纳州不断
+中新网上海5月20日电 (高志苗)记者20日获悉，近日，施罗德基金发布声明，其已向中国证监会提交了旗下部分公开募集证券投资基金的变更注册申请，拟将所管理的施罗德恒享债券型证券投资基金、施罗德中国动力股票型证券投资基金、施罗德添源纯债债券型证券投资基金的基金管理人由施罗德基金变更为路博迈基金。同时，路博迈基金发布提示性公告称，基金管理人变更的议案如经基金份额持有人大会审议通过，将
 
 ## 正文
 
-中新网昆明6月18日电 (记者 缪超)云南省“开局起步‘十五五’”主题系列新闻发布会·西双版纳专场18日在昆明召开。
+中新网上海5月20日电 (高志苗)记者20日获悉，近日，施罗德基金发布声明，其已向中国证监会提交了旗下部分公开募集证券投资基金的变更注册申请，拟将所管理的施罗德恒享债券型证券投资基金、施罗德中国动力股票型证券投资基金、施罗德添源纯债债券型证券投资基金的基金管理人由施罗德基金变更为路博迈基金。
 
-中共西双版纳州委副书记、州人民政府州长刀文表示，要把西双版纳从中国边疆的末梢，变成面向南亚东南亚开放的前沿。
+同时，路博迈基金发布提示性公告称，基金管理人变更的议案如经基金份额持有人大会审议通过，将同步承接相关变更基金的部分核心投资人员。
 
-位于中国西南边陲的云南省西双版纳傣族自治州，与缅甸、老挝接壤，毗邻南亚东南亚，是云南省唯一拥有“公水空铁”国家级口岸的州市。
+双方均表示，将致力于确保平稳过渡，并将基金份额持有人利益置于首位。
 
-“十四五”时期，西双版纳州不断深化与周边国家地区“硬联通、软联通、心联通”，全力构筑更深层次、更大范围的沿边开放新高地，高水平对外开放迈上新台阶。
+据了解，施罗德集团是基于自身战略调整，选择关闭施罗德基金，后续将更加聚焦境内另一家参股基金公司的管理。
 
-“十五五”时期，是西双版纳州抢抓中老铁路、澜湄合作、沿边开放等重大机遇，加快从边疆末梢迈向开放前沿的关键五年。
+作为一家全球领先的资产管理公司，施罗德集团在中国内地开展业务已超过30年，是中国金融市场双向开放的重要参与者和贡献者。
 
-该州编制了“十五五”规划纲要，明确了高质量发展、民族团结进步、生态文明建设等8个方面的定性发展目标，设置了地区生产总值、常住人口城镇化率、居民人均可支配收入等5大类22项核心定量指标，部署了14项重点任务。
+目前，施罗德集团已通过旗下多家境内持牌实体，提供了包括私募市场投资工具、公募市场基金以及银行理财产品与基金管理产品在内的广泛投资方案，并积极推动和参与双向跨境投资机制下的相关业务与合作。
 
-“从边疆末梢变成面向南亚东南亚开放的前沿，必须有完备的基础设施作为支撑。
+基于提升运营效率考虑，施罗德集团自2025年起启动为期三年的全球业务布局精简转型，旨在保持业务聚焦与提升运营效率，以更好地服务客户需求。
 
-”刀文说，“十五五”时期，西双版纳州将统筹存量和增量、境内和境外，一方面，确保机场4E级改扩建、勐海至打洛高速公路等在建重点工程按期投用。
+目前，已关闭巴西和印尼市场的资产管理业务、关闭慕尼黑的地产投资业务、出售澳大利亚的私募信贷业务等，同时重组韩国业务，重点聚焦私募领域。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 21:37 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 21:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:00 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 21:54 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 21:37 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 22:04 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 22:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 21:41 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 22:11 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 22:06 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 22:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 22:08 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:51 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 21:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 21:50 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 21:58 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 22:00 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 22:00 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/0213982200.shtml)
-- 2026-06-29 22:03 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/322938.shtml)
-- 2026-06-29 21:49 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/13898.shtml)
-- 2026-06-29 21:51 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/310281603.shtml)
-- 2026-06-29 21:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/687621307744.shtml)
-- 2026-06-29 21:51 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/09609.shtml)
-- 2026-06-29 22:03 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/319058378.shtml)
-- 2026-06-29 21:46 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/12884476285.shtml)
-- 2026-06-29 21:48 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/41175954.shtml)
-- 2026-06-29 21:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/51831072.shtml)
-- 2026-06-29 21:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/82845.shtml)
-- 2026-06-29 22:05 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/9562400747.shtml)
-- 2026-06-29 21:37 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/5445428238.shtml)
-- 2026-06-29 22:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/4631936668.shtml)
-- 2026-06-29 21:38 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/6844821741.shtml)
+- 2026-06-29 22:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/933641712.shtml)
+- 2026-06-29 22:04 - [天道](http://www.blog.minike.top/Article/details/82520.shtml)
+- 2026-06-29 21:46 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/5414781261.shtml)
+- 2026-06-29 21:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/208215475992.shtml)
+- 2026-06-29 21:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/7811964.shtml)
+- 2026-06-29 21:53 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/56647.shtml)
+- 2026-06-29 22:07 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/825016012.shtml)
+- 2026-06-29 22:10 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/35352.shtml)
+- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/422057999.shtml)
+- 2026-06-29 21:53 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/5721411.shtml)
+- 2026-06-29 21:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/74715365.shtml)
+- 2026-06-29 21:52 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/4989403.shtml)
+- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/367385.shtml)
+- 2026-06-29 21:55 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/898971.shtml)
+- 2026-06-29 22:08 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/144025157802.shtml)

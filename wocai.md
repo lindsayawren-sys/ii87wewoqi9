@@ -1,51 +1,47 @@
-# 贵州茅台：每股分红超28元，共计派发现金红利超350亿元，6月25日登记、26日发放
+# Fortior遭Temasek Holdings (Private) Limited减持2.06万股 每股作价约169.38港元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！贵州茅台（600519.SH）公告称，公司2025年年度权益分派方案已获股东大会审议通过，以总股本扣除回购专用账户股份后的1，250，081，601股为基数，每股派发现金红利28.02423元（含税），共计派发现金红利350.33亿元。股权登记日为2026年6月25日，除权（息）日及现金红利发放日为2026
+香港联交所最新资料显示，5月19日，Temasek Holdings （Private） Limited减持Fortior（01304）2.06万股，每股作价169.3835港元，总金额约为348.93万港元。减持后最新持股数目为171.43万股，最新持股比例为7.95%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新资料显示，5月19日，Temasek Holdings （Private） Limited减持Fortior（01304）2.06万股，每股作价169.3835港元，总金额约为348.93万港元。
 
-贵州茅台（600519.SH）公告称，公司2025年年度权益分派方案已获股东大会审议通过，以总股本扣除回购专用账户股份后的1，250，081，601股为基数，每股派发现金红利28.02423元（含税），共计派发现金红利350.33亿元。
+减持后最新持股数目为171.43万股，最新持股比例为7.95%。
 
-股权登记日为2026年6月25日，除权（息）日及现金红利发放日为2026年6月26日。
-
-责任编辑：常福强
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:58 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 21:55 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 21:55 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 21:55 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 21:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 21:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 21:44 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 21:42 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 21:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 21:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 21:37 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 21:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 21:59 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 21:43 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 22:08 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 21:47 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 22:04 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 21:45 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 22:08 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 21:56 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/623422494791.shtml)
-- 2026-06-29 22:00 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/981177147145.shtml)
-- 2026-06-29 22:02 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/4011190.shtml)
-- 2026-06-29 21:51 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/485580.shtml)
-- 2026-06-29 21:54 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/514115222244.shtml)
-- 2026-06-29 21:57 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/249231685706.shtml)
-- 2026-06-29 21:46 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/493531.shtml)
-- 2026-06-29 21:52 - [起风了](http://www.blog.minike.top/Article/details/6913233408.shtml)
-- 2026-06-29 22:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/46335288143.shtml)
-- 2026-06-29 21:38 - [天道](https://www.blog.kurohicncr.top/Article/details/8612544.shtml)
-- 2026-06-29 21:37 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/35531434.shtml)
-- 2026-06-29 21:50 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/06943.shtml)
-- 2026-06-29 21:50 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/211147388.shtml)
-- 2026-06-29 22:02 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/2691486747.shtml)
-- 2026-06-29 21:53 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/995499627.shtml)
+- 2026-06-29 22:00 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/919969951291.shtml)
+- 2026-06-29 22:00 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/5557569.shtml)
+- 2026-06-29 22:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/34608109468.shtml)
+- 2026-06-29 21:47 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/417813966232.shtml)
+- 2026-06-29 22:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/29253439.shtml)
+- 2026-06-29 21:49 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/215828.shtml)
+- 2026-06-29 22:11 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/82042217.shtml)
+- 2026-06-29 21:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/671405102.shtml)
+- 2026-06-29 21:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/179228927.shtml)
+- 2026-06-29 22:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/2069824335.shtml)
+- 2026-06-29 21:50 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/910802.shtml)
+- 2026-06-29 22:04 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/077627044.shtml)
+- 2026-06-29 21:58 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/42711.shtml)
+- 2026-06-29 21:46 - [TOP Prada](https://www.share.minike.top/Article/details/83784.shtml)
+- 2026-06-29 22:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/430037.shtml)

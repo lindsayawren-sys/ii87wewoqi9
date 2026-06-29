@@ -1,57 +1,61 @@
-# （美加墨世界杯）马宁的一声哨响，中国足球的另一种抵达
+# 洁丽雅晒老板出生证自证，都是短剧惹的祸？
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月21日电 题：马宁的一声哨响，中国足球的另一种抵达 中新网记者 国璇 邢翀 当地时间6月20日，在美国堪萨斯城体育场，世界杯新军库拉索队以0:0战平南美劲旅厄瓜多尔，拿到队史世界杯第一分。 没有传统豪门、没有巨星压阵，这场小组赛却因一声来自中国裁判的哨响，引起外界格外关注：马宁担任主裁判，周飞担任助理裁判，傅明担任视频助理裁判员(VAR)。这是世界杯正赛史上首次由
+中新网5月20日电(记者 左雨晴) 从自媒体猜测“父子同娶姐妹”“嫡长子被排挤”，到当事方向公安机关报案并晒DNA鉴定报告等一系列材料自证，老牌国货洁丽雅在不到一周的时间里，成为网上的热门话题。 而这一切，都要从一张合照和一部短剧说起。 一张合照引发“豪门内斗”猜想 2026年5月，在毛巾品牌洁丽雅40周年庆典的舞台上，创始人石昌佳携家族成员同台庆贺，长子石磊(集团董事长)、次
 
 ## 正文
 
-中新网北京6月21日电 题：马宁的一声哨响，中国足球的另一种抵达 中新网记者 国璇 邢翀 当地时间6月20日，在美国堪萨斯城体育场，世界杯新军库拉索队以0:0战平南美劲旅厄瓜多尔，拿到队史世界杯第一分。
+中新网5月20日电(记者 左雨晴) 从自媒体猜测“父子同娶姐妹”“嫡长子被排挤”，到当事方向公安机关报案并晒DNA鉴定报告等一系列材料自证，老牌国货洁丽雅在不到一周的时间里，成为网上的热门话题。
 
-没有传统豪门、没有巨星压阵，这场小组赛却因一声来自中国裁判的哨响，引起外界格外关注：马宁担任主裁判，周飞担任助理裁判，傅明担任视频助理裁判员(VAR)。
+而这一切，都要从一张合照和一部短剧说起。
 
-这是世界杯正赛史上首次由中国裁判覆盖三大执裁核心岗位，中国裁判实现全建制登场。
+一张合照引发“豪门内斗”猜想 2026年5月，在毛巾品牌洁丽雅40周年庆典的舞台上，创始人石昌佳携家族成员同台庆贺，长子石磊(集团董事长)、次子石晶(集团总裁)、长孙石展承等齐聚一堂，定格下一张家族大合影。
 
-这也是马宁第一次以主裁判身份站上世界杯赛场。
+然而，正是这张照片，意外引爆了舆论场。
 
-有网友说：“别人欣赏球员，我们欣赏裁判。
+不少网友注意到，此前凭借短剧《毛巾帝国》爆火的“毛巾少爷”石展承，在家族图谱中似乎并未站到“C位”，且石昌佳配偶章晓梅、石磊配偶章晓燕名字相似，一时间，“石昌佳父子同娶章氏姐妹”“石晶为私生子”“嫡长孙石展承被边缘化”等传闻甚嚣尘上。
 
-”一句调侃，道出了中国球迷复杂又真切的情绪。
+5月18日晚，洁丽雅发布声明称：近日，网络上出现关于洁丽雅家居股份有限公司董事长及其家属的谣言，已经对洁丽雅正常经营秩序造成恶劣影响，也对相关当事人个人名誉造成严重伤害。
 
-当中国队仍在追逐世界杯梦想时，马宁和他领衔的中国裁判团队，用另一种方式抵达这片最高舞台。
+公司已就此事向公安机关报案。
 
-经得住检验的主裁首秀 足球场上，裁判不是主角，却掌握着比赛的秩序。
+洁丽雅公开的诸暨市公安局陶朱派出所《接报回执》显示，其报案内容为：“2026年5月18日14时许，我所接到章某梅报警称，其在网上看到有人恶意传谣称其和其继子石磊的现任妻子章某燕为姐妹或堂姐妹关系，另有人传谣其与丈夫石昌佳所生的儿子石晶为私生子，导致广大网民被误导并大量传播，对其个人名誉造成严重损害，要求公安机关查处。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 21:49 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 21:39 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 21:38 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 21:52 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 21:51 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 21:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 21:41 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 21:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 21:57 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 21:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 21:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 22:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 21:48 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 22:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 22:03 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 22:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:54 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 21:54 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 21:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 22:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 22:08 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 22:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 21:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 21:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 21:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [急先锋](https://www.blog.minike.top/Article/details/8068733.shtml)
-- 2026-06-29 21:46 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/270671015482.shtml)
-- 2026-06-29 21:59 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/27326593341.shtml)
-- 2026-06-29 22:02 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/357497.shtml)
-- 2026-06-29 21:55 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/5068117.shtml)
-- 2026-06-29 21:47 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/437139.shtml)
-- 2026-06-29 21:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/15331278202.shtml)
-- 2026-06-29 22:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/705905899.shtml)
-- 2026-06-29 21:49 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/8339817.shtml)
-- 2026-06-29 21:49 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/573204381879.shtml)
-- 2026-06-29 21:38 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/669432870.shtml)
-- 2026-06-29 21:37 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/75900627092.shtml)
-- 2026-06-29 21:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9348759.shtml)
-- 2026-06-29 21:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/02827.shtml)
-- 2026-06-29 21:59 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/750637297.shtml)
+- 2026-06-29 22:01 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/153431766.shtml)
+- 2026-06-29 22:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/060340.shtml)
+- 2026-06-29 21:58 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/66089.shtml)
+- 2026-06-29 21:51 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/9466391244.shtml)
+- 2026-06-29 22:05 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/2089898585.shtml)
+- 2026-06-29 21:46 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/7378859.shtml)
+- 2026-06-29 21:53 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/070465.shtml)
+- 2026-06-29 21:53 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/425144552030.shtml)
+- 2026-06-29 22:11 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/731979.shtml)
+- 2026-06-29 22:00 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/45005477238.shtml)
+- 2026-06-29 21:57 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/57314.shtml)
+- 2026-06-29 21:59 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/9490683252.shtml)
+- 2026-06-29 21:55 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/5713806.shtml)
+- 2026-06-29 21:42 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/97114659914.shtml)
+- 2026-06-29 21:55 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/89948.shtml)

@@ -1,46 +1,59 @@
-# 平安电工：公司正通过成本管控、客户结构优化等方式应对行业周期压力
+# 印度总理赠礼引发资本市场乌龙 一软件企业股价异动上涨
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，平安电工在互动平台回答投资者提问时表示，目前国内新能源车销量增速放缓，各车企持续极限降本，不断压缩上游零组件采购价格，公司新能源热失控安全防护件业务当前面临一定压力，公司正通过成本管控、客户结构优化等方式应对行业周期压力，经营详情请关注公司定期报告。（文章来源：证券日报）
+受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。 据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。视频画面显示，莫迪向其赠送了一包名为“Melody”的焦
 
 ## 正文
 
-证券日报网讯 6月18日，平安电工在互动平台回答投资者提问时表示，目前国内新能源车销量增速放缓，各车企持续极限降本，不断压缩上游零组件采购价格，公司新能源热失控安全防护件业务当前面临一定压力，公司正通过成本管控、客户结构优化等方式应对行业周期压力，经营详情请关注公司定期报告。
+受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。
 
-（文章来源：证券日报）
+因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。
+
+据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。
+
+视频画面显示，莫迪向其赠送了一包名为“Melody”的焦糖太妃糖。
+
+该互动引发网络关注后，部分印度投资者误将从事软件业务的上市企业Parle Industries Ltd，等同于该糖果及知名饼干品牌的实际生产商Parle Products Pvt，进而引发了此次脱离企业基本面的异动上涨。
+
+针对此次市场炒作，相关金融分析人士指出，这显然是一起因身份错认导致的非理性交易行为。
+
+Kejriwal研究与投资服务公司创始人阿伦·凯杰里瓦尔（Arun Kejriwal）强调，当前印度资本市场中散户参与度持续攀升，中小投资者已成为一股重要力量，但由于缺乏专业的甄别能力，大量投资者仍极易受碎片化或错误信息误导，进而盲目跟风引发市场波动。
+
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 22:01 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:46 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:55 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 21:36 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 21:50 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 21:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 21:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 21:59 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 21:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 21:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 21:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 21:59 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 21:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 22:02 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 21:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 21:59 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 21:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 21:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 22:10 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 22:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 21:51 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 21:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 22:00 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 21:51 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/18839588389.shtml)
-- 2026-06-29 21:52 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/47644608.shtml)
-- 2026-06-29 21:42 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/59600422131.shtml)
-- 2026-06-29 21:59 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/17296.shtml)
-- 2026-06-29 21:47 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/97609330.shtml)
-- 2026-06-29 21:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/2765694.shtml)
-- 2026-06-29 21:57 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/644267854.shtml)
-- 2026-06-29 22:05 - [时光音乐会](http://www.share.minike.top/Article/details/082296156002.shtml)
-- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/7172764419.shtml)
-- 2026-06-29 21:53 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/11916.shtml)
-- 2026-06-29 22:00 - [东方风云榜直播](http://www.blog.minike.top/Article/details/04136385.shtml)
-- 2026-06-29 21:56 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/724510799263.shtml)
-- 2026-06-29 21:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/422114.shtml)
-- 2026-06-29 22:02 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/53486375320.shtml)
-- 2026-06-29 21:43 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/071036.shtml)
+- 2026-06-29 22:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/944993007.shtml)
+- 2026-06-29 22:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/940095552294.shtml)
+- 2026-06-29 21:45 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/23047325.shtml)
+- 2026-06-29 22:09 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/27257.shtml)
+- 2026-06-29 21:46 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/82556417485.shtml)
+- 2026-06-29 22:06 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/092188.shtml)
+- 2026-06-29 22:00 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/8490217510.shtml)
+- 2026-06-29 22:11 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/4946362157.shtml)
+- 2026-06-29 21:42 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/674181725.shtml)
+- 2026-06-29 21:45 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/264072.shtml)
+- 2026-06-29 22:02 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/94858607958.shtml)
+- 2026-06-29 21:43 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/267545638136.shtml)
+- 2026-06-29 21:52 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/491232.shtml)
+- 2026-06-29 22:09 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/93329504196.shtml)
+- 2026-06-29 21:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/829756284636.shtml)

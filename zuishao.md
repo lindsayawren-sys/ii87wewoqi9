@@ -1,55 +1,59 @@
-# 安徽省亳州市人民政府原党组成员、副市长薛冰被“双开”
+# 懂爱才更会爱 近八成受访大学生对恋爱课感兴趣
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月18日电 日前，经中共安徽省委批准，安徽省纪委监委对亳州市人民政府原党组成员、副市长薛冰严重违纪违法问题进行了立案审查调查。 经查，薛冰丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；无视中央八项规定精神，违规收受礼品、消费卡；违背组织原则，在组织函询时不如实说明问题；利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。 薛冰严重
+恋爱是青春里的一个重要课题，但如何正确认识爱、表达爱、经营爱，是不少年轻人的现实困惑。为回应青年需求，越来越多高校开设了恋爱课，课程热度也很高。大学生希望提升哪些恋爱能力？他们对恋爱课有哪些期待？中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1341名在校大学生进行的一项调查显示，77.7%的受访大学生对恋爱课感兴趣。谈及对恋爱课的期待，63.9%的受访大学生
 
 ## 正文
 
-中新网合肥6月18日电 日前，经中共安徽省委批准，安徽省纪委监委对亳州市人民政府原党组成员、副市长薛冰严重违纪违法问题进行了立案审查调查。
+恋爱是青春里的一个重要课题，但如何正确认识爱、表达爱、经营爱，是不少年轻人的现实困惑。
 
-经查，薛冰丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；无视中央八项规定精神，违规收受礼品、消费卡；违背组织原则，在组织函询时不如实说明问题；利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。
+为回应青年需求，越来越多高校开设了恋爱课，课程热度也很高。
 
-薛冰严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+大学生希望提升哪些恋爱能力？
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予薛冰开除党籍处分；由安徽省监委给予其开除公职处分；终止其亳州市第五次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+他们对恋爱课有哪些期待？
 
-(完)
+中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1341名在校大学生进行的一项调查显示，77.7%的受访大学生对恋爱课感兴趣。
+
+谈及对恋爱课的期待，63.9%的受访大学生希望学到如何恰当地沟通与交流，60.9%的受访大学生希望学习情绪管理与共情能力。
+
+受访大学生：恋爱课火爆，常被“一抢而空” 北京一所高校艺术类专业研一学生乔欣然介绍，学校的恋爱选修课很受欢迎，经常是选课系统一开放名额，课程便被“一抢而空”。
+
+“我是大三那年抢到的名额，每节课都座无虚席，还有不少同学来蹭课。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 21:57 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 21:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 22:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 21:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 21:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 21:56 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 21:53 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 21:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 21:49 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 21:58 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 21:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 22:00 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 21:42 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 21:52 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 22:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 21:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 21:53 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 22:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:52 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 22:11 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 21:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 21:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 21:51 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 22:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 21:45 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/5693242.shtml)
-- 2026-06-29 21:49 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/960070.shtml)
-- 2026-06-29 22:00 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/89217.shtml)
-- 2026-06-29 21:36 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/0858964.shtml)
-- 2026-06-29 21:47 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/706342249863.shtml)
-- 2026-06-29 21:53 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/134532033.shtml)
-- 2026-06-29 21:57 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/160863513159.shtml)
-- 2026-06-29 21:58 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/026831035038.shtml)
-- 2026-06-29 21:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/59808.shtml)
-- 2026-06-29 21:50 - [送你一朵小红花](http://www.share.minike.top/Article/details/06945245.shtml)
-- 2026-06-29 21:45 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/784662.shtml)
-- 2026-06-29 21:40 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/728694.shtml)
-- 2026-06-29 21:50 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/19244855065.shtml)
-- 2026-06-29 21:37 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/182035732.shtml)
-- 2026-06-29 21:53 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/0192276.shtml)
+- 2026-06-29 21:59 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/136987764.shtml)
+- 2026-06-29 22:12 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/79027573424.shtml)
+- 2026-06-29 22:05 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/33928913521.shtml)
+- 2026-06-29 21:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/2375369.shtml)
+- 2026-06-29 22:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/654358792.shtml)
+- 2026-06-29 21:43 - [乔家的儿女](http://www.share.minike.top/Article/details/825169.shtml)
+- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/554803447.shtml)
+- 2026-06-29 22:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/608286480844.shtml)
+- 2026-06-29 22:03 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/458084.shtml)
+- 2026-06-29 21:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/4875415879.shtml)
+- 2026-06-29 22:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/703281947149.shtml)
+- 2026-06-29 22:09 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/621404712732.shtml)
+- 2026-06-29 21:50 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/6946202.shtml)
+- 2026-06-29 22:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/33680792.shtml)
+- 2026-06-29 22:03 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/2011210.shtml)

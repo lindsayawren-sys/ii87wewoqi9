@@ -1,56 +1,51 @@
-# 尼泊尔古城巴德岗举行国际瑜伽日活动
+# A股三大指数集体翻绿，近3800只个股下跌
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+21日，A股三大指数高开，随后冲高回落，午后集体翻绿。截至发稿，沪指跌0.48%，深证成指跌0.05%，创业板指跌0.04%。全市近3800只个股下跌。 板块方面，汽车、海运、券商等板块领涨，通信设备、互联网、电信、煤炭、能源设备等领跌。
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+21日，A股三大指数高开，随后冲高回落，午后集体翻绿。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+截至发稿，沪指跌0.48%，深证成指跌0.05%，创业板指跌0.04%。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+全市近3800只个股下跌。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
-
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
-
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
-
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
-
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+板块方面，汽车、海运、券商等板块领涨，通信设备、互联网、电信、煤炭、能源设备等领跌。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 22:00 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 21:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 21:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 22:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 21:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 21:54 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:56 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 22:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 22:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 22:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 21:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 21:45 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 21:58 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 21:56 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 21:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 22:09 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 21:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:53 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 21:58 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 21:50 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/293457.shtml)
-- 2026-06-29 21:43 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/63738.shtml)
-- 2026-06-29 21:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/45420545901.shtml)
-- 2026-06-29 21:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/922759.shtml)
-- 2026-06-29 21:45 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/0475844763.shtml)
-- 2026-06-29 21:37 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/28139.shtml)
-- 2026-06-29 22:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/36256046637.shtml)
-- 2026-06-29 21:36 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/206693422649.shtml)
-- 2026-06-29 21:49 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/155361565622.shtml)
-- 2026-06-29 21:36 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/608878571.shtml)
-- 2026-06-29 21:43 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/60295510313.shtml)
-- 2026-06-29 21:45 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/910523294.shtml)
-- 2026-06-29 21:39 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/93102.shtml)
-- 2026-06-29 21:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/32962878660.shtml)
-- 2026-06-29 22:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/1528808035.shtml)
+- 2026-06-29 22:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/195889635.shtml)
+- 2026-06-29 22:11 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/5960881.shtml)
+- 2026-06-29 21:50 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/3949809320.shtml)
+- 2026-06-29 21:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/1570697161.shtml)
+- 2026-06-29 22:09 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/2639845.shtml)
+- 2026-06-29 21:46 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/28972512213.shtml)
+- 2026-06-29 21:46 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/100912370.shtml)
+- 2026-06-29 21:52 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/8024550.shtml)
+- 2026-06-29 21:52 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/68246.shtml)
+- 2026-06-29 21:46 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/825702070622.shtml)
+- 2026-06-29 21:55 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/0555558868.shtml)
+- 2026-06-29 22:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/134893456.shtml)
+- 2026-06-29 22:01 - [明星大侦探第四季](https://www.share.minike.top/Article/details/37669906.shtml)
+- 2026-06-29 22:11 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/37882726.shtml)
+- 2026-06-29 22:04 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/48402650.shtml)

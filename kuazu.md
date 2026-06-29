@@ -1,56 +1,52 @@
-# 江西篁岭端午焕活民俗灯彩 “仙鹤”翩跹点亮古村夜
+# 数字化赋能柑橘“抢鲜” 三峡库区柑橘分拣忙
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网上饶6月20日电 (熊锦阳 周菲菲)6月20日，江西省上饶市婺源县篁岭古村内满是粽叶与艾草的清香。入夜后，粉墙黛瓦间灯影流转，传承百年的仙鹤灯让游客在徽派古村的烟火气中感受民俗文脉。 作为婺源当地流传百年的特色民俗灯彩，仙鹤灯已成为篁岭端午假期期间最具辨识度的文化符号。灯身以竹篾扎骨、棉纸糊面，匠人手工彩绘仙鹤羽翼，内置烛火，入夜后通体透亮。表演者以扁担架起双鹤，脚步腾挪
+发布时间：2026年05月20日 20:12 来源：中国新闻网 5月20日，位于三峡库区的重庆(忠县)现代农业柑橘产业园的柑橘分拣车间内，机声隆隆，工人们正在进行柑橘分拣、打包、堆垛等作业。这是全国最大的单体柑橘智能分拣车间，分拣线通过数字化光电、无损检测、糖度与色泽分级等进行柑橘分拣作业，日处理鲜果超千吨。 忠县享有“中国柑橘城”美誉，柑橘种植面积达36.5万亩，已建成全国最
 
 ## 正文
 
-中新网上饶6月20日电 (熊锦阳 周菲菲)6月20日，江西省上饶市婺源县篁岭古村内满是粽叶与艾草的清香。
+发布时间：2026年05月20日 20:12 来源：中国新闻网 5月20日，位于三峡库区的重庆(忠县)现代农业柑橘产业园的柑橘分拣车间内，机声隆隆，工人们正在进行柑橘分拣、打包、堆垛等作业。
 
-入夜后，粉墙黛瓦间灯影流转，传承百年的仙鹤灯让游客在徽派古村的烟火气中感受民俗文脉。
+这是全国最大的单体柑橘智能分拣车间，分拣线通过数字化光电、无损检测、糖度与色泽分级等进行柑橘分拣作业，日处理鲜果超千吨。
 
-作为婺源当地流传百年的特色民俗灯彩，仙鹤灯已成为篁岭端午假期期间最具辨识度的文化符号。
+忠县享有“中国柑橘城”美誉，柑橘种植面积达36.5万亩，已建成全国最大的NFC(非浓缩还原汁)橙汁加工中心和单体柑橘智能分拣车间，柑橘鲜果和NFC橙汁远销英国、日本、新加坡等30多个国家和地区。
 
-灯身以竹篾扎骨、棉纸糊面，匠人手工彩绘仙鹤羽翼，内置烛火，入夜后通体透亮。
+依托“长江上中游柑橘优势带”核心区的天然地理优势，忠县正构建从“一粒种子”到“一杯橙汁”再到“吃干榨尽”的全链条体系。
 
-表演者以扁担架起双鹤，脚步腾挪间，纸鹤随扁担上下起伏翩跹起舞，翅羽舒展仿若踏云而行，引得围观游人阵阵喝彩。
-
-“婺源舞仙鹤灯是祖辈传下来的习俗，借仙鹤祥瑞之意，祈愿端午安康、四季平安。
-
-”仙鹤灯表演者汪宣烈介绍，这门灯彩技艺在婺源代代相传，从艺数十年来，他始终坚持古法扎制，一盏仙鹤灯从破竹、搭架到糊纸、彩绘，全靠手工完成。
-
-“很高兴能在篁岭把仙鹤灯展示给五湖四海的游客，也希望更多年轻人能喜欢上仙鹤灯，感受婺源的乡土文脉。
+(陈媛 景诗雁） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 21:40 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 21:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 22:01 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 21:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 22:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 21:38 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 21:46 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 22:00 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 22:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 21:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 21:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 22:06 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 21:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 21:47 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 22:11 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 22:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 22:02 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 22:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 22:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 22:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 21:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/9424538.shtml)
-- 2026-06-29 21:53 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/41720134.shtml)
-- 2026-06-29 21:42 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/53308519.shtml)
-- 2026-06-29 21:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3977883308.shtml)
-- 2026-06-29 22:01 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/450720293419.shtml)
-- 2026-06-29 22:02 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/369534177.shtml)
-- 2026-06-29 21:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/3700655428.shtml)
-- 2026-06-29 21:43 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/94109448166.shtml)
-- 2026-06-29 22:05 - [逃狱兄弟](https://www.share.minike.top/Article/details/674311.shtml)
-- 2026-06-29 21:42 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/9246191541.shtml)
-- 2026-06-29 21:56 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/83723.shtml)
-- 2026-06-29 22:02 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/83573637235.shtml)
-- 2026-06-29 21:46 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/818213910103.shtml)
-- 2026-06-29 22:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/048556438697.shtml)
-- 2026-06-29 21:42 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/43887554.shtml)
+- 2026-06-29 22:08 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/202203827435.shtml)
+- 2026-06-29 21:49 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/52580881723.shtml)
+- 2026-06-29 21:56 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/8895817.shtml)
+- 2026-06-29 22:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/06931458638.shtml)
+- 2026-06-29 21:47 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/419212026970.shtml)
+- 2026-06-29 21:48 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/01205267.shtml)
+- 2026-06-29 22:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/1391438.shtml)
+- 2026-06-29 21:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/8246564.shtml)
+- 2026-06-29 21:58 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/492683.shtml)
+- 2026-06-29 21:45 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/218015.shtml)
+- 2026-06-29 21:48 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/96246798628.shtml)
+- 2026-06-29 21:47 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/4261132.shtml)
+- 2026-06-29 22:11 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/95118249.shtml)
+- 2026-06-29 21:52 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/607497615.shtml)
+- 2026-06-29 21:43 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/0190387.shtml)

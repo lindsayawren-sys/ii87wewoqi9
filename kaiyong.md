@@ -1,61 +1,61 @@
-# 国家防总：未来三天贵州、湖南等地暴雨致灾风险高 需加强防范
+# 冲刺纳斯达克上市之际，太空探索技术公司业绩高度依赖星链
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 据应急管理部微信公众号消息，6月21日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门联合会商，研判近期降雨趋势和汛情形势，研究部署重点地区防汛工作。会商指出，珠江流域柳江发生2026年主要江河第1号洪水，为今年主要江河首次编号洪水。6月21日至26日，西南地区东部和南部、江汉、江淮、江南、华南西部等地将有
+核心要点 埃隆・马斯克旗下的太空探索技术公司以可回收火箭著称，今年该企业并购人工智能企业 xAI、高调入局人工智能领域，频频登上新闻头条。在筹备大规模首次公开募股、向投资者推介业务的过程中，星链业务的增长与盈利规模远超其他所有板块。 公司于周三发布筹备已久的招股说明书，数据显示，以星链为核心的互联业务去年营收达 113.9 亿美元，占企业总销售额的 61%；今年一季度该营收占比
 
 ## 正文
 
-中新网6月21日电 据应急管理部微信公众号消息，6月21日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门联合会商，研判近期降雨趋势和汛情形势，研究部署重点地区防汛工作。
+核心要点 埃隆・马斯克旗下的太空探索技术公司以可回收火箭著称，今年该企业并购人工智能企业 xAI、高调入局人工智能领域，频频登上新闻头条。
 
-会商指出，珠江流域柳江发生2026年主要江河第1号洪水，为今年主要江河首次编号洪水。
+在筹备大规模首次公开募股、向投资者推介业务的过程中，星链业务的增长与盈利规模远超其他所有板块。
 
-6月21日至26日，西南地区东部和南部、江汉、江淮、江南、华南西部等地将有大到暴雨，局地特大暴雨。
+公司于周三发布筹备已久的招股说明书，数据显示，以星链为核心的互联业务去年营收达 113.9 亿美元，占企业总销售额的 61%；今年一季度该营收占比进一步攀升至 69%。
 
-未来三天，贵州、湖北、湖南、安徽等地暴雨致灾风险高，需加强防范持续强降雨可能引发的山洪、地质灾害、中小河流洪水和城市内涝。
+同时，星链也是公司的盈利核心，去年是唯一实现盈利的业务部门，利润达 44.2 亿美元。
 
-会商强调，要加强监测预报和预警响应联动，加密监测、滚动预报、提早预警，前移工作关口，及时启动调整应急响应，视情果断采取关停管控等刚性措施。
+承接美国航空航天局、美国国防部订单的航天发射业务亏损 6.57 亿美元，人工智能业务亏损更是高达 63.5 亿美元。
 
-要突出抓好山洪地质灾害和中小河流洪水防御，动态调整山洪、地质灾害预警阈值，提前组织危险区域人员转移避险，重点关注旅游景区、民宿农家乐、涉水项目、漫水路桥等风险点，进一步压实“五个关键环节”，按照“四个一律”要求，做到提前转、梯次转、白天转、扩面转。
+星链依靠上万颗部署在距地表 1200 英里范围内的近地轨道卫星组网，提供全球高速网络服务。
 
-要做好防洪工程巡查防守和重点在建工程安全度汛，预置抢险救援力量，重点关注超警堤段、险工险段、中小水库、重点山塘、淤地坝，坚持巡查防守，排查整治风险隐患。
+自 2019 年首批卫星升空后，星链一跃成为太空互联网行业领头羊，服务现已覆盖七大洲、160 余个国家和地区。
 
-做好城市内涝和农田渍涝防范应对工作。
+身为全球首富的马斯克怀揣火星殖民愿景，还设置了高额股权激励方案以推动目标落地。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 22:00 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 21:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 22:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 21:50 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 21:43 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 21:44 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 21:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 21:37 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 21:48 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 22:04 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 22:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 21:43 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 21:54 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 21:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 22:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 21:49 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 21:50 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 22:11 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 22:06 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 22:11 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 21:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 21:55 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 22:02 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 21:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 21:48 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 22:05 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 21:59 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/81347418.shtml)
-- 2026-06-29 21:37 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/1768843212.shtml)
-- 2026-06-29 21:54 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/2071132.shtml)
-- 2026-06-29 21:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/23563.shtml)
-- 2026-06-29 21:59 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/79704695.shtml)
-- 2026-06-29 21:55 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/604356805090.shtml)
-- 2026-06-29 22:05 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/85138967963.shtml)
-- 2026-06-29 21:56 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/39103.shtml)
-- 2026-06-29 21:52 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/957957189203.shtml)
-- 2026-06-29 21:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/50232.shtml)
-- 2026-06-29 21:52 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/1526141.shtml)
-- 2026-06-29 21:37 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/5369837.shtml)
-- 2026-06-29 21:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/801102808.shtml)
-- 2026-06-29 21:38 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/39220089.shtml)
-- 2026-06-29 21:55 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/673123076730.shtml)
+- 2026-06-29 22:00 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/35254.shtml)
+- 2026-06-29 21:44 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/24395.shtml)
+- 2026-06-29 21:54 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/0277708267.shtml)
+- 2026-06-29 22:08 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/0573685166.shtml)
+- 2026-06-29 21:55 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/211990.shtml)
+- 2026-06-29 22:11 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/479168.shtml)
+- 2026-06-29 22:05 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/577436.shtml)
+- 2026-06-29 21:58 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/17976814075.shtml)
+- 2026-06-29 22:04 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/722731632.shtml)
+- 2026-06-29 22:11 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/280169216808.shtml)
+- 2026-06-29 22:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/37238477786.shtml)
+- 2026-06-29 22:04 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/274132003.shtml)
+- 2026-06-29 22:04 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/38705.shtml)
+- 2026-06-29 22:11 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/35991455253.shtml)
+- 2026-06-29 22:09 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/8614048.shtml)

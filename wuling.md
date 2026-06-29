@@ -1,59 +1,56 @@
-# 民企奋进自贸港：让“智能房屋”落地出海
+# 金融科技公司Mercury完成新一轮融资，估值达52亿美元，14个月内大涨49%
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网海口6月19日电 题：民企奋进自贸港：让“智能房屋”落地出海 中新网记者 张茜翼 一间房屋，能否像生命体一样拥有“安全骨骼”“健康心肺”与“神经网络”？18日在海口落幕的2026全国民营企业绿色发展大会上，中国民间商会副会长、合肥荣事达电子电器集团有限公司董事长潘保春给出的答案是肯定的。 他将这一构想具象为“可移动的智慧生命体”，并计划将其率先在海南自贸港落地生根。 从家
+核心要点 美国消费者新闻与商业频道独家获悉，Mercury 本轮募资 2 亿美元，投后估值 52 亿美元，较上一轮融资估值上涨 49%；本轮融资由 TCV 领投，红杉资本、安德森・霍洛维茨基金、库图资本跟投。 就在此次融资数周前，Mercury 已获得美国货币监理署的附条件批准，可转型为受联邦监管的正规银行。获批后公司可自主开展放贷业务、接入泽勒即时支付系统，并减少对合作银行的
 
 ## 正文
 
-中新网海口6月19日电 题：民企奋进自贸港：让“智能房屋”落地出海 中新网记者 张茜翼 一间房屋，能否像生命体一样拥有“安全骨骼”“健康心肺”与“神经网络”？
+核心要点 美国消费者新闻与商业频道独家获悉，Mercury 本轮募资 2 亿美元，投后估值 52 亿美元，较上一轮融资估值上涨 49%；本轮融资由 TCV 领投，红杉资本、安德森・霍洛维茨基金、库图资本跟投。
 
-18日在海口落幕的2026全国民营企业绿色发展大会上，中国民间商会副会长、合肥荣事达电子电器集团有限公司董事长潘保春给出的答案是肯定的。
+就在此次融资数周前，Mercury 已获得美国货币监理署的附条件批准，可转型为受联邦监管的正规银行。
 
-他将这一构想具象为“可移动的智慧生命体”，并计划将其率先在海南自贸港落地生根。
+获批后公司可自主开展放贷业务、接入泽勒即时支付系统，并减少对合作银行的依赖。
 
-从家电制造到“造房子” 从传统家电制造起步，至今已有72年历史的合肥荣事达电子电器集团有限公司，如今已将业务版图延伸至智能房屋、新能源、海外贸易等多个板块。
+公司首席执行官伊马德・阿昆德表示，在整个金融科技行业整体遇冷的大环境下，Mercury 逆势增长，年化营收达到 6.5 亿美元，且已连续四年实现盈利；人工智能创业热潮也进一步带动了公司业务扩张。
 
-其核心定位，是全国领先的智能家居全屋系统解决方案提供商和场景化智能房屋科技住宅示范企业。
+这家专为初创企业提供银行金融服务的金融科技企业完成 2 亿美元新一轮融资，投后估值定格在52 亿美元。
 
-潘保春将“智能房屋”定义为对未来人居逻辑的重塑。
+这家总部位于旧金山的企业，时隔仅 14 个月，估值较上一轮融资大幅攀升 49%，在金融科技行业普遍低迷的行情中实现逆势突围。
 
-它并非简单拼凑智能家电，而是通过装配式工法与三大自研技术体系——“安全舱、健康芯、屋连网”，让房屋本身成为一个可移动、可交互的智慧整体。
+首席执行官伊马德・阿昆德透露，本次为 D 轮融资，由风投机构 TCV 牵头领投 —— 该机构也曾投资过汇元通、努银行等知名金融科技企业，红杉资本、安德森・霍洛维茨、库图资本等原有投资方继续加码入局。
 
-目前，企业已形成智能房屋、科技乡墅、文旅太空舱等六大产品系列，海外出口业务增长尤为迅速。
+疫情时期行业估值泡沫破裂后，多数金融科技企业发展遇阻，但 Mercury 与兰普、思杰支付等同赛道头部企业依旧保持稳健发展，成为行业内少数保持高增长的企业。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 22:05 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 21:45 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 21:43 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 21:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 21:48 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 21:37 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 21:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 22:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 21:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 21:54 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 21:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 21:43 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 21:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 22:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:44 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 22:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 22:05 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:48 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 22:08 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 22:07 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/610194.shtml)
-- 2026-06-29 21:59 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/833715183390.shtml)
-- 2026-06-29 21:37 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/59648465157.shtml)
-- 2026-06-29 22:00 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/605739377.shtml)
-- 2026-06-29 21:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/383024506662.shtml)
-- 2026-06-29 21:40 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.minike.top/Article/details/2732747327.shtml)
-- 2026-06-29 22:03 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/4220699.shtml)
-- 2026-06-29 21:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/588918.shtml)
-- 2026-06-29 21:59 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/66463837707.shtml)
-- 2026-06-29 21:54 - [锐评T1零封KC](https://www.share.minike.top/Article/details/38171241985.shtml)
-- 2026-06-29 21:49 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/32426676488.shtml)
-- 2026-06-29 21:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/239653.shtml)
-- 2026-06-29 21:37 - [日防卫省正考虑引进美企人工智能系统](http://www.share.minike.top/Article/details/448072689.shtml)
-- 2026-06-29 21:46 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/0708788.shtml)
-- 2026-06-29 21:58 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/0557191762.shtml)
+- 2026-06-29 21:51 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/95484377.shtml)
+- 2026-06-29 21:42 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/82303437004.shtml)
+- 2026-06-29 22:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/6438570784.shtml)
+- 2026-06-29 22:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/240266.shtml)
+- 2026-06-29 22:05 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/124753515869.shtml)
+- 2026-06-29 22:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/41270.shtml)
+- 2026-06-29 22:10 - [周生如故](https://www.blog.kurohicncr.top/Article/details/8956604.shtml)
+- 2026-06-29 22:04 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/59808.shtml)
+- 2026-06-29 21:50 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/070471454941.shtml)
+- 2026-06-29 21:48 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/31047.shtml)
+- 2026-06-29 21:44 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/80556239.shtml)
+- 2026-06-29 22:06 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/081172576.shtml)
+- 2026-06-29 21:57 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/95290.shtml)
+- 2026-06-29 22:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/725748.shtml)
+- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/1960541230.shtml)

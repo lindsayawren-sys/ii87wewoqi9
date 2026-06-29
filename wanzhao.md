@@ -1,60 +1,58 @@
-# 游客端午假期夜游锦江 赏蓉城灯火盛景
+# 一根高压水管里的治沙智慧
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+中新网巴彦淖尔5月20日电 题：一根高压水管里的治沙智慧 中新网记者 张林虎 5月的乌兰布和沙漠边缘，风沙还未完全停歇，但金美丽手里的活计已经干得热火朝天。 “先用高压水管在地上打一个深40厘米的孔洞，把梭梭苗种下去，再围着苗子周围打几个一样的孔洞，每个孔洞里都注满水，最后用土掩盖住，一次高压注水栽植就完成了。”在内蒙古自治区巴彦淖尔市杭锦后旗乌兰布和沙漠综合治理示范区，金美丽
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+中新网巴彦淖尔5月20日电 题：一根高压水管里的治沙智慧 中新网记者 张林虎 5月的乌兰布和沙漠边缘，风沙还未完全停歇，但金美丽手里的活计已经干得热火朝天。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+“先用高压水管在地上打一个深40厘米的孔洞，把梭梭苗种下去，再围着苗子周围打几个一样的孔洞，每个孔洞里都注满水，最后用土掩盖住，一次高压注水栽植就完成了。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+”在内蒙古自治区巴彦淖尔市杭锦后旗乌兰布和沙漠综合治理示范区，金美丽一边演示一边介绍道。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
+这位杭锦后旗的村民，如今已是治沙一线的熟练工。
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+“用高压注水的方式种树，两人一组，从早晨7点到下午5点，一人负责打孔注水，一人负责投放树苗，平均每人每天能种树3亩到5亩。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+”金美丽说。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+一根水管，让苗木“吃水”更深 高压注水栽植，看似简单，背后却藏着当地人多年摸索出的治沙智慧。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+杭锦后旗北靠阴山、南邻黄河、西接乌兰布和沙漠，是阻止乌兰布和沙漠东侵河套平原的最后一道防线。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 22:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 21:47 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 21:57 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 21:54 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 21:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 21:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 21:41 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 21:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 21:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 21:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 21:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 21:45 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:58 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 21:45 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 22:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 22:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 21:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 21:44 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 21:49 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 21:51 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 21:43 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 22:05 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 22:00 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 21:43 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:41 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/93737.shtml)
-- 2026-06-29 21:46 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/3999541769.shtml)
-- 2026-06-29 21:37 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/775361289.shtml)
-- 2026-06-29 22:04 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/22222674960.shtml)
-- 2026-06-29 21:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/734599711646.shtml)
-- 2026-06-29 21:47 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/574091.shtml)
-- 2026-06-29 21:42 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/87167.shtml)
-- 2026-06-29 22:02 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/28415906881.shtml)
-- 2026-06-29 21:55 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/82006240.shtml)
-- 2026-06-29 21:38 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/5669320432.shtml)
-- 2026-06-29 21:47 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/43130.shtml)
-- 2026-06-29 22:01 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/535065697125.shtml)
-- 2026-06-29 21:57 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/396921.shtml)
-- 2026-06-29 22:04 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/666164.shtml)
-- 2026-06-29 21:58 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/16194295338.shtml)
+- 2026-06-29 21:42 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/880379565.shtml)
+- 2026-06-29 21:47 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/80271599.shtml)
+- 2026-06-29 22:09 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/38276298117.shtml)
+- 2026-06-29 21:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/91372.shtml)
+- 2026-06-29 22:11 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/12369761.shtml)
+- 2026-06-29 22:03 - [恋与深空回应争议](http://www.share.minike.top/Article/details/06042396.shtml)
+- 2026-06-29 22:01 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/5342198980.shtml)
+- 2026-06-29 21:59 - [金牌调解](http://www.share.minike.top/Article/details/86117489.shtml)
+- 2026-06-29 21:59 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/048818804.shtml)
+- 2026-06-29 22:00 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/21425.shtml)
+- 2026-06-29 21:46 - [第一炉香](https://www.share.kurohicncr.top/Article/details/27307.shtml)
+- 2026-06-29 21:46 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/76499771.shtml)
+- 2026-06-29 21:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/0114925.shtml)
+- 2026-06-29 22:02 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/1342945.shtml)
+- 2026-06-29 22:01 - [田曦薇没招了](https://www.share.minike.top/Article/details/11805387968.shtml)

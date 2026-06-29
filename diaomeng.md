@@ -1,61 +1,47 @@
-# 国际油价V型反弹，美股期货全线下跌，以色列“同意停火”后再次空袭黎巴嫩南部
+# 中通快递-W于5月20日斥资301.33万美元回购13.18万股
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-国际油价V型反弹！ 北京时间6月20日，ICE布油、WIT原油盘中一度直线跳水跌约1%，随后双双快速反弹，最终ICE布油收涨0.47%，周跌8.53%，WTI原油涨0.91%。 截至20日6：37，布伦特原油暗盘涨超1.6%，纽约原油暗盘涨近2%。 黄金白银跌幅收窄，现货黄金跌1.27%，此前一度跌超2%。现货白银跌1.35%，此前一度大跌超3%。黄金期货跌1.8%，白银期货跌
+中通快递-W（02057）发布公告，于2026年5月20日斥资301.33万美元回购13.18万股。责任编辑：卢昱君
 
 ## 正文
 
-国际油价V型反弹！
+中通快递-W（02057）发布公告，于2026年5月20日斥资301.33万美元回购13.18万股。
 
-北京时间6月20日，ICE布油、WIT原油盘中一度直线跳水跌约1%，随后双双快速反弹，最终ICE布油收涨0.47%，周跌8.53%，WTI原油涨0.91%。
-
-截至20日6：37，布伦特原油暗盘涨超1.6%，纽约原油暗盘涨近2%。
-
-黄金白银跌幅收窄，现货黄金跌1.27%，此前一度跌超2%。
-
-现货白银跌1.35%，此前一度大跌超3%。
-
-黄金期货跌1.8%，白银期货跌近2%。
-
-美股指数期货全线下跌。
-
-据新华社援引黎巴嫩国家通讯社19日报道称，黎巴嫩真主党与以色列同意停火后，以色列战机当天仍对黎南部杰津地区发动空袭，同时以色列无人机持续在黎南部、西部地区多个城镇上空密集盘旋。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 21:45 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 21:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 22:01 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 21:51 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:49 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 21:49 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 21:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 21:37 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 21:36 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 21:44 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 21:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 21:36 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:01 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 21:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 21:49 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:44 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 21:49 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 22:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 22:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 21:52 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:58 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 22:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 21:48 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 21:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 22:00 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/856838630.shtml)
-- 2026-06-29 21:59 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/069833003003.shtml)
-- 2026-06-29 21:50 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/336834037346.shtml)
-- 2026-06-29 21:44 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0189799.shtml)
-- 2026-06-29 22:00 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/637975.shtml)
-- 2026-06-29 21:39 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/5121261.shtml)
-- 2026-06-29 22:05 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/846825122024.shtml)
-- 2026-06-29 21:52 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/70462474.shtml)
-- 2026-06-29 21:57 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/714999811188.shtml)
-- 2026-06-29 22:05 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/067021759767.shtml)
-- 2026-06-29 21:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/643737987204.shtml)
-- 2026-06-29 21:55 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/48066.shtml)
-- 2026-06-29 21:53 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/277772.shtml)
-- 2026-06-29 21:43 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/093627.shtml)
-- 2026-06-29 21:52 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/41018198.shtml)
+- 2026-06-29 22:05 - [送你一朵小红花](http://www.share.minike.top/Article/details/585037009.shtml)
+- 2026-06-29 21:42 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/72484269874.shtml)
+- 2026-06-29 22:10 - [啊啊啊](http://www.blog.minike.top/Article/details/125900.shtml)
+- 2026-06-29 22:11 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1060540291.shtml)
+- 2026-06-29 21:48 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/07589.shtml)
+- 2026-06-29 22:09 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/970602.shtml)
+- 2026-06-29 21:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/3641880601.shtml)
+- 2026-06-29 21:53 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/4371734.shtml)
+- 2026-06-29 21:42 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/6053003002.shtml)
+- 2026-06-29 21:56 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2016274.shtml)
+- 2026-06-29 21:59 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/41147873008.shtml)
+- 2026-06-29 21:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/963673197255.shtml)
+- 2026-06-29 21:51 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/607713724.shtml)
+- 2026-06-29 21:56 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/0188053963.shtml)
+- 2026-06-29 22:10 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/82166096.shtml)

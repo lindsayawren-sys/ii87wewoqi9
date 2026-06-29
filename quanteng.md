@@ -1,58 +1,60 @@
-# 广西柳江现2026年第1号洪水 63个渡口全部停航
+# 富兰克林新兴市场收益基金月度派息升至0.054美元
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网柳州6月21日电 (余强 许娴静)受持续强降雨及上游来水影响，广西柳州迎来“柳江2026年第1号洪水”，截至6月21日14时，柳江水位涨至83米的超警水位(警戒水位82.50米)，并持续上涨，相应流量15600立方米每秒。 柳州海事局于6月21日8时20分将防汛四级应急响应上调为三级应急响应，并严格按照禁限航规定对辖区水上交通实施管控。柳州辖区63个渡口、95艘渡船全部停
+富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。 根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支
 
 ## 正文
 
-中新网柳州6月21日电 (余强 许娴静)受持续强降雨及上游来水影响，广西柳州迎来“柳江2026年第1号洪水”，截至6月21日14时，柳江水位涨至83米的超警水位(警戒水位82.50米)，并持续上涨，相应流量15600立方米每秒。
+富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。
 
-柳州海事局于6月21日8时20分将防汛四级应急响应上调为三级应急响应，并严格按照禁限航规定对辖区水上交通实施管控。
+此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。
 
-柳州辖区63个渡口、95艘渡船全部停航，柳州市区水上公交航线8艘船舶、夜游船航线9艘船舶全线停航。
+根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支付日为8月31日；9月份除息日和登记日为9月23日，支付日为9月30日。
 
-为做好防汛应急工作，海事部门向各航运企业、渡口及船员发布安全预警，督促停航船舶加强系固和24小时值班值守；派出执法人员对辖区各渡口水域进行巡查管控，严防自用船冒险航行及违规载客。
+该基金是一只封闭式管理投资公司，主要投资于新兴市场国家的主权或主权相关实体及私营公司发行的收益性证券。
 
-同时，柳州海事部门统筹调度海事巡逻船艇、联合水上搜救志愿者队伍，针对主城区滨江路沿线漫水积水、涉水险情易发路段开展不间断水上巡航。
+基金的投资目标以获取高额当期收入为主，资本增值为辅。
 
-据水文部门预计，未来18-19小时，柳江柳州市河段将出现86米左右(超警戒水位3.5米)的洪水，海事部门提醒沿江各单位及市民密切关注雨水情变化，远离河边低洼地带及亲水平台，注意出行安全。
+根据基金的管理分配政策，为保持稳定的分配水平，当可分配收益不足时，基金将通过分配长期资本利得或返还本金来维持既定派息率。
 
-(完)
+数据显示，基金近五年按资产净值计算的平均年化总回报率为6.22%，当前按资产净值计算的分配率为8.70%。
+
+富兰克林邓普顿表示，董事会可随时修改、终止或暂停管理分配政策，任何此类变动可能对基金股价产生不利影响。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 21:46 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 21:55 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 21:59 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 21:51 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 21:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 21:54 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 21:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 21:58 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 21:46 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 21:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 22:05 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:42 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 21:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 21:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:59 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 21:58 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 22:03 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 21:48 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 21:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:01 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:51 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 21:58 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 22:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 22:06 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 21:54 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/3453122.shtml)
-- 2026-06-29 21:59 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/309565.shtml)
-- 2026-06-29 21:57 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/122348860375.shtml)
-- 2026-06-29 21:36 - [王楚钦开门红](http://www.blog.minike.top/Article/details/64691354147.shtml)
-- 2026-06-29 22:05 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/69796.shtml)
-- 2026-06-29 21:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/447134589.shtml)
-- 2026-06-29 22:04 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/837922723.shtml)
-- 2026-06-29 22:02 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/4205091472.shtml)
-- 2026-06-29 21:55 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/969818.shtml)
-- 2026-06-29 21:41 - [一生一世](http://www.share.kurohicncr.top/Article/details/75290187.shtml)
-- 2026-06-29 21:42 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/04298.shtml)
-- 2026-06-29 21:45 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/62197368.shtml)
-- 2026-06-29 21:45 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/6005516039.shtml)
-- 2026-06-29 21:59 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/3512974949.shtml)
-- 2026-06-29 22:04 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/6681851.shtml)
+- 2026-06-29 22:03 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/24122128526.shtml)
+- 2026-06-29 22:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/153449674563.shtml)
+- 2026-06-29 21:57 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3099922584.shtml)
+- 2026-06-29 21:57 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/81862801.shtml)
+- 2026-06-29 22:06 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/2960059143.shtml)
+- 2026-06-29 21:52 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/467416205.shtml)
+- 2026-06-29 21:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/677516.shtml)
+- 2026-06-29 22:08 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/79134878.shtml)
+- 2026-06-29 21:51 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/518323820.shtml)
+- 2026-06-29 21:56 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/95717187483.shtml)
+- 2026-06-29 21:51 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/53582450052.shtml)
+- 2026-06-29 21:56 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/65266.shtml)
+- 2026-06-29 22:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/67068339.shtml)
+- 2026-06-29 22:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/7613653.shtml)
+- 2026-06-29 21:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1539432.shtml)

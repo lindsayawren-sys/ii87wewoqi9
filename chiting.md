@@ -1,60 +1,56 @@
-# （寻味中华丨节令）食面尝新祈丰岁 日长之至盛夏始
+# 苹果请求美国最高法院复审Epic Games诉讼案中的藐视法庭令
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。 夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。 夏至，农人更加忙碌：华北忙着晒冬小
+苹果周四请求美国最高法院复审下级法院的一项裁决。该裁决认定这家iPhone制造商因对其App Store用户在应用内进行的某些第三方购买收取手续费，而构成民事藐视法庭。 向最高法院提交的请愿书使苹果与《堡垒之夜》开发商Epic Games长达数年的法律纠纷进一步升级。Epic Games于2020年起诉苹果，旨在放松苹果对使用其iOS操作系统应用程序交易的控制，以及对应用程序向
 
 ## 正文
 
-中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。
+苹果周四请求美国最高法院复审下级法院的一项裁决。
 
-”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。
+该裁决认定这家iPhone制造商因对其App Store用户在应用内进行的某些第三方购买收取手续费，而构成民事藐视法庭。
 
-太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。
+向最高法院提交的请愿书使苹果与《堡垒之夜》开发商Epic Games长达数年的法律纠纷进一步升级。
 
-夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。
+Epic Games于2020年起诉苹果，旨在放松苹果对使用其iOS操作系统应用程序交易的控制，以及对应用程序向消费者分发方式的限制。
 
-夏至，农人更加忙碌：华北忙着晒冬小麦，东北夏播接近尾声，高原牧区迎来畜牧旺季。
+一名法官虽基本驳回了Epic的诉讼，但于2021年发布了一项禁令，要求 苹果允许开发者在应用中加入链接，引导用户使用非苹果支付方式。
 
-在成都平原，岷江水滋养的万顷稻田上正除去杂草；川北丘陵，冬小麦刚收镰，玉米、红薯的夏管接踵而至。
+苹果虽允许设置此类链接，但同时实施了新限制，包括对开发者收取27%的佣金——该佣金适用于用户点击链接后七天内通过App Store以外支付系统完成的购买。
 
-成都市蒲江县农技员王建华说，“夏至不锄根边草，如同养下毒蛇咬”这句农谚，至今是庄稼人的铁律。
+Epic主张，这笔新的27%佣金违反了先前的禁令。
 
-“随着社会发展，更科学的方式逐渐代替人工，但乡土记忆一直在。
+2025年，法官认定苹果因违反禁令构成民事藐视法庭。
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 21:42 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 21:58 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:47 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 21:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 21:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 21:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 21:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 21:41 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 22:03 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 21:36 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 21:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 21:56 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 21:48 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 21:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 22:03 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 22:07 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 21:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 21:43 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 22:07 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 21:54 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 22:04 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 22:06 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 21:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/96377530.shtml)
-- 2026-06-29 21:54 - [锐评T1零封KC](https://www.share.minike.top/Article/details/93973999.shtml)
-- 2026-06-29 21:53 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/029173732826.shtml)
-- 2026-06-29 21:41 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/664367749980.shtml)
-- 2026-06-29 21:44 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/95022.shtml)
-- 2026-06-29 21:43 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/78600362685.shtml)
-- 2026-06-29 21:46 - [《贺子珍》](http://www.blog.minike.top/Article/details/87076669923.shtml)
-- 2026-06-29 21:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/1970095539.shtml)
-- 2026-06-29 22:01 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/330845066971.shtml)
-- 2026-06-29 22:03 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/9855815.shtml)
-- 2026-06-29 21:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/686908.shtml)
-- 2026-06-29 21:59 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/455339734.shtml)
-- 2026-06-29 21:59 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/0203105.shtml)
-- 2026-06-29 22:00 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/12566619.shtml)
-- 2026-06-29 22:02 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/2382140.shtml)
+- 2026-06-29 22:07 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/13694222.shtml)
+- 2026-06-29 21:59 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/0251000892.shtml)
+- 2026-06-29 22:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/02531.shtml)
+- 2026-06-29 21:53 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/3101546931.shtml)
+- 2026-06-29 22:10 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/850593.shtml)
+- 2026-06-29 21:56 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/35107.shtml)
+- 2026-06-29 21:44 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/07378184906.shtml)
+- 2026-06-29 21:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/766818307.shtml)
+- 2026-06-29 22:04 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/06662317898.shtml)
+- 2026-06-29 22:08 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/43598.shtml)
+- 2026-06-29 22:06 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/0189409602.shtml)
+- 2026-06-29 21:42 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/8688915245.shtml)
+- 2026-06-29 22:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/31344578.shtml)
+- 2026-06-29 22:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/436851436366.shtml)
+- 2026-06-29 22:04 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/670880.shtml)

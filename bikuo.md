@@ -1,59 +1,56 @@
-# 6月19日美股成交额前20：英特尔大涨10% 将与苹果合作在美设计和生产芯片
+# 秘鲁一市政官员上班途中遇袭身亡 遭枪手连开数枪
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。第2名美光科技，涨8.70%，成交716.42亿美元。第4名英伟达，涨2.95%，成交499.47亿美元。第7名英特尔涨10.64%，成交306.15亿美元。第8名闪迪，收涨11.54%，成交259.09亿美元。第9名苹果，涨0.70%，成交254.44亿美元。第10名AMD，涨4.86%，成交232.97
+中新网5月22日电 据法新社报道，当地时间21日，秘鲁北部一名市政官员在上班途中遭枪手射杀。 据报道，遇害者为44岁的维克托·费夫雷。当地媒体发布的视频显示，袭击者戴着头盔遮住面部，在发动袭击后骑摩托车逃离。 检方称，费夫雷当时正前往办公室，途中遭袭击者连开多枪。当地媒体报道称，费夫雷在被送往医疗中心途中死亡。 报道指出，费夫雷是秘鲁今年以来第三名遭疑似有组织犯罪团伙枪杀的市政
 
 ## 正文
 
-周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。
+中新网5月22日电 据法新社报道，当地时间21日，秘鲁北部一名市政官员在上班途中遭枪手射杀。
 
-第2名美光科技，涨8.70%，成交716.42亿美元。
+据报道，遇害者为44岁的维克托·费夫雷。
 
-第4名英伟达，涨2.95%，成交499.47亿美元。
+当地媒体发布的视频显示，袭击者戴着头盔遮住面部，在发动袭击后骑摩托车逃离。
 
-第7名英特尔涨10.64%，成交306.15亿美元。
+检方称，费夫雷当时正前往办公室，途中遭袭击者连开多枪。
 
-第8名闪迪，收涨11.54%，成交259.09亿美元。
+当地媒体报道称，费夫雷在被送往医疗中心途中死亡。
 
-第9名苹果，涨0.70%，成交254.44亿美元。
+报道指出，费夫雷是秘鲁今年以来第三名遭疑似有组织犯罪团伙枪杀的市政官员。
 
-第10名AMD，涨4.86%，成交232.97亿美元。
-
-此前美国总统唐纳德·特朗普表示，英特尔将与苹果公司合作，在美国本土设计和生产芯片。
+目前，相关调查已经启动。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 21:41 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 21:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 21:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 21:51 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 22:00 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 21:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 22:02 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 22:05 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 21:49 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 22:04 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 21:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 21:42 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 22:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 21:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:02 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 22:06 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 21:46 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 22:08 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 21:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 21:57 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 22:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 21:42 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 22:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/770464294585.shtml)
-- 2026-06-29 21:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/4736125880.shtml)
-- 2026-06-29 22:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/4543320396.shtml)
-- 2026-06-29 21:44 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/8439148328.shtml)
-- 2026-06-29 21:53 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/3414772527.shtml)
-- 2026-06-29 21:55 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/77256542.shtml)
-- 2026-06-29 21:57 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/194738.shtml)
-- 2026-06-29 22:02 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/974348906808.shtml)
-- 2026-06-29 21:46 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/711885.shtml)
-- 2026-06-29 22:03 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/600078.shtml)
-- 2026-06-29 21:57 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/834498281052.shtml)
-- 2026-06-29 22:05 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/9838213.shtml)
-- 2026-06-29 21:51 - [东方风云榜](http://www.share.minike.top/Article/details/6370299.shtml)
-- 2026-06-29 21:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0691115131.shtml)
-- 2026-06-29 21:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/095445921.shtml)
+- 2026-06-29 21:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/81091142.shtml)
+- 2026-06-29 21:44 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/175008050015.shtml)
+- 2026-06-29 21:53 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/1503881016.shtml)
+- 2026-06-29 21:50 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/411053912.shtml)
+- 2026-06-29 21:44 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/153498.shtml)
+- 2026-06-29 21:56 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/392808.shtml)
+- 2026-06-29 21:56 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/160482.shtml)
+- 2026-06-29 22:09 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/1715544087.shtml)
+- 2026-06-29 22:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/936466545.shtml)
+- 2026-06-29 21:42 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/684109681.shtml)
+- 2026-06-29 22:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/31621724.shtml)
+- 2026-06-29 21:57 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/2501288291.shtml)
+- 2026-06-29 22:10 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/687532.shtml)
+- 2026-06-29 21:53 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/60154.shtml)
+- 2026-06-29 22:08 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/2220651070.shtml)

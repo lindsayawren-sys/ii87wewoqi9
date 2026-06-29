@@ -1,54 +1,51 @@
-# 韩国国民年金服务将于7月恢复国内股票再平衡
+# “全球热区高校智学平台”上线 打造热区发展特色课程
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-据韩联社Infomax报道，韩国国民年金服务（NPS）将在6月底暂停后，于下月恢复国内股票的再平衡工作。 报道指出，此前NPS已将2026年底国内股票权重目标从14.9%上调至20.8%，并将战略资产配置区间扩大一倍，达到6个百分点。目前NPS持有的国内股票占比估计约为30%，已超过允许上限。因此，NPS可能需要逐步出售价值高达55万亿韩元的国内股票，以实现投资组合的再平衡。责
+发布时间：2026年05月20日 19:07 来源：中国新闻网 5月20日，热区高校联盟2026年年会在海南大学开幕。现场，“全球热区高校智学平台”正式上线。 据中国科学院院士、海南大学校长骆清铭介绍，海南大学联合马来西亚国油科技大学、巴西圣保罗大学、泰国宋卡王子大学等十家成员单位，共建全球热区高校智学平台，整合优质课程资源，打造贴合热区发展需要的特色课程体系。(李宇凡 陈英清
 
 ## 正文
 
-据韩联社Infomax报道，韩国国民年金服务（NPS）将在6月底暂停后，于下月恢复国内股票的再平衡工作。
+发布时间：2026年05月20日 19:07 来源：中国新闻网 5月20日，热区高校联盟2026年年会在海南大学开幕。
 
-报道指出，此前NPS已将2026年底国内股票权重目标从14.9%上调至20.8%，并将战略资产配置区间扩大一倍，达到6个百分点。
+现场，“全球热区高校智学平台”正式上线。
 
-目前NPS持有的国内股票占比估计约为30%，已超过允许上限。
+据中国科学院院士、海南大学校长骆清铭介绍，海南大学联合马来西亚国油科技大学、巴西圣保罗大学、泰国宋卡王子大学等十家成员单位，共建全球热区高校智学平台，整合优质课程资源，打造贴合热区发展需要的特色课程体系。
 
-因此，NPS可能需要逐步出售价值高达55万亿韩元的国内股票，以实现投资组合的再平衡。
-
-责任编辑：王永生
+(李宇凡 陈英清） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 21:43 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 21:42 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 21:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 21:55 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 21:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 21:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:04 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:52 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 21:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 22:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 21:50 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 21:46 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 21:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 22:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 21:43 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 22:05 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 22:00 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 21:47 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 21:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:53 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 22:07 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 22:06 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 21:58 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 21:51 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 21:44 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 21:47 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/5437209825.shtml)
-- 2026-06-29 21:50 - [沉睡花园](http://www.share.minike.top/Article/details/1836967729.shtml)
-- 2026-06-29 21:55 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/941126675772.shtml)
-- 2026-06-29 21:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/96772.shtml)
-- 2026-06-29 21:39 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/862245571786.shtml)
-- 2026-06-29 22:01 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/6721637.shtml)
-- 2026-06-29 21:53 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/1282408289.shtml)
-- 2026-06-29 21:39 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/8297786.shtml)
-- 2026-06-29 22:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/0994874.shtml)
-- 2026-06-29 21:43 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8291174842.shtml)
-- 2026-06-29 21:48 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/65571575.shtml)
-- 2026-06-29 21:37 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/145555478970.shtml)
-- 2026-06-29 21:50 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/17676.shtml)
-- 2026-06-29 22:04 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/808264944176.shtml)
-- 2026-06-29 22:00 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/5763698.shtml)
+- 2026-06-29 22:10 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/781847.shtml)
+- 2026-06-29 21:46 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/78975837869.shtml)
+- 2026-06-29 22:11 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/11865.shtml)
+- 2026-06-29 21:42 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/463259.shtml)
+- 2026-06-29 22:09 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/128522.shtml)
+- 2026-06-29 21:54 - [世界杯](http://www.blog.minike.top/Article/details/39245343844.shtml)
+- 2026-06-29 21:48 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/89537.shtml)
+- 2026-06-29 21:47 - [TOP Prada](http://www.share.minike.top/Article/details/36544472358.shtml)
+- 2026-06-29 21:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/261992.shtml)
+- 2026-06-29 22:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/92835.shtml)
+- 2026-06-29 22:05 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/27563.shtml)
+- 2026-06-29 22:01 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/106789606299.shtml)
+- 2026-06-29 22:10 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/6674636476.shtml)
+- 2026-06-29 22:10 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/343230078.shtml)
+- 2026-06-29 22:03 - [锐评T1零封KC](http://www.share.minike.top/Article/details/472271821.shtml)

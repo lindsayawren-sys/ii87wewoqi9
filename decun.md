@@ -1,61 +1,57 @@
-# 广东揭阳特色“龙舟抱桩”庆端午
+# 商务部：如欧方执意对中国企业或产品采取歧视性限制措施 中方将坚决反制
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-释永信这记警钟，敲得够响！专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+在商务部21日举行的例行新闻发布会上，有记者问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。请问中方对此有何评论？ 商务部新闻发言人何亚东表示，如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。我
 
 ## 正文
 
-释永信这记警钟，敲得够响！
+在商务部21日举行的例行新闻发布会上，有记者问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+请问中方对此有何评论？
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+商务部新闻发言人何亚东表示，如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+我们敦促欧方正视现实，回到对话磋商的正确轨道上，做真正有益于中欧经贸关系发展的事。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+如欧方执意推动出台所谓新工具并对中国企业或产品采取歧视性限制措施，中方将坚决反制。
 
-孔子为什么说“温故而知新”？
-
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 21:58 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 22:03 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 22:02 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 21:51 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 22:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 21:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:41 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 21:59 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 21:47 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 21:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 21:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 21:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 22:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 21:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 22:06 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 21:55 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 21:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 22:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 21:50 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 21:44 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 21:50 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 21:48 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 22:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 22:11 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 22:01 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 22:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 21:49 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/04408.shtml)
-- 2026-06-29 21:56 - [扫黑风暴](https://www.share.minike.top/Article/details/93946707.shtml)
-- 2026-06-29 21:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/2315638826.shtml)
-- 2026-06-29 21:44 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/90238616.shtml)
-- 2026-06-29 22:00 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/896963.shtml)
-- 2026-06-29 21:58 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/9799430.shtml)
-- 2026-06-29 22:01 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/845649.shtml)
-- 2026-06-29 21:37 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/18270407.shtml)
-- 2026-06-29 21:41 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/85415.shtml)
-- 2026-06-29 21:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/964955.shtml)
-- 2026-06-29 22:05 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/66620260.shtml)
-- 2026-06-29 21:46 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/270785436357.shtml)
-- 2026-06-29 21:59 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/729330336.shtml)
-- 2026-06-29 21:48 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/7126066477.shtml)
-- 2026-06-29 21:36 - [女心理师](https://www.share.kurohicncr.top/Article/details/161667.shtml)
+- 2026-06-29 21:45 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/49400159717.shtml)
+- 2026-06-29 21:53 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/6603985177.shtml)
+- 2026-06-29 21:53 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/2648291.shtml)
+- 2026-06-29 22:07 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/67355123.shtml)
+- 2026-06-29 22:04 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/899491073.shtml)
+- 2026-06-29 21:42 - [时光音乐会](http://www.blog.minike.top/Article/details/542013209366.shtml)
+- 2026-06-29 21:50 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/28177907476.shtml)
+- 2026-06-29 21:53 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/890279.shtml)
+- 2026-06-29 21:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/378557810.shtml)
+- 2026-06-29 21:54 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/78017314946.shtml)
+- 2026-06-29 21:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/631442912603.shtml)
+- 2026-06-29 21:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/85236301.shtml)
+- 2026-06-29 22:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/406048.shtml)
+- 2026-06-29 22:02 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/873143361317.shtml)
+- 2026-06-29 22:08 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/181277695317.shtml)

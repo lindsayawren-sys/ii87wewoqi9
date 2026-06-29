@@ -1,61 +1,57 @@
-# 德邦基金“换帅” 尉迟平履新董事长
+# 文博会上广州AI“秀肌肉” 多样元素闪耀全场
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-来源：上海证券报·中国证券网 作者：陈玥 6月19日，德邦基金管理有限公司发布高级管理人员变更公告，经股东委派及董事会选举，尉迟平正式担任公司董事长。原代董事长武晓春圆满完成代行管理相关工作，顺利卸任。 公开信息显示，新任董事长尉迟平拥有二十余年金融从业经验，先后供职于上海银行、上银基金，具备丰富的行业经验与管理能力。其任职上银基金期间，坚持稳健经营理念，在巩固固收业务优势的基
+文博会上广州AI“秀肌肉” 第二十二届中国(深圳)国际文化产业博览交易会今日开幕 文/广州日报全媒体记者王纳 来自广州的8分钟大型光影秀已经准备好将观众带进智能未来世界、全国首个宇树机器人乐队已经站在舞台C位开始充电、1000多盘玉石打造的世界各地美味珍馐已经“摆盘上桌”、“孝端皇后凤冠”“四羊青铜方尊”“五星出东方利中国锦护臂”等经典文物IP陈列妥当……今天，第二十二届中国(
 
 ## 正文
 
-来源：上海证券报·中国证券网 作者：陈玥 6月19日，德邦基金管理有限公司发布高级管理人员变更公告，经股东委派及董事会选举，尉迟平正式担任公司董事长。
+文博会上广州AI“秀肌肉” 第二十二届中国(深圳)国际文化产业博览交易会今日开幕 文/广州日报全媒体记者王纳 来自广州的8分钟大型光影秀已经准备好将观众带进智能未来世界、全国首个宇树机器人乐队已经站在舞台C位开始充电、1000多盘玉石打造的世界各地美味珍馐已经“摆盘上桌”、“孝端皇后凤冠”“四羊青铜方尊”“五星出东方利中国锦护臂”等经典文物IP陈列妥当……今天，第二十二届中国(深圳)国际文化产业博览交易会(以下简称“文博会”)在深圳国际会展中心开幕。
 
-原代董事长武晓春圆满完成代行管理相关工作，顺利卸任。
+广州元素闪耀全场 本届文博会主会场展览面积16万平方米，8个展馆，包括3个综合馆和5个专业馆，以及34个细类专业展区。
 
-公开信息显示，新任董事长尉迟平拥有二十余年金融从业经验，先后供职于上海银行、上银基金，具备丰富的行业经验与管理能力。
+共有3306家企业线下参展，另有3006家企业线上参展，近300家企业首次参展，现场共展出各类文化精品超12万件。
 
-其任职上银基金期间，坚持稳健经营理念，在巩固固收业务优势的基础上积极拓展权益、指数等多元产品线，推动公司业务布局持续完善，公司管理规模与经营业绩显著提升。
+超过13万名专业采购商从世界各地前来参会，展期推出22项促交易便利措施，开展260多场推介、路演、发布等对接活动。
 
-根据公开披露数据，在其总经理任期内，上银基金总规模从1170亿元增长至2548亿元，增幅达118%；非货币基金规模同步增长至1519亿元，行业排名从第47位升至第32位。
+本届展会，广东展团亮相15号馆，以“政策赋能、AI引领、产业集聚”为核心，集中展示文化产业高质量发展成果，其中广州企业硬核成果扎堆，成为全场瞩目焦点。
 
-履新德邦基金董事长后，尉迟平表示，将深入贯彻落实监管导向，紧扣金融“五篇大文章”，恪守“规范为先、客户为本、功能为要、创新为基”的发展原则，立足公司实际情况，延续稳健经营理念，坚持均衡发展战略，持续夯实核心投研能力，深耕资产管理主业，推动公司行稳致远。
+本届广东展团打破传统陈列模式，划分六大特色板块，聚焦大湾区产业链优势，打造沉浸式体验场景。
 
-德邦基金表示，董事长履新属于正常治理调整。
+作为广州文化科技龙头，三七互娱携AI版权保护重磅成果“灵察察”亮相。
 
-公司股权结构清晰、治理机制完善，作为控股股东的德邦证券始终坚定支持公司发展，公司发展战略、核心团队均保持稳定，各项业务正常运转。
+该系统依托自研大模型，构建确权、监测、维权全链条保护体系，为数字文娱知识产权保驾护航，尽显广州企业技术硬实力。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 21:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 21:54 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 21:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:52 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 21:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 21:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 22:04 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 21:46 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 21:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 21:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 22:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 21:42 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 21:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 22:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 21:43 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 21:44 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 22:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 21:42 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 21:56 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 21:59 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 21:44 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 22:00 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 21:57 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 21:45 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 22:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/32896.shtml)
-- 2026-06-29 21:46 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/4659290126.shtml)
-- 2026-06-29 21:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/787041.shtml)
-- 2026-06-29 21:47 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/941084749.shtml)
-- 2026-06-29 21:47 - [美人鱼](https://www.share.kurohicncr.top/Article/details/27458.shtml)
-- 2026-06-29 22:01 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/2207135561.shtml)
-- 2026-06-29 21:41 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/09852.shtml)
-- 2026-06-29 21:37 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/8567145164.shtml)
-- 2026-06-29 22:03 - [天道](http://www.blog.minike.top/Article/details/8125516640.shtml)
-- 2026-06-29 21:52 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/6289391.shtml)
-- 2026-06-29 21:51 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/43587.shtml)
-- 2026-06-29 21:40 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/086657.shtml)
-- 2026-06-29 22:01 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/5506193919.shtml)
-- 2026-06-29 21:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/49772404850.shtml)
-- 2026-06-29 21:59 - [流金岁月](https://www.blog.minike.top/Article/details/9902380982.shtml)
+- 2026-06-29 22:05 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/8219307922.shtml)
+- 2026-06-29 21:57 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/1274243.shtml)
+- 2026-06-29 22:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/40948840.shtml)
+- 2026-06-29 21:58 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/24698.shtml)
+- 2026-06-29 22:06 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/937997870176.shtml)
+- 2026-06-29 21:48 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/174376934947.shtml)
+- 2026-06-29 22:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/034822.shtml)
+- 2026-06-29 22:07 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/12891599.shtml)
+- 2026-06-29 21:51 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/8215366.shtml)
+- 2026-06-29 21:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/30211685013.shtml)
+- 2026-06-29 21:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/762451661.shtml)
+- 2026-06-29 21:55 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/197960176033.shtml)
+- 2026-06-29 21:47 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/89986557944.shtml)
+- 2026-06-29 21:50 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/62641153279.shtml)
+- 2026-06-29 21:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/947168442.shtml)

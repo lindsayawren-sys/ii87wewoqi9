@@ -1,56 +1,59 @@
-# 首轮观察：“补水”还是“补钱”？这项世界杯新规为何引争议
+# 南方基金旗下多只产品入选工商银行“工盈研选”系列
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (刘梦青 邢翀)当比赛进行到上、下半场约22分钟时，裁判突然鸣哨。没有犯规，没有越位，也没有VAR介入——球员们只是“到点该喝水了”。 作为世界杯史上前所未有的一项新规，“强制补水”初衷是在高温高湿环境下保障球员健康，然而，随着本届杯赛首轮小组赛战罢，这项原本带有保护意味的政策，却迅速成为赛场内外争议的焦点。 补水是否需要强制？ “补水暂停”在足球比赛中
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。据悉，“工盈研选”从客户能理解、基层易营销的角度，围绕收益、回撤等核心指标设定量化标准，并与合作机构共同建设和维护产品池。首期推出的“安盈”“智盈”两大产品系列，分别匹配
 
 ## 正文
 
-中新网北京6月18日电 (刘梦青 邢翀)当比赛进行到上、下半场约22分钟时，裁判突然鸣哨。
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
 
-没有犯规，没有越位，也没有VAR介入——球员们只是“到点该喝水了”。
+据悉，“工盈研选”从客户能理解、基层易营销的角度，围绕收益、回撤等核心指标设定量化标准，并与合作机构共同建设和维护产品池。
 
-作为世界杯史上前所未有的一项新规，“强制补水”初衷是在高温高湿环境下保障球员健康，然而，随着本届杯赛首轮小组赛战罢，这项原本带有保护意味的政策，却迅速成为赛场内外争议的焦点。
+首期推出的“安盈”“智盈”两大产品系列，分别匹配不同风险偏好与投资需求。
 
-补水是否需要强制？
+具体来看，“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，为客户实现资产稳健增长提供支撑；“智盈”系列聚焦权益指数类产品，精选指数、指数增强产品，为追求更高收益的客户提供进攻性的收益增强工具。
 
-“补水暂停”在足球比赛中并非新鲜事。
+在此次筛选中，南方基金旗下多只产品凭借良好的风险收益特征入选。
 
-早在2014年巴西世界杯期间，国际足联首次引入“补水暂停”机制：当气温超过32摄氏度时，裁判可酌情在死球状态下安排球员补水。
+其中，南方多利增强债券入选“安盈”系列；南方沪深300ETF联接、南方中证A500ETF联接、南方标普红利低波50ETF联接、南方中证科创创业50ETF联接、南方中证半导体产业指数发起、南方上证科创板芯片ETF发起联接等产品入选“智盈”系列。
 
-此后，一些国际赛事也沿用这一做法。
+具体来看，入选“安盈”系列的南方多利增强债券作为一级债基，以债券收益为基础，通过灵活运用可转债、新股申购等多元策略积极增厚收益。
 
-但与以往不同的是，本届世界杯首次将补水暂停升级为“强制执行”，意味着无论比赛地天气如何，无论球员是否真正面临高温风险，都要按规定暂停补水。
+数据显示，基金A份额近一年净值增长率达10.11%（同期业绩比较基准为-1.53%），成立以来累计收益率达143.34%（同期业绩比较基准为16.04%）。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 21:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 21:59 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 21:42 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 21:50 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 21:46 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 21:40 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 21:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 21:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 21:39 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 22:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 21:53 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 21:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 22:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 22:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 21:47 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 22:01 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 22:10 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 21:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 21:54 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 21:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:43 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/40968198.shtml)
-- 2026-06-29 21:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/91557.shtml)
-- 2026-06-29 22:05 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/488480253.shtml)
-- 2026-06-29 21:37 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/9045645906.shtml)
-- 2026-06-29 21:42 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/3940595272.shtml)
-- 2026-06-29 21:42 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/8820374.shtml)
-- 2026-06-29 21:50 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/406928991015.shtml)
-- 2026-06-29 22:03 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/54197918.shtml)
-- 2026-06-29 22:00 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/20324.shtml)
-- 2026-06-29 21:47 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/512114.shtml)
-- 2026-06-29 21:55 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/828760.shtml)
-- 2026-06-29 22:03 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/8426138923.shtml)
-- 2026-06-29 21:36 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/06898998.shtml)
-- 2026-06-29 22:00 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/091033973.shtml)
-- 2026-06-29 21:52 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/875161779.shtml)
+- 2026-06-29 22:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/14472.shtml)
+- 2026-06-29 21:51 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/62180753503.shtml)
+- 2026-06-29 21:49 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/58984.shtml)
+- 2026-06-29 21:50 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/0593166.shtml)
+- 2026-06-29 21:51 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/54152975394.shtml)
+- 2026-06-29 21:55 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/20682.shtml)
+- 2026-06-29 21:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/149347616383.shtml)
+- 2026-06-29 22:06 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/239020.shtml)
+- 2026-06-29 22:02 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/34481974.shtml)
+- 2026-06-29 21:44 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/6912675111.shtml)
+- 2026-06-29 22:08 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/812348352.shtml)
+- 2026-06-29 22:02 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/489052782090.shtml)
+- 2026-06-29 22:11 - [爱很美味](http://www.blog.minike.top/Article/details/0045336309.shtml)
+- 2026-06-29 22:10 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/6062450770.shtml)
+- 2026-06-29 22:02 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/1639570.shtml)

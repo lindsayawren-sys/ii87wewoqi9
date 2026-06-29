@@ -1,59 +1,54 @@
-# 装载8000万桶原油的超级油轮蓄势待发 准备穿越霍尔木兹海峡
+# 湖南石门村民拎着小猫转移避险：不带走怕它饿死
 
-> 更新时间：2026-06-29 22:06:01 UTC+8
+> 更新时间：2026-06-29 22:12:02 UTC+8
 
 ## 摘要
 
-载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。 根据Vortexa数据汇编的统计显示，这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。去年，该地区每天约有1500万桶原油运往亚洲市场。 在美国与伊朗签署一项
+发布时间：2026年05月21日 19:01 来源：中国新闻网 5月21日，湖南石门。气象部门预报当地将迎来新一轮强降雨，为防范暴雨次生灾害，当地政府迅速组织群众转移避险。撤离人群中，一村民随身带着一个扎有透气孔、装有狸花猫的编织袋。该村民表示，他们准备前往石门县东山峰管理区临时避险，因担心家中狸花猫独自留守挨饿，便一同带上转移。(记者 李盈 杨华峰 编辑 方敏 朱悦） 责任编
 
 ## 正文
 
-载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。
+发布时间：2026年05月21日 19:01 来源：中国新闻网 5月21日，湖南石门。
 
-根据Vortexa数据汇编的统计显示，这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。
+气象部门预报当地将迎来新一轮强降雨，为防范暴雨次生灾害，当地政府迅速组织群众转移避险。
 
-若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。
+撤离人群中，一村民随身带着一个扎有透气孔、装有狸花猫的编织袋。
 
-去年，该地区每天约有1500万桶原油运往亚洲市场。
+该村民表示，他们准备前往石门县东山峰管理区临时避险，因担心家中狸花猫独自留守挨饿，便一同带上转移。
 
-在美国与伊朗签署一项旨在恢复该水道通航的临时协议后，石油和航运业正密切关注霍尔木兹海峡是否会出现更多船舶通行活动的迹象。
-
-原油油轮可能成为首批尝试通过该海峡的船舶类型之一。
-
-在这40艘超级油轮中，有21艘显示目的地为亚洲。
-
-截至周五上午，至少有3艘油轮似乎正以正常航速向东航行，朝霍尔木兹海峡方向前进。
+(记者 李盈 杨华峰 编辑 方敏 朱悦） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 21:45 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 21:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 21:55 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 21:48 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 21:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 22:03 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 21:47 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 22:00 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 21:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 21:49 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 21:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 21:46 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 22:06 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 21:42 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 21:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 22:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 22:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 21:45 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 22:10 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 21:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 21:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 22:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 22:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 21:54 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 22:00 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 21:51 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/97557.shtml)
-- 2026-06-29 22:02 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/21701.shtml)
-- 2026-06-29 22:04 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/19011015638.shtml)
-- 2026-06-29 22:04 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/60493755.shtml)
-- 2026-06-29 22:03 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/4764872590.shtml)
-- 2026-06-29 21:51 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/8934274.shtml)
-- 2026-06-29 21:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/886518.shtml)
-- 2026-06-29 21:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/13448.shtml)
-- 2026-06-29 21:59 - [英法德葡存在什么隐患](http://www.blog.minike.top/Article/details/76962429.shtml)
-- 2026-06-29 22:05 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/71695.shtml)
-- 2026-06-29 21:42 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/5482631.shtml)
-- 2026-06-29 22:04 - [起风了](https://www.blog.minike.top/Article/details/86916.shtml)
-- 2026-06-29 21:47 - [金刚川](https://www.blog.kurohicncr.top/Article/details/230354.shtml)
-- 2026-06-29 21:56 - [金牌调解](http://www.blog.minike.top/Article/details/844126.shtml)
-- 2026-06-29 22:05 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/3617631670.shtml)
+- 2026-06-29 21:48 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/744054120675.shtml)
+- 2026-06-29 22:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/72035549.shtml)
+- 2026-06-29 21:58 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/7192226.shtml)
+- 2026-06-29 22:00 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/13119866202.shtml)
+- 2026-06-29 21:57 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/261324.shtml)
+- 2026-06-29 21:46 - [流金岁月](http://www.blog.minike.top/Article/details/5886085.shtml)
+- 2026-06-29 22:11 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/45433.shtml)
+- 2026-06-29 21:52 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/04654.shtml)
+- 2026-06-29 22:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7715381048.shtml)
+- 2026-06-29 21:53 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/51487267523.shtml)
+- 2026-06-29 21:50 - [千与千寻](http://www.share.minike.top/Article/details/64429843.shtml)
+- 2026-06-29 21:44 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/2956734954.shtml)
+- 2026-06-29 21:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/03110475935.shtml)
+- 2026-06-29 22:01 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/184327392.shtml)
+- 2026-06-29 21:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/59042955.shtml)
